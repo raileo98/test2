@@ -1,5 +1,29 @@
+# 當局計劃容許物理治療師及職業治療師等接受中醫師轉介病人
+
+  
+
+政府今年底將發表《中醫藥發展藍圖》，以勾劃未來的發展路向，包括加強中醫藥在基層醫療的角色、進一步發揮中醫藥及中西醫協作的療效優勢，並檢視現行規管制度等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795687-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795687-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795687-20250314.htm)
+
+---
+
 # 運輸署本月起放寛多個電動車種毋須申請快速公路許可證
 
+![運輸署表示，本月起放寛多個額定功率達7000瓦的電動車種，可以毋須申請快速公路許可證在高速公路行駛。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795686_1_20250314110343.jpg&q=90)
   
 
 運輸署表示，本月起放寛多個額定功率達7000瓦的電動車種，可以毋須申請快速公路許可證在高速公路行駛。
@@ -1421,29 +1445,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795468-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795468-20250312.htm)
-
----
-
-# 政府稱臨床試驗與臨床服務是兩碼子事　未完成試驗不能成臨床服務
-
-![政府說，在醫療器械或藥物硏發上，臨床試驗與臨床服務是兩碼子事，未完成臨床試驗便不能成為臨床服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795462_1_20250312214403.jpg&q=80)
-  
-
-李嘉誠基金會去年宣布，分別向香港兩所大學醫學院及養和醫院，各捐贈一部採用組織碎化技術治療肝癌的醫療儀器，其中一部儀器將由港大醫學院移至港怡醫院，將為相關私院病人提供治療服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795462-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795462-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795462-20250312.htm)
 
 ---
