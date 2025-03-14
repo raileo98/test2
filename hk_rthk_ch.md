@@ -1,3 +1,27 @@
+# 美股反彈近2%或以上　全星期計跌勢持續
+
+![美股3大指數顯著反彈近2%或以上，但全星期累計跌勢持續，跌逾2%至逾3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795807_1_20250315053531.jpg&q=90)
+  
+
+美股3大指數顯著反彈近2%或以上，但全星期累計仍下跌，市場持續關注美國總統特朗普關稅政策影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795807-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795807-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795807-20250315.htm)
+
+---
+
 # 拉舒福特和佐敦軒達臣獲杜曹徵召入英格蘭大軍名單
 
 ![拉舒福特和佐敦軒達臣獲杜曹徵召入英格蘭大軍名單。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795806_1_20250315051829.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm)
-
----
-
-# 東涌東薈城對開輕型貨車撞到兩名女子其中一人送院時昏迷
-
-![東涌東薈城對開輕型貨車撞到兩名女子其中一人送院時昏迷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795735_1_20250314164223.jpg&q=90)
-  
-
-東涌達東路下午發生交通意外，一輛輕型貨車懷疑撞到兩名女子，其中一名女子昏迷送院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795735-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795735-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795735-20250314.htm)
 
 ---
