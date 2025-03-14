@@ -1,6 +1,54 @@
+# China hosts trilateral nuclear talks with Iran, Russia
+
+![Vice Foreign Minister Ma Zhaoxu, right, meets with Iranian Deputy Foreign Minister Kazem Gharibabadi in Beijing. Photo courtesy of Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795709_1_20250314131953.jpg&q=90)
+  
+
+Chinese, Russian and Iranian diplomats met on Friday for talks, in a meeting Beijing hopes could restart long-stalled negotiations on Tehran's nuclear programme.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm)
+
+---
+
+# Parents express concern over possible school closures
+
+![Parents whose children study at Price Memorial Catholic Primary School said they're worried it may have to close. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795696_1_20250314120146.jpg&q=85)
+  
+
+Parents at a primary school that won't get public funding to operate first-year classes in the next academic year said on Friday they're shocked by the development.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm)
+
+---
+
 # Passengers and crew safe after B737 engine fire
 
-![Passengers wait on the wing of the plane for evacuation at Denver airport. Photo: Courtesy of Branden Williams/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795700_1_20250314123046.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795700_1_20250314123046.jpg&q=90)
   
 
 An American Airlines plane caught fire after landing at Denver International Airport, prompting slides to be deployed so passengers could evacuate quickly.
@@ -1389,53 +1437,5 @@ Development secretary Bernadette Linn said reviewing construction standards and 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795404-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795404-20250312.htm)
-
----
-
-# Social workers board 'to review applications by law'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795387_1_20250312120912.jpg&q=90)
-  
-
-Secretary for Labour and Welfare Chris Sun said on Wednesday he believes the Social Workers Registration Board will review any renewal application as required by law.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm)
-
----
-
-# Cavs beat Nets for second 15-game win streak of season
-
-![Darius Garland scored 18 of his 30 points in the fourth quarter. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795390_1_20250312121604.jpg&q=90)
-  
-
-Darius Garland scored 30 points as the Cleveland Cavaliers staged a double-digit comeback to bag their 15th straight victory with a 109-104 defeat of the Brooklyn Nets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm)
 
 ---
