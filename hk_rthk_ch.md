@@ -1,3 +1,26 @@
+# 47歲女子坪洲一個碼頭登船時疑失足墮海　證實不治
+
+  
+
+一名47歲女子，今早在坪洲一個碼頭登船期間懷疑失足墮海，其後被救起但證實不治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795728-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795728-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795728-20250314.htm)
+
+---
+
 # 滬指升近2%　企穩3400點以上　創逾3個月收市新高
 
 ![上證綜合指數重上3400點，收市報3419點，升幅1.81%，創逾3個月收市新高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795726_1_20250314151257.jpg&q=90)

@@ -1,3 +1,27 @@
+# 石破茂發商品券給部分自民黨眾議員遭在野黨批評
+
+![石破茂分發商品券給部分自民黨眾議員，受到在野黨批評。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795730_1_20250314153635.jpg&q=90)
+  
+
+日本首相石破茂承認本月初以禮品名義，向參加聚餐並首次當選眾議員的自民黨籍議員分發每人10萬日圓的商品券。他就事件致歉，並強調不構成法律問題，但仍然受到在野黨批評。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795730-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795730-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795730-20250314.htm)
+
+---
+
 # 美國紐約警方拘捕逾百名進入特朗普大廈示威者
 
 ![紐約警方拘捕進入特朗普大廈的示威者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795724_1_20250314150605.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm)
-
----
-
-# 巴基斯坦軍方指武裝份子以列車乘客做人盾　部分人質被帶到山區
-
-![部分人質已被救出。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795421_1_20250312163348.jpg&q=80)
-  
-
-巴基斯坦軍方官員說，遇襲客運列車上的155名被挾持人員，已被安全部隊救出，但仍有大量人質在武裝份子手上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm)
 
 ---
