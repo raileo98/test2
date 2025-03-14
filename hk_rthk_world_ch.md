@@ -1,3 +1,27 @@
+# 普京透過威特科夫轉達涉烏問題意見　特朗普：討論富有成效
+
+![佩斯科夫說，威特科夫向普京提供了更多涉及烏克蘭問題的信息。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795794_1_20250314234808.jpg&q=90)
+  
+
+俄羅斯總統普京星期四會見到訪的美國中東問題特使威特科夫，克里姆林宮發言人佩斯科夫說，普京已透過對方向美國總統特朗普轉達涉及烏克蘭問題的意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795794-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795794-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795794-20250315.htm)
+
+---
+
 # 律師指杜特爾特患醫療問題　法官稱醫生認為杜特爾特神志清醒
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795481-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795481-20250313.htm)
-
----
-
-# 哈梅內伊：美稱準備與伊朗談判是欺騙世界輿論
-
-![哈梅內伊在德黑蘭參加活動時回應美方談判的呼籲，斥責這是欺騙輿論。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795480_1_20250313011614.jpg&q=90)
-  
-
-伊朗最高領袖哈梅內伊表示，美國總統提到「準備與伊朗談判，但伊朗不願意」，這個講法是對世界輿論的欺騙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795480-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795480-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795480-20250313.htm)
 
 ---

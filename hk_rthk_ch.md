@@ -1,3 +1,27 @@
+# 普京透過威特科夫轉達涉烏問題意見　特朗普：討論富有成效
+
+![佩斯科夫說，威特科夫向普京提供了更多涉及烏克蘭問題的信息。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795794_1_20250314234808.jpg&q=90)
+  
+
+俄羅斯總統普京星期四會見到訪的美國中東問題特使威特科夫，克里姆林宮發言人佩斯科夫說，普京已透過對方向美國總統特朗普轉達涉及烏克蘭問題的意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795794-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795794-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795794-20250315.htm)
+
+---
+
 # 叙福樓料去年度轉蝕最多3600萬元
 
 ![叙福樓預計，去年度轉蝕最多3600萬元，前年度錄得8810萬元盈利。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795793_1_20250314232113.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm)
-
----
-
-# 香港與巴林促進和保護投資協定將生效　丘應樺稱增強投資者信心
-
-![丘應樺說，投資協定確保投資者在對方境內的投資享有對等保護，將增強投資者信心和擴大雙邊投資流動，進一步鞏固兩地經貿聯繫。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795719_1_20250314150732.jpg&q=80)
-  
-
-香港與巴林去年3月簽署促進和保護投資協定，雙方完成所需內部程序，協定將於本月21日生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm)
 
 ---
