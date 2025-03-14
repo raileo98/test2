@@ -1,3 +1,27 @@
+# 分析料金價年底前或升至3500美元
+
+![金價創新高，紐約期金一度突破3000美元關口，高見3005.9美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795711_1_20250314135414.jpg&q=90)
+  
+
+避險資金支撐金價創新高，紐約期金一度突破每盎士3000美元關口，高見3005.9美元，較早時仍貼近3000美元，升幅收窄至0.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795711-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795711-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795711-20250314.htm)
+
+---
+
 # 尹錫悅彈劾案最快或下周宣判　代總統稱堅決應對非法暴力集會
 
 ![韓媒預計尹錫悅彈劾案最快或下周宣判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795710_1_20250314135306.jpg&q=90)
