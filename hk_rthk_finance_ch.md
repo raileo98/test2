@@ -1,3 +1,51 @@
+# 港股半日升584點　恒指重上24000點關口
+
+![恒指臨近中午最多升逾630點，觸及24095點，中午報24047點，升584點，升幅約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795697_1_20250314121036.jpg&q=75)
+  
+
+港股結束5日跌勢，恒生指數重上24000點，臨近中午最多升逾630點，觸及24095點，中午報24047點，升584點，升幅約2.5%，半日主板成交額約1590億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795697-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795697-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795697-20250314.htm)
+
+---
+
+# 滬股半日升約1.7%　今年首次升穿3400點
+
+![上證指數升穿3400點水平，是今年以來首次，半日報3413點，升55點，升幅1.65%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795695_1_20250314115930.jpg&q=90)
+  
+
+內地股市3大指數急升近2%或以上，消費、金融、遊戲股造好，軍工、電源設備股下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795695-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795695-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795695-20250314.htm)
+
+---
+
 # 港股升幅擴大至逾500點　一度升穿24000點
 
 ![恒生指數一度重上24000點以上，曾見24003點，較早時報23978點，升516點，升幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795693_1_20250314113407.jpg&q=75)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm)
-
----
-
-# 滬股半日跌逾0.4%　深證成指跌1%
-
-![內地股市3大指數半日下跌，上證指數半日報3357點，跌14點，跌幅0.44%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795529_1_20250313113720.jpg&q=90)
-  
-
-內地股市3大指數半日下跌，人形機器人、自動化設備、人工智能概念、存儲晶片股都跌；煤炭、黃金、銀行、電力股向上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795529-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795529-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795529-20250313.htm)
-
----
-
-# 日股半日升約1%
-
-![日經指數半日收報37173點，升354點，升幅0.96%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795524_1_20250313103708.jpg&q=90)
-  
-
-日股造好，重上37000點水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795524-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795524-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795524-20250313.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 港股半日升584點　恒指重上24000點關口
+
+![恒指臨近中午最多升逾630點，觸及24095點，中午報24047點，升584點，升幅約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795697_1_20250314121036.jpg&q=75)
+  
+
+港股結束5日跌勢，恒生指數重上24000點，臨近中午最多升逾630點，觸及24095點，中午報24047點，升584點，升幅約2.5%，半日主板成交額約1590億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795697-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795697-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795697-20250314.htm)
+
+---
+
 # 朱國強料小學或合併求存　張勇邦稱規模大辦學團體才較易處理
 
   
@@ -1420,29 +1444,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm)
-
----
-
-# QS排名香港有六個大學學科位居前十　港大牙科排第二
-
-![香港有6個學科排名位居全球前10名，包括第2位的港大牙科。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795523_1_20250313100349.jpg&q=85)
-  
-
-國際高等教育資訊機構(QS)最新世界大學學科排名，香港9間院校共231學科，其中68%排名上升，是全球進步最大的地區；另有6科排名位居前10位，較去年增2科，排名最高的為港大牙科，位列第2位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm)
 
 ---

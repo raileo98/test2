@@ -1,3 +1,51 @@
+# 港股半日升584點　恒指重上24000點關口
+
+![恒指臨近中午最多升逾630點，觸及24095點，中午報24047點，升584點，升幅約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795697_1_20250314121036.jpg&q=75)
+  
+
+港股結束5日跌勢，恒生指數重上24000點，臨近中午最多升逾630點，觸及24095點，中午報24047點，升584點，升幅約2.5%，半日主板成交額約1590億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795697-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795697-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795697-20250314.htm)
+
+---
+
+# 滬股半日升約1.7%　今年首次升穿3400點
+
+![上證指數升穿3400點水平，是今年以來首次，半日報3413點，升55點，升幅1.65%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795695_1_20250314115930.jpg&q=90)
+  
+
+內地股市3大指數急升近2%或以上，消費、金融、遊戲股造好，軍工、電源設備股下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795695-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795695-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795695-20250314.htm)
+
+---
+
 # 朱國強料小學或合併求存　張勇邦稱規模大辦學團體才較易處理
 
   
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795624-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795624-20250313.htm)
-
----
-
-# 美股初段下跌　英特爾急升約17%
-
-![道瓊斯指數較早時報41296點，跌54點，跌幅0.13%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795621_1_20250313214445.jpg&q=90)
-  
-
-美股在開市初段下跌。2月最終需求生產物價指數(PPI)及核心數據均低過預期，但分析估計美國關稅政策將於未來幾個月推高美國通脹。另外，上星期首次申領失業救濟人數少過預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm)
-
----
-
-# 張國清在河北雄安新區調研　強調國資央企積極參與雄安新區建設
-
-![張國清在河北雄安新區調研。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795620_1_20250313214333.jpg&q=90)
-  
-
-中共中央政治局委員、國務院副總理張國清在河北調研中央企業支持雄安新區建設發展有關工作。他強調，要深入貫徹習近平總書記關於高標準高質量推進雄安新區建設的重要講話精神，落實黨中央、國務院決策部署，充分發揮中央企業獨特優勢作用，以更大力度、更實舉措支持雄安新區高標準規劃建設、高質量發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm)
 
 ---
