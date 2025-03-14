@@ -1,3 +1,26 @@
+# 運輸署本月起放寛多個電動車種毋須申請快速公路許可證
+
+  
+
+運輸署表示，本月起放寛多個額定功率達7000瓦的電動車種，可以毋須申請快速公路許可證在高速公路行駛。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795686-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795686-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795686-20250314.htm)
+
+---
+
 # 消息：公立醫院電腦掃瞄和磁力共振等擬逐項收費　不適用緊急病人
 
 ![據了解，當中除了考慮急症室收費或作調整外，亦會考慮向部分服務，實施逐項收費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795682_1_20250314103559.jpg&q=70)
@@ -1422,29 +1445,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795462-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795462-20250312.htm)
-
----
-
-# 威院獲中國國際醫院評審認證　盧寵茂與深圳官員見證
-
-![威爾斯親王醫院成功通過《國際醫院評審認證標準（中國）》的評審認證。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795456_1_20250312212737.jpg&q=75)
-  
-
-​醫務衞生局局長盧寵茂和深圳市委常委、市政府黨組成員陳清及其率領的代表團，出席「威爾斯親王醫院獲中國國際醫院評審認證授牌儀式」，見證該醫院成為香港特別行政區第二間成功通過《國際醫院評審認證標準（中國）》（2021版）評審認證的醫院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795456-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795456-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795456-20250312.htm)
 
 ---

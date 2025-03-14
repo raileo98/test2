@@ -1,3 +1,26 @@
+# 運輸署本月起放寛多個電動車種毋須申請快速公路許可證
+
+  
+
+運輸署表示，本月起放寛多個額定功率達7000瓦的電動車種，可以毋須申請快速公路許可證在高速公路行駛。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795686-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795686-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795686-20250314.htm)
+
+---
+
 # 日股半日回升逾百點
 
 ![日經指數止跌回升，半日報36919點，升129點，升幅0.35%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795684_1_20250314103443.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795615-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795615-20250313.htm)
-
----
-
-# 美國2月最終需求PPI及核心指數按年增速放緩
-
-![美國2月最終需求生產物價指數(PPI)及核心PPI，分別按年升3.2%和3.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795614_1_20250313210514.jpg&q=85)
-  
-
-美國2月反映上游成本的最終需求生產物價指數(PPI)及核心PPI，按年升幅都由1月所創的近兩年高位放緩。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795614-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795614-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795614-20250313.htm)
 
 ---
