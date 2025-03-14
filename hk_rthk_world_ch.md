@@ -1,3 +1,27 @@
+# 尹錫悅彈劾案最快或下周宣判　代總統稱堅決應對非法暴力集會
+
+![韓媒預計尹錫悅彈劾案最快或下周宣判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795710_1_20250314135306.jpg&q=90)
+  
+
+韓聯社報道，南韓憲法法院截至昨日，仍未向當事方通知總統尹錫悅彈劾案的宣判日期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795710-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795710-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795710-20250314.htm)
+
+---
+
 # 日媒稱日本男子在長城拍攝不雅照片遭拘留後遣返
 
 ![萬里長城是國家著名景點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795683_1_20250314103707.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm)
-
----
-
-# 謝鋒：中美關係面臨嚴峻挑戰　極限施壓註定撞上南牆
-
-![謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。（中國駐美使館）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795371_1_20250312101015.jpg&q=90)
-  
-
-中國駐美大使謝鋒表示，中美關係面臨嚴峻挑戰，再次處於何去何從的關頭。他說，「極限施壓註定撞上南牆」，打關稅戰、貿易戰損人更害己，禁限投資如同殺雞取卵，「以台制華」只會引火焚身，又指「外資撤離中國論」宣告破產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm)
 
 ---

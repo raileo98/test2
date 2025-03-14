@@ -1,3 +1,27 @@
+# 尹錫悅彈劾案最快或下周宣判　代總統稱堅決應對非法暴力集會
+
+![韓媒預計尹錫悅彈劾案最快或下周宣判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795710_1_20250314135306.jpg&q=90)
+  
+
+韓聯社報道，南韓憲法法院截至昨日，仍未向當事方通知總統尹錫悅彈劾案的宣判日期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795710-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795710-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795710-20250314.htm)
+
+---
+
 # 港股下午初段在24000點關口爭持
 
 ![恒生指數在24000點關口爭持，較早時報23994點，升532點，升幅2.27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795708_1_20250314130613.jpg&q=65)
