@@ -1,3 +1,50 @@
+# 發改委經濟研究所所長：現時仍有空間適時降準和減息
+
+  
+
+在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，今年要實施積極有為的宏觀政策，要打好政策組合拳，特別要強調宏觀政策取向一致性，加強財政、貨幣政策等各類政策的協同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm)
+
+---
+
+# 內地2月新增人民幣貸款1.01萬億元遜預期
+
+![外電測算內地2月新增人民幣貸款1.01萬億元，低過市場預期中值的1.28萬億元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795754_1_20250314174206.jpg&q=90)
+  
+
+人民銀行公布，今年首兩個月人民幣貸款增加6.14萬億元。外電計算，內地2月新增人民幣貸款1.01萬億元，低過市場預期中值的1.28萬億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm)
+
+---
+
 # 反分裂國家法座談會舉行　趙樂際稱要打擊台獨分裂遏制外部干涉
 
 ![趙樂際在座談會上表示要堅定不移推進祖國統一大業。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795751_1_20250314173134.jpg&q=90)
@@ -1387,56 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795297-20250311.htm)
-
----
-
-# 全國兩會｜張素心稱要紮實做好國產晶片把技術做得更好
-
-![張素心說，國產晶片企業要紮紮實實做好自己的工作，加快新質生產力發展，把創新科技做得更好。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_1_20250311191036.jpg&q=90)
-![劉繼忠表示，天問三號火星採樣任務的進展很順利。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_2_20250311191036.jpg&q=75)
-![賴如鑫被問到將來會否有國防新科技在香港展出時說，不接受採訪。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_3_20250311191036.jpg&q=80)
-![董軍沒有回應有關今年國防預算增幅的提問。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795293_4_20250311191036.jpg&q=75)
-  
-
-全國人大代表、半導體企業華虹集團前董事長張素心，在北京出席全國兩會期間接受本台訪問時說，國產晶片企業要紮紮實實做好自己的工作，加快新質生產力發展，把創新科技做得更好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795293-20250311.htm)
-
----
-
-# 全國兩會｜人大會議閉幕　李鴻忠：為實現十五五良好開局打牢基礎
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795289_1_20250311184728.jpg&q=80)
-  
-
-十四屆全國人大三次會議在北京閉幕，會議表決通過了所有決議草案及決定草案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795289-20250311.htm)
 
 ---

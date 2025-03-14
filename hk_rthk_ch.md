@@ -1,3 +1,74 @@
+# 發改委經濟研究所所長：現時仍有空間適時降準和減息
+
+  
+
+在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，今年要實施積極有為的宏觀政策，要打好政策組合拳，特別要強調宏觀政策取向一致性，加強財政、貨幣政策等各類政策的協同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm)
+
+---
+
+# 人民幣兌美元收市創逾4個月新高
+
+![人民幣收市報7.2288兌1美元，較上日收市升139點子，創逾4個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795753_1_20250314173620.jpg&q=90)
+  
+
+人民幣兌美元收市創逾4個月新高，報7.2288兌1美元，較上日收市升139點子。中間價則微跌至7.1738兌1美元，與市場預測偏離仍逾700點子，反映監管層延續過濾舉措，繼續穩定市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795753-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795753-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795753-20250314.htm)
+
+---
+
+# 內地2月新增人民幣貸款1.01萬億元遜預期
+
+![外電測算內地2月新增人民幣貸款1.01萬億元，低過市場預期中值的1.28萬億元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795754_1_20250314174206.jpg&q=90)
+  
+
+人民銀行公布，今年首兩個月人民幣貸款增加6.14萬億元。外電計算，內地2月新增人民幣貸款1.01萬億元，低過市場預期中值的1.28萬億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm)
+
+---
+
 # 反分裂國家法座談會舉行　趙樂際稱要打擊台獨分裂遏制外部干涉
 
 ![趙樂際在座談會上表示要堅定不移推進祖國統一大業。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795751_1_20250314173134.jpg&q=90)
@@ -361,7 +432,7 @@
 ![東涌東薈城對開輕型貨車撞到兩名女子其中一人送院時昏迷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795735_1_20250314164223.jpg&q=90)
   
 
-東涌文東路下午發生交通意外，一輛輕型貨車懷疑撞到兩名女子，其中一名女子昏迷送院。
+東涌達東路下午發生交通意外，一輛輕型貨車懷疑撞到兩名女子，其中一名女子昏迷送院。
 
   
 
