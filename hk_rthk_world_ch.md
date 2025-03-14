@@ -1,6 +1,30 @@
+# 日媒稱日本男子在長城拍攝不雅照片遭拘留後遣返
+
+![萬里長城是國家著名景點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795683_1_20250314103707.jpg&q=90)
+  
+
+日本傳媒報道，一名日本男子今年一月，在中國長城景點觀光時，裸露臀部拍照，違反治安管理處罰法被拘留，目前已被遣返。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm)
+
+---
+
 # 美國航空客機丹佛國際機場起火　所有乘客疏散無人傷
 
-![美國航空公司一架客機在丹佛國際機場起火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795673_1_20250314093831.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795673_1_20250314093831.jpg&q=90)
   
 
 美國航空公司一架客機在丹佛國際機場起火，所有乘客疏散，無人受傷。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm)
-
----
-
-# 《環看天下》：加拿大反制　安大略省向輸美電力徵收25%附加費
-
-![加拿大安大略省省長福特表示，加徵25％附加費後，美國用戶每月或須多付100加元電費。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795357_2_20250313073515.jpg&q=85)
-  
-
-美國同加拿大的貿易戰對壘有新進展。作為加拿大早前以回應美國計劃大規模加徵關稅的措施，安大略省宣布向輸出到美國三個州的電力，徵收25%的附加費。美國總統特朗普其後反擊，威脅會將從加拿大進口鋼鋁產品加徵的關稅稅率，由25%提升一倍至50%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm)
 
 ---

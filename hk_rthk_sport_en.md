@@ -1,9 +1,33 @@
+# Man Utd and Spurs through in Europa League
+
+![Bruno Fernandes was decisive for Manchester United with his hat-trick. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795685_1_20250314104926.jpg&q=90)
+  
+
+Bruno Fernandes netted a hat-trick as Manchester United beat Real Sociedad 4-1 in their Europa League last-16 second leg on Thursday, while Tottenham bounced back to edge AZ Alkmaar 3-2 on aggregate.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795685-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795685-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795685-20250314.htm)
+
+---
+
 # Swiatek cruises past Zheng to reach Indian Wells semis
 
 ![Iga Swiatek beat Zheng Qinwen in straight sets to reach the final four at Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795674_1_20250314093042.jpg&q=90)
   
 
-Defending champion Iga Swiatek beat Zheng Qinwen 6-3, 6-3, avenging her Olympics semi-final loss to the Paris Games gold medallist, to reach the last four at Indian Wells.
+Defending champion Iga Swiatek beat Zheng Qinwen of China 6-3, 6-3, avenging her Olympics semi-final loss to the Paris Games gold medallist, to reach the last four at Indian Wells.
 
   
 
@@ -1424,29 +1448,5 @@ Chelsea moved into the Premier League's top four with a 4-0 demolition of haples
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm)
-
----
-
-# S Africa-Australia Champions Trophy game washed out
-
-![A persistent light drizzle scuppered any chance of play in Rawalpindi. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793136_1_20250225205129.jpg&q=80)
-  
-
-Rain washed out the Champions Trophy game between South Africa and two-time winner Australia on Tuesday without a ball being bowled.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793136-20250225.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793136-20250225.htm](https://news.rthk.hk/rthk/en/component/k2/1793136-20250225.htm)
 
 ---

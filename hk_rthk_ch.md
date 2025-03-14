@@ -1,5 +1,54 @@
+# 日股半日回升逾百點
+
+![日經指數止跌回升，半日報36919點，升129點，升幅0.35%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795684_1_20250314103443.jpg&q=90)
+  
+
+日股先跌後回升，日經指數半日報36919點，升129點，升幅0.35%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795684-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795684-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795684-20250314.htm)
+
+---
+
+# 日媒稱日本男子在長城拍攝不雅照片遭拘留後遣返
+
+![萬里長城是國家著名景點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795683_1_20250314103707.jpg&q=90)
+  
+
+日本傳媒報道，一名日本男子今年一月，在中國長城景點觀光時，裸露臀部拍照，違反治安管理處罰法被拘留，目前已被遣返。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm)
+
+---
+
 # 消息：公立醫院電腦掃瞄和磁力共振等擬逐項收費　不適用緊急病人
 
+![據了解，當中除了考慮急症室收費或作調整外，亦會考慮向部分服務，實施逐項收費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795682_1_20250314103559.jpg&q=70)
   
 
 消息指，政府將於未來數星期內，交代公營醫療收費調整方案。據了解，當中除了考慮急症室收費或作調整外，亦會考慮向部分服務，實施逐項收費，包括電腦掃瞄和磁力共振，但強調價格會是可負擔水平，有關收費亦不適用於病情緊急或情況嚴重的患者。
@@ -71,7 +120,6 @@
 
 # 博智小校下學年未能開辦小一　家長感愕然校長冀為學生作最好安排
 
-![黃大仙的天主教博智小學獲派的學生人數少於16人，下學年未能獲資助開辦小一。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795679_1_20250314100141.jpg&q=85)
 ![博智小校校長何妙賢說，將與辦學團體及教育局商討，為學生作出最好安排。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795679_2_20250314102321.jpg&q=90)
   
 
@@ -192,7 +240,7 @@
 
 # 美國航空客機丹佛國際機場起火　所有乘客疏散無人傷
 
-![美國航空公司一架客機在丹佛國際機場起火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795673_1_20250314093831.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795673_1_20250314093831.jpg&q=90)
   
 
 美國航空公司一架客機在丹佛國際機場起火，所有乘客疏散，無人受傷。
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795614-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795614-20250313.htm)
-
----
-
-# 新學年兩小學獲「派0班」包括天主教博智小學和鴨脷洲街坊學校
-
-![教育局表示，2025年度小一派位下，有兩所資助小學未能獲批開辦資助小一班級，分別為黃大仙區的天主教博智小學和南區的鴨脷洲街坊學校。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795613_2_20250313212255.jpg&q=90)
-  
-
-教育局表示，2025/26學年有兩間小學獲派的學生人數少於16人，未能獲資助開辦小一，分別是黃大仙的天主教博智小學，及南區的鴨脷洲街坊學校。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795613-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795613-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795613-20250313.htm)
-
----
-
-# 工貿署優化兩項支援中小企基金　鼓勵提升競爭力爭取外地市場
-
-![簡稱「BUD專項基金」的「發展品牌、升級轉型及拓展內銷市場專項基金」，將由現時每間企業每6個月只可遞交一項申請，放寬至每3個月可遞交一項。（「BUD專項基金」網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795612_1_20250313205234.jpg&q=90)
-  
-
-工業貿易署宣布，優化兩項支援中小企業的基金，鼓勵業界提升競爭力，爭取外地市場
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795612-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795612-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795612-20250313.htm)
 
 ---

@@ -48,7 +48,7 @@ The prestigious Johns Hopkins University said on Thursday it was being forced to
 
 # Duterte's first court appearance set for Friday
 
-![People protest against former Philippine President Rodrigo Duterte in front of the ICC in the Hague. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795667_1_20250314085246.jpg&q=80)
+![People protest against former Philippine president Rodrigo Duterte in front of the ICC in the Hague. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795667_1_20250314085246.jpg&q=80)
   
 
 Rodrigo Duterte's first appearance at the International Criminal Court has been set for Friday, the court said, as the former Philippines president faces crimes against humanity charges over his deadly war on drugs.

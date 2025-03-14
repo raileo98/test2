@@ -1,3 +1,27 @@
+# Man Utd and Spurs through in Europa League
+
+![Bruno Fernandes was decisive for Manchester United with his hat-trick. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795685_1_20250314104926.jpg&q=90)
+  
+
+Bruno Fernandes netted a hat-trick as Manchester United beat Real Sociedad 4-1 in their Europa League last-16 second leg on Thursday, while Tottenham bounced back to edge AZ Alkmaar 3-2 on aggregate.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795685-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795685-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795685-20250314.htm)
+
+---
+
 # Hong Kong stocks open higher
 
 ![The Hang Seng Index rose 0.8 percent, to open at 23,653. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795677_1_20250314094204.jpg&q=75)
@@ -27,7 +51,7 @@ Hong Kong stocks on Friday opened higher, after global markets slid, as US Presi
 ![Iga Swiatek beat Zheng Qinwen in straight sets to reach the final four at Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795674_1_20250314093042.jpg&q=90)
   
 
-Defending champion Iga Swiatek beat Zheng Qinwen 6-3, 6-3, avenging her Olympics semi-final loss to the Paris Games gold medallist, to reach the last four at Indian Wells.
+Defending champion Iga Swiatek beat Zheng Qinwen of China 6-3, 6-3, avenging her Olympics semi-final loss to the Paris Games gold medallist, to reach the last four at Indian Wells.
 
   
 
@@ -96,7 +120,7 @@ The prestigious Johns Hopkins University said on Thursday it was being forced to
 
 # Duterte's first court appearance set for Friday
 
-![People protest against former Philippine President Rodrigo Duterte in front of the ICC in the Hague. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795667_1_20250314085246.jpg&q=80)
+![People protest against former Philippine president Rodrigo Duterte in front of the ICC in the Hague. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795667_1_20250314085246.jpg&q=80)
   
 
 Rodrigo Duterte's first appearance at the International Criminal Court has been set for Friday, the court said, as the former Philippines president faces crimes against humanity charges over his deadly war on drugs.
@@ -508,7 +532,7 @@ Nearly 70 percent of local university courses have seen their global rankings ri
 ![HKU says 40 patients have been treated with the donated device over the past six months. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795541_1_20250313123550.jpg&q=75)
   
 
-Health officials said on Wednesday medical devices donated by a tycoon for treating liver cancer are still under clinical trials and require careful evaluation before wider use in public healthcare.
+Health officials said medical devices donated by a tycoon for treating liver cancer are still under clinical trials and require careful evaluation before wider use in public healthcare.
 
   
 
@@ -1413,29 +1437,5 @@ An economist at a leading investment bank on Wednesday said the main takeaways f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm)
-
----
-
-# Hang Seng shrugs off lower Wall Street close
-
-![The Hang Seng Index and both main mainland indices opened in positive territory. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795372_1_20250312103349.jpg&q=65)
-  
-
-The Hang Seng Index rose 77.09 points, or 0.32 percent, to open at 23,859.23 points on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm)
 
 ---

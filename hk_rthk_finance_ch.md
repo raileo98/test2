@@ -1,3 +1,27 @@
+# 日股半日回升逾百點
+
+![日經指數止跌回升，半日報36919點，升129點，升幅0.35%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795684_1_20250314103443.jpg&q=90)
+  
+
+日股先跌後回升，日經指數半日報36919點，升129點，升幅0.35%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795684-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795684-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795684-20250314.htm)
+
+---
+
 # 港股升逾200點　長和曾挫近7%　友邦回購遜預期拖累股價跌
 
 ![港股結束5日跌勢，恒生指數較早時報23680點，升217點，升幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795680_1_20250314095812.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795522-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795522-20250313.htm)
-
----
-
-# 滬深股市初段微跌
-
-![內地股市早段微跌，上證指數較早時報3369點，跌2點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795520_1_20250313093736.jpg&q=90)
-  
-
-內地股市早段微跌，上證指數較早時報3369點，跌2點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795520-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795520-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795520-20250313.htm)
 
 ---

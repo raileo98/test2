@@ -196,7 +196,7 @@ Nearly 70 percent of local university courses have seen their global rankings ri
 ![HKU says 40 patients have been treated with the donated device over the past six months. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795541_1_20250313123550.jpg&q=75)
   
 
-Health officials said on Wednesday medical devices donated by a tycoon for treating liver cancer are still under clinical trials and require careful evaluation before wider use in public healthcare.
+Health officials said medical devices donated by a tycoon for treating liver cancer are still under clinical trials and require careful evaluation before wider use in public healthcare.
 
   
 

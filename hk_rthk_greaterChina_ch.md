@@ -1,3 +1,27 @@
+# 日媒稱日本男子在長城拍攝不雅照片遭拘留後遣返
+
+![萬里長城是國家著名景點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795683_1_20250314103707.jpg&q=90)
+  
+
+日本傳媒報道，一名日本男子今年一月，在中國長城景點觀光時，裸露臀部拍照，違反治安管理處罰法被拘留，目前已被遣返。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm)
+
+---
+
 # 內地男網民涉AI捏造「明星澳門輸掉十億」遭行政拘留
 
 ![內地男網民涉AI捏造「明星澳門輸掉十億」遭行政拘留](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795681_1_20250314100447.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm)
-
----
-
-# 全國兩會｜小鵬汽車於人型機器人上或投入上千億元人民幣
-
-![何小鵬相信，十多年後人形機器人市場規模或將與新能源汽車相若。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795241_2_20250311181002.jpg&q=75)
-  
-
-全國人大代表、小鵬汽車董事長何小鵬接受證券時報訪問時表示，公司在人形機器人已經有5年研發和投入，未來可能還要做20年，再花500億元，甚至上千億元人民幣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795241-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795241-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795241-20250311.htm)
 
 ---
