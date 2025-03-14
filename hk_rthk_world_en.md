@@ -1,3 +1,27 @@
+# Passengers and crew safe after B737 engine fire
+
+![Passengers wait on the wing of the plane for evacuation at Denver airport. Photo: Courtesy of Branden Williams/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795700_1_20250314123046.jpg&q=90)
+  
+
+An American Airlines plane caught fire after landing at Denver International Airport, prompting slides to be deployed so passengers could evacuate quickly.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm)
+
+---
+
 # Japanese duo pay for Great Wall buttocks prank
 
 ![The two Japanese were caught soon after their stunt at the Great Wall. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795690_1_20250314111711.jpg&q=90)
@@ -1411,29 +1435,5 @@ Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm)
-
----
-
-# Pope releases audio message thanking the faithful
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794716_1_20250307123125.jpg&q=90)
-  
-
-A weak and breathless Pope Francis thanked people for their prayers for his recovery in a remarkable audio message broadcast on Thursday, the first public sign of life from the 88-year-old pope since he was hospitalized three weeks ago with double pneumonia.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794716-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794716-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794716-20250307.htm)
 
 ---

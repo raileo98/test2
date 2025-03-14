@@ -1,3 +1,27 @@
+# Passengers and crew safe after B737 engine fire
+
+![Passengers wait on the wing of the plane for evacuation at Denver airport. Photo: Courtesy of Branden Williams/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795700_1_20250314123046.jpg&q=90)
+  
+
+An American Airlines plane caught fire after landing at Denver International Airport, prompting slides to be deployed so passengers could evacuate quickly.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm)
+
+---
+
 # Sleep vital for a healthy body and mind: expert
 
 ![Children learn about correct sleep postures during class in China. Experts say good sleeping patterns are essential to health and mental well-being. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795692_1_20250314113237.jpg&q=85)
@@ -1413,29 +1437,5 @@ Darius Garland scored 30 points as the Cleveland Cavaliers staged a double-digit
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm)
-
----
-
-# Trump's 25 pct tariffs on steel and aluminium in force
-
-![A new wave of US tariffs sees levies of 25 percent on steel and aluminium imports. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795389_1_20250312121525.jpg&q=80)
-  
-
-US President Donald Trump's increased tariffs on steel and aluminum imports took effect on Wednesday as prior exemptions, duty free quotas and product exclusions expired.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm)
 
 ---

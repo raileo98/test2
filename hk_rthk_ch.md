@@ -1,5 +1,29 @@
+# 港鐵本月22日起重鐵網絡各車站均接受「全國交通一卡通」付費
+
+  
+
+港鐵宣布，本月22日，即下星期六起，除機場快綫車站外，重鐵網絡各車站均接受「全國交通一卡通」付費乘車，為訪港旅客提供新選擇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795701-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795701-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795701-20250314.htm)
+
+---
+
 # 博智小學家長冀繼續營辦　校長盼找到最合適方案
 
+![有博智小學的家長表示無奈，希望學校可以繼續營辦，讓子女完成小學。（陳裕行攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795699_1_20250314123649.jpg&q=90)
   
 
 黃大仙的天主教博智小學及南區的鴨脷洲街坊學校下學年獲派的學生人數少於16人，未能獲資助開辦小一。
@@ -1410,29 +1434,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795627-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795627-20250313.htm)
-
----
-
-# 運輸及物流局稱香港註冊船舶的總註冊噸位處近10年高位
-
-![運輸及物流局表示，截至去年年底，香港註冊船舶的總註冊噸位處於近10年來的高位，並繼續位列全球第四。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795628_1_20250313223454.jpg&q=80)
-  
-
-運輸及物流局表示，截至去年年底，香港註冊船舶的總註冊噸位處於近10年來的高位，並繼續位列全球第四，僅次於利比里亞、巴拿馬和馬紹爾群島。海事處會繼續透過其海內外網絡，積極向各地船東及相關船務公司宣傳推廣香港船舶註冊的優勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm)
 
 ---

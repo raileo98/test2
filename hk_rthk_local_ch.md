@@ -1,5 +1,29 @@
+# 港鐵本月22日起重鐵網絡各車站均接受「全國交通一卡通」付費
+
+  
+
+港鐵宣布，本月22日，即下星期六起，除機場快綫車站外，重鐵網絡各車站均接受「全國交通一卡通」付費乘車，為訪港旅客提供新選擇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795701-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795701-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795701-20250314.htm)
+
+---
+
 # 博智小學家長冀繼續營辦　校長盼找到最合適方案
 
+![有博智小學的家長表示無奈，希望學校可以繼續營辦，讓子女完成小學。（陳裕行攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795699_1_20250314123649.jpg&q=90)
   
 
 黃大仙的天主教博智小學及南區的鴨脷洲街坊學校下學年獲派的學生人數少於16人，未能獲資助開辦小一。
@@ -1418,29 +1442,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795532-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795532-20250313.htm)
-
----
-
-# 個別公共屋邨緊急通道有車輛違泊　申訴專員提出12項改善建議
-
-![申訴專員公布就房屋署處理公共屋邨違例泊車問題的主動調查行動報告。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795533_1_20250313121409.jpg&q=60)
-  
-
-申訴專員陳積志完成房屋署處理公共屋邨違例泊車問題的主動調查行動，發現有違泊車輛，甚至個別屋邨有違泊車輛停泊在緊急通道，並提出12項改善建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795533-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795533-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795533-20250313.htm)
 
 ---
