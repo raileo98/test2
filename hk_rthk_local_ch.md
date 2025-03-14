@@ -1,3 +1,26 @@
+# 朱國強料小學或合併求存　張勇邦稱規模大辦學團體才較易處理
+
+  
+
+資助小學校長會名譽主席張勇邦表示，面對適齡學童人口下降的「寒冬期」，需要修訂措施面對現實。他認為教育局修訂「派0班」小學發展規劃及取消特別視學安排，是適合現時的狀態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795694-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795694-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795694-20250314.htm)
+
+---
+
 # 港股升幅擴大至逾500點　一度升穿24000點
 
 ![恒生指數一度重上24000點以上，曾見24003點，較早時報23978點，升516點，升幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795693_1_20250314113407.jpg&q=75)
@@ -1420,29 +1443,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm)
-
----
-
-# 林緯遜料交流團學生出發前或已染腸胃炎　鄧飛稱現時相關指引足夠
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795519_1_20250313101825.jpg&q=90)
-  
-
-先後有學校參與廣東韶關及安徽黃山的交流團後，多名師生出現急性腸胃炎徵狀。感染及傳染病醫學會會長林緯遜於本台節目《千禧年代》表示，諾如病毒今年在全球多個地點的活躍度明顯增加，有學生於抵步就出現腸胃炎徵狀， 他們在香港出發前感染並不出奇，建議如果有學生在旅遊巴上嘔吐，可打開車窗，令空氣對流，盡量保持空氣流通。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm)
 
 ---

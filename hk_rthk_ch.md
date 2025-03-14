@@ -1,3 +1,26 @@
+# 朱國強料小學或合併求存　張勇邦稱規模大辦學團體才較易處理
+
+  
+
+資助小學校長會名譽主席張勇邦表示，面對適齡學童人口下降的「寒冬期」，需要修訂措施面對現實。他認為教育局修訂「派0班」小學發展規劃及取消特別視學安排，是適合現時的狀態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795694-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795694-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795694-20250314.htm)
+
+---
+
 # 港股升幅擴大至逾500點　一度升穿24000點
 
 ![恒生指數一度重上24000點以上，曾見24003點，較早時報23978點，升516點，升幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795693_1_20250314113407.jpg&q=75)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm)
-
----
-
-# 外管局：加強外匯市場逆周期調節　保持人民幣匯率基本穩定
-
-![外匯管理局表示，加強外匯市場逆周期調節和預期管理，保持人民幣匯率在合理均衡水平上基本穩定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795619_1_20250313212922.jpg&q=85)
-  
-
-國家外匯管理局召開黨組擴大會議指出，今年要防範外部風險衝擊，完善跨境資金流動監測預警體系，加強外匯市場逆周期調節和預期管理，保持人民幣匯率在合理均衡水平上基本穩定，維護國際收支基本平衡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm)
 
 ---
