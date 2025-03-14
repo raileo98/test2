@@ -1,3 +1,26 @@
+# 發改委經濟研究所所長稱美國加關稅對中國經濟影響不大
+
+  
+
+在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，美國對華產品加徵關稅調高至20%，中國亦已推出反制措施，對中國經濟的影響不大，強調中國的財政政策留有空間和餘地，可以應對外部環境的衝擊的和打壓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795731-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795731-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795731-20250314.htm)
+
+---
+
 # 市場料內地首兩月工業增加值增速或放緩　投資及消費增長加快
 
 ![受春節導致工作日數按年減少及高基數影響，市場料首兩月內地工業增加值增速放緩至去年10月以來最低。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795729_1_20250314153344.jpg&q=85)
@@ -1411,29 +1434,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm)
-
----
-
-# 恒指低收137點　連跌5日　科指跌近2%
-
-![恒生指數午後一度失守23200點，創逾1個星期低位，收市報23462點，跌137點，跌幅近0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795578_1_20250313162530.jpg&q=45)
-  
-
-港股連跌5個交易日，恒生指數午後一度失守23200點，跌逾400點，創逾1個星期低位，其後跌幅收窄，收市報23462點，跌137點，跌幅近0.6%，主板成交額進一步縮減至約2338億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm)
 
 ---
