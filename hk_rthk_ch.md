@@ -1,3 +1,27 @@
+# 嶺大有信息系統被黑客入侵　數千份內部文件外洩
+
+![校方已就事件通報個人資料私隱專員公署。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795804_1_20250315045007.jpg&q=75)
+  
+
+嶺南大學表示，有信息系統被黑客入侵，數千份內部文件外洩，其中約200份涉及主要個人資料，已就事件通報個人資料私隱專員公署。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795804-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795804-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795804-20250315.htm)
+
+---
+
 # 普京稱俄美關係有進展　若庫爾斯克州烏軍投降會保證安全
 
 ![普京以視像方式出席俄羅斯聯邦安全會議常務委員會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795803_1_20250315042230.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm)
-
----
-
-# 金管總局：鼓勵加大個人消費貸款投放力度
-
-![金管總局發文鼓勵銀行業金融機構在風險可控前提下，加大個人消費貸款投放力度，優化資源配置。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795732_1_20250314163540.jpg&q=90)
-  
-
-中國金融監管總局發文，鼓勵銀行業金融機構在風險可控前提下，加大個人消費貸款投放力度，合理設置消費貸款額度、期限、利率，優化資源配置；針對長期、大額消費需求，從消費貸款額度、期限等方面給予支持；針對暫時遇到困難的借款人，合理商定貸款償還期限及頻次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm)
 
 ---
