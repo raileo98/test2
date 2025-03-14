@@ -1,3 +1,27 @@
+# 港股升逾200點　長和曾挫近7%　友邦回購遜預期拖累股價跌
+
+![港股結束5日跌勢，恒生指數較早時報23680點，升217點，升幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795680_1_20250314095812.jpg&q=90)
+  
+
+港股結束5日跌勢，恒生指數較早時報23680點，升217點，升幅0.93%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795680-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795680-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795680-20250314.htm)
+
+---
+
 # 人行逆回購1807億元人民幣　本周淨回籠2517億元
 
 ![公開市場今日淨回籠43億元人民幣，連續10日淨回籠，本周累計淨回籠2517億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795678_1_20250314094403.jpg&q=80)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795520-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795520-20250313.htm)
-
----
-
-# 人行逆回購操作359億元人民幣　淨回籠686億元
-
-![人行公開市場開展359億元人民幣7天期逆回購操作，單日淨回籠686億元，連續9日淨回籠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795518_1_20250313092703.jpg&q=80)
-  
-
-人民銀行公開市場開展359億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，單日淨回籠686億元，連續9日淨回籠。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795518-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795518-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795518-20250313.htm)
 
 ---

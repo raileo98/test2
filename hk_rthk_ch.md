@@ -1,5 +1,54 @@
+# 港股升逾200點　長和曾挫近7%　友邦回購遜預期拖累股價跌
+
+![港股結束5日跌勢，恒生指數較早時報23680點，升217點，升幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795680_1_20250314095812.jpg&q=90)
+  
+
+港股結束5日跌勢，恒生指數較早時報23680點，升217點，升幅0.93%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795680-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795680-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795680-20250314.htm)
+
+---
+
+# 內地男網民涉AI捏造「明星澳門輸掉十億」遭行政拘留
+
+![內地男網民涉AI捏造「明星澳門輸掉十億」遭行政拘留](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795681_1_20250314100447.jpg&q=90)
+  
+
+內地公安機構以嚴重擾亂公共秩序為由，對一名36歲男子作出行政拘留8日處罰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795681-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795681-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795681-20250314.htm)
+
+---
+
 # 博智小校下學年未能開辦小一　家長感愕然校長冀為學生作最好安排
 
+![黃大仙的天主教博智小學獲派的學生人數少於16人，下學年未能獲資助開辦小一。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795679_1_20250314100141.jpg&q=85)
   
 
 教育局表示，黃大仙的天主教博智小學及南區的鴨脷洲街坊學校，獲派的學生人數少於16人，2025/26學年未能獲資助開辦小一。
@@ -1388,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm)
-
----
-
-# O．PARK1廚餘儲存缸滲漏須維修　服務由O．PARK2處理
-
-![環保署說，會因應O．PARK1維修工作的進展及最新情況，主動聯絡受影響的廚餘生產者及運送者，確保相關廚餘運送工作繼續有序進行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795610_1_20250313201348.jpg&q=90)
-  
-
-環保署表示，位於大嶼山小蠔灣的有機資源回收中心第一期O．PARK1，一個廚餘儲存缸出現滲漏，需要緊急維修。現時O．PARK1需暫停接收廚餘，相關廚餘會由其他設施接收和處理，包括位於北區沙嶺的有機資源回收中心第二期O．PARK2。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795610-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795610-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795610-20250313.htm)
-
----
-
-# 丘應樺稱孤立主義和保護主義帶來不確定性　互相合作尤其重要
-
-![投資推廣署與工業貿易署合辦酒會招待伊比利亞美洲商界，商務及經濟發展局局長丘應樺在酒會致歡迎辭。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795609_1_20250313201128.jpg&q=80)
-  
-
-投資推廣署與工業貿易署合辦酒會招待伊比利亞美洲商界，商務及經濟發展局局長丘應樺致辭時表示，香港與伊比利亞美洲的經濟體已建立密切聯繫，雙方貨物貿易總值在去年錄得14.4%的強勁增長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 內地男網民涉AI捏造「明星澳門輸掉十億」遭行政拘留
+
+![內地男網民涉AI捏造「明星澳門輸掉十億」遭行政拘留](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795681_1_20250314100447.jpg&q=90)
+  
+
+內地公安機構以嚴重擾亂公共秩序為由，對一名36歲男子作出行政拘留8日處罰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795681-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795681-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795681-20250314.htm)
+
+---
+
 # 《環看天下》：中方將舉行伊朗核問題中俄伊北京會晤
 
 ![伊朗最高領袖哈梅內伊表示，伊朗絕不接受某些「霸凌政府」的談判要求。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795665_1_20250314081511.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795241-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795241-20250311.htm)
-
----
-
-# 全國兩會｜小鵬汽車冀旗下飛行汽車成全球首款規模化量產交付
-
-![何小鵬稱分體式飛行汽車去年完成全球首次公開飛行，全面進入適航審定階段。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795252_1_20250311152140.jpg&q=90)
-  
-
-全國人大代表、小鵬汽車董事長何小鵬表示，今年會探索L3級別自動駕駛初步落地，期望全方位超過全球車企，明年期望探索停車場內無人駕駛，包括無人停車和取車功能，以加速推動無人駕駛時代來臨。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm)
 
 ---
