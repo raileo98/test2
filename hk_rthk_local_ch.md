@@ -1,3 +1,27 @@
+# 兩元優惠調整　孫玉菡：不想老友記搭程車都心掛掛
+
+![財政預算案提出「兩元優惠計劃」調整方案，包括新增每月240程限制，10元以上改為全額車費「兩折」。（勞工及福利局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795776_1_20250314213016.jpg&q=90)
+  
+
+新一份財政預算案提出「兩元優惠計劃」調整方案，包括新增每月240程限制，10元以上改為全額車費「兩折」。勞工及福利局局長孫玉菡表示，在250萬受惠人士中，只有約360人每月優惠車程超出240程，他說假設長者每天兩度出行，即使每程都要轉車，8程車仍足以應付；而且上限以每月計算，偶有乘車超過8程的日子仍可拉上補下。他強調，政府在設定優惠車程上限時採取寬鬆的做法，就是不想老友記「搭程車都心掛掛」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm)
+
+---
+
 # 廣華醫院一名護士遇襲受傷　警拘一名懷疑涉案探病男子
 
 ![廣華醫院表示非常關注事件，向受傷護士致以深切慰問及提供所需支援。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795774_2_20250314204218.jpg&q=85)
@@ -672,7 +696,7 @@
 
 # 盧寵茂：正考慮公營門診病人共付電腦掃描及磁力共振等檢查費用
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795705_1_20250314130430.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795705_2_20250314212749.jpg&q=80)
   
 
 消息指，政府將於未來數星期內，交代公營醫療收費調整方案。醫務衞生局局長盧寵茂表示，正考慮電腦掃描及磁力共振等複雜的影像檢查，需要市民按項目共付費用，但強調只適用於門診病人，急症及住院病人需要有關服務仍維持免費。
@@ -1412,29 +1436,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795606-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795606-20250313.htm)
-
----
-
-# 林定國稱香港政府面臨對國安法律不實評論　成功駁斥誤導性言論
-
-![林定國說，當局成功駁斥了大量誤導性或誣衊的言論，捍衛了政府的聲譽和國家安全法律的正當性。（林定國社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795605_1_20250313193534.jpg&q=90)
-  
-
-律政司司長林定國表示，律政司邀請前刑事檢控專員江樂士，為政府律師擔任國家安全教育專題研習班第六講的嘉賓，從清除錯誤認知和釐清事實的角度出發，提醒要警惕外界對《香港國安法》和《維護國家安全條例》兩部法律可能存在的誤解和誤讀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795605-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795605-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795605-20250313.htm)
 
 ---

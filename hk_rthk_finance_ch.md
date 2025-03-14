@@ -1,3 +1,51 @@
+# 兩元優惠調整　孫玉菡：不想老友記搭程車都心掛掛
+
+![財政預算案提出「兩元優惠計劃」調整方案，包括新增每月240程限制，10元以上改為全額車費「兩折」。（勞工及福利局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795776_1_20250314213016.jpg&q=90)
+  
+
+新一份財政預算案提出「兩元優惠計劃」調整方案，包括新增每月240程限制，10元以上改為全額車費「兩折」。勞工及福利局局長孫玉菡表示，在250萬受惠人士中，只有約360人每月優惠車程超出240程，他說假設長者每天兩度出行，即使每程都要轉車，8程車仍足以應付；而且上限以每月計算，偶有乘車超過8程的日子仍可拉上補下。他強調，政府在設定優惠車程上限時採取寬鬆的做法，就是不想老友記「搭程車都心掛掛」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm)
+
+---
+
+# 碧桂園服務料去年多賺逾4倍
+
+![碧桂園服務預計，去年度歸屬於公司股東的淨利潤介乎約16億至20億元人民幣，按年升約4.5至5.8倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795775_1_20250314212347.jpg&q=90)
+  
+
+碧桂園服務預計，去年度歸屬於公司股東的淨利潤介乎約16億至20億元人民幣，按年升約4.5至5.8倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795775-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795775-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795775-20250314.htm)
+
+---
+
 # 港華智慧能源去年多賺2%　末期息連特別息共19仙
 
 ![港華智慧能源末期息每股16仙；鑑於可再生能源業務業績令人鼓舞，派發特別息每股3仙。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795758_1_20250314180627.jpg&q=90)
@@ -1387,53 +1435,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795627-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795627-20250313.htm)
-
----
-
-# 運輸及物流局稱香港註冊船舶的總註冊噸位處近10年高位
-
-![運輸及物流局表示，截至去年年底，香港註冊船舶的總註冊噸位處於近10年來的高位，並繼續位列全球第四。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795628_1_20250313223454.jpg&q=80)
-  
-
-運輸及物流局表示，截至去年年底，香港註冊船舶的總註冊噸位處於近10年來的高位，並繼續位列全球第四，僅次於利比里亞、巴拿馬和馬紹爾群島。海事處會繼續透過其海內外網絡，積極向各地船東及相關船務公司宣傳推廣香港船舶註冊的優勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm)
-
----
-
-# 美股初段下跌　英特爾急升約17%
-
-![道瓊斯指數較早時報41296點，跌54點，跌幅0.13%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795621_1_20250313214445.jpg&q=90)
-  
-
-美股在開市初段下跌。2月最終需求生產物價指數(PPI)及核心數據均低過預期，但分析估計美國關稅政策將於未來幾個月推高美國通脹。另外，上星期首次申領失業救濟人數少過預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm)
 
 ---
