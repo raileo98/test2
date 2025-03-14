@@ -1,3 +1,27 @@
+# Trump threatens tariffs on EU alcohol
+
+![President Trump's tariff threat could hit a market worth US$10 billion to EU producers in 2023, according to World Trade Organization figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795656_1_20250314055609.jpg&q=85)
+  
+
+US President Donald Trump on Thursday threatened to slap a 200 percent tariff on wine, cognac, and other alcohol imports from Europe.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm)
+
+---
+
 # Pro-Palestinian protesters fill NY's Trump Tower
 
 ![Police officers detain a protester inside Trump Tower during a rally against the ICE detention of Palestinian activist and Columbia University graduate student Mahmoud Khalil. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795650_1_20250314053853.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump on Thursday said French-based shipping firm CMA CGM wo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794675-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794675-20250307.htm)
-
----
-
-# Cyclone Alfred edges closer to Australia's east coast
-
-![A woman walks past sandbags set up outside a house at Currumbin on the Gold Coast, Australia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794670_1_20250307085914.jpg&q=60)
-  
-
-Violent winds toppled power lines on Friday as a tropical cyclone inched towards Australia's eastern coast, sparking evacuation orders and leaving more than 50,000 homes without electricity.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794670-20250307.htm)
 
 ---

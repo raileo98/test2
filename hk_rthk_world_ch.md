@@ -1,3 +1,27 @@
+# 《環看天下》：中方將舉行伊朗核問題中俄伊北京會晤
+
+![伊朗最高領袖哈梅內伊表示，伊朗絕不接受某些「霸凌政府」的談判要求。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795665_1_20250314081511.jpg&q=90)
+  
+
+中方今日舉行伊朗核問題中俄伊北京會晤。三方將就伊朗核問題及其他共同關心的問題，交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm)
+
+---
+
 # 葡萄牙總統宣布解散議會並提前在5月舉行議會選舉
 
 ![德索薩發表全國電視講話，指提前大選是一條沒人預計到、亦沒人希望的路。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795653_1_20250314054623.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm)
-
----
-
-# 俄外交部：不排除最近幾天與美方溝通
-
-![扎哈羅娃表示，俄方不排除最近幾天與美國代表溝通的可能性。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795339_1_20250312042116.jpg&q=90)
-  
-
-俄羅斯外交部發言人扎哈羅娃表示，俄方不排除最近幾天與美國代表溝通的可能性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795339-20250312.htm)
 
 ---

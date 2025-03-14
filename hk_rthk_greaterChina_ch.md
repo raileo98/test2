@@ -1,3 +1,27 @@
+# 《環看天下》：中方將舉行伊朗核問題中俄伊北京會晤
+
+![伊朗最高領袖哈梅內伊表示，伊朗絕不接受某些「霸凌政府」的談判要求。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795665_1_20250314081511.jpg&q=90)
+  
+
+中方今日舉行伊朗核問題中俄伊北京會晤。三方將就伊朗核問題及其他共同關心的問題，交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm)
+
+---
+
 # 馬朝旭晤伊朗副外長　指續為推動政治解決伊核問題發揮建設作用
 
 ![馬朝旭與伊朗副外長加里布阿巴迪會談。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795640_1_20250314012232.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795252-20250311.htm)
-
----
-
-# 財政預算案2025｜陳茂波稱香港利用北都加強與深圳科研合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795250_1_20250311151410.jpg&q=90)
-  
-
-財政司司長陳茂波表示，財政預算案提出以創科推動經濟發展，未來最重要是人工智能的發展，本港亦會利用北部都會區，加強與深圳在科研方面的合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795250-20250311.htm)
 
 ---

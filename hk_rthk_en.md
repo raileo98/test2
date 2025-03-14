@@ -1,3 +1,27 @@
+# Trump threatens tariffs on EU alcohol
+
+![President Trump's tariff threat could hit a market worth US$10 billion to EU producers in 2023, according to World Trade Organization figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795656_1_20250314055609.jpg&q=85)
+  
+
+US President Donald Trump on Thursday threatened to slap a 200 percent tariff on wine, cognac, and other alcohol imports from Europe.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm)
+
+---
+
 # US stocks slump after new Trump tariff threat
 
 ![Before trading began, Washington unleashed the threat of a 200 percent tariff on wine, champagne and other alcoholic beverages from the European Union. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795654_1_20250314054827.jpg&q=90)
@@ -1413,30 +1437,5 @@ Tiger Woods revealed he had undergone surgery to repair a ruptured left Achilles
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm)
-
----
-
-# PSG dump Liverpool out of Champions League
-
-![Ousmane Dembele's early strike brought PSG level at 1-all on aggregate. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_1_20250312072008.jpg&q=90)
-![Liverpool were only able to convert on one of their penalty kicks. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_2_20250312072008.jpg&q=75)
-  
-
-Paris Saint-Germain produced a historic turnaround to progress to the Champions League quarter-finals at Liverpool's expense as they triumphed 4-1 on penalties after a 1-0 second leg win at Anfield.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm)
 
 ---

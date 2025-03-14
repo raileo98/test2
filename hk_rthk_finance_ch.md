@@ -1,9 +1,81 @@
+# 友邦去年新業務價值升18%創新高　香港貢獻最大及增長最快
+
+![香港是友邦貢獻最大及增長最快的市場，去年新業務價值升23%至17.6億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795662_1_20250314081141.jpg&q=75)
+  
+
+友邦保險公布，按固定匯率基準，去年新業務價值升18%至47.1億美元創新高，由於銷量增加及新業務盈利能力提升，並帶動內涵價值營運溢利升14%至100.3億美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795662-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795662-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795662-20250314.htm)
+
+---
+
+# 日股初段跌約0.1%
+
+![日經指數較早時報36758點，跌31點，跌幅0.09%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795663_1_20250314081249.jpg&q=75)
+  
+
+日股初段偏軟，日經指數較早時報36758點，跌31點，跌幅0.09%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795663-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795663-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795663-20250314.htm)
+
+---
+
+# 韓股初段微跌
+
+![首爾綜合指數較早時報2571點，跌2點，跌幅0.09%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795664_1_20250314081338.jpg&q=90)
+  
+
+南韓股市早段微跌，首爾綜合指數較早時報2571點，跌2點，跌幅0.09%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795664-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795664-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795664-20250314.htm)
+
+---
+
 # 友邦去年純利升近82%　稅後營運溢利創新高
 
 ![友邦保險去年純利68.4億美元，按年升近82%，稅後營運溢利升12%至66.05億美元創新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795660_1_20250314065244.jpg&q=65)
   
 
-友邦保險去年純利68.4億美元，按年升近82%，由於保險服務及投資業績都改善。稅後營運溢利升12%至66.05億美元，創新高。
+友邦保險去年純利68.4億美元，按年升近82%，主要受保險服務業績增長12%及股份回購帶動。核心指標的稅後營運溢利，升12%至66.05億美元，創新高。
 
   
 
@@ -1362,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm)
-
----
-
-# 美國2月預算赤字按年擴大4%
-
-![美國2月預算赤字總額3070億美元，按年擴大4%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795495_1_20250313062715.jpg&q=80)
-  
-
-美國總統特朗普上任後的首個完整月份，2月預算赤字總額3070億美元，按年擴大110億美元，增長4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795495-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795495-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795495-20250313.htm)
-
----
-
-# 美元兌日圓重上149　近1星期以來首次
-
-![美元兌日圓一度重上149，是近1星期以來首次，高見149.19。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795494_1_20250313061148.jpg&q=90)
-  
-
-美元指數結束多日跌勢，最高升至103.78，升0.3%，尾市報103.58。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795494-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795494-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795494-20250313.htm)
-
----
-
-# 港股美國預託證券個別發展　滙控及港交所升近2%或以上
-
-![滙控ADR比本港昨日收市價升近2%，以港元計折合報86.6元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795493_1_20250313060238.jpg&q=90)
-  
-
-港股美國預託證券(ADR)個別發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795493-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795493-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795493-20250313.htm)
 
 ---

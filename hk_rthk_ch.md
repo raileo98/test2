@@ -1,3 +1,99 @@
+# 友邦去年新業務價值升18%創新高　香港貢獻最大及增長最快
+
+![香港是友邦貢獻最大及增長最快的市場，去年新業務價值升23%至17.6億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795662_1_20250314081141.jpg&q=75)
+  
+
+友邦保險公布，按固定匯率基準，去年新業務價值升18%至47.1億美元創新高，由於銷量增加及新業務盈利能力提升，並帶動內涵價值營運溢利升14%至100.3億美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795662-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795662-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795662-20250314.htm)
+
+---
+
+# 日股初段跌約0.1%
+
+![日經指數較早時報36758點，跌31點，跌幅0.09%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795663_1_20250314081249.jpg&q=75)
+  
+
+日股初段偏軟，日經指數較早時報36758點，跌31點，跌幅0.09%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795663-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795663-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795663-20250314.htm)
+
+---
+
+# 韓股初段微跌
+
+![首爾綜合指數較早時報2571點，跌2點，跌幅0.09%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795664_1_20250314081338.jpg&q=90)
+  
+
+南韓股市早段微跌，首爾綜合指數較早時報2571點，跌2點，跌幅0.09%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795664-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795664-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795664-20250314.htm)
+
+---
+
+# 《環看天下》：中方將舉行伊朗核問題中俄伊北京會晤
+
+![伊朗最高領袖哈梅內伊表示，伊朗絕不接受某些「霸凌政府」的談判要求。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795665_1_20250314081511.jpg&q=90)
+  
+
+中方今日舉行伊朗核問題中俄伊北京會晤。三方將就伊朗核問題及其他共同關心的問題，交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm)
+
+---
+
 # 歐霸盃曼聯與熱刺均晉級8強
 
 ![般奴費蘭迪斯「連中三元」，帶領曼聯晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795661_1_20250314071839.jpg&q=90)
@@ -28,7 +124,7 @@
 ![友邦保險去年純利68.4億美元，按年升近82%，稅後營運溢利升12%至66.05億美元創新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795660_1_20250314065244.jpg&q=65)
   
 
-友邦保險去年純利68.4億美元，按年升近82%，由於保險服務及投資業績都改善。稅後營運溢利升12%至66.05億美元，創新高。
+友邦保險去年純利68.4億美元，按年升近82%，主要受保險服務業績增長12%及股份回購帶動。核心指標的稅後營運溢利，升12%至66.05億美元，創新高。
 
   
 
@@ -1342,105 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm)
-
----
-
-# 西九龍公路致命車禍　44歲輕型貨車司機死亡
-
-![44歲輕型貨車司機，送院搶救後不治。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795599_1_20250313185853.jpg&q=40)
-  
-
-西九龍公路發生致命車禍，44歲輕型貨車司機死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795599-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795599-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795599-20250313.htm)
-
----
-
-# 人行：今年將擇機降準降息　研究創設新結構性貨幣政策工具
-
-![人行黨委召開擴大會議，指出今年將擇機降準降息，並研究創設新的結構性貨幣政策工具。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795589_1_20250313175730.jpg&q=75)
-  
-
-人民銀行黨委召開擴大會議，指出今年將根據國內外經濟金融形勢和金融市場運行情況，擇機降準降息，並研究創設新的結構性貨幣政策工具，重點支持科技創新領域投融資、促進消費和穩定外貿。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm)
-
----
-
-# 【影片速遞】香港花卉展覽3.14至3.23維園舉行
-
-![今屆花展，以「綻放英姿」為主題。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795597_2_20250313190218.jpg&q=55)
-![今年的主題花立體花牆以六簇以秋英為造型，由蘭花和康乃馨砌成，與前方近萬朵鬱金香互相襯托，為花展帶來英氣和活力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795597_3_20250313190218.jpg&q=65)
-![花展搜羅多種稀有珍貴的賞花植物，包括園示長筒藍曼陀羅。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795597_4_20250313191011.jpg&q=90)
-  
-
-康文署主辦的香港花卉展覽，明天起至本月23日在維園舉行。
-  
-![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1795597_2_L_20250313190218.jpg)
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795597-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795597-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795597-20250313.htm)
-
----
-
-# 傳染病專家指倘染諾如病毒學生在旅遊巴嘔吐　或車內造成傳播
-
-![林偉遜（左）認為，如果有學生感染諾如病毒並在旅遊巴上嘔吐，有可能在車內造成傳播。鄧飛（右）表示，現時學校前往交流既相關指引足夠同清晰。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795598_1_20250313192600.jpg&q=90)
-  
-
-多間中學有師生到內地交流後，出現腸胃炎徵狀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795598-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795598-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795598-20250313.htm)
 
 ---
