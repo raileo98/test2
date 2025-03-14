@@ -1,3 +1,27 @@
+# CK Hutchison shares down after port deal criticism
+
+![CK Hutchison earlier agreed to sell its interests in a key Panama Canal port operator to a consortium led by BlackRock. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795749_1_20250314172048.jpg&q=80)
+  
+
+Shares of CK Hutchison shed more than 6 percent on Friday, after the Beijing office in charge of Hong Kong affairs reposted a newspaper commentary slamming the firm's sale of its Panama Canal ports.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm)
+
+---
+
 # Lunar eclipse brings 'bloody' marvellous spectacle
 
 ![The 'Blood Moon' is seen over CN Tower in Toronto, Canada. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795743_1_20250314164944.jpg&q=90)
@@ -1413,29 +1437,5 @@ The convenor of the Path of Democracy, Ronny Tong, on Wednesday said people are 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795430-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795430-20250312.htm)
-
----
-
-# Pro-independence party wins Greenland election
-
-![The leader of the Democrats, Jens-Frederik Nielsen, celebrates their win at an election party in Nuuk. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795416_1_20250312150651.jpg&q=90)
-  
-
-Greenland's centre-right opposition Democrats have won a surprise victory in legislative elections, more than tripling their support to 29.9 percent of votes, official results showed on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm)
 
 ---
