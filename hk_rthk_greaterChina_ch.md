@@ -1,3 +1,26 @@
+# 全國兩會｜李家超提示官員留意總理工作報告首提深化國際交往合作
+
+  
+
+行政長官李家超表示，今早舉行政府高層內部學習分享會，和政治委任官員等分享學習全國兩會精神的體會；包括香港如何更好對接國家發展戰略，以及對香港特區政府管治的重要意義等，並要求官員學習領會和貫徹全國兩會精神。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm)
+
+---
+
 # 發改委經濟研究所所長稱今年中國經濟政策著力點轉向惠民生促消費
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795287-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795287-20250311.htm)
-
----
-
-# 全國兩會｜馬逢國認為趙樂際因病請假屬嚴謹做法
-
-![人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795284_1_20250311181644.jpg&q=90)
-  
-
-十四屆全國人大三次會議在北京人民大會堂閉幕，人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795284-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795284-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795284-20250311.htm)
 
 ---

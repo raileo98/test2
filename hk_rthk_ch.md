@@ -1,3 +1,50 @@
+# 理想上季經調整盈利按年跌逾10%　收入創新高
+
+![理想汽車按照美國公認會計準則，上季普通股股東應佔盈利按年跌約38%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795748_1_20250314170923.jpg&q=85)
+  
+
+理想汽車按照美國公認會計準則，上季普通股股東應佔盈利35.2億元人民幣，按年跌約38%，按季增加25%。經調整盈利40.3億元，按年跌逾10%，按季升約5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795748-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795748-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795748-20250314.htm)
+
+---
+
+# 全國兩會｜李家超提示官員留意總理工作報告首提深化國際交往合作
+
+  
+
+行政長官李家超表示，今早舉行政府高層內部學習分享會，和政治委任官員等分享學習全國兩會精神的體會；包括香港如何更好對接國家發展戰略，以及對香港特區政府管治的重要意義等，並要求官員學習領會和貫徹全國兩會精神。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm)
+
+---
+
 # 發改委經濟研究所所長稱今年中國經濟政策著力點轉向惠民生促消費
 
   
@@ -95,6 +142,9 @@
 
 ![蔡若蓮稱，評估交流團風險後認為與韶關無明顯關係。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795742_1_20250314171848.jpg&q=80)
   
+
+因應有學校參加內地交流團後有師生出現腸胃炎徵狀，教育局已成立學生內地考察專責小組，直接與各內地部門單位保持密切溝通聯繫，適時優化交流考察活動安排。教育局局長蔡若蓮表示，專責小組包括教育局人員，承辦商代表及內地相關單位的負責人，除了透過面對面會議，亦會透過不同方式保持聯繫。
+
   
 
 

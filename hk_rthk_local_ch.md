@@ -1,3 +1,26 @@
+# 全國兩會｜李家超提示官員留意總理工作報告首提深化國際交往合作
+
+  
+
+行政長官李家超表示，今早舉行政府高層內部學習分享會，和政治委任官員等分享學習全國兩會精神的體會；包括香港如何更好對接國家發展戰略，以及對香港特區政府管治的重要意義等，並要求官員學習領會和貫徹全國兩會精神。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm)
+
+---
+
 # 本港二手樓價按周跌近1%　創21周新低
 
 ![代理：本港二手樓價按周跌逾0.7%，但九龍區樓價按周升近2%，結束3周連跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795744_1_20250314170102.jpg&q=80)
@@ -72,6 +95,9 @@
 
 ![蔡若蓮稱，評估交流團風險後認為與韶關無明顯關係。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795742_1_20250314171848.jpg&q=80)
   
+
+因應有學校參加內地交流團後有師生出現腸胃炎徵狀，教育局已成立學生內地考察專責小組，直接與各內地部門單位保持密切溝通聯繫，適時優化交流考察活動安排。教育局局長蔡若蓮表示，專責小組包括教育局人員，承辦商代表及內地相關單位的負責人，除了透過面對面會議，亦會透過不同方式保持聯繫。
+
   
 
 
@@ -1411,29 +1437,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795591-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795591-20250313.htm)
-
----
-
-# M+博物館周六起展出畢加索60多件作品　展期至7月13日
-
-![有關展覽的展期由周六至7月13日。（M+博物館社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795590_1_20250313182229.jpg&q=90)
-  
-
-M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索藝術館的60多件西班牙藝術家畢加索作品，同場亦展示約130件出自30位亞洲及海外亞洲藝術家之手的M+藏品，以及其他博物館、基金會及私人收藏借出的精選藏品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795590-20250313.htm)
 
 ---
