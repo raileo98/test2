@@ -1,3 +1,27 @@
+# Duterte attends ICC hearing over drug war by video
+
+![Rodrigo Duterte stands accused of the crime against humanity of murder over his years-long campaign against drug users and dealers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795790_1_20250314223327.jpg&q=90)
+  
+
+Former Philippines president Rodrigo Duterte failed to show in person at the International Criminal Court on Friday at the opening of his crimes against humanity hearing over his deadly crackdown on narcotics.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm)
+
+---
+
 # CHP urges caution as Saudi Arabia sees more MERS cases
 
 ![The Centre for Health Protection says people should avoid direct contact with dromedary camels. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795787_2_20250314222716.jpg&q=85)
@@ -1413,29 +1437,5 @@ Zhao Leji, chairman of the National People's Congress (NPC) Standing Committee, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795469-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795469-20250312.htm)
-
----
-
-# Five arrested on suspicion of stealing copper pipes
-
-![Police say the suspects allegedly took the pipes from parks and back alleys and sold them for money.  Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795464_1_20250312213643.jpg&q=90)
-  
-
-Police on Wednesday said they arrested five people on suspicion of stealing more than HK$1 million worth of copper pipes across Hong Kong since January.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm)
 
 ---
