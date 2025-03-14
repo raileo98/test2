@@ -1,3 +1,75 @@
+# 港股美國預託證券造好　滙控升近4%
+
+![滙控ADR比本港昨日收市價升近4%，以港元計折合報88.7元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795813_1_20250315060638.jpg&q=90)
+  
+
+港股美國預託證券(ADR)造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795813-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795813-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795813-20250315.htm)
+
+---
+
+# 金價升穿3000美元後回軟
+
+![現貨金高見每盎司3004.86美元，升近0.6%，較早時回落0.1%，徘徊2984美元附近。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795812_1_20250315060226.jpg&q=75)
+  
+
+金價突破3000美元關口，關稅戰引發經濟不確定，避險需求推高金價。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795812-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795812-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795812-20250315.htm)
+
+---
+
+# 油價反彈1%　關注俄烏停火進展
+
+![油價反彈，布蘭特期油收報每桶70.58美元，升1%，本周累計升0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795811_1_20250315055837.jpg&q=90)
+  
+
+油價反彈，全星期計微升。俄羅斯總統普京表示，俄方原則上支持美國提出的停火建議，但補充附加條件，市場關注俄烏戰事能否迅速結束。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795811-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795811-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795811-20250315.htm)
+
+---
+
 # 德股高收約1.9%　受惠於德國財政改革進展
 
 ![德國DAX指數收市報22986點，升幅1.86%，創1星期新高，受惠於德國財政改革進展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795809_1_20250315055005.jpg&q=90)
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm)
-
----
-
-# 瑪嘉烈醫院內科及老人科病房再多一名男病人帶有耳念珠菌
-
-![瑪嘉烈醫院內科及老人科病房再發現多一名85歲男病人帶有耳念珠菌，並無感染徵狀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795739_1_20250314164200.jpg&q=85)
-  
-
-瑪嘉烈醫院內科及老人科病房再發現多一名85歲男病人帶有耳念珠菌，並無感染徵狀。有關病人正接受隔離治療，情況穩定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm)
-
----
-
-# 蔡若蓮：推動學校「數字教育」轉型　持續加強教師相關專業培訓
-
-![蔡若蓮指，已成立數字教育策略發展督導委員會，為推動學校「數字教育」轉型，提出發展方向及建議策略。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795738_1_20250314164134.jpg&q=80)
-  
-
-教育局局長蔡若蓮出席香港教育城25周年啟動禮致辭時表示，今年全國兩會提出要堅持創新引領發展，推進教育、科技創新及人才培養；教育局將於7月與教育城合辦「數字教育周」，配合人工智能國際高峰會舉行，緊貼創新科技及數字教育的最新趨勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795738-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795738-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795738-20250314.htm)
-
----
-
-# 回應歐盟官員涉華言論　外交部：中方反對拿中國說事
-
-![毛寧說，美歐有責任維護以世貿組織為核心的多邊貿易體制，而不是轉嫁矛盾。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795736_1_20250314161952.jpg&q=90)
-  
-
-在北京，外交部回應歐盟外交與安全政策高級代表卡拉斯的涉華言論，發言人毛寧說，中方多次強調關稅戰、貿易戰沒有贏家，美歐之間如何相處，中方不做評論，但中方反對拿中國說事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm)
 
 ---
