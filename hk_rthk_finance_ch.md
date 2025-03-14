@@ -1,3 +1,50 @@
+# 運輸及物流局：港深西部鐵路將公開招標　有空間引入新營運者
+
+![運輸及物流局回覆查詢時說，港深西部鐵路作為新的獨立鐵路路線，有空間考慮引入新營運者的可行性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795734_1_20250314161031.jpg&q=80)
+  
+
+上月公布的新一份財政預算案提到，預計於年內展開港深西部鐵路項目的勘查及設計研究。消息指，該條連接香港洪水橋及深圳前海的鐵路，會將口岸設置於內地，並採用「一地兩檢」的通關模式。另外，政府打算就工程公開招標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm)
+
+---
+
+# 金管總局：鼓勵加大個人消費貸款投放力度
+
+  
+
+中國金融監管總局發文，鼓勵銀行業金融機構在風險可控前提下，加大個人消費貸款投放力度，合理設置消費貸款額度、期限、利率，優化資源配置；針對長期、大額消費需求，從消費貸款額度、期限等方面給予支持；針對暫時遇到困難的借款人，合理商定貸款償還期限及頻次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm)
+
+---
+
 # 發改委經濟研究所所長稱美國加關稅對中國經濟影響不大
 
   
@@ -1386,53 +1433,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm)
-
----
-
-# 人民幣兌美元收市微升
-
-![人民幣收市報7.2427兌1美元，較上日收市升18點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795580_1_20250313171256.jpg&q=90)
-  
-
-人民幣兌美元收市微升，報7.2427兌1美元，較上日收市升18點子。中間價則微跌至7.1728兌1美元，與市場預測偏離逾710點子，反映監管延續過濾舉措穩定市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795580-20250313.htm)
-
----
-
-# 美國對進口鋼鋁徵收25%關稅　中方堅決反對並促取消措施
-
-![商務部表示，中方敦促美方盡快取消鋼鋁232措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795581_1_20250313171321.jpg&q=75)
-  
-
-美國對進口鋼鋁徵收25%的關稅政策按計劃正式生效。在北京，商務部新聞發言人何詠前說，此前中方已經就美國宣布調整鋼鋁232措施表態，中方一貫認為美國232措施是以國家安全為名實施的單邊主義和保護主義行為，中方與其他很多國家一起，對此措施表示堅決反對，敦促美方盡快取消鋼鋁232措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm)
 
 ---

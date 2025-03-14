@@ -1,3 +1,50 @@
+# 東涌東薈城對開輕型貨車撞到兩名女子其中一人送院時昏迷
+
+  
+
+東涌文東路下午發生交通意外，一輛輕型貨車懷疑撞到兩名女子，其中一名女子昏迷送院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795735-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795735-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795735-20250314.htm)
+
+---
+
+# 運輸及物流局：港深西部鐵路將公開招標　有空間引入新營運者
+
+![運輸及物流局回覆查詢時說，港深西部鐵路作為新的獨立鐵路路線，有空間考慮引入新營運者的可行性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795734_1_20250314161031.jpg&q=80)
+  
+
+上月公布的新一份財政預算案提到，預計於年內展開港深西部鐵路項目的勘查及設計研究。消息指，該條連接香港洪水橋及深圳前海的鐵路，會將口岸設置於內地，並採用「一地兩檢」的通關模式。另外，政府打算就工程公開招標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm)
+
+---
+
 # 47歲女子坪洲一個碼頭登船時疑失足墮海　證實不治
 
 ![一名47歲女子，今早在坪洲一個碼頭登船期間懷疑失足墮海，其後被救起但證實不治。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795728_1_20250314155153.jpg&q=80)
@@ -1393,53 +1440,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm)
-
----
-
-# 梁振英稱現今一代年輕人更有條件抓住面前巨大機遇
-
-![梁振英說，香港年輕人一代無論是職業發展的行業或地理範圍上的選擇，與其他地方的同齡人相比，條件都更為優越。（陳菀禧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795565_1_20250313155011.jpg&q=80)
-  
-
-全國政協副主席梁振英說，內地發展非常迅速，以法律行業為例，香港律師會已有117年歷史，內地的法律行業發展則是近20年的事，但發展速度驚人，並適用於電動車、機械人、電影等領域。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm)
-
----
-
-# 當局擬修訂實務守則　自用配子或胚胎儲存期法律限制擬予以取消
-
-![人類生殖科技管理局就《生殖科技及胚胎研究實務守則》的建議修訂諮詢持份者。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795563_1_20250313154939.jpg&q=90)
-  
-
-人類生殖科技管理局就《生殖科技及胚胎研究實務守則》的建議修訂諮詢持份者，初步建議包括有關供儲自用的配子或胚胎的儲存期法律限制，不論儲存者的性別、年齡、醫學情況，均予以取消。管理局修訂相應執行措施，同時確保市民在無醫學原因的情況下進行非必要及長期的配子或胚胎儲存前，充分了解醫療風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795563-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795563-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795563-20250313.htm)
 
 ---

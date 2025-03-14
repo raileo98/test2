@@ -1,3 +1,51 @@
+# Hospitals may start charging for CT and MRI scans
+
+![Lo Chung-mau said patients who are already hospitalised or in emergency wards will be exempted from the fees. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795727_1_20250314153102.jpg&q=90)
+  
+
+Secretary for Health Lo Chung-mau said on Friday the government is reviewing fees and charges for public hospital services, including charging for such services as CT scans and MRIs to prevent abuse.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795727-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795727-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795727-20250314.htm)
+
+---
+
+# Tourist figures up 7pc in Jan-Feb
+
+![Locals and visitors alike enjoy the fireworks extravaganza on January 30, day two of the Year of the Snake. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795725_2_20250314160255.jpg&q=75)
+  
+
+Tourist arrivals hit 8.4 million in the first two months of the year, a seven percent increase year on year, the Hong Kong Tourism Board said on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm)
+
+---
+
 # US Senate in race to avert government shutdown
 
 ![Chuck Schumer is working to avert a government shutdown. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795723_1_20250314154347.jpg&q=90)
@@ -1389,53 +1437,5 @@ Financial Secretary Paul Chan on Wednesday hinted that the city could double the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795394-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795394-20250312.htm)
-
----
-
-# Govt optimistic over top talent scheme visa renewals
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795403_1_20250312134034.jpg&q=90)
-  
-
-The government is optimistic about the number of people who will stay under the Top Talent Pass Scheme, labour chief Chris Sun said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm)
-
----
-
-# Cathay Pacific profits edge up
-
-![Cathay Pacific's group net profit rose one percent to HK$9.89 billion last year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795410_1_20250312142536.jpg&q=90)
-  
-
-Cathay Pacific Airways on Wednesday reported marginal full-year profit growth as airfares fell amid intense competition at a time when Asia's airlines are continuing to get back to pre-pandemic seat capacity.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm)
 
 ---

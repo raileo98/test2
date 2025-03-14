@@ -1,3 +1,50 @@
+# 外交部︰中俄伊北京會晤是推動伊朗核問題政治解決有益嘗試
+
+![外交部強調，制裁施壓、武力威脅沒有出路，對話協商才是正確的解決之道。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795733_1_20250314155735.jpg&q=80)
+  
+
+中國、俄羅斯和伊朗副外長在北京會晤，討論伊朗核問題。外交部發言人毛寧表示，北京會晤是中、俄、伊為推動伊朗核問題政治解決的有益嘗試，強調制裁施壓、武力威脅沒有出路，對話協商才是正確的解決之道，呼籲各方加強溝通對話，為早日恢復對話談判累積有利條件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm)
+
+---
+
+# 金管總局：鼓勵加大個人消費貸款投放力度
+
+  
+
+中國金融監管總局發文，鼓勵銀行業金融機構在風險可控前提下，加大個人消費貸款投放力度，合理設置消費貸款額度、期限、利率，優化資源配置；針對長期、大額消費需求，從消費貸款額度、期限等方面給予支持；針對暫時遇到困難的借款人，合理商定貸款償還期限及頻次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm)
+
+---
+
 # 發改委經濟研究所所長稱美國加關稅對中國經濟影響不大
 
   
@@ -1391,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm)
-
----
-
-# 全國兩會｜文旅部部長稱只要有好產品就不愁沒有消費
-
-![孫業禮表示，去年國家文旅產業延續之前的發展勢頭，規模以上的文化及相關產業企業營業收入達到14萬億元，按年增長6%。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795272_1_20250311180851.jpg&q=90)
-  
-
-文化和旅遊部部長孫業禮表示，去年國家文旅產業延續之前的發展勢頭，規模以上的文化及相關產業企業營業收入達到14萬億元，按年增長6%。去年國內旅遊規模達56億人次，消費57000億元，按年增長17%。入境遊達1.32億人次，相關旅客在國內花費亦超過900多億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795272-20250311.htm)
-
----
-
-# 中汽協：內地2月新能源車銷量按年增長逾87%
-
-![中汽協預計今年汽車產銷將繼續增長。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795254_1_20250311152718.jpg&q=60)
-  
-
-中國汽車工業協會公布，2月內地汽車銷量212.9萬輛，按年增長34.4%，按月下跌12.2%。今年1-2月汽車總銷量455.2萬輛，按年增長13.1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795254-20250311.htm)
 
 ---

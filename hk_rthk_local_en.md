@@ -1,3 +1,51 @@
+# Hospitals may start charging for CT and MRI scans
+
+![Lo Chung-mau said patients who are already hospitalised or in emergency wards will be exempted from the fees. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795727_1_20250314153102.jpg&q=90)
+  
+
+Secretary for Health Lo Chung-mau said on Friday the government is reviewing fees and charges for public hospital services, including charging for such services as CT scans and MRIs to prevent abuse.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795727-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795727-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795727-20250314.htm)
+
+---
+
+# Tourist figures up 7pc in Jan-Feb
+
+![Locals and visitors alike enjoy the fireworks extravaganza on January 30, day two of the Year of the Snake. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795725_2_20250314160255.jpg&q=75)
+  
+
+Tourist arrivals hit 8.4 million in the first two months of the year, a seven percent increase year on year, the Hong Kong Tourism Board said on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm)
+
+---
+
 # Parents express concern over possible school closures
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795696_1_20250314120146.jpg&q=85)
@@ -1389,53 +1437,5 @@ The chairwoman of Gree Electrics on Saturday said private enterprises need conti
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794911-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794911-20250308.htm)
-
----
-
-# HK officials pledge to implement Two Sessions spirit
-
-![Hong Kong officials pledge to implement the spirit of "Two Sessions". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794903_1_20250308160513.jpg&q=85)
-  
-
-Hong Kong officials on Saturday said they will learn from the spirit of "Two Sessions" and stressed the importance of unity in advancing the SAR's development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm)
-
----
-
-# ‘HK, mainland should join hands to tackle scams’
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794897_1_20250308154247.jpg&q=80)
-  
-
-Mainland authorities on Saturday said Hong Kong and the mainland should work together to tackle cross-border scams, after six more SAR residents were released from scam farms in Myanmar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794897-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794897-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794897-20250308.htm)
 
 ---
