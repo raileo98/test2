@@ -73,7 +73,7 @@ Stargazers across a swathe of the world marvelled at a dramatic red "Blood Moon"
 
 # Hospitals may start charging for CT and MRI scans
 
-![Lo Chung-mau said patients who are already hospitalised or in emergency wards will be exempted from the fees. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795727_1_20250314162533.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795727_1_20250314162533.jpg&q=80)
   
 
 Secretary for Health Lo Chung-mau said on Friday the government is reviewing fees and charges for public hospital services, including charging for such services as CT scans and MRIs to prevent abuse.

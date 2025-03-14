@@ -1,3 +1,27 @@
+# 現貨金升穿3000美元創新高
+
+![避險資金支撐金價創新高，現貨金較早時報每盎士3004美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795765_1_20250314182123.jpg&q=90)
+  
+
+避險資金支撐金價創新高，紐約期金突破每盎士3000美元關口後持續向上，較早時在3012美元以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795765-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795765-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795765-20250314.htm)
+
+---
+
 # 和記電訊香港去年轉賺600萬元
 
 ![和記電訊香港去年轉賺600萬元，前一年虧損5200萬元，維持派末期息每股5.21港仙。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795756_1_20250314175407.jpg&q=90)
@@ -24,6 +48,7 @@
 
 # 發改委經濟研究所所長：現時仍有空間適時降準和減息
 
+![郭春麗表示，今年要實施積極有為的宏觀政策，要打好政策組合拳。(羅煒皓攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795755_1_20250314182205.jpg&q=90)
   
 
 在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，今年要實施積極有為的宏觀政策，要打好政策組合拳，特別要強調宏觀政策取向一致性，加強財政、貨幣政策等各類政策的協同。
@@ -119,6 +144,7 @@
 
 # 發改委經濟研究所所長稱今年中國經濟政策著力點轉向惠民生促消費
 
+![郭春麗表示，隨著中國擴大消費的政策加碼，相信今年居民消費將明顯回升。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795750_1_20250314182331.jpg&q=90)
   
 
 在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，今年中國的經濟政策著力點，會轉向「惠民生、促消費」，以消費升級引領產業轉型升級，而且固定投資保持良好增長等，相信今年中國經濟增長可達5%左右的目標，其他目標可在增長支撐下實現。
@@ -1409,29 +1435,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm)
-
----
-
-# 金管總局：今年加快制定與房地產發展新模式相適應融資制度出台
-
-![國家金融監管總局表示，今年將加快制定出台與房地產發展新模式相適應的融資制度，堅決做好保交房工作。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795618_1_20250313212344.jpg&q=80)
-  
-
-國家金融監管總局表示，今年將加快制定出台與房地產發展新模式相適應的融資制度，持續推進城市房地產融資協調機制擴圍增效，堅決做好保交房工作；並推出有針對性的金融支持措施，助力實施提振消費專項行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795618-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795618-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795618-20250313.htm)
 
 ---
