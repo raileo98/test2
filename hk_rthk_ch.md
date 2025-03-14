@@ -1,3 +1,27 @@
+# 證監會下月恢復向中介人徵收牌照年費　表示極度失望及深切憂慮
+
+![證監會下月起恢復向所有中介人及持牌人士徵收牌照年費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795767_1_20250314184714.jpg&q=90)
+  
+
+證監會發出通函，下月1日起恢復向所有中介人及持牌人士徵收牌照年費，並表示按《證券及期貨條例》有關規定，所有中介人及持牌人士須於牌照或註冊證明書每年周年日期後一個月內繳付年費，否則須繳付附加費，牌照或註冊可能會被暫時吊銷或撤銷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795767-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795767-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795767-20250314.htm)
+
+---
+
 # 國防部：中方奉勸菲方放棄挑釁　通過對話妥處分歧
 
 ![張曉剛說，中方維護自身領土主權和海洋權益的決心意志堅定不移。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795766_1_20250314184114.jpg&q=90)
