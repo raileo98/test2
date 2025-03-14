@@ -1,3 +1,27 @@
+# 美國紐約警方拘捕逾百名進入特朗普大廈示威者
+
+![紐約警方拘捕進入特朗普大廈的示威者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795724_1_20250314150605.jpg&q=90)
+  
+
+在美國紐約市，大約150名猶太人進入曼哈頓第五大道特朗普大廈，聲援巴勒斯坦人，警方到場，拘捕示威者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm)
+
+---
+
 # 伊朗核問題中俄伊北京會晤聲明重申應摒棄制裁施壓、武力威脅
 
 ![會晤由外交部副部長馬朝旭主持，俄羅斯和伊朗外交部副部長與會。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795714_1_20250314141811.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795421-20250312.htm)
-
----
-
-# 格陵蘭自治議會選舉　倡緩慢獨立的反對黨民主黨得票最多
-
-![格陵蘭自治議會選舉完成點票，親商界的反對黨民主黨得票最多。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795399_1_20250312131026.jpg&q=85)
-  
-
-格陵蘭自治議會選舉完成點票，路透社報道，親商界的反對黨民主黨，擊敗現任的左翼執政聯盟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm)
 
 ---

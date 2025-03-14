@@ -1,5 +1,54 @@
+# 滬指高收近2%　企穩3400點以上收市
+
+![上證綜合指數重上3400點，收市報3419點，升幅1.81%。本周累升約1.４%，連升兩周。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795726_1_20250314151257.jpg&q=90)
+  
+
+內地股市3大指數高收近2%至近3%，乳業、保險、飲品製造相關股份升幅較大；軍工電子板塊則跌幅較多。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795726-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795726-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795726-20250314.htm)
+
+---
+
+# 美國紐約警方拘捕逾百名進入特朗普大廈示威者
+
+![紐約警方拘捕進入特朗普大廈的示威者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795724_1_20250314150605.jpg&q=90)
+  
+
+在美國紐約市，大約150名猶太人進入曼哈頓第五大道特朗普大廈，聲援巴勒斯坦人，警方到場，拘捕示威者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm)
+
+---
+
 # 劉國勳贊同港深西部鐵路口岸設內地一地兩檢　可騰出香港土地發展
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795722_1_20250314151018.jpg&q=90)
   
 
 民建聯立法會議員劉國勳表示，有報道指連接洪水橋/厦村至前海的港深西部鐵路的口岸設於內地，並採用「一地兩檢」模式，他表示贊同，認為與他早前建議一致，因為口岸設於內地，可騰出更多香港土地發展其他用途，而內地建築成本較低，加上香港段的車站較多，口岸設於內地會較方便本地線乘客，亦較符合成本效。
@@ -47,6 +96,7 @@
 
 # 香港與巴林促進和保護投資協定將生效　丘應樺稱增強投資者信心
 
+![丘應樺說，投資協定確保投資者在對方境內的投資享有對等保護，將增強投資者信心和擴大雙邊投資流動，進一步鞏固兩地經貿聯繫。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795719_1_20250314150732.jpg&q=80)
   
 
 香港與巴林去年3月簽署促進和保護投資協定，雙方完成所需內部程序，協定將於本月21日生效。

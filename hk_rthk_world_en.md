@@ -3,7 +3,7 @@
 ![Vice Foreign Minister Ma Zhaoxu, right, meets with Iranian Deputy Foreign Minister Kazem Gharibabadi in Beijing. Photo courtesy of Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795709_1_20250314131953.jpg&q=90)
   
 
-Chinese, Russian and Iranian diplomats met on Friday for talks, in a meeting Beijing hopes could restart long-stalled negotiations on Tehran's nuclear programme.
+China urged an end to "illegal" sanctions on Iran as it hosted diplomats from that country and Russia on Friday for talks Beijing hopes will restart long-stalled negotiations on Tehran's nuclear programme.
 
   
 
