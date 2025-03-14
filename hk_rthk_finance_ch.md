@@ -1,3 +1,27 @@
+# 今年首兩月訪港旅客840萬人次　東南亞日韓旅客按年增逾三成
+
+![內地遊客有650萬人次，上升4%；菲律賓、印尼、日本和南韓的旅客均錄得超過30%的按年增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795703_1_20250314123947.jpg&q=85)
+  
+
+旅發局公布今年首兩個月合共有840萬訪港旅客人次，按年增加7%，其中77%為內地旅客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795703-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795703-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795703-20250314.htm)
+
+---
+
 # 港鐵本月22日起重鐵網絡各車站均接受「全國交通一卡通」付費
 
   
@@ -23,6 +47,7 @@
 
 # Microsoft發現一系列冒充網上旅行社針對酒店業網絡攻擊
 
+![Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣魚攻擊，冒充旅行社網上旅行社 Booking.com 並利用 ClickFix 社交工程技術。（Microsoft）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795698_1_20250314124126.jpg&q=90)
   
 
 Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣魚攻擊，冒充旅行社網上旅行社 Booking.com 並利用 ClickFix 社交工程技術。詐騙郵件以處理客戶負面評論為藉口，誘使受害者點擊連結或打開附件，最終竊取登入帳號及財務資料。
@@ -1408,29 +1433,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795544-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795544-20250313.htm)
-
----
-
-# 九龍倉去年虧損逾32億元
-
-![九龍倉去年股東應佔虧損32.24億元，前一年則盈利9.45億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795539_1_20250313123124.jpg&q=90)
-  
-
-九龍倉去年股東應佔虧損32.24億元，前一年則盈利9.45億元，扣除投資物業重估減值近60億元及其他非現金項目，基礎盈利近28億元，減少逾21%，主要因為內地發展物業確認入帳銷售額減少，以及應佔減值撥備增加。派發第二次中期息每股0.2元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795539-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795539-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795539-20250313.htm)
 
 ---

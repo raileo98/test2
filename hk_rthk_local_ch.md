@@ -1,3 +1,73 @@
+# 康體通本月17日至20日每晚11時至翌日早上6時暫停服務
+
+  
+
+康文署宣布為提升服務質素，SmartPLAY康體通將於本月17日至20日期間每晚11時至翌日上午6時暫停服務，以便進行設備提升工程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795704-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795704-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795704-20250314.htm)
+
+---
+
+# 今年首兩月訪港旅客840萬人次　東南亞日韓旅客按年增逾三成
+
+![內地遊客有650萬人次，上升4%；菲律賓、印尼、日本和南韓的旅客均錄得超過30%的按年增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795703_1_20250314123947.jpg&q=85)
+  
+
+旅發局公布今年首兩個月合共有840萬訪港旅客人次，按年增加7%，其中77%為內地旅客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795703-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795703-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795703-20250314.htm)
+
+---
+
+# 中醫醫院門診今年9月公布收費詳情　醫務衞生局強調水平可負擔
+
+  
+
+政府今年底發表《中醫藥發展藍圖》，以勾劃未來的發展路向。醫務衞生局局長盧寵茂出席立法會衞生事務委員會表示，正推動兩個中醫藥發展旗艦機構的籌備工作，分別是將軍澳的香港中醫醫院及科學園的政府中藥檢測中心永久大樓，預計如期在今年底分階段啟用及開展服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795702-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795702-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795702-20250314.htm)
+
+---
+
 # 港鐵本月22日起重鐵網絡各車站均接受「全國交通一卡通」付費
 
   
@@ -47,6 +117,7 @@
 
 # Microsoft發現一系列冒充網上旅行社針對酒店業網絡攻擊
 
+![Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣魚攻擊，冒充旅行社網上旅行社 Booking.com 並利用 ClickFix 社交工程技術。（Microsoft）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795698_1_20250314124126.jpg&q=90)
   
 
 Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣魚攻擊，冒充旅行社網上旅行社 Booking.com 並利用 ClickFix 社交工程技術。詐騙郵件以處理客戶負面評論為藉口，誘使受害者點擊連結或打開附件，最終竊取登入帳號及財務資料。
@@ -1370,77 +1441,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795540-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795540-20250313.htm)
-
----
-
-# 港股半日跌173點　科指跌逾2%
-
-![港股連續5日向下，恒生指數中午收市報23426點，跌173點，跌幅0.74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795534_1_20250313120805.jpg&q=85)
-  
-
-港股連續5日向下，恒生指數中午收市報23426點，跌173點，跌幅0.74%，半日主板成交額逾1215億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm)
-
----
-
-# 74人涉非法賭檔及販毒等被捕　警方籲業主留意物業勿作不法用途
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795535_1_20250313122354.jpg&q=85)
-  
-
-警方港島總區過去10天進行反三合會行動，拘捕74人，搗破5個賣淫場所、6個賭檔，檢取一批賭具及超過25萬元現金。在7個反毒品行動中，檢獲包括霹靂可卡因、冰毒、氯胺酮及太空油毒品等，市值超過160萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795535-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795535-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795535-20250313.htm)
-
----
-
-# 房屋署接納申訴專員改善建議　將繼續優化現有打擊車輛違泊措施
-
-![房屋署職員會持續透過日常監察、突擊巡查，督促及確保承辦商能有效執行各項工作包括道路管制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795532_1_20250313121512.jpg&q=90)
-  
-
-申訴專員公署發表有關屋邨違例泊車的主動調查報告，房署發言人表示，十分重視公共屋邨的道路管理工作，持續加強管理和引入不同設備以提升執管效能，例如引入不同的創新科技，包括物聯網感應器和人工智能，以打擊違泊行為 ，同時透過宣傳和教育向居民傳遞守法意識，希望保持屋邨道路，特別是緊急車輛通道暢通無阻，並適時檢討有關措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795532-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795532-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795532-20250313.htm)
 
 ---
