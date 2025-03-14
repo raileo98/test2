@@ -1,3 +1,67 @@
+# 蔡若蓮稱評估交流團風險後認為與韶關無明顯關係　已停用涉事餐廳
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795742-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795742-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795742-20250314.htm)
+
+---
+
+# 人行：精準支持科技中小企　加大消費領域金融支持
+
+![人行召開會議，要求精準支持國家重大科技任務和科技型中小企；加大對養老產業和重點消費領域金融支持。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795741_1_20250314163851.jpg&q=75)
+  
+
+人民銀行近日召開2025年信貸市場工作會議，要求培育支持科技創新金融生態，精準支持國家重大科技任務和科技型中小企業；加大對養老產業和重點消費領域金融支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795741-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795741-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795741-20250314.htm)
+
+---
+
+# 蔡若蓮稱學齡人口下降屬結構性須正視　料未來幾年挑戰更大
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm)
+
+---
+
 # 恒指高收497點　未能企穩24000點　長和跌逾6%
 
 ![恒生指數高見24113點，一度升逾650點，收市報23959點，升497點，升幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795737_1_20250314162135.jpg&q=80)
@@ -24,6 +88,7 @@
 
 # 瑪嘉烈醫院內科及老人科病房再多一名男病人帶有耳念珠菌
 
+![瑪嘉烈醫院內科及老人科病房再發現多一名85歲男病人帶有耳念珠菌，並無感染徵狀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795739_1_20250314164200.jpg&q=85)
   
 
 瑪嘉烈醫院內科及老人科病房再發現多一名85歲男病人帶有耳念珠菌，並無感染徵狀。有關病人正接受隔離治療，情況穩定。
@@ -47,6 +112,7 @@
 
 # 蔡若蓮：推動學校「數字教育」轉型　持續加強教師相關專業培訓
 
+![蔡若蓮指，已成立數字教育策略發展督導委員會，為推動學校「數字教育」轉型，提出發展方向及建議策略。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795738_1_20250314164134.jpg&q=80)
   
 
 教育局局長蔡若蓮出席香港教育城25周年啟動禮致辭時表示，今年全國兩會提出要堅持創新引領發展，推進教育、科技創新及人才培養；教育局將於7月與教育城合辦「數字教育周」，配合人工智能國際高峰會舉行，緊貼創新科技及數字教育的最新趨勢。
@@ -118,6 +184,7 @@
 
 # 東涌東薈城對開輕型貨車撞到兩名女子其中一人送院時昏迷
 
+![東涌東薈城對開輕型貨車撞到兩名女子其中一人送院時昏迷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795735_1_20250314164223.jpg&q=90)
   
 
 東涌文東路下午發生交通意外，一輛輕型貨車懷疑撞到兩名女子，其中一名女子昏迷送院。

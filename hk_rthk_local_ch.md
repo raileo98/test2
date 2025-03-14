@@ -1,3 +1,43 @@
+# 蔡若蓮稱評估交流團風險後認為與韶關無明顯關係　已停用涉事餐廳
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795742-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795742-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795742-20250314.htm)
+
+---
+
+# 蔡若蓮稱學齡人口下降屬結構性須正視　料未來幾年挑戰更大
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm)
+
+---
+
 # 恒指高收497點　未能企穩24000點　長和跌逾6%
 
 ![恒生指數高見24113點，一度升逾650點，收市報23959點，升497點，升幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795737_1_20250314162135.jpg&q=80)
@@ -24,6 +64,7 @@
 
 # 瑪嘉烈醫院內科及老人科病房再多一名男病人帶有耳念珠菌
 
+![瑪嘉烈醫院內科及老人科病房再發現多一名85歲男病人帶有耳念珠菌，並無感染徵狀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795739_1_20250314164200.jpg&q=85)
   
 
 瑪嘉烈醫院內科及老人科病房再發現多一名85歲男病人帶有耳念珠菌，並無感染徵狀。有關病人正接受隔離治療，情況穩定。
@@ -47,6 +88,7 @@
 
 # 蔡若蓮：推動學校「數字教育」轉型　持續加強教師相關專業培訓
 
+![蔡若蓮指，已成立數字教育策略發展督導委員會，為推動學校「數字教育」轉型，提出發展方向及建議策略。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795738_1_20250314164134.jpg&q=80)
   
 
 教育局局長蔡若蓮出席香港教育城25周年啟動禮致辭時表示，今年全國兩會提出要堅持創新引領發展，推進教育、科技創新及人才培養；教育局將於7月與教育城合辦「數字教育周」，配合人工智能國際高峰會舉行，緊貼創新科技及數字教育的最新趨勢。
@@ -70,6 +112,7 @@
 
 # 東涌東薈城對開輕型貨車撞到兩名女子其中一人送院時昏迷
 
+![東涌東薈城對開輕型貨車撞到兩名女子其中一人送院時昏迷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795735_1_20250314164223.jpg&q=90)
   
 
 東涌文東路下午發生交通意外，一輛輕型貨車懷疑撞到兩名女子，其中一名女子昏迷送院。
@@ -1389,54 +1432,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795579-20250313.htm)
-
----
-
-# 恒指低收137點　連跌5日　科指跌近2%
-
-![恒生指數午後一度失守23200點，創逾1個星期低位，收市報23462點，跌137點，跌幅近0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795578_1_20250313162530.jpg&q=45)
-  
-
-港股連跌5個交易日，恒生指數午後一度失守23200點，跌逾400點，創逾1個星期低位，其後跌幅收窄，收市報23462點，跌137點，跌幅近0.6%，主板成交額進一步縮減至約2338億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795578-20250313.htm)
-
----
-
-# 古諮會通過舊贊育醫院主樓及上環廣福祠列為法定古蹟
-
-![舊贊育醫院於1922年啟用，是本港第一所華人婦女產科醫院，樓高4層，設有地庫，採用新古典主義建築風格，糅合中式元素。（古諮會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795577_1_20250313170038.jpg&q=75)
-![廣福祠又稱「百姓廟」，建於1895年，主要為來自內地但在港離世的華工，提供地方安放神主牌，同時收容病人、無依者及長者，提供診治服務。（古諮會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795577_2_20250313170038.jpg&q=80)
-  
-
-古物諮詢委員會通過，將西營盤舊贊育醫院主樓，以及上環廣福祠，列為法定古蹟。古諮會下午開會，多名委員都表示這兩座建築物具有歷史文化價值，贊成列為法定古蹟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm)
 
 ---
