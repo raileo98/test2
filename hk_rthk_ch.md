@@ -1,3 +1,27 @@
+# 港華智慧能源去年多賺2%　末期息連特別息共19仙
+
+![港華智慧能源末期息每股16仙；鑑於可再生能源業務業績令人鼓舞，派發特別息每股3仙。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795758_1_20250314180627.jpg&q=90)
+  
+
+港華智慧能源去年盈利16.06億元，增長約2%，核心利潤上升 34.5%，升至16.01億元，若以人民幣計算，升幅37.2%。末期息每股16仙。另外，鑑於可再生能源業務業績令人鼓舞，董事會建議派付一次性特別股息每股3仙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm)
+
+---
+
 # 證監會下月恢復向中介人徵收牌照年費　表示極度失望及深切憂慮
 
 ![證監會下月起恢復向所有中介人及持牌人士徵收牌照年費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795767_1_20250314184714.jpg&q=90)
@@ -27,7 +51,7 @@
 ![張曉剛說，中方維護自身領土主權和海洋權益的決心意志堅定不移。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795766_1_20250314184114.jpg&q=90)
   
 
-在北京，國防部新聞發言人張曉剛表示，中方奉勸菲方不要誤判形勢，立即放棄徒勞的冒險挑釁，切實回到通過對話妥處分歧的正確軌道上。
+在北京，國防部新聞發言人張曉剛表示，中方奉勸菲律賓不要誤判形勢，立即放棄徒勞的冒險挑釁，切實回到通過對話妥處分歧的正確軌道上。
 
   
 

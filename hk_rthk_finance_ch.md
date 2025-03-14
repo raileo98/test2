@@ -1,3 +1,27 @@
+# 港華智慧能源去年多賺2%　末期息連特別息共19仙
+
+![港華智慧能源末期息每股16仙；鑑於可再生能源業務業績令人鼓舞，派發特別息每股3仙。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795758_1_20250314180627.jpg&q=90)
+  
+
+港華智慧能源去年盈利16.06億元，增長約2%，核心利潤上升 34.5%，升至16.01億元，若以人民幣計算，升幅37.2%。末期息每股16仙。另外，鑑於可再生能源業務業績令人鼓舞，董事會建議派付一次性特別股息每股3仙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm)
+
+---
+
 # 證監會下月恢復向中介人徵收牌照年費　表示極度失望及深切憂慮
 
 ![證監會下月起恢復向所有中介人及持牌人士徵收牌照年費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795767_1_20250314184714.jpg&q=90)
@@ -1411,29 +1435,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm)
-
----
-
-# 張國清在河北雄安新區調研　強調國資央企積極參與雄安新區建設
-
-![張國清在河北雄安新區調研。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795620_1_20250313214333.jpg&q=90)
-  
-
-中共中央政治局委員、國務院副總理張國清在河北調研中央企業支持雄安新區建設發展有關工作。他強調，要深入貫徹習近平總書記關於高標準高質量推進雄安新區建設的重要講話精神，落實黨中央、國務院決策部署，充分發揮中央企業獨特優勢作用，以更大力度、更實舉措支持雄安新區高標準規劃建設、高質量發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm)
 
 ---
