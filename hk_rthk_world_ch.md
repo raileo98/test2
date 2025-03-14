@@ -1,3 +1,51 @@
+# 釜山航空客機1月底起火事件　調查指或因乘客攜帶充電寶起火導致
+
+![釜山航空客機1月底起火事件　調查指或因乘客攜帶充電寶起火導致](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795772_1_20250314203231.jpg&q=90)
+  
+
+南韓釜山航空1月底一架原定從釜山飛往香港的客機，在準備起飛時起火事件，南韓國土交通部航空鐵路事故調查委員會說，當局的調查分析結果顯示，乘客攜帶的充電寶起火導致飛機發生火警的可能性較大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm)
+
+---
+
+# 中方：冀各方通過對話談判就烏克蘭危機達成公平持久和平協議
+
+![毛寧說，中方願意同國際社會一起，為最終化解危機、實現持久和平繼續發揮建設性的作用。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795771_1_20250314202242.jpg&q=90)
+  
+
+在北京，外交回應有關俄羅斯總統普京提議與美國總統特朗普就俄烏臨時停火協議舉行會談的提問，發言人毛寧說，在烏克蘭危機問題上，中方始終堅持習近平主席提出的「四個應該」，也就是各國的主權領土完整都應該得到尊重，聯合國的憲章宗旨和原則都應該得到遵守，各國合理的安全關切都應該得到重視，一切有利於和平解決危機的努力都應該得到支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm)
+
+---
+
 # 國防部：中方要求日方在軍事安全領域謹言慎行
 
 ![張曉剛說，中方要求日方在軍事安全領域謹言慎行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795769_1_20250314193657.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm)
-
----
-
-# 美情報總監指已恢復分享情報　烏克蘭擬建團隊制定停火路線圖
-
-![瑟比加強調烏克蘭是最希望結束衝突、並實現公正與持久和平的國家。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795457_1_20250312212946.jpg&q=90)
-  
-
-美國國家情報總監加巴德宣布，根據總統特朗普的指示，目前已恢復與烏克蘭的情報分享。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795457-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795457-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795457-20250312.htm)
-
----
-
-# 杜特爾特前往海牙途中　飛機短暫停留迪拜
-
-![杜特爾特正被押解前往法院所在地荷蘭海牙。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795452_1_20250312204246.jpg&q=90)
-  
-
-被國際刑事法院指控違反人類罪的菲律賓前總統杜特爾特，正被押解前往法院所在地荷蘭海牙，飛機一度停留阿聯酋迪拜。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795452-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795452-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795452-20250312.htm)
 
 ---

@@ -1,3 +1,123 @@
+# 廣華醫院一名護士遇襲受傷　警拘一名懷疑涉案探病男子
+
+![廣華醫院表示非常關注事件，向受傷護士致以深切慰問及提供所需支援。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795774_2_20250314204218.jpg&q=85)
+  
+
+廣華醫院一名護士昨日下午在病房工作期間遇襲受傷，病房職員和保安人員到場支援及報警求助，並將受傷的護士送往急症室治理。護士手臂受傷，經治療後已經出院。警方其後在醫院拘捕一名探病男子，懷疑與事件有關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795774-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795774-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795774-20250314.htm)
+
+---
+
+# 沙特增4宗中東呼吸綜合症個案　防護中心籲勿安排旅客騎單峰駱駝
+
+![中心建議營辦中東團的旅行社，不應安排旅客騎單峰駱駝或參與直接接觸單峰駱駝的活動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795773_2_20250314204906.jpg&q=90)
+  
+
+衞生防護中心表示，根據世界衞生組織通報，沙特阿拉伯新增4宗中東呼吸綜合症個案，其中一人曾間接接觸單峰駱駝及未經處理的駱駝奶。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795773-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795773-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795773-20250314.htm)
+
+---
+
+# 釜山航空客機1月底起火事件　調查指或因乘客攜帶充電寶起火導致
+
+![釜山航空客機1月底起火事件　調查指或因乘客攜帶充電寶起火導致](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795772_1_20250314203231.jpg&q=90)
+  
+
+南韓釜山航空1月底一架原定從釜山飛往香港的客機，在準備起飛時起火事件，南韓國土交通部航空鐵路事故調查委員會說，當局的調查分析結果顯示，乘客攜帶的充電寶起火導致飛機發生火警的可能性較大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm)
+
+---
+
+# 李強︰要更注重加大政策力度和激發市場力量良性互動
+
+![李強說，要實施好更加積極有為的宏觀政策，最大限度發揮政策效應。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795770_1_20250314201958.jpg&q=90)
+  
+
+國務院總理李強主持召開國務院第八次全體會議，深入學習貫徹總書記習近平在全國兩會期間的重要講話和全國兩會精神，對落實國務院2025年重點工作進行部署。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm)
+
+---
+
+# 中方：冀各方通過對話談判就烏克蘭危機達成公平持久和平協議
+
+![毛寧說，中方願意同國際社會一起，為最終化解危機、實現持久和平繼續發揮建設性的作用。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795771_1_20250314202242.jpg&q=90)
+  
+
+在北京，外交回應有關俄羅斯總統普京提議與美國總統特朗普就俄烏臨時停火協議舉行會談的提問，發言人毛寧說，在烏克蘭危機問題上，中方始終堅持習近平主席提出的「四個應該」，也就是各國的主權領土完整都應該得到尊重，聯合國的憲章宗旨和原則都應該得到遵守，各國合理的安全關切都應該得到重視，一切有利於和平解決危機的努力都應該得到支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm)
+
+---
+
 # 國防部：中方要求日方在軍事安全領域謹言慎行
 
 ![張曉剛說，中方要求日方在軍事安全領域謹言慎行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795769_1_20250314193657.jpg&q=90)
@@ -190,9 +310,9 @@
 
 ---
 
-# 蔡若蓮︰學齡人口下降屬「結構性」情況　料未來數年挑戰更大
+# 蔡若蓮︰學齡人口下降屬「結構性」情況　未來幾年挑戰更大
 
-![蔡若蓮說，學齡人口下降屬「結構性」情況，預料未來數年挑戰更大。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795762_1_20250314194320.jpg&q=80)
+![蔡若蓮說，學齡人口下降屬「結構性」情況，預料未來數年挑戰更大。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795762_2_20250314204018.jpg&q=90)
   
 
 兩間小學2025/26學年獲「派0班」，教育局局長蔡若蓮表示，學齡人口下降屬「結構性」情況並非「過渡性」，預料未來數年挑戰更大。

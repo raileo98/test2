@@ -1,3 +1,51 @@
+# 李強︰要更注重加大政策力度和激發市場力量良性互動
+
+![李強說，要實施好更加積極有為的宏觀政策，最大限度發揮政策效應。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795770_1_20250314201958.jpg&q=90)
+  
+
+國務院總理李強主持召開國務院第八次全體會議，深入學習貫徹總書記習近平在全國兩會期間的重要講話和全國兩會精神，對落實國務院2025年重點工作進行部署。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm)
+
+---
+
+# 中方：冀各方通過對話談判就烏克蘭危機達成公平持久和平協議
+
+![毛寧說，中方願意同國際社會一起，為最終化解危機、實現持久和平繼續發揮建設性的作用。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795771_1_20250314202242.jpg&q=90)
+  
+
+在北京，外交回應有關俄羅斯總統普京提議與美國總統特朗普就俄烏臨時停火協議舉行會談的提問，發言人毛寧說，在烏克蘭危機問題上，中方始終堅持習近平主席提出的「四個應該」，也就是各國的主權領土完整都應該得到尊重，聯合國的憲章宗旨和原則都應該得到遵守，各國合理的安全關切都應該得到重視，一切有利於和平解決危機的努力都應該得到支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm)
+
+---
+
 # 國防部：中方要求日方在軍事安全領域謹言慎行
 
 ![張曉剛說，中方要求日方在軍事安全領域謹言慎行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795769_1_20250314193657.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm)
-
----
-
-# 外交部：英方應尊重中方在南海領土主權和海洋權益
-
-![毛寧說，作為域外國家，英方應尊重中方在南海的領土主權和海洋權益。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795300_1_20250311194238.jpg&q=90)
-  
-
-在北京，外交部回應英國外相林德偉指中國正在南海採取破壞穩定的危險行為的言論，發言人毛寧說，南海是目前世界上最安全、最自由的海上通道之一。作為域外國家，英方應當尊重中方在南海的領土主權和海洋權益，停止挑動矛盾、搬弄是非。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795300-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795300-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795300-20250311.htm)
-
----
-
-# 李強向奧地利新任總理施托克爾致賀電
-
-![李強表示，奧地利是中國在歐洲的重要夥伴。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795299_1_20250311192827.jpg&q=90)
-  
-
-國務院總理李強向施托克爾致賀電，祝賀他就任奧地利總理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795299-20250311.htm)
 
 ---
