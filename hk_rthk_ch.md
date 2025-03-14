@@ -141,7 +141,7 @@
 
 # 盧寵茂︰考慮公營門診病人共付電腦掃描及磁力共振等檢查費用
 
-![盧寵茂表示，要讓資源更精準運用，要考慮成本、市民合理共付、資源運用優次及市民承擔能力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795760_1_20250314182222.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795760_1_20250314184625.jpg&q=90)
   
 
 消息指，政府將於數星期內，交代公營醫療收費調整方案。醫務衞生局局長盧寵茂表示，正考慮電腦掃描及磁力共振等複雜的影像檢查，需要市民按項目共付費用，但急症室及住院病人接受有關服務仍維持免費。
