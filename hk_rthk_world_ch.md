@@ -1,3 +1,27 @@
+# 普京稱俄美關係有進展　若庫爾斯克州烏軍投降會保證安全
+
+![普京以視像方式出席俄羅斯聯邦安全會議常務委員會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795803_1_20250315042230.jpg&q=90)
+  
+
+俄羅斯總統普京表示，俄美關係已經有所進展，俄方注意到由特朗普領導的新一屆美國政府，正在為改善俄美雙邊關係努力，但恢復雙邊關係的過程不簡單，可以說是複雜，俄方對後續進展保持關注。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795803-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795803-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795803-20250315.htm)
+
+---
+
 # Tesla警告美國政府的高額關稅政策會損害美國企業
 
 ![馬斯克與總統特朗普關係密切，目前不清楚馬斯克是否知道信件內容。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795802_1_20250315031149.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm)
-
----
-
-# 阿拉伯五國外長與美國特使舉行會議討論加沙重建問題
-
-![流離失所的巴勒斯坦人在加沙城一個球場的帳篷營地棲身。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795488_1_20250313052930.jpg&q=60)
-  
-
-卡塔爾在首都多哈主持阿拉伯五國外長與美國中東問題特使的會議，重點討論加沙地帶重建問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795488-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795488-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795488-20250313.htm)
 
 ---
