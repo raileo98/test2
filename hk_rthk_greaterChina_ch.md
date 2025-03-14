@@ -1,3 +1,27 @@
+# 王毅：中東問題已夠多　不應再製造新的緊張甚至危機
+
+![王毅在北京會見俄羅斯副外長里亞布科夫及伊朗副外長加里布阿巴迪。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795797_1_20250315012635.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在北京會見出席伊朗核問題中俄伊北京會晤的俄羅斯副外長里亞布科夫，以及伊朗副外長加里布阿巴迪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm)
+
+---
+
 # 李強︰要更注重加大政策力度和激發市場力量良性互動
 
 ![李強說，要實施好更加積極有為的宏觀政策，最大限度發揮政策效應。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795770_1_20250314201958.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm)
-
----
-
-# 全國兩會｜習近平離開人大會場時與梁振英及何厚鏵打招呼
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795302_1_20250311204512.jpg&q=90)
-  
-
-十四屆全國人大三次會議下午在北京閉幕，出席閉幕會的國家主席習近平離開會場時，一度停步與兩名全國政協副主席、香港前行政長官梁振英及澳門前行政長官何厚鏵打招呼，梁振英及何厚鏵均點頭回應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795302-20250311.htm)
 
 ---

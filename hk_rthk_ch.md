@@ -1,3 +1,27 @@
+# 王毅：中東問題已夠多　不應再製造新的緊張甚至危機
+
+![王毅在北京會見俄羅斯副外長里亞布科夫及伊朗副外長加里布阿巴迪。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795797_1_20250315012635.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在北京會見出席伊朗核問題中俄伊北京會晤的俄羅斯副外長里亞布科夫，以及伊朗副外長加里布阿巴迪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm)
+
+---
+
 # 卡尼正式宣誓就任加拿大新總理　多個內閣職位續由前任閣員擔任
 
 ![卡尼宣誓就任總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795796_1_20250315011506.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm)
-
----
-
-# 劉國勳贊同港深西部鐵路口岸設內地一地兩檢　可騰出香港土地發展
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795722_1_20250314151018.jpg&q=90)
-  
-
-民建聯立法會議員劉國勳表示，有報道指連接洪水橋/厦村至前海的港深西部鐵路的口岸設於內地，並採用「一地兩檢」模式，他表示贊同，認為與他早前建議一致，因為口岸設於內地，可騰出更多香港土地發展其他用途，而內地建築成本較低，加上香港段的車站較多，口岸設於內地會較方便本地線乘客，亦較符合成本效益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm)
 
 ---

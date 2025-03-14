@@ -1,3 +1,27 @@
+# 王毅：中東問題已夠多　不應再製造新的緊張甚至危機
+
+![王毅在北京會見俄羅斯副外長里亞布科夫及伊朗副外長加里布阿巴迪。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795797_1_20250315012635.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在北京會見出席伊朗核問題中俄伊北京會晤的俄羅斯副外長里亞布科夫，以及伊朗副外長加里布阿巴迪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm)
+
+---
+
 # 卡尼正式宣誓就任加拿大新總理　多個內閣職位續由前任閣員擔任
 
 ![卡尼宣誓就任總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795796_1_20250315011506.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795483-20250313.htm)
-
----
-
-# 杜特爾特被移交國際刑事法院羈押
-
-![載有杜特爾特的飛機當地周三下午，抵達荷蘭鹿特丹海牙機場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795482_1_20250313015609.jpg&q=90)
-  
-
-菲律賓前總統杜特爾特被送到荷蘭海牙後，已移交國際刑事法院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795482-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795482-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795482-20250313.htm)
 
 ---
