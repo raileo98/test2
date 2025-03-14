@@ -1,3 +1,73 @@
+# 本港二手樓價按周跌近1%　創21周新低
+
+![代理：本港二手樓價按周跌逾0.7%，但九龍區樓價按周升近2%，結束3周連跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795744_1_20250314170102.jpg&q=80)
+  
+
+反映本港二手樓價走勢的中原城市領先指數（CCL）最新報136.48，按周跌逾0.7%，創21周新低，繼續處於逾8年半低位。樓價今年暫時累計跌逾0.8%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795744-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795744-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795744-20250314.htm)
+
+---
+
+# 啟德智慧綠色集體運輸系統車站擬由5個增至6個　料下半年招標
+
+  
+
+政府去年展開啟德智慧綠色集體運輸系統項目的勘查研究工作，運輸及物流局公布項目的優化方案，包括增設車站及微調走線等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795747-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795747-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795747-20250314.htm)
+
+---
+
+# 香港總商會推出人工智能驅動平台助中小企進行ESG審核及報告
+
+  
+
+香港總商會推出由人工智能驅動的環境、社會及管治（ESG）自我審核及學習平台「Green360」，旨在教育企業認識實踐 ESG 最佳做法 ，以協助尤其是中小企等進行ESG審核及報告程序。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795745-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795745-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795745-20250314.htm)
+
+---
+
 # 蔡若蓮稱評估交流團風險後認為與韶關無明顯關係　已停用涉事餐廳
 
   
@@ -44,7 +114,11 @@
 
 # 蔡若蓮稱學齡人口下降屬結構性須正視　料未來幾年挑戰更大
 
+![蔡若蓮稱過去幾年已經降低開班要求，小一以一班16人劃線，她形容要求已經很寬鬆。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795740_1_20250314171306.jpg&q=80)
   
+
+黃大仙的天主教博智小學及南區的鴨脷洲街坊學校下學年獲派的學生人數少於16人，按開班準則「派0班」，未能獲資助開辦小一。教育局局長蔡若蓮表示，隨著學齡人口下降，加上出生率持續下降，預計學齡人口下降屬結構性，而不是過渡性情況，當局預計到2030年下降速度會進一步加快。
+
   
 
 
