@@ -1,3 +1,27 @@
+# 美國3月消費者信心指數初值低過預期
+
+![美國密歇根大學3月美國消費者信心指數初值為57.9，低過市場預期的63.1。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795786_1_20250314220845.jpg&q=65)
+  
+
+美國密歇根大學3月美國消費者信心指數初值為57.9，低過市場預期的63.1。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795786-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795786-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795786-20250314.htm)
+
+---
+
 # 美股初段上升
 
 ![道瓊斯指數較早時報40953點，升140點，升幅0.34%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795778_1_20250314213624.jpg&q=90)
@@ -1411,29 +1435,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795633-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795633-20250313.htm)
-
----
-
-# 世茂集團：境外債務重組計劃獲高等法院批准
-
-![世茂集團表示，境外債務重組計劃已獲高等法院批准。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795623_1_20250313215134.jpg&q=90)
-  
-
-世茂集團表示，尋求高等法院批准境外債務重組計劃的呈請於今日進行聆訊，而計劃已根據高等法院作出的指令獲得批准。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795623-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795623-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795623-20250313.htm)
 
 ---

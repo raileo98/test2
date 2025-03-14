@@ -1,3 +1,27 @@
+# Rashford recalled in Tuchel's first England squad
+
+![Marcus Rashford has looked more like his old self since his loan move to Aston Villa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795783_1_20250314215113.jpg&q=90)
+  
+
+Thomas Tuchel said Marcus Rashford and Jordan Henderson are contenders for England's 2026 World Cup squad after earning recalls in his first squad on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm)
+
+---
+
 # Alcaraz stays on track for third Indian Wells title
 
 ![Carlos Alcaraz reacts after winning his quarter-final match against Argentina’s Francisco Cerundolo in Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795712_1_20250314142648.jpg&q=90)
@@ -1424,29 +1448,5 @@ Liverpool manager Arne Slot will not be on the touchline for Wednesday's home ma
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm)
-
----
-
-# Atlético hold Barca in eight-goal Copa del Rey clash
-
-![Atlético Madrid's Marcos Llorente controls the ball against Barcelona's Frenkie de Jong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793180_1_20250226074804.jpg&q=80)
-  
-
-Atlético Madrid conceded a two-goal lead then fought back from two down in a wild 4-4 draw with Barcelona in a Copa del Rey semi-final first leg thriller.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm)
 
 ---

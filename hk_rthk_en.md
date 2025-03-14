@@ -1,3 +1,27 @@
+# Rashford recalled in Tuchel's first England squad
+
+![Marcus Rashford has looked more like his old self since his loan move to Aston Villa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795783_1_20250314215113.jpg&q=90)
+  
+
+Thomas Tuchel said Marcus Rashford and Jordan Henderson are contenders for England's 2026 World Cup squad after earning recalls in his first squad on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm)
+
+---
+
 # Man arrested for allegedly assaulting a nurse
 
 ![Kwong Wah Hospital says the male nurse sustained injuries to his arm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795779_1_20250314214019.jpg&q=90)
@@ -1413,29 +1437,5 @@ The privacy watchdog said on Wednesday it completed an investigation on last Apr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm)
-
----
-
-# HK stocks lose ground for 4th straight day
-
-![Local stocks give up 0.76 percent on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795445_1_20250312184127.jpg&q=90)
-  
-
-Hong Kong stocks ended lower on Wednesday with the benchmark Hang Seng Index down 0.76 percent to close at 23,600.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795445-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795445-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795445-20250312.htm)
 
 ---
