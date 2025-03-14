@@ -1,3 +1,27 @@
+# Alcaraz stays on track for third Indian Wells title
+
+![Carlos Alcaraz reacts after winning his quarter-final match against Argentina’s Francisco Cerundolo in Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795712_1_20250314142648.jpg&q=90)
+  
+
+Two-time defending champion Carlos Alcaraz fought off determined challenger Francisco Cerundolo 6-3, 7-6 (7/4) to reach the semi-finals of the Indian Wells ATP Masters.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795712-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795712-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795712-20250314.htm)
+
+---
+
 # Man Utd and Spurs through in Europa League
 
 ![Bruno Fernandes was decisive for Manchester United with his hat-trick. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795685_1_20250314104926.jpg&q=90)
@@ -1424,29 +1448,5 @@ Atlético Madrid conceded a two-goal lead then fought back from two down in a wi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793180-20250226.htm)
-
----
-
-# Chelsea thrash Southampton; Villa beaten by Palace
-
-![Cheslea's Nkunku celebrates after scoring his team first goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793177_1_20250226070748.jpg&q=90)
-  
-
-Chelsea moved into the Premier League's top four with a 4-0 demolition of hapless Southampton, but Aston Villa's hopes of Champions League football next season diminished after a 4-1 defeat at Crystal Palace.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793177-20250226.htm)
 
 ---

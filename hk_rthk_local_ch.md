@@ -1,3 +1,72 @@
+# 第三個InnoHK創新香港研發平台開始接受申請
+
+  
+
+​創新科技署宣布第三個InnoHK創新香港研發平台名為「SEAM@InnoHK」，開始接受申請，聚焦可持續發展、能源、先進製造及材料。歡迎從事相關領域研究的國際頂尖大學及科研機構提交建議書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm)
+
+---
+
+# 勞工處屯門與元朗就業中心下月起合併
+
+  
+
+勞工處公布為更有效運用公共資源，屯門就業中心將由下月1日起與元朗就業中心合併。合併後新界屯門青棉徑3號好勝大廈地下的就業中心會易名為新界西就業中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795716-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795716-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795716-20250314.htm)
+
+---
+
+# 氣候變化與國際貿易法會議在港舉行　林定國吸引全球600人參加
+
+  
+
+律政司司長林定國表示，由聯合國國際貿易法委員會、律政司香港國際法律人才培訓學院聯合舉辦的「氣候變化與國際貿易法會議」在香港舉行，吸引來自全球70個司法管轄區約600人登記參加，展現國際社會對議題的高度關注，亦標誌著香港在推動氣候行動及國際貿易法制建設方面的積極角色。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795715-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795715-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795715-20250314.htm)
+
+---
+
 # 港股下午初段在24000點關口爭持
 
 ![恒生指數在24000點關口爭持，較早時報23994點，升532點，升幅2.27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795708_1_20250314130613.jpg&q=65)
@@ -1366,80 +1435,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795557-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795557-20250313.htm)
-
----
-
-# 謝展寰稱香港能成為世界各地氫能及其他綠色技術示範中心
-
-![謝展寰說，作為國際金融中心，香港可以透過提供綠色融資和專業服務，幫助各地和企業的綠色轉型。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795555_1_20250313154708.jpg&q=90)
-  
-
-由機電署主辦及中國氫能聯盟協辦的國際氫能發展論壇在香港科學園舉行開幕禮，由中聯辦教育科技部副部長葉水球、環境及生態局局長謝展寰、機電署署長潘國英、投資推廣署署長劉凱旋和中國氫能聯盟秘書長劉瑋擔任開幕嘉賓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795555-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795555-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795555-20250313.htm)
-
----
-
-# 全國兩會｜李慧琼料民營經濟愈來愈旺盛　陳勇籲時刻警惕維護國安
-
-![民建聯舉辦「全國兩會精神分享會」。（民建聯提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795554_1_20250313154612.jpg&q=90)
-  
-
-民建聯舉辦「全國兩會精神分享會」，由全國人大常委李慧琼、港區全國人大代表召集人陳勇、全國人大代表黃英豪、朱立威、黃冰芬，及全國政協委員呂堅主講。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm)
-
----
-
-# 香港花卉展明日起維園舉行　並展出「港版草間彌生」花婆婆藝術品
-
-![花展將展出由「港版草間彌生」94歲的藝術家花婆婆在不同家具上繪畫「花」的家具藝術品。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_8_20250313183641.jpg&q=75)
-![花展有多個大型園林造景以環遊世界為主題。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_4_20250313165940.jpg&q=50)
-![花展每個園圃加設燈帶、裝飾燈、燈籠及燈柱等。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_5_20250313165940.jpg&q=55)
-![花展特別擺放全運會的大型海報和吉祥物打卡點。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795550_6_20250313165940.jpg&q=75)
-  
-
-香港花卉展明日起至本月23日在維園舉行，今年主題花是秋英，以「綻放英姿」為主題，估計入場人次與往年相若，有約65萬人次，當中約5%至10%是遊客。康文署預算整體開支較去年少，約5000萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795550-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795550-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795550-20250313.htm)
 
 ---

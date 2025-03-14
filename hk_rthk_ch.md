@@ -1,3 +1,73 @@
+# 勞工處屯門與元朗就業中心下月起合併
+
+  
+
+勞工處公布為更有效運用公共資源，屯門就業中心將由下月1日起與元朗就業中心合併。合併後新界屯門青棉徑3號好勝大廈地下的就業中心會易名為新界西就業中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795716-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795716-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795716-20250314.htm)
+
+---
+
+# 台股收市靠穩
+
+![台股收市升6點；本周累計跌約2.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795713_1_20250314140709.jpg&q=90)
+  
+
+台灣股市靠穩。加權指數收市報21968點，升6點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795713-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795713-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795713-20250314.htm)
+
+---
+
+# 氣候變化與國際貿易法會議在港舉行　林定國吸引全球600人參加
+
+  
+
+律政司司長林定國表示，由聯合國國際貿易法委員會、律政司香港國際法律人才培訓學院聯合舉辦的「氣候變化與國際貿易法會議」在香港舉行，吸引來自全球70個司法管轄區約600人登記參加，展現國際社會對議題的高度關注，亦標誌著香港在推動氣候行動及國際貿易法制建設方面的積極角色。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795715-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795715-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795715-20250314.htm)
+
+---
+
 # 伊朗核問題中俄伊北京會晤聲明重申應摒棄制裁施壓、武力威脅
 
 ![會晤由外交部副部長馬朝旭主持，俄羅斯和伊朗外交部副部長與會。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795714_1_20250314141811.jpg&q=90)

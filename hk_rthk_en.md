@@ -1,3 +1,27 @@
+# Alcaraz stays on track for third Indian Wells title
+
+![Carlos Alcaraz reacts after winning his quarter-final match against Argentina’s Francisco Cerundolo in Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795712_1_20250314142648.jpg&q=90)
+  
+
+Two-time defending champion Carlos Alcaraz fought off determined challenger Francisco Cerundolo 6-3, 7-6 (7/4) to reach the semi-finals of the Indian Wells ATP Masters.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795712-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795712-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795712-20250314.htm)
+
+---
+
 # China hosts trilateral nuclear talks with Iran, Russia
 
 ![Vice Foreign Minister Ma Zhaoxu, right, meets with Iranian Deputy Foreign Minister Kazem Gharibabadi in Beijing. Photo courtesy of Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795709_1_20250314131953.jpg&q=90)
@@ -19,30 +43,6 @@ Chinese, Russian and Iranian diplomats met on Friday for talks, in a meeting Bei
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm)
-
----
-
-# Parents express concern over possible school closures
-
-![Parents whose children study at Price Memorial Catholic Primary School said they're worried it may have to close. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795696_1_20250314120146.jpg&q=85)
-  
-
-Parents at a primary school that won't get public funding to operate first-year classes in the next academic year said on Friday they're shocked by the development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm)
 
 ---
 

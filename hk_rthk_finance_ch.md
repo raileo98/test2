@@ -1,3 +1,74 @@
+# 日股本周升逾0.4%　結束3周跌勢
+
+![日經平均指數收市報37053點，升263點，升幅0.72%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795717_1_20250314143736.jpg&q=90)
+  
+
+日本股市上升，日經平均指數收市報37053點，升263點，升幅0.72%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795717-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795717-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795717-20250314.htm)
+
+---
+
+# 第三個InnoHK創新香港研發平台開始接受申請
+
+  
+
+​創新科技署宣布第三個InnoHK創新香港研發平台名為「SEAM@InnoHK」，開始接受申請，聚焦可持續發展、能源、先進製造及材料。歡迎從事相關領域研究的國際頂尖大學及科研機構提交建議書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm)
+
+---
+
+# 台股收市靠穩
+
+![台股收市升6點；本周累計跌約2.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795713_1_20250314140709.jpg&q=90)
+  
+
+台灣股市靠穩。加權指數收市報21968點，升6點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795713-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795713-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795713-20250314.htm)
+
+---
+
 # 分析料金價年底前或升至3500美元
 
 ![金價創新高，紐約期金一度突破3000美元關口，高見3005.9美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795711_1_20250314135414.jpg&q=90)
@@ -1362,77 +1433,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795552-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795552-20250313.htm)
-
----
-
-# 台股低收逾1%
-
-![台灣加權指數收市報21961點，跌316點，跌幅1.42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795551_1_20250313143133.jpg&q=90)
-  
-
-台灣股市跌逾1%，加權指數收市報21961點，跌316點，跌幅1.42%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795551-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795551-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795551-20250313.htm)
-
----
-
-# 平安好醫生已全面接入DeepSeek冀提升診斷效率
-
-![李斗（中）稱將AI應用定義為輔助醫生診療作用，期望通過AI提升運營效率和服務質素。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795549_2_20250313193928.jpg&q=90)
-  
-
-平安好醫生去年轉賺8100萬元人民幣，前年則錄得3.23億元虧損。公司表示，自主研發的「平安醫博通」醫療大模型接入DeepSeek大模型，並與字節跳動旗下AI工具「豆包」等進行合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795549-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795549-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795549-20250313.htm)
-
----
-
-# 太古地產去年收入下跌2%
-
-![太古地產去年內地投資物業租金收入升7%，零售物業租金收入升7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795548_1_20250313133600.jpg&q=90)
-  
-
-太古地產去年收入144.28億元，按年下跌2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795548-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795548-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795548-20250313.htm)
 
 ---
