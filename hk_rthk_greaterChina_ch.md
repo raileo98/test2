@@ -1,3 +1,27 @@
+# 市場料內地首兩月工業增加值增速或放緩　投資及消費增長加快
+
+![受春節導致工作日數按年減少及高基數影響，市場料首兩月內地工業增加值增速放緩至去年10月以來最低。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795729_1_20250314153344.jpg&q=85)
+  
+
+內地下周一公布1-2月宏觀經濟數據。外電綜合約26家機構預測中值顯示，市場預期今年首兩月規模以上工業增加值按年增長回落至約5.3%，創去年10月以來最低，受春節導致工作日數按年減少及高基數影響。不過，1-2月固定資產投資預計增長約3.6%，增速較去年12月加快0.4個百分點；「兩新」政策加力擴圍及春節旅遊、觀看電影等消費較活躍，預計可推動1-2月社會消費品零售總額按年增速加快至約4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm)
+
+---
+
 # 伊朗核問題中俄伊北京會晤聲明重申應摒棄制裁施壓、武力威脅
 
 ![會晤由外交部副部長馬朝旭主持，俄羅斯和伊朗外交部副部長與會。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795714_1_20250314141811.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795267-20250311.htm)
-
----
-
-# 丘應樺籲港商借鑑內地經驗　把握跨境電商無限商機
-
-![丘應樺（左一）參觀該處的電子商貿直播中心，了解利用電子商貿及直播帶貨的過程和營銷策略。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795266_1_20250311165427.jpg&q=85)
-  
-
-商務及經濟發展局局長丘應樺由廣州轉往東莞繼續訪問行程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm)
 
 ---
