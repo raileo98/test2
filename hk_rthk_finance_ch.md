@@ -1,3 +1,27 @@
+# 美股初段上升
+
+![道瓊斯指數較早時報40953點，升140點，升幅0.34%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795778_1_20250314213624.jpg&q=90)
+  
+
+美股在開市初段上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795778-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795778-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795778-20250314.htm)
+
+---
+
 # 兩元優惠調整　孫玉菡：不想老友記搭程車都心掛掛
 
 ![財政預算案提出「兩元優惠計劃」調整方案，包括新增每月240程限制，10元以上改為全額車費「兩折」。（勞工及福利局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795776_1_20250314213016.jpg&q=90)
@@ -1411,29 +1435,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795623-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795623-20250313.htm)
-
----
-
-# 東方海外去年多賺88%
-
-![東方海外去年全年盈利近25.8億美元，按年上升88%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795627_1_20250313220742.jpg&q=90)
-  
-
-東方海外公布，截至去年底，全年盈利近25.8億美元，按年上升88%，派末期息每股普通股1.32美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795627-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795627-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795627-20250313.htm)
 
 ---
