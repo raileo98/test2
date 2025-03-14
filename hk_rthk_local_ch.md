@@ -1,5 +1,30 @@
+# 港股下午初段在24000點關口爭持
+
+![恒生指數在24000點關口爭持，較早時報23994點，升532點，升幅2.27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795708_1_20250314130613.jpg&q=65)
+  
+
+港股下午初段造好，恒生指數在24000點關口爭持，較早時報23994點，升532點，升幅2.27%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795708-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795708-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795708-20250314.htm)
+
+---
+
 # 劉麥嘉軒：下年度總開支預算減2%　人工智能應付新工作量
 
+![劉麥嘉軒：下年度總開支預算減2%　人工智能應付新工作量](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795706_1_20250314130458.jpg&q=90)
   
 
 積金局主席劉麥嘉軒表示，積金局認同及會積極響應政府提出加大力度控制經營開支，2025/26年度的總開支預算會減2%，同時會以人工智能及精簡程序應付新增的工作量。
@@ -23,6 +48,7 @@
 
 # 盧寵茂：正考慮公營門診病人共付電腦掃描及磁力共振等檢查費用
 
+![盧寵茂：正考慮公營門診病人共付電腦掃描及磁力共振等檢查費用](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795705_1_20250314130430.jpg&q=80)
   
 
 消息指，政府將於未來數星期內，交代公營醫療收費調整方案。醫務衞生局局長盧寵茂表示，正考慮電腦掃描及磁力共振等複雜的影像檢查，需要市民按項目共付費用，但強調只適用於門診病人，急症及住院病人需要有關服務仍維持免費。
@@ -1415,29 +1441,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795550-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795550-20250313.htm)
-
----
-
-# 港股下午初段跌約200點
-
-![恒生指數較早時報23418點，跌181點，跌幅0.77%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795547_1_20250313130455.jpg&q=10)
-  
-
-港股下午初段持續下跌，恒生指數較早時報23418點，跌181點，跌幅0.77%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795547-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795547-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795547-20250313.htm)
 
 ---
