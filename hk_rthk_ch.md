@@ -1,3 +1,51 @@
+# 哈馬斯同意釋放一名有美國和以色列雙重國籍被扣押人員
+
+![哈馬斯同意釋放一名有美國和以色列雙重國籍被扣押人員](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795782_1_20250314214848.jpg&q=90)
+  
+
+巴勒斯坦武裝組織哈馬斯發表聲明說，已同意釋放一名有美國和以色列雙重國籍的被扣押人員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm)
+
+---
+
+# 天文台料明日稍後北風逐漸增強　下週初最低氣溫14至15度
+
+![天文台預料明日稍後北風逐漸增強，隨後兩三日早上清涼。（天文台網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795781_1_20250314214908.jpg&q=90)
+  
+
+天文台表示，受冷鋒相關的東北季候風持續影響，星期日沿岸地區天氣轉涼，風勢頗大，下週初最低氣溫約14至15度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795781-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795781-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795781-20250314.htm)
+
+---
+
 # 美股初段上升
 
 ![道瓊斯指數較早時報40953點，升140點，升幅0.34%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795778_1_20250314213624.jpg&q=90)

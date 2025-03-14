@@ -1,3 +1,27 @@
+# 哈馬斯同意釋放一名有美國和以色列雙重國籍被扣押人員
+
+![哈馬斯同意釋放一名有美國和以色列雙重國籍被扣押人員](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795782_1_20250314214848.jpg&q=90)
+  
+
+巴勒斯坦武裝組織哈馬斯發表聲明說，已同意釋放一名有美國和以色列雙重國籍的被扣押人員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm)
+
+---
+
 # 釜山航空客機1月底起火事件　調查指或因乘客攜帶充電寶起火導致
 
 ![釜山航空客機1月底起火事件　調查指或因乘客攜帶充電寶起火導致](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795772_1_20250314203231.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm)
-
----
-
-# 加拿大周四起對298億加元美國貨加徵25%關稅
-
-![勒布朗強調，當加拿大的鋼鋁行業受到美國政策的攻擊時，不會袖手旁觀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795470_1_20250312224105.jpg&q=90)
-  
-
-加拿大宣布，星期四起對總值298億加元的美國商品加徵25%報復性關稅，回應美國對進口鋼鋁徵收25%關稅的措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795470-20250312.htm)
 
 ---
