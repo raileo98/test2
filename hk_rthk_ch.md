@@ -1,3 +1,23 @@
+# 杜特爾特以視像方式出席海牙國際刑事法院首次聆訊
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm)
+
+---
+
 # 哈馬斯同意釋放一名有美國和以色列雙重國籍被扣押人員
 
 ![哈馬斯同意釋放一名有美國和以色列雙重國籍被扣押人員](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795782_1_20250314214848.jpg&q=90)

@@ -1,3 +1,27 @@
+# Man arrested for allegedly assaulting a nurse
+
+![Kwong Wah Hospital says the male nurse sustained injuries to his arm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795779_1_20250314214019.jpg&q=90)
+  
+
+A male visitor at Kwong Wah Hospital has been arrested for allegedly assaulting a nurse.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795779-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795779-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795779-20250314.htm)
+
+---
+
 # UK police extend detention of North Sea crash captain
 
 ![The MV Stena Immaculate tanker was hit by the MV Solong container vessel on March 10. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795780_1_20250314214139.jpg&q=85)
@@ -1413,29 +1437,5 @@ Hong Kong stocks ended lower on Wednesday with the benchmark Hang Seng Index dow
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795445-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795445-20250312.htm)
-
----
-
-# 'Price hike for medication should be less than 10 pc'
-
-![Ivan Lin hopes any price increment for 16 weeks worth of medication at public hospitals could be less than 10 percent, saying that would hurt members of the grassroots. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795440_1_20250312174458.jpg&q=80)
-  
-
-A community group on Wednesday welcomed the Hospital Authority’s new arrangement to cut the amount of medication distributed to patients.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795440-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795440-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795440-20250312.htm)
 
 ---

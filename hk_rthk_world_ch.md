@@ -1,3 +1,23 @@
+# 杜特爾特以視像方式出席海牙國際刑事法院首次聆訊
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm)
+
+---
+
 # 哈馬斯同意釋放一名有美國和以色列雙重國籍被扣押人員
 
 ![哈馬斯同意釋放一名有美國和以色列雙重國籍被扣押人員](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795782_1_20250314214848.jpg&q=90)
@@ -1411,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795478-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795478-20250313.htm)
-
----
-
-# 巴基斯坦火車乘客被挾持事件據報現場所有武裝份子被擊斃
-
-![官員說安全部隊已救出大批一度被武裝份子挾持的人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795476_1_20250312225726.jpg&q=90)
-  
-
-新華社引述巴基斯坦軍方官員報道，當地安全部隊在營救遇襲客運列車上人質的行動中，擊斃現場所有武裝份子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795476-20250312.htm)
 
 ---
