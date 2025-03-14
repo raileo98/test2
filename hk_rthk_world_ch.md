@@ -1,3 +1,27 @@
+# 杜特爾特視像出席國際刑事法院聆訊　案件料最快明年初正式開審
+
+![杜特爾特以視像方式出席聆訊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795800_1_20250315021940.jpg&q=90)
+  
+
+荷蘭海牙國際刑事法院就菲律賓前總統杜特爾特，涉嫌違反人類罪舉行首次聆訊，杜特爾特以視像方式出席。法官告知杜特爾特起訴的內容及享有的權利，杜特爾特確認自己的姓名、出生日期和地點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795800-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795800-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795800-20250315.htm)
+
+---
+
 # 伊拉克總理稱擊斃伊斯蘭國在伊拉克和敘利亞的頭目
 
 ![蘇達尼說，情報部門成功擊斃伊斯蘭國在伊拉克和敘利亞的頭目拉菲依。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795799_1_20250315021210.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795486-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795486-20250313.htm)
-
----
-
-# 白宮宣布派遣特使威特科夫赴俄　推動達成停火
-
-![白宮宣布派遣特使威特科夫本周前往莫斯科，尋求推動俄烏達成30天停火協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795485_1_20250313033739.jpg&q=90)
-  
-
-美國白宮宣布派遣中東問題特使威特科夫本周前往莫斯科，尋求推動俄烏達成30天停火協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795485-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795485-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795485-20250313.htm)
 
 ---

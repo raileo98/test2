@@ -1,3 +1,27 @@
+# 杜特爾特視像出席國際刑事法院聆訊　案件料最快明年初正式開審
+
+![杜特爾特以視像方式出席聆訊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795800_1_20250315021940.jpg&q=90)
+  
+
+荷蘭海牙國際刑事法院就菲律賓前總統杜特爾特，涉嫌違反人類罪舉行首次聆訊，杜特爾特以視像方式出席。法官告知杜特爾特起訴的內容及享有的權利，杜特爾特確認自己的姓名、出生日期和地點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795800-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795800-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795800-20250315.htm)
+
+---
+
 # 伊拉克總理稱擊斃伊斯蘭國在伊拉克和敘利亞的頭目
 
 ![蘇達尼說，情報部門成功擊斃伊斯蘭國在伊拉克和敘利亞的頭目拉菲依。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795799_1_20250315021210.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795730-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795730-20250314.htm)
-
----
-
-# 47歲女子坪洲一個碼頭登船時疑失足墮海　證實不治
-
-![一名47歲女子，今早在坪洲一個碼頭登船期間懷疑失足墮海，其後被救起但證實不治。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795728_1_20250314155153.jpg&q=80)
-  
-
-一名47歲女子，今早在坪洲一個碼頭登船期間懷疑失足墮海，其後被救起但證實不治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795728-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795728-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795728-20250314.htm)
 
 ---

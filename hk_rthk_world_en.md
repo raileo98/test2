@@ -1,3 +1,27 @@
+# Mark Carney sworn in as Canada's PM
+
+![Carney, a former head of both the Bank of Canada and the Bank of England, successfully argued his position with a history of tackling crises meant he was the best person to take on Trump. File Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795795_1_20250315001953.jpg&q=90)
+  
+
+Mark Carney was formally sworn in as prime minister of Canada on Friday, putting him in a position to fight tariffs from US President Donald Trump that could devastate the trade-dependent Canadian economy.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795795-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795795-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795795-20250315.htm)
+
+---
+
 # Duterte attends ICC hearing over drug war by video
 
 ![Rodrigo Duterte stands accused of the crime against humanity of murder over his years-long campaign against drug users and dealers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795790_1_20250314223327.jpg&q=90)
@@ -1411,29 +1435,5 @@ Oscar-winning actor Gene Hackman and his wife died of natural causes about a wee
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794873-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794873-20250308.htm)
-
----
-
-# Ten dead, hundreds evacuated in Argentina floods
-
-![A vehicle is partially submerged after flooding in Punta Alta, Buenos Aires province, Argentina. Photo: Javier Tejerina via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794839_1_20250308065446.jpg&q=90)
-  
-
-Ten people died and hundreds were evacuated in the Argentine port city of Bahia Blanca on Friday as torrential rains flooded homes and hospitals, destroyed roads and forced authorities to cut the power.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794839-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794839-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794839-20250308.htm)
 
 ---
