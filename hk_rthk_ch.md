@@ -1,3 +1,27 @@
+# 伊朗核問題中俄伊北京會晤聲明重申應摒棄制裁施壓、武力威脅
+
+![會晤由外交部副部長馬朝旭主持，俄羅斯和伊朗外交部副部長與會。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795714_1_20250314141811.jpg&q=90)
+  
+
+伊朗核問題中俄伊北京會晤舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm)
+
+---
+
 # 分析料金價年底前或升至3500美元
 
 ![金價創新高，紐約期金一度突破3000美元關口，高見3005.9美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795711_1_20250314135414.jpg&q=90)

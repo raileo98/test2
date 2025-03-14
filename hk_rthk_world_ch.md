@@ -1,3 +1,27 @@
+# 伊朗核問題中俄伊北京會晤聲明重申應摒棄制裁施壓、武力威脅
+
+![會晤由外交部副部長馬朝旭主持，俄羅斯和伊朗外交部副部長與會。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795714_1_20250314141811.jpg&q=90)
+  
+
+伊朗核問題中俄伊北京會晤舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm)
+
+---
+
 # 尹錫悅彈劾案最快或下周宣判　代總統稱堅決應對非法暴力集會
 
 ![韓媒預計尹錫悅彈劾案最快或下周宣判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795710_1_20250314135306.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795399-20250312.htm)
-
----
-
-# 格陵蘭自治議會選舉結束　點票結果數小時公布
-
-![格陵蘭自治議會選舉結束。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795382_1_20250312113119.jpg&q=90)
-  
-
-格陵蘭舉行自治議會選舉，在美國總統特朗普揚言要控制格陵蘭之下，選舉備受國際關注，由於投票率高，各地72個票站要延長半小時關閉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795382-20250312.htm)
 
 ---

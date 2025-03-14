@@ -1,3 +1,27 @@
+# 伊朗核問題中俄伊北京會晤聲明重申應摒棄制裁施壓、武力威脅
+
+![會晤由外交部副部長馬朝旭主持，俄羅斯和伊朗外交部副部長與會。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795714_1_20250314141811.jpg&q=90)
+  
+
+伊朗核問題中俄伊北京會晤舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm)
+
+---
+
 # 日媒稱日本男子在長城拍攝不雅照片遭拘留後遣返
 
 ![萬里長城是國家著名景點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795683_1_20250314103707.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795266-20250311.htm)
-
----
-
-# 全國兩會｜李鴻忠代閉幕發言圓滿完成議程　團結是力量奮鬥創歷史
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795256_1_20250311154559.jpg&q=90)
-  
-
-在北京，十四屆全國人大三次會議下午在人民大會堂閉幕，人大委員長趙樂際因呼吸道感染向大會請假，由人大副委員長李鴻忠主持閉幕會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795256-20250311.htm)
 
 ---
