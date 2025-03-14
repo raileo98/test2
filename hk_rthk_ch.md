@@ -1,3 +1,27 @@
+# Tesla警告美國政府的高額關稅政策會損害美國企業
+
+![馬斯克與總統特朗普關係密切，目前不清楚馬斯克是否知道信件內容。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795802_1_20250315031149.jpg&q=85)
+  
+
+富商馬斯克擁有的美國電動汽車生產商Tesla，去信美國貿易代表辦公室，警告美國政府的高額關稅政策，將會損害美國企業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795802-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795802-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795802-20250315.htm)
+
+---
+
 # 卡尼：未有計劃晤特朗普　加拿大永遠不會成為美國一部分
 
 ![卡尼上任後召開記者會，一眾內閣成員在他身後。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795801_1_20250315023444.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795731-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795731-20250314.htm)
-
----
-
-# 市場料內地首兩月工業增加值增速或放緩　投資及消費增長加快
-
-![受春節導致工作日數按年減少及高基數影響，市場料首兩月內地工業增加值增速放緩至去年10月以來最低。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795729_1_20250314153344.jpg&q=85)
-  
-
-內地下周一公布1-2月宏觀經濟數據。外電綜合約26家機構預測中值顯示，市場預期今年首兩月規模以上工業增加值按年增長回落至約5.3%，創去年10月以來最低，受春節導致工作日數按年減少及高基數影響。不過，1-2月固定資產投資預計增長約3.6%，增速較去年12月加快0.4個百分點；「兩新」政策加力擴圍及春節旅遊、觀看電影等消費較活躍，預計可推動1-2月社會消費品零售總額按年增速加快至約4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm)
 
 ---

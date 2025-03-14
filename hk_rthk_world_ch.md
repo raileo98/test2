@@ -1,3 +1,27 @@
+# Tesla警告美國政府的高額關稅政策會損害美國企業
+
+![馬斯克與總統特朗普關係密切，目前不清楚馬斯克是否知道信件內容。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795802_1_20250315031149.jpg&q=85)
+  
+
+富商馬斯克擁有的美國電動汽車生產商Tesla，去信美國貿易代表辦公室，警告美國政府的高額關稅政策，將會損害美國企業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795802-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795802-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795802-20250315.htm)
+
+---
+
 # 卡尼：未有計劃晤特朗普　加拿大永遠不會成為美國一部分
 
 ![卡尼上任後召開記者會，一眾內閣成員在他身後。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795801_1_20250315023444.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795488-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795488-20250313.htm)
-
----
-
-# 伊朗外長確認收到特朗普信件
-
-![阿拉格齊在社交網站發文，確認收到特朗普的信件。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795487_1_20250313051239.jpg&q=90)
-  
-
-阿聯酋總統外交顧問加爾賈什到訪德黑蘭，向伊朗外長阿拉格齊轉交美國總統特朗普的信件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795487-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795487-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795487-20250313.htm)
 
 ---
