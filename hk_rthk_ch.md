@@ -48,7 +48,7 @@
 
 # 美國3月消費者信心指數初值低過預期　通脹預期上升
 
-![美國密歇根大學3月美國消費者信心指數初值為57.9，低過市場預期的63.1。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795786_1_20250314220845.jpg&q=65)
+![美國密歇根大學3月美國消費者信心指數初值為57.9，創近兩年半以來最低，低過市場預期的63.1。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795786_1_20250314220845.jpg&q=65)
   
 
 美國3月消費者信心驟降，通脹預期上升，因擔心美國總統特朗普關稅政策會刺激物價並削弱經濟。
