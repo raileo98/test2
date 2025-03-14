@@ -1,3 +1,27 @@
+# Lawmaker says time to change cryopreservation rules
+
+![DAB lawmaker Nixie Lam welcomed government proposals to extend the storage time for eggs, sperm and embryos in Hong Kong. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795688_1_20250314110717.jpg&q=90)
+  
+
+DAB lawmaker Nixie Lam on Friday welcomed the government's initiative on lifting the storage period limitation for frozen eggs, sperm or embryos.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795688-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795688-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795688-20250314.htm)
+
+---
+
 # Two primary schools face primary one class ban
 
 ![Price Memorial Catholic Primary School in Wong Tai Sin and Aplichau Kaifong Primary School in Southern District are banned from running primary one classes in the coming year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795622_1_20250313214543.jpg&q=90)
@@ -1413,29 +1437,5 @@ A cyclist died in a traffic accident in Tuen Mun on Saturday morning.
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794889-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794889-20250308.htm)
-
----
-
-# 'Govt will consider how to improve NSL enforcement'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794875_1_20250308121459.jpg&q=90)
-  
-
-Deputy Secretary for Justice Horace Cheung on Saturday said the government will think about how to enforce the national security law better.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794875-20250308.htm)
 
 ---

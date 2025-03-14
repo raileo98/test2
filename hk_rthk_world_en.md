@@ -1,3 +1,27 @@
+# Japanese duo pay for Great Wall buttocks prank
+
+![The two Japanese were caught soon after their stunt at the Great Wall. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795690_1_20250314111711.jpg&q=90)
+  
+
+Two Japanese tourists in their 20s were detained for two weeks in China then deported for taking photos showing exposed buttocks at the Great Wall, local media reported.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm)
+
+---
+
 # US influencer visa under review after wombat outcry
 
 ![Australian Prime Minister Anthony Albanese said Jones should "take a baby crocodile from its mother and see how you go there." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795670_1_20250314091432.jpg&q=90)
@@ -1411,29 +1435,5 @@ A weak and breathless Pope Francis thanked people for their prayers for his reco
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794716-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794716-20250307.htm)
-
----
-
-# China will 'firmly counter' US amid trade row: Wang Yi
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794703_1_20250307113148.jpg&q=90)
-  
-
-Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, after Washington imposed new tariffs on Chinese goods.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm)
 
 ---

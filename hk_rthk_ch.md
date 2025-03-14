@@ -1,3 +1,26 @@
+# 多名議員質疑公屋入息及資產上調後變相鼓勵申請者「躺平」
+
+  
+
+立法會討論2025/26年度公屋入息和資產限額平均上調1.7%的建議。多名議員不滿公屋入息和資產限額的升幅，比今年5月起最低工資上調幅度低，變相是鼓勵申請者「躺平」，要求房屋署檢視現有檢討機制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795689-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795689-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795689-20250314.htm)
+
+---
+
 # 當局計劃容許物理治療師及職業治療師等接受中醫師轉介病人
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795617-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795617-20250313.htm)
-
----
-
-# 美國上周首次申領失業救濟人數減至22萬人　少過預期
-
-![美國上星期首次申領失業救濟人數按星期減少2000人，減至22萬人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795616_1_20250313211429.jpg&q=90)
-  
-
-美國勞工部公布，美國上星期首次申領失業救濟人數按星期減少2000人，減至22萬人，少過市場預期的22.5萬人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795616-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795616-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795616-20250313.htm)
 
 ---

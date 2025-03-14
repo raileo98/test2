@@ -1,3 +1,26 @@
+# 多名議員質疑公屋入息及資產上調後變相鼓勵申請者「躺平」
+
+  
+
+立法會討論2025/26年度公屋入息和資產限額平均上調1.7%的建議。多名議員不滿公屋入息和資產限額的升幅，比今年5月起最低工資上調幅度低，變相是鼓勵申請者「躺平」，要求房屋署檢視現有檢討機制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795689-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795689-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795689-20250314.htm)
+
+---
+
 # 當局計劃容許物理治療師及職業治療師等接受中醫師轉介病人
 
   
@@ -1421,29 +1444,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm)
-
----
-
-# 教育局：無證據顯示與考察團膳食有關　安全起見要求停用涉事餐廳
-
-![教育局表示，在相關的招標及報價文件清楚列明對團餐、餐廳環境衛生等的要求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795468_1_20250312222617.jpg&q=80)
-  
-
-先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。教育局表示，據內地相關部門初步調查所得，個案較大機會由團友間的生活接觸或暴露於病例的嘔吐物造成傳播，暫時沒有證據顯示與考察團安排的膳食有關，但現階段為安全起見，已立即要求承辦機構停用涉事餐廳，並要求所有為公民與社會發展科內地考察交流團提供膳食的餐廳暫停供應生冷食品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795468-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795468-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795468-20250312.htm)
 
 ---

@@ -1,3 +1,51 @@
+# Japanese duo pay for Great Wall buttocks prank
+
+![The two Japanese were caught soon after their stunt at the Great Wall. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795690_1_20250314111711.jpg&q=90)
+  
+
+Two Japanese tourists in their 20s were detained for two weeks in China then deported for taking photos showing exposed buttocks at the Great Wall, local media reported.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm)
+
+---
+
+# Lawmaker says time to change cryopreservation rules
+
+![DAB lawmaker Nixie Lam welcomed government proposals to extend the storage time for eggs, sperm and embryos in Hong Kong. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795688_1_20250314110717.jpg&q=90)
+  
+
+DAB lawmaker Nixie Lam on Friday welcomed the government's initiative on lifting the storage period limitation for frozen eggs, sperm or embryos.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795688-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795688-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795688-20250314.htm)
+
+---
+
 # Man Utd and Spurs through in Europa League
 
 ![Bruno Fernandes was decisive for Manchester United with his hat-trick. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795685_1_20250314104926.jpg&q=90)
@@ -1389,53 +1437,5 @@ The US Department of Education said on Tuesday it would lay off nearly half its 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm)
-
----
-
-# Maradona's medical team on trial over his death
-
-![Fans of Argentine soccer legend Diego Maradona hold a banner that reads ''Justice for God'' in Buenos Aires. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795364_1_20250312091631.jpg&q=90)
-  
-
-Seven Argentines went on trial on Tuesday accused of homicide for their alleged role in what prosecutors called the "horror theatre" of football legend Diego Maradona's death four years ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm)
-
----
-
-# 'Growth target signals China's intent to beat tariffs'
-
-![China unveiled ambitious growth targets and plans for high-tech development at the Two Sessions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795377_1_20250312104001.jpg&q=70)
-  
-
-An economist at a leading investment bank on Wednesday said the main takeaways from the recently concluded Two Sessions was that China was prepared to handle the new round of US tariffs imposed by President Donald Trump.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm)
 
 ---
