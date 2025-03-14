@@ -1,3 +1,27 @@
+# US share gains cut into week's losses
+
+![On Friday, all 11 sectors of the S&P 500 posted gains, while the Dow index was mostly up. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795808_1_20250315054816.jpg&q=85)
+  
+
+Wall Street stocks finished higher on Friday following bargain hunting that reduced the week's losses amid recession worries over President Trump's shifting tariff policy.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm)
+
+---
+
 # Putin tells Ukraine troops in Kursk to 'surrender'
 
 ![Russian President Vladimir Putin chairs a meeting with members of the Security Council via video link. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795805_1_20250315050817.jpg&q=90)
@@ -1413,29 +1437,5 @@ Wall Street stocks regained some ground Wednesday helped by a rise in tech share
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm)
-
----
-
-# Eateries related to gastroenteritis cluster banned
-
-![More than 50 students and teachers contracted gastroenteritis after dining at the same restaurants during an exchange trip in Shaoguan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795473_1_20250312224524.jpg&q=80)
-  
-
-The Education Bureau on Wednesday said it has ordered tour group service providers to stop using restaurants linked to the gastroenteritis cluster involving dozens of teachers and students.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795473-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795473-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795473-20250312.htm)
 
 ---

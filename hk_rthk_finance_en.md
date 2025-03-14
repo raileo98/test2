@@ -1,3 +1,27 @@
+# US share gains cut into week's losses
+
+![On Friday, all 11 sectors of the S&P 500 posted gains, while the Dow index was mostly up. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795808_1_20250315054816.jpg&q=85)
+  
+
+Wall Street stocks finished higher on Friday following bargain hunting that reduced the week's losses amid recession worries over President Trump's shifting tariff policy.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm)
+
+---
+
 # Gold tops US$3,000 for first time over Trump tariffs
 
 ![In morning deals, gold rose 2.94 percent to US$3,000.85 per ounce, a day after it surpassed its late February record. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795777_1_20250314213613.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong's stocks ended lower on Friday, with the benchmark Hang Seng Index dow
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793684-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793684-20250228.htm)
-
----
-
-# China vows response to latest US tariffs
-
-![China vowed to take "all necessary countermeasures" after US President Donald Trump said he would impose an additional 10 percent tariff on Chinese imports. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793657_1_20250228151408.jpg&q=85)
-  
-
-The Commerce Ministry on Friday said it opposed US President Donald Trump's latest threat to impose an additional 10 percent tariff on Chinese imports and vowed to take "all necessary countermeasures" if Chinese entities got caught up in the levies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm)
 
 ---
