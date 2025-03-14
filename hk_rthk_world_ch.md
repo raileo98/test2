@@ -1,3 +1,27 @@
+# 卡尼正式宣誓就任加拿大新總理　多個內閣職位續由前任閣員擔任
+
+![卡尼宣誓就任總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795796_1_20250315011506.jpg&q=90)
+  
+
+加拿大自由黨新任黨魁卡尼接替執政超過九年的杜魯多，正式宣誓就任新一任總理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795796-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795796-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795796-20250315.htm)
+
+---
+
 # 普京透過威特科夫轉達涉烏問題意見　特朗普：討論富有成效
 
 ![佩斯科夫說，威特科夫向普京提供了更多涉及烏克蘭問題的信息。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795794_1_20250314234808.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795482-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795482-20250313.htm)
-
----
-
-# 美國恢復對烏克蘭軍事援助和情報共享
-
-![波蘭外長西科爾斯基（右）在華沙與烏克蘭外長瑟比加會面後共同會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795481_1_20250313012629.jpg&q=90)
-  
-
-美烏在沙特阿拉伯吉達會談達成共識後，美國已恢復對烏克蘭的軍事援助和情報共享。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795481-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795481-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795481-20250313.htm)
 
 ---

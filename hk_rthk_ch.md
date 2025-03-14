@@ -1,3 +1,27 @@
+# 卡尼正式宣誓就任加拿大新總理　多個內閣職位續由前任閣員擔任
+
+![卡尼宣誓就任總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795796_1_20250315011506.jpg&q=90)
+  
+
+加拿大自由黨新任黨魁卡尼接替執政超過九年的杜魯多，正式宣誓就任新一任總理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795796-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795796-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795796-20250315.htm)
+
+---
+
 # 普京透過威特科夫轉達涉烏問題意見　特朗普：討論富有成效
 
 ![佩斯科夫說，威特科夫向普京提供了更多涉及烏克蘭問題的信息。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795794_1_20250314234808.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm)
-
----
-
-# 韓股低收近0.3%　本周微升0.1%
-
-![首爾綜合指數收市報2566點，跌7點，跌幅0.28%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795721_1_20250314144605.jpg&q=85)
-  
-
-南韓股市偏軟，首爾綜合指數收市報2566點，跌7點，跌幅0.28%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm)
 
 ---
