@@ -22,7 +22,7 @@ Chinese, Russian and Iranian diplomats met on Friday for talks, in a meeting Bei
 
 ---
 
-# Passengers and crew safe after B737 engine fire
+# 12 injured in Denver B737 engine fire
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795700_1_20250314123046.jpg&q=90)
   
@@ -46,7 +46,7 @@ An American Airlines plane caught fire after landing at Denver International Air
 
 ---
 
-# Japanese duo pay for Great Wall buttocks prank
+# Japanese duo pay for Great Wall buttocks 'prank'
 
 ![The two Japanese were caught soon after their stunt at the Great Wall. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795690_1_20250314111711.jpg&q=90)
   

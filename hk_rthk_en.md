@@ -46,7 +46,7 @@ Chinese, Russian and Iranian diplomats met on Friday for talks, in a meeting Bei
 
 ---
 
-# Passengers and crew safe after B737 engine fire
+# 12 injured in Denver B737 engine fire
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795700_1_20250314123046.jpg&q=90)
   
@@ -94,7 +94,7 @@ People around the globe marked World Sleep Day on Friday, an annual event that s
 
 ---
 
-# Japanese duo pay for Great Wall buttocks prank
+# Japanese duo pay for Great Wall buttocks 'prank'
 
 ![The two Japanese were caught soon after their stunt at the Great Wall. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795690_1_20250314111711.jpg&q=90)
   
@@ -500,30 +500,6 @@ An upcoming exhibition dedicated to Spanish artist Pablo Picasso is set to bring
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795585-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795585-20250313.htm)
-
----
-
-# HK stocks end in the red for fifth consecutive day
-
-![Local stocks give up  0.58 percent on Thursday. (File Photo: RTHK)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795583_1_20250313175018.jpg&q=75)
-  
-
-Hong Kong stocks ended lower on Thursday with the benchmark Hang Seng Index down 0.58 percent to close at 23,462.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795583-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795583-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795583-20250313.htm)
 
 ---
 
@@ -1437,5 +1413,29 @@ Development secretary Bernadette Linn said reviewing construction standards and 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795404-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795404-20250312.htm)
+
+---
+
+# Social workers board 'to review applications by law'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795387_1_20250312120912.jpg&q=90)
+  
+
+Secretary for Labour and Welfare Chris Sun said on Wednesday he believes the Social Workers Registration Board will review any renewal application as required by law.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795387-20250312.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 劉國勳贊同港深西部鐵路口岸設內地一地兩檢　可騰出香港土地發展
+
+  
+
+民建聯立法會議員劉國勳表示，有報道指連接洪水橋/厦村至前海的港深西部鐵路的口岸設於內地，並採用「一地兩檢」模式，他表示贊同，認為與他早前建議一致，因為口岸設於內地，可騰出更多香港土地發展其他用途，而內地建築成本較低，加上香港段的車站較多，口岸設於內地會較方便本地線乘客，亦較符合成本效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm)
+
+---
+
+# 香港與巴林促進和保護投資協定將生效　丘應樺稱增強投資者信心
+
+  
+
+香港與巴林去年3月簽署促進和保護投資協定，雙方完成所需內部程序，協定將於本月21日生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm)
+
+---
+
 # 第三個InnoHK創新香港研發平台開始接受申請
 
   
@@ -1387,53 +1433,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795560-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795560-20250313.htm)
-
----
-
-# 時任懲教助理涉詐騙儲蓄互助社及財務機構貸款 　明天於法院答辯
-
-![被告獲准保釋，案件明日在東區裁判法院答辯。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795558_1_20250313154914.jpg&q=90)
-  
-
-廉署落案起訴一名懲教署時任懲教助理，控告他涉嫌藉隱瞞個人債務，在3年內先後多次詐騙懲教署儲蓄互助社及3間財務機構，向他批出貸款超過150萬元。被告獲准保釋，案件明日在東區裁判法院答辯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795558-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795558-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795558-20250313.htm)
-
----
-
-# 本月26日立法會前廳交流會由黃偉綸帶領以事務委員會作分組討論
-
-![前廳交流會將優化安排，以事務委員會為基礎分組進行討論。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795557_1_20250313154800.jpg&q=90)
-  
-
-立法會本月26日將舉行前廳交流會，由財政司副司長黃偉綸帶領，並會採用優化安排，以事務委員會為基礎分組進行討論。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795557-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795557-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795557-20250313.htm)
 
 ---

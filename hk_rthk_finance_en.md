@@ -46,30 +46,6 @@ Wall Street stocks closed sharply lower on Thursday on a fresh wave of tariff th
 
 ---
 
-# HK stocks end in the red for fifth consecutive day
-
-![Local stocks give up  0.58 percent on Thursday. (File Photo: RTHK)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795583_1_20250313175018.jpg&q=75)
-  
-
-Hong Kong stocks ended lower on Thursday with the benchmark Hang Seng Index down 0.58 percent to close at 23,462.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795583-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795583-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795583-20250313.htm)
-
----
-
 # Intel hires Malaysian veteran to head reboot
 
 ![Tan Lip Bu rejoins Intel as chief executive on Tuesday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795538_1_20250313134923.jpg&q=90)
@@ -1435,5 +1411,29 @@ Hong Kong home prices retreated to their lowest level in nearly eight and a half
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm)
+
+---
+
+# HSI dips at open on final trading day of February
+
+![The Hang Seng Index opened down 102 points, or 0.4 percent, at 23,616. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793607_1_20250228095650.jpg&q=75)
+  
+
+Hong Kong stocks opened lower on Friday, the final trading of February, after earnings from artificial intelligence chipmaking leader Nvidia failed to wow the market and US President Donald Trump launched fresh broadsides on trade.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm)
 
 ---

@@ -22,7 +22,7 @@ Chinese, Russian and Iranian diplomats met on Friday for talks, in a meeting Bei
 
 ---
 
-# Japanese duo pay for Great Wall buttocks prank
+# Japanese duo pay for Great Wall buttocks 'prank'
 
 ![The two Japanese were caught soon after their stunt at the Great Wall. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795690_1_20250314111711.jpg&q=90)
   

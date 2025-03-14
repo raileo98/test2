@@ -1,3 +1,120 @@
+# 劉國勳贊同港深西部鐵路口岸設內地一地兩檢　可騰出香港土地發展
+
+  
+
+民建聯立法會議員劉國勳表示，有報道指連接洪水橋/厦村至前海的港深西部鐵路的口岸設於內地，並採用「一地兩檢」模式，他表示贊同，認為與他早前建議一致，因為口岸設於內地，可騰出更多香港土地發展其他用途，而內地建築成本較低，加上香港段的車站較多，口岸設於內地會較方便本地線乘客，亦較符合成本效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm)
+
+---
+
+# 韓股低收近0.3%　本周微升0.1%
+
+![首爾綜合指數收市報2566點，跌7點，跌幅0.28%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795721_1_20250314144605.jpg&q=85)
+  
+
+南韓股市偏軟，首爾綜合指數收市報2566點，跌7點，跌幅0.28%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm)
+
+---
+
+# 香港與巴林促進和保護投資協定將生效　丘應樺稱增強投資者信心
+
+  
+
+香港與巴林去年3月簽署促進和保護投資協定，雙方完成所需內部程序，協定將於本月21日生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm)
+
+---
+
+# 日股本周升逾0.4%　結束3周跌勢
+
+![日經平均指數收市報37053點，升263點，升幅0.72%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795717_1_20250314143736.jpg&q=90)
+  
+
+日本股市上升，日經平均指數收市報37053點，升263點，升幅0.72%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795717-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795717-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795717-20250314.htm)
+
+---
+
+# 第三個InnoHK創新香港研發平台開始接受申請
+
+  
+
+​創新科技署宣布第三個InnoHK創新香港研發平台名為「SEAM@InnoHK」，開始接受申請，聚焦可持續發展、能源、先進製造及材料。歡迎從事相關領域研究的國際頂尖大學及科研機構提交建議書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm)
+
+---
+
 # 勞工處屯門與元朗就業中心下月起合併
 
   

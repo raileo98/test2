@@ -1,3 +1,50 @@
+# 韓股低收近0.3%　本周微升0.1%
+
+![首爾綜合指數收市報2566點，跌7點，跌幅0.28%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795721_1_20250314144605.jpg&q=85)
+  
+
+南韓股市偏軟，首爾綜合指數收市報2566點，跌7點，跌幅0.28%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm)
+
+---
+
+# 香港與巴林促進和保護投資協定將生效　丘應樺稱增強投資者信心
+
+  
+
+香港與巴林去年3月簽署促進和保護投資協定，雙方完成所需內部程序，協定將於本月21日生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm)
+
+---
+
 # 日股本周升逾0.4%　結束3周跌勢
 
 ![日經平均指數收市報37053點，升263點，升幅0.72%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795717_1_20250314143736.jpg&q=90)
@@ -1385,53 +1432,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm)
-
----
-
-# 韓股近乎平收
-
-![首爾綜合指數收市報2573點，跌1點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795553_1_20250313143607.jpg&q=90)
-  
-
-南韓股市近乎平收，首爾綜合指數收市報2573點，跌1點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795553-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795553-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795553-20250313.htm)
-
----
-
-# 日股收市偏軟
-
-![日經平均指數收市報36790點，跌29點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795552_1_20250313143421.jpg&q=90)
-  
-
-日本股市先升後回，未能企穩37000點關口以上收市。日經平均指數收市報36790點，跌29點，跌幅0.08%。指數今早曾高見37326點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795552-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795552-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795552-20250313.htm)
 
 ---
