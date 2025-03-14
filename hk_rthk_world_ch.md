@@ -1,3 +1,27 @@
+# 美國國會通過短期支出法案避免政府「停擺」
+
+![美國國會參議院在限期前通過短期支出法案，避免政府「停擺」。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795818_1_20250315074643.jpg&q=90)
+  
+
+美國國會參議院通過短期支出法案，為聯邦政府繼續提供資金至9月，趕在限期前，避免政府「停擺」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795818-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795818-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795818-20250315.htm)
+
+---
+
 # 美國「龍」飛船升空前往國際太空站　將接回兩名滯留太空人
 
 ![「龍」飛船由獵鷹9號運載火箭搭戴，從佛羅里達州甘迺迪太空中心發射升空。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795817_1_20250315073751.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm)
-
----
-
-# 韓媒稱北韓走私貨船與中國船隻相撞後沉沒　近20名北韓船員死亡
-
-![韓媒稱北韓走私貨船與中國船隻相撞後沉沒　近20名北韓船員死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795511_1_20250313085848.jpg&q=90)
-  
-
-韓聯社報道，一艘疑似走私煤炭的北韓貨船上月在西部海域與一艘中國船隻相撞後沉沒，造成近20名北韓船員死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm)
 
 ---
