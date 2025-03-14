@@ -1,3 +1,27 @@
+# 伊拉克總理稱擊斃伊斯蘭國在伊拉克和敘利亞的頭目
+
+![蘇達尼說，情報部門成功擊斃伊斯蘭國在伊拉克和敘利亞的頭目拉菲依。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795799_1_20250315021210.jpg&q=90)
+  
+
+伊拉克總理蘇達尼表示，極端組織伊斯蘭國在伊拉克和敘利亞的頭目已被打死。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795799-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795799-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795799-20250315.htm)
+
+---
+
 # 七國集團警告俄羅斯除非接受與烏停火　否則面對新制裁
 
 ![七國集團外長一連兩日在加拿大魁北克舉行會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795798_1_20250315013844.jpg&q=85)
@@ -96,6 +120,7 @@
 
 # 律師指杜特爾特患醫療問題　法官稱醫生認為杜特爾特神志清醒
 
+![杜特爾特以視像方式出席荷蘭海牙國際刑事法院首次聆訊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795792_1_20250315021320.jpg&q=90)
   
 
 涉嫌違反人權的菲律賓前總統杜特爾特，以視像方式出席荷蘭海牙國際刑事法院首次聆訊。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795485-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795485-20250313.htm)
-
----
-
-# 美國官員將赴俄討論停火　克宮：等待美方通報美烏會談細節
-
-![克里姆林宮發言人佩斯科夫說，俄方正等待美方通報美烏會談的細節。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795484_1_20250313025110.jpg&q=90)
-  
-
-美國總統特朗普說，美國官員將前往俄羅斯，討論停火30天的建議，以及通往和談的途徑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795484-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795484-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795484-20250313.htm)
 
 ---
