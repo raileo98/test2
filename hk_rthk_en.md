@@ -1,3 +1,27 @@
+# Putin tells Ukraine troops in Kursk to 'surrender'
+
+![Russian President Vladimir Putin chairs a meeting with members of the Security Council via video link. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795805_1_20250315050817.jpg&q=90)
+  
+
+President Vladimir Putin on Friday called on beleaguered Ukrainian troops in the Russian region of Kursk to "surrender" as Ukraine's President Volodymyr Zelensky accused the Russian leader of seeking to sabotage a ceasefire initiative.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795805-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795805-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795805-20250315.htm)
+
+---
+
 # Mark Carney sworn in as Canada's PM
 
 ![Carney, a former head of both the Bank of Canada and the Bank of England, successfully argued his position with a history of tackling crises meant he was the best person to take on Trump. File Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795795_1_20250315001953.jpg&q=90)
@@ -1413,29 +1437,5 @@ The Education Bureau on Wednesday said it has ordered tour group service provide
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795473-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795473-20250312.htm)
-
----
-
-# Canada announces additional tariffs on US goods
-
-![Donald Trump's hyper-focus on tariffs since taking office in January has rattled investor, consumer and business confidence. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795475_1_20250312225143.jpg&q=90)
-  
-
-Canada on Wednesday announced additional tariffs on US$20.7 billion of US goods, retaliating against American levies on Canadian steel and aluminium.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795475-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795475-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795475-20250312.htm)
 
 ---
