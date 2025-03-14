@@ -1,3 +1,97 @@
+# 恒指高收497點　未能企穩24000點　長和跌逾6%
+
+![恒生指數高見24113點，一度升逾650點，收市報23959點，升497點，升幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795737_1_20250314162135.jpg&q=80)
+  
+
+港股結束連續5日跌勢，恒生指數高見24113點，一度升逾650點，收市升幅收窄，報23959點，升497點，升幅2.1%，全日主板成交額2906億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm)
+
+---
+
+# 瑪嘉烈醫院內科及老人科病房再多一名男病人帶有耳念珠菌
+
+  
+
+瑪嘉烈醫院內科及老人科病房再發現多一名85歲男病人帶有耳念珠菌，並無感染徵狀。有關病人正接受隔離治療，情況穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm)
+
+---
+
+# 蔡若蓮：推動學校「數字教育」轉型　持續加強教師相關專業培訓
+
+  
+
+教育局局長蔡若蓮出席香港教育城25周年啟動禮致辭時表示，今年全國兩會提出要堅持創新引領發展，推進教育、科技創新及人才培養；教育局將於7月與教育城合辦「數字教育周」，配合人工智能國際高峰會舉行，緊貼創新科技及數字教育的最新趨勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795738-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795738-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795738-20250314.htm)
+
+---
+
+# 回應歐盟官員涉華言論　外交部：中方反對拿中國說事
+
+![毛寧說，美歐有責任維護以世貿組織為核心的多邊貿易體制，而不是轉嫁矛盾。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795736_1_20250314161952.jpg&q=90)
+  
+
+在北京，外交部回應歐盟外交與安全政策高級代表卡拉斯的涉華言論，發言人毛寧說，中方多次強調關稅戰、貿易戰沒有贏家，美歐之間如何相處，中方不做評論，但中方反對拿中國說事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm)
+
+---
+
 # 外交部︰中俄伊北京會晤是推動伊朗核問題政治解決有益嘗試
 
 ![外交部強調，制裁施壓、武力威脅沒有出路，對話協商才是正確的解決之道。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795733_1_20250314155735.jpg&q=80)

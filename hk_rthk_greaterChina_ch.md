@@ -1,3 +1,27 @@
+# 回應歐盟官員涉華言論　外交部：中方反對拿中國說事
+
+![毛寧說，美歐有責任維護以世貿組織為核心的多邊貿易體制，而不是轉嫁矛盾。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795736_1_20250314161952.jpg&q=90)
+  
+
+在北京，外交部回應歐盟外交與安全政策高級代表卡拉斯的涉華言論，發言人毛寧說，中方多次強調關稅戰、貿易戰沒有贏家，美歐之間如何相處，中方不做評論，但中方反對拿中國說事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm)
+
+---
+
 # 外交部︰中俄伊北京會晤是推動伊朗核問題政治解決有益嘗試
 
 ![外交部強調，制裁施壓、武力威脅沒有出路，對話協商才是正確的解決之道。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795733_1_20250314155735.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795275-20250311.htm)
-
----
-
-# 全國兩會｜高志丹：要在2035年建成體育強國目標再接再厲
-
-![高志丹表示，要在2035年建成體育強國的目標再接再厲。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795273_1_20250311180915.jpg&q=90)
-  
-
-在北京，國家體育總局局長高志丹表示，國家隊在巴黎奧運會上取得境外參與最好成績，運動員亦展現優異的體育精神文化素養和個人魅力，印證出國運興則體育興、國家強則體育強。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm)
 
 ---

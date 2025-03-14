@@ -1,3 +1,73 @@
+# 恒指高收497點　未能企穩24000點　長和跌逾6%
+
+![恒生指數高見24113點，一度升逾650點，收市報23959點，升497點，升幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795737_1_20250314162135.jpg&q=80)
+  
+
+港股結束連續5日跌勢，恒生指數高見24113點，一度升逾650點，收市升幅收窄，報23959點，升497點，升幅2.1%，全日主板成交額2906億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm)
+
+---
+
+# 瑪嘉烈醫院內科及老人科病房再多一名男病人帶有耳念珠菌
+
+  
+
+瑪嘉烈醫院內科及老人科病房再發現多一名85歲男病人帶有耳念珠菌，並無感染徵狀。有關病人正接受隔離治療，情況穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm)
+
+---
+
+# 蔡若蓮：推動學校「數字教育」轉型　持續加強教師相關專業培訓
+
+  
+
+教育局局長蔡若蓮出席香港教育城25周年啟動禮致辭時表示，今年全國兩會提出要堅持創新引領發展，推進教育、科技創新及人才培養；教育局將於7月與教育城合辦「數字教育周」，配合人工智能國際高峰會舉行，緊貼創新科技及數字教育的最新趨勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795738-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795738-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795738-20250314.htm)
+
+---
+
 # 東涌東薈城對開輕型貨車撞到兩名女子其中一人送院時昏迷
 
   
@@ -1368,77 +1438,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795577-20250313.htm)
-
----
-
-# 西九龍公路致命交通意外　輕型貨車車頭損毀嚴重
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795571_1_20250313160454.jpg&q=65)
-  
-
-西九龍公路往葵涌方向、大角咀奧海城對開發生致命交通意外，一名輕型貨車司機死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795571-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795571-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795571-20250313.htm)
-
----
-
-# 林琳支持取消配子或胚胎儲存期限制　賦予女性自主權夫婦及早規劃
-
-![林琳認為，修訂不僅賦予女性更多生育自主權，同時不用增加政府財政負擔，是一項具前瞻性的建議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795570_1_20250313162142.jpg&q=90)
-  
-
-人類生殖科技管理局建議修訂《生殖科技及胚胎研究實務守則》，不論儲存者的性別、年齡、醫學情況，取消配子或胚胎的儲存期限制。民建聯立法會議員林琳表示支持，認為不僅賦予女性更多生育自主權，協助有意生育的女性及需要醫學幫助的夫婦及早規劃，同時不用增加政府財政負擔，是一項具前瞻性的建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795570-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795570-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795570-20250313.htm)
-
----
-
-# 梁振英稱香港深化國際交往不只經貿　亦包括文化體育藝術教育
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795568_1_20250313155059.jpg&q=90)
-  
-
-全國政協副主席梁振英說，國務院總理李強的政府工作報告中提及，要支持香港「深化國際交往合作」。梁振英認為，深化國際交往合作不只經貿方面，亦包括文化、體育、藝術、教育等，而由他擔任主席的共享基金會過去7年在海外所做的人道主義醫療、公共衛生援助，共包括8個國家、7個服務類別，他希望可啟發本港年輕人思考未來事業發展方向。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795568-20250313.htm)
 
 ---
