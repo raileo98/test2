@@ -1,3 +1,118 @@
+# 衞生防護中心：多個國家出現麻疹疫情　提醒外遊市民完成兩劑疫苗
+
+  
+
+衞生防護中心表示，鑑於近期多個海外國家出現麻疹疫情，提醒市民外遊前應確保完成接種兩劑麻疹疫苗，以減低感染風險。香港今年暫時錄得1宗外地傳入麻疹個案，病人曾於潛伏期到過越南，目前沒有錄得其他個案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795763-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795763-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795763-20250314.htm)
+
+---
+
+# 蔡若蓮︰學齡人口下降屬「結構性」情況　料未來數年挑戰更大
+
+  
+
+兩間小學2025/26學年獲「派0班」，教育局局長蔡若蓮表示，學齡人口下降屬「結構性」情況並非「過渡性」，預料未來數年挑戰更大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795762-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795762-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795762-20250314.htm)
+
+---
+
+# 食環署去年共檢獲約12萬隻活鼠及死鼠　按年増26%
+
+  
+
+政府跨部門防治蟲鼠督導委員會召開第19次會議，檢視蚊患最新情況以及各部門在「各界滅鼠行動」的工作進展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795761-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795761-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795761-20250314.htm)
+
+---
+
+# 盧寵茂︰考慮公營門診病人共付電腦掃描及磁力共振等檢查費用
+
+  
+
+消息指，政府將於數星期內，交代公營醫療收費調整方案。醫務衞生局局長盧寵茂表示，正考慮電腦掃描及磁力共振等複雜的影像檢查，需要市民按項目共付費用，但急症室及住院病人接受有關服務仍維持免費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795760-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795760-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795760-20250314.htm)
+
+---
+
+# 食環署巡視全港約3600間食物業處所提出5宗檢控
+
+  
+
+食環署過去一星期，巡視了全港約3600間食物業處所，就食物的存放、處理和衛生情況作出即時糾正、警告及衞生建議，並提出5宗檢控。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795757-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795757-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795757-20250314.htm)
+
+---
+
 # 和記電訊香港去年轉賺600萬元
 
 ![和記電訊香港去年轉賺600萬元，前一年虧損5200萬元，維持派末期息每股5.21港仙。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795756_1_20250314175407.jpg&q=90)
