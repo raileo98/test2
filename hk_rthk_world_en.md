@@ -1,3 +1,27 @@
+# Lunar eclipse brings bloody marvellous spectacle
+
+![The 'Blood Moon' is seen over CN Tower in Toronto, Canada. Photo: REUTERS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795743_1_20250314164944.jpg&q=90)
+  
+
+Stargazers across a swathe of the world marvelled at a dramatic red "Blood Moon" during a rare total lunar eclipse in the early hours of Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm)
+
+---
+
 # US Senate in race to avert government shutdown
 
 ![Chuck Schumer is working to avert a government shutdown. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795723_1_20250314154347.jpg&q=90)
@@ -1411,29 +1435,5 @@ A high-level Hamas delegation was in Cairo on Friday to advance efforts to prolo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794803-20250307.htm)
-
----
-
-# Eurostar passengers stranded by WWII bomb in Paris
-
-![The Gare du Nord station lies in northern Paris and is the country's busiest train hub. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794795_1_20250307191100.jpg&q=85)
-  
-
-Thousands of passengers in Paris and London were stranded on Friday, after the discovery of a World War II bomb on tracks leading to the Gare du Nord station halted traffic at France's busiest railway terminus.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794795-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794795-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794795-20250307.htm)
 
 ---

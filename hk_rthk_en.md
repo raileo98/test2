@@ -1,3 +1,27 @@
+# Lunar eclipse brings bloody marvellous spectacle
+
+![The 'Blood Moon' is seen over CN Tower in Toronto, Canada. Photo: REUTERS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795743_1_20250314164944.jpg&q=90)
+  
+
+Stargazers across a swathe of the world marvelled at a dramatic red "Blood Moon" during a rare total lunar eclipse in the early hours of Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm)
+
+---
+
 # Hospitals may start charging for CT and MRI scans
 
 ![Lo Chung-mau said patients who are already hospitalised or in emergency wards will be exempted from the fees. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795727_1_20250314162533.jpg&q=80)
@@ -1413,29 +1437,5 @@ Greenland's centre-right opposition Democrats have won a surprise victory in leg
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm)
-
----
-
-# HK's IPO funds could double this year: FS
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795394_1_20250312124004.jpg&q=90)
-  
-
-Financial Secretary Paul Chan on Wednesday hinted that the city could double the funds raised for its initial public offering (IPO) market this year compared to that of last year, as optimism over the nation’s tech sector grows.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795394-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795394-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795394-20250312.htm)
 
 ---
