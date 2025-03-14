@@ -1,3 +1,26 @@
+# 消息：公立醫院電腦掃瞄和磁力共振等擬逐項收費　不適用緊急病人
+
+  
+
+消息指，政府將於未來數星期內，交代公營醫療收費調整方案。據了解，當中除了考慮急症室收費或作調整外，亦會考慮向部分服務，實施逐項收費，包括電腦掃瞄和磁力共振，但強調價格會是可負擔水平，有關收費亦不適用於病情緊急或情況嚴重的患者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795682-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795682-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795682-20250314.htm)
+
+---
+
 # 港股升逾200點　長和曾挫近7%　友邦回購遜預期拖累股價跌
 
 ![港股結束5日跌勢，恒生指數較早時報23680點，升217點，升幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795680_1_20250314095812.jpg&q=90)
@@ -49,6 +72,7 @@
 # 博智小校下學年未能開辦小一　家長感愕然校長冀為學生作最好安排
 
 ![黃大仙的天主教博智小學獲派的學生人數少於16人，下學年未能獲資助開辦小一。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795679_1_20250314100141.jpg&q=85)
+![博智小校校長何妙賢說，將與辦學團體及教育局商討，為學生作出最好安排。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795679_2_20250314102321.jpg&q=90)
   
 
 教育局表示，黃大仙的天主教博智小學及南區的鴨脷洲街坊學校，獲派的學生人數少於16人，2025/26學年未能獲資助開辦小一。
@@ -1412,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795612-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795612-20250313.htm)
-
----
-
-# 何厚鏵：愛國力量要堅定支持行政長官和特區依法施政
-
-![何厚鏵在全國兩會精神傳達會上表示，作為澳門愛團力量，政治站位要高一點。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795611_1_20250313202151.jpg&q=90)
-![澳門中聯辦下午舉行全國兩會精神傳達會，約240人出席。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795611_2_20250313202151.jpg&q=85)
-  
-
-全國政協副主席何厚鏵引用總書記習近平在《求是》雜誌發表的署名文章，希望包括澳區全國人大代表和政協委員在內的愛國力量，與新一屆特區政府必須統籌好有效市場和有為政府的關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm)
 
 ---

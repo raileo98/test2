@@ -1,3 +1,26 @@
+# 消息：公立醫院電腦掃瞄和磁力共振等擬逐項收費　不適用緊急病人
+
+  
+
+消息指，政府將於未來數星期內，交代公營醫療收費調整方案。據了解，當中除了考慮急症室收費或作調整外，亦會考慮向部分服務，實施逐項收費，包括電腦掃瞄和磁力共振，但強調價格會是可負擔水平，有關收費亦不適用於病情緊急或情況嚴重的患者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795682-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795682-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795682-20250314.htm)
+
+---
+
 # 港股升逾200點　長和曾挫近7%　友邦回購遜預期拖累股價跌
 
 ![港股結束5日跌勢，恒生指數較早時報23680點，升217點，升幅0.93%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795680_1_20250314095812.jpg&q=90)
@@ -25,6 +48,7 @@
 # 博智小校下學年未能開辦小一　家長感愕然校長冀為學生作最好安排
 
 ![黃大仙的天主教博智小學獲派的學生人數少於16人，下學年未能獲資助開辦小一。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795679_1_20250314100141.jpg&q=85)
+![博智小校校長何妙賢說，將與辦學團體及教育局商討，為學生作出最好安排。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795679_2_20250314102321.jpg&q=90)
   
 
 教育局表示，黃大仙的天主教博智小學及南區的鴨脷洲街坊學校，獲派的學生人數少於16人，2025/26學年未能獲資助開辦小一。
@@ -1422,29 +1446,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795456-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795456-20250312.htm)
-
----
-
-# 梁振英稱實現雙碳戰略體現中國應對全球氣變及保護生存環境責任
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795455_1_20250312220034.jpg&q=65)
-  
-
-全國政協副主席、香港再出發大聯盟總召集人梁振英表示，中國正致力於在最短時間內實現人類歷史上最大幅度的減碳目標，形容這是一場全球性的綠色征程，每個人都身處其中，共同見證並參與應對全球氣候變化的挑戰，推動構建人類命運共同體的時代變革。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795455-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795455-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795455-20250312.htm)
 
 ---
