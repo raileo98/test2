@@ -1,3 +1,27 @@
+# CHP urges caution as Saudi Arabia sees more MERS cases
+
+![The Centre for Health Protection says people should avoid direct contact with dromedary camels. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795787_2_20250314222716.jpg&q=85)
+  
+
+The Centre for Health Protection (CHP) on Friday called on members of the public to exercise caution when travelling to the Middle East.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795787-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795787-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795787-20250314.htm)
+
+---
+
 # Rashford recalled in Tuchel's first England squad
 
 ![Marcus Rashford has looked more like his old self since his loan move to Aston Villa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795783_1_20250314215113.jpg&q=90)
@@ -1413,29 +1437,5 @@ Police on Wednesday said they arrested five people on suspicion of stealing more
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm)
-
----
-
-# 'Companies Registry didn't breach privacy rules'
-
-![The privacy watchdog says a total of 109,002 people may have been affected by a Companies Registry data leak in April. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795447_1_20250312193702.jpg&q=80)
-  
-
-The privacy watchdog said on Wednesday it completed an investigation on last April's Companies Registry data leak, which affected nearly 110,000 people.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm)
 
 ---

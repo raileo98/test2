@@ -1,3 +1,27 @@
+# Duterte attends ICC hearing over drug war by video
+
+![Rodrigo Duterte stands accused of the crime against humanity of murder over his years-long campaign against drug users and dealers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795790_1_20250314223327.jpg&q=90)
+  
+
+Former Philippines president Rodrigo Duterte failed to show in person at the International Criminal Court on Friday at the opening of his crimes against humanity hearing over his deadly crackdown on narcotics.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm)
+
+---
+
 # UK police extend detention of North Sea crash captain
 
 ![The MV Stena Immaculate tanker was hit by the MV Solong container vessel on March 10. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795780_1_20250314214139.jpg&q=85)
@@ -1411,29 +1435,5 @@ Ten people died and hundreds were evacuated in the Argentine port city of Bahia 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794839-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794839-20250308.htm)
-
----
-
-# Trump threatens new Russia sanctions over Ukraine
-
-![Last month, Trump spoke by telephone with Russian President Vladimir Putin about undoing sweeping sanctions imposed under former president Joe Biden. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794817_1_20250307225043.jpg&q=90)
-  
-
-President Donald Trump on Friday threatened new sanctions and tariffs on Russia over its bombardments of Ukraine, after previously suspending US aid to Kyiv in a stated bid to encourage diplomacy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794817-20250307.htm)
 
 ---

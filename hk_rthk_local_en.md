@@ -1,3 +1,27 @@
+# CHP urges caution as Saudi Arabia sees more MERS cases
+
+![The Centre for Health Protection says people should avoid direct contact with dromedary camels. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795787_2_20250314222716.jpg&q=85)
+  
+
+The Centre for Health Protection (CHP) on Friday called on members of the public to exercise caution when travelling to the Middle East.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795787-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795787-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795787-20250314.htm)
+
+---
+
 # Man arrested for allegedly assaulting a nurse
 
 ![Kwong Wah Hospital says the male nurse sustained injuries to his arm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795779_1_20250314214019.jpg&q=90)
@@ -1412,29 +1436,5 @@ Each Legislative Council election should be better than the previous one, accord
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm)
-
----
-
-# 'Capitalise on One Country, Two Systems'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794963_2_20250309115720.jpg&q=75)
-  
-
-Hong Kong and Macau delegates to the country's top political advisory body said the two SARs should make good use of their advantages under the One Country, Two Systems principle.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm)
 
 ---

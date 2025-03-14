@@ -1,3 +1,26 @@
+# 城規會維持決定　港大擬建國際創新中心用地為「未決定用途」
+
+  
+
+港大計劃在薄扶林興建國際創新中心，佔地4.72公頃。城市規劃委員會維持決定，將有關用地由「其他指定用途」註明「國際創新中心」地帶改劃為「未決定用途」地帶，作為過渡性安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795789-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795789-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795789-20250314.htm)
+
+---
+
 # 美國3月消費者信心指數初值低過預期
 
 ![美國密歇根大學3月美國消費者信心指數初值為57.9，低過市場預期的63.1。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795786_1_20250314220845.jpg&q=65)
