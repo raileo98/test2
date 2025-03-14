@@ -1,3 +1,27 @@
+# 拉舒福特和佐敦軒達臣獲杜曹徵召入英格蘭大軍名單
+
+![拉舒福特和佐敦軒達臣獲杜曹徵召入英格蘭大軍名單。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795806_1_20250315051829.jpg&q=90)
+  
+
+英格蘭本月稍後將會出戰世界盃歐洲區外圍賽兩場賽事，領隊杜曹公布26人大軍名單，其中已經一年沒有代表英格蘭上陣的拉舒福特再度入選，即將踏入35歲的佐敦軒達臣，亦時隔近一年半再獲徵召。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795806-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795806-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795806-20250315.htm)
+
+---
+
 # 嶺大有信息系統被黑客入侵　數千份內部文件外洩
 
 ![校方已就事件通報個人資料私隱專員公署。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795804_1_20250315045007.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795735-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795735-20250314.htm)
-
----
-
-# 消息：港深西部鐵路口岸擬設於內地　運物局稱將公開招標
-
-![運輸及物流局回覆查詢時說，港深西部鐵路作為新的獨立鐵路路線，有空間考慮引入新營運者的可行性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795734_1_20250314161031.jpg&q=80)
-  
-
-上月公布的新一份財政預算案提到，預計於年內展開港深西部鐵路項目的勘查及設計研究。消息指，該條連接香港洪水橋及深圳前海的鐵路，會將口岸設置於內地，並採用「一地兩檢」的通關模式。另外，政府打算就工程公開招標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm)
 
 ---
