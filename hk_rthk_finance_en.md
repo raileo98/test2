@@ -1,3 +1,27 @@
+# Gold tops US$3,000 for first time over Trump tariffs
+
+![In morning deals, gold rose 2.94 percent to US$3,000.85 per ounce, a day after it surpassed its late February record. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795777_1_20250314213613.jpg&q=90)
+  
+
+Safe-haven gold surpassed US$3,000 for the first time on Friday, boosted by uncertainty over US President Donald Trump's tariffs, while stock markets gained on hopes US lawmakers will avert a government shutdown.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795777-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795777-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795777-20250314.htm)
+
+---
+
 # CK Hutchison shares down after port deal criticism
 
 ![CK Hutchison earlier agreed to sell its interests in a key Panama Canal port operator to a consortium led by BlackRock. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795749_1_20250314172048.jpg&q=80)
@@ -1411,29 +1435,5 @@ The Commerce Ministry on Friday said it opposed US President Donald Trump's late
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793657-20250228.htm)
-
----
-
-# Home prices drop to almost 8.5-year low
-
-![Home prices retreated for the second month in a row in January. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793618_1_20250228110317.jpg&q=50)
-  
-
-Hong Kong home prices retreated to their lowest level in nearly eight and a half years in January.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm)
 
 ---

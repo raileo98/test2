@@ -1,3 +1,27 @@
+# Gold tops US$3,000 for first time over Trump tariffs
+
+![In morning deals, gold rose 2.94 percent to US$3,000.85 per ounce, a day after it surpassed its late February record. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795777_1_20250314213613.jpg&q=90)
+  
+
+Safe-haven gold surpassed US$3,000 for the first time on Friday, boosted by uncertainty over US President Donald Trump's tariffs, while stock markets gained on hopes US lawmakers will avert a government shutdown.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795777-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795777-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795777-20250314.htm)
+
+---
+
 # Drop in pupil numbers 'structural and would worsen'
 
 ![Christine Choi says measures are needed to ensure the stable and sustainable development of the education sector. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795759_1_20250314180708.jpg&q=80)
@@ -1413,29 +1437,5 @@ Hong Kong’s privacy watchdog said on Wednesday it launched a compliance check 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795435-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795435-20250312.htm)
-
----
-
-# Three men arrested over Disneyland burglary
-
-![Sources say the electronic items missing from the Hong Kong Disneyland warehouse are worth around HK$3 million. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795429_1_20250312163825.jpg&q=85)
-  
-
-Police on Wednesday said they arrested three men who are suspected of stealing electronic devices from a Hong Kong Disneyland warehouse, and handling stolen goods.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm)
 
 ---
