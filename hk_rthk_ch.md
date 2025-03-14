@@ -1,3 +1,26 @@
+# 發改委經濟研究所所長稱今年中國經濟政策著力點轉向惠民生促消費
+
+  
+
+在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，今年中國的經濟政策著力點，會轉向「惠民生、促消費」，以消費升級引領產業轉型升級，而且固定投資保持良好增長等，相信今年中國經濟增長可達5%左右的目標，其他目標可在增長支撐下實現。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm)
+
+---
+
 # 本港二手樓價按周跌近1%　創21周新低
 
 ![代理：本港二手樓價按周跌逾0.7%，但九龍區樓價按周升近2%，結束3周連跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795744_1_20250314170102.jpg&q=80)
@@ -70,6 +93,7 @@
 
 # 蔡若蓮稱評估交流團風險後認為與韶關無明顯關係　已停用涉事餐廳
 
+![蔡若蓮稱，評估交流團風險後認為與韶關無明顯關係。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795742_1_20250314171848.jpg&q=80)
   
   
 

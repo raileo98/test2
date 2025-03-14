@@ -1,3 +1,26 @@
+# 發改委經濟研究所所長稱今年中國經濟政策著力點轉向惠民生促消費
+
+  
+
+在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，今年中國的經濟政策著力點，會轉向「惠民生、促消費」，以消費升級引領產業轉型升級，而且固定投資保持良好增長等，相信今年中國經濟增長可達5%左右的目標，其他目標可在增長支撐下實現。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm)
+
+---
+
 # 人行：精準支持科技中小企　加大消費領域金融支持
 
 ![人行召開會議，要求精準支持國家重大科技任務和科技型中小企；加大對養老產業和重點消費領域金融支持。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795741_1_20250314163851.jpg&q=75)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795284-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795284-20250311.htm)
-
----
-
-# 全國兩會｜馬逢國稱港區人大依法履職「貼地」務實參與兩會
-
-![馬逢國表示，港區人大合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795276_1_20250311180948.jpg&q=85)
-  
-
-十四屆全國人大三次會議閉幕，港區人大代表團團長馬逢國見傳媒總結今次會議時表示，出席會議的港區人大，在兩會期間依法履職、建言獻策，合共發言154人次，提交229項建議，接受境內外傳媒採訪超過400次，反映港區人大依法履職，很「貼地」、務實參與兩會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795276-20250311.htm)
 
 ---

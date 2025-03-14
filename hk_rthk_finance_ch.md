@@ -1,3 +1,26 @@
+# 發改委經濟研究所所長稱今年中國經濟政策著力點轉向惠民生促消費
+
+  
+
+在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，今年中國的經濟政策著力點，會轉向「惠民生、促消費」，以消費升級引領產業轉型升級，而且固定投資保持良好增長等，相信今年中國經濟增長可達5%左右的目標，其他目標可在增長支撐下實現。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm)
+
+---
+
 # 本港二手樓價按周跌近1%　創21周新低
 
 ![代理：本港二手樓價按周跌逾0.7%，但九龍區樓價按周升近2%，結束3周連跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795744_1_20250314170102.jpg&q=80)
@@ -1410,29 +1433,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795584-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795584-20250313.htm)
-
----
-
-# 人行：今年將擇機降準降息　研究創設新結構性貨幣政策工具
-
-![人行黨委召開擴大會議，指出今年將擇機降準降息，並研究創設新的結構性貨幣政策工具。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795589_1_20250313175730.jpg&q=75)
-  
-
-人民銀行黨委召開擴大會議，指出今年將根據國內外經濟金融形勢和金融市場運行情況，擇機降準降息，並研究創設新的結構性貨幣政策工具，重點支持科技創新領域投融資、促進消費和穩定外貿。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm)
 
 ---

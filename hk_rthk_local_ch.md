@@ -70,6 +70,7 @@
 
 # 蔡若蓮稱評估交流團風險後認為與韶關無明顯關係　已停用涉事餐廳
 
+![蔡若蓮稱，評估交流團風險後認為與韶關無明顯關係。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795742_1_20250314171848.jpg&q=80)
   
   
 
