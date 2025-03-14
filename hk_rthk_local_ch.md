@@ -1,5 +1,53 @@
+# 港股升幅擴大至逾500點　一度升穿24000點
+
+![恒生指數一度重上24000點以上，曾見24003點，較早時報23978點，升516點，升幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795693_1_20250314113407.jpg&q=75)
+  
+
+港股高開後升幅持續擴大，一度重上24000點以上，恒生指數曾見24003點，較早時報23978點，升516點，升幅2.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795693-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795693-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795693-20250314.htm)
+
+---
+
+# 香港花卉展維園開幕　羅淑佩：主題花秋英與拚搏運動員有共同特點
+
+  
+
+香港花卉展今日起一連10日在維園舉行，主題花是秋英。文化體育及旅遊局局長羅淑佩出席開幕禮致辭時表示，秋英生命力旺盛，英姿煥發，與充滿活力和奮力拚搏的運動員有共同特點。今年適逢粵港澳三地攜手主辦第15屆全國運動會以及全國第12屆殘疾人運動會暨第9屆特殊奧林匹克運動會賽事，花展特別設置推廣展覽及專題特色園圃，介紹由香港承辦的9個比賽項目，讓市民在賞花之餘，加深對全運會及殘特奧會的認識。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795691-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795691-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795691-20250314.htm)
+
+---
+
 # 多名議員質疑公屋入息及資產上調後變相鼓勵申請者「躺平」
 
+![李佩詩強調政府絕不鼓勵市民「躺平」，檢討機制的方程式已包括及反映法定最低工資升幅情況。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795689_1_20250314113317.jpg&q=90)
   
 
 立法會討論2025/26年度公屋入息和資產限額平均上調1.7%的建議。多名議員不滿公屋入息和資產限額的升幅，比今年5月起最低工資上調幅度低，變相是鼓勵申請者「躺平」，要求房屋署檢視現有檢討機制。
@@ -23,6 +71,7 @@
 
 # 當局計劃容許物理治療師及職業治療師等接受中醫師轉介病人
 
+![當局計劃容許輔助醫療專業人員，包括物理治療師、職業治療師、放射技師及醫務化驗師，接受中醫師轉介病人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795687_1_20250314113246.jpg&q=80)
   
 
 政府今年底將發表《中醫藥發展藍圖》，以勾劃未來的發展路向，包括加強中醫藥在基層醫療的角色、進一步發揮中醫藥及中西醫協作的療效優勢，並檢視現行規管制度等。
@@ -1395,54 +1444,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm)
-
----
-
-# 港股競價時段升16點　科指升約0.4%
-
-![恒生指數競價時段報23616點，升16點，升幅0.07%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795516_1_20250313092217.jpg&q=40)
-  
-
-港股輕微高開，恒生指數競價時段報23616點，升16點，升幅0.07%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795516-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795516-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795516-20250313.htm)
-
----
-
-# 全國兩會｜夏寶龍會見科大沈向洋及葉玉如冀積極參與北都建設
-
-![夏寶龍下午在北京會見香港科技大學管理層。（港澳辦圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795471_1_20250312223922.jpg&q=90)
-![夏寶龍說，科大在培養優秀專業人才、推動產學研協同創新等方面，取得優異成績。（港澳辦圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795471_2_20250312223922.jpg&q=90)
-  
-
-中央港澳辦、國務院港澳辦主任夏寶龍，下午在北京會見香港科技大學校董會主席沈向洋、校長葉玉如等人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 港股升幅擴大至逾500點　一度升穿24000點
+
+![恒生指數一度重上24000點以上，曾見24003點，較早時報23978點，升516點，升幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795693_1_20250314113407.jpg&q=75)
+  
+
+港股高開後升幅持續擴大，一度重上24000點以上，恒生指數曾見24003點，較早時報23978點，升516點，升幅2.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795693-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795693-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795693-20250314.htm)
+
+---
+
 # 日股半日回升逾百點
 
 ![日經指數止跌回升，半日報36919點，升129點，升幅0.35%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795684_1_20250314103443.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795524-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795524-20250313.htm)
-
----
-
-# 美國企業債與國債利差創近半年高位　市場對經濟衰退憂慮升溫
-
-![美國垃圾級別企業債利差擴大至322點子，創去年9月後新高，反映投資者對持有風險較高的垃圾債意願降低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795522_2_20250313100826.jpg&q=85)
-  
-
-美國企業債與國債孳息率之間的利差創下約6個月高位，又一跡象表明投資者對美國經濟衰退及全球貿易戰的憂慮加深。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795522-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795522-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795522-20250313.htm)
 
 ---
