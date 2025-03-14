@@ -1,3 +1,27 @@
+# UK police extend detention of North Sea crash captain
+
+![The MV Stena Immaculate tanker was hit by the MV Solong container vessel on March 10. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795780_1_20250314214139.jpg&q=85)
+  
+
+UK police on Friday again extended the detention of the captain of a cargo ship that struck a tanker in the North Sea, citing the "complexities" of the case.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795780-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795780-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795780-20250314.htm)
+
+---
+
 # Gold tops US$3,000 for first time over Trump tariffs
 
 ![In morning deals, gold rose 2.94 percent to US$3,000.85 per ounce, a day after it surpassed its late February record. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795777_1_20250314213613.jpg&q=90)
@@ -1413,29 +1437,5 @@ A community group on Wednesday welcomed the Hospital Authority’s new arrangeme
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795440-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795440-20250312.htm)
-
----
-
-# Watchdog launches compliance check on Deliveroo
-
-![The privacy watchdog says that Deliveroo’s closure may affect the personal data of its customers and riders. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795435_1_20250312173023.jpg&q=90)
-  
-
-Hong Kong’s privacy watchdog said on Wednesday it launched a compliance check on Deliveroo to ensure the personal data of its customers and food couriers will not be leaked.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795435-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795435-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795435-20250312.htm)
 
 ---
