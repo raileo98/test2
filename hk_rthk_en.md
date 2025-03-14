@@ -1,3 +1,27 @@
+# US Senate in race to avert government shutdown
+
+![Chuck Schumer is working to avert a government shutdown. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795723_1_20250314154347.jpg&q=90)
+  
+
+The US Senate finds itself on Friday in a familiar position, working to avoid a partial government shutdown with just hours to spare as Democrats confront two painful options: allowing passage of a bill they believe gives President Donald Trump vast discretion on spending decisions or voting no and letting a funding lapse ensue.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm)
+
+---
+
 # Alcaraz stays on track for third Indian Wells title
 
 ![Carlos Alcaraz reacts after winning his quarter-final match against Argentina’s Francisco Cerundolo in Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795712_1_20250314142648.jpg&q=90)
@@ -1413,29 +1437,5 @@ Cathay Pacific Airways on Wednesday reported marginal full-year profit growth as
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm)
-
----
-
-# 'Measures to cut construction costs to come this year'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795404_1_20250312134220.jpg&q=90)
-  
-
-Development secretary Bernadette Linn said reviewing construction standards and centralising procurement of materials are among concrete measures that the government will take to lower costs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795404-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795404-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795404-20250312.htm)
 
 ---

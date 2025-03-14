@@ -1,3 +1,27 @@
+# US Senate in race to avert government shutdown
+
+![Chuck Schumer is working to avert a government shutdown. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795723_1_20250314154347.jpg&q=90)
+  
+
+The US Senate finds itself on Friday in a familiar position, working to avoid a partial government shutdown with just hours to spare as Democrats confront two painful options: allowing passage of a bill they believe gives President Donald Trump vast discretion on spending decisions or voting no and letting a funding lapse ensue.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm)
+
+---
+
 # China hosts trilateral nuclear talks with Iran, Russia
 
 ![Vice Foreign Minister Ma Zhaoxu, right, meets with Iranian Deputy Foreign Minister Kazem Gharibabadi in Beijing. Photo courtesy of Foreign Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795709_1_20250314131953.jpg&q=90)
@@ -1411,29 +1435,5 @@ Thousands of passengers in Paris and London were stranded on Friday, after the d
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794795-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794795-20250307.htm)
-
----
-
-# S Korea court orders Yoon's release, pending ruling
-
-![Yoon Suk-yeol's supporters cheer after a court decides to release him. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794746_1_20250307161141.jpg&q=90)
-  
-
-A South Korean court cancelled impeached President Yoon Suk-yeol's arrest warrant on Friday, paving the way for his release from jail following his arrest in mid-January on insurrection charges over a brief imposition of martial law.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794746-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794746-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794746-20250307.htm)
 
 ---
