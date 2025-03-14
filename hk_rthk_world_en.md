@@ -1,3 +1,75 @@
+# US influencer visa under review after wombat outcry
+
+![Australian Prime Minister Anthony Albanese said Jones should "take a baby crocodile from its mother and see how you go there." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795670_1_20250314091432.jpg&q=90)
+  
+
+Australia is reviewing an American influencer’s visa after she posted video of her snatching a baby wombat from its mother.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm)
+
+---
+
+# Johns Hopkins University to cut thousands of jobs
+
+![President Trump signed an executive order in January demanding a freeze on all US foreign aid to allow time to assess overseas expenses. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795666_1_20250314084123.jpg&q=90)
+  
+
+The prestigious Johns Hopkins University said on Thursday it was being forced to lay off more than 2,000 employees in the aftermath of the Trump administration's massive reduction in foreign aid funding.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795666-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795666-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795666-20250314.htm)
+
+---
+
+# Duterte's first court appearance set for Friday
+
+![People protest against former Philippine President Rodrigo Duterte in front of the ICC in the Hague. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795667_1_20250314085246.jpg&q=80)
+  
+
+Rodrigo Duterte's first appearance at the International Criminal Court has been set for Friday, the court said, as the former Philippines president faces crimes against humanity charges over his deadly war on drugs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795667-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795667-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795667-20250314.htm)
+
+---
+
 # Trump threatens tariffs on EU alcohol
 
 ![President Trump's tariff threat could hit a market worth US$10 billion to EU producers in 2023, according to World Trade Organization figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795656_1_20250314055609.jpg&q=85)
@@ -1363,77 +1435,5 @@ Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm)
-
----
-
-# China wants a lasting peace in Ukraine: FM
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794697_1_20250307105305.jpg&q=90)
-  
-
-China wants to achieve a "fair, lasting and binding peace agreement" acceptable to all parties on the Ukraine war, Foreign Minister Wang Yi said on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm)
-
----
-
-# Second measles-related death in US in a decade
-
-![Measles testing takes place amid an outbreak in Texas. File Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794679_1_20250307093051.jpg&q=70)
-  
-
-A New Mexico resident who has died, tested positive for measles, the state health department said on Thursday, marking the second measles-related death in the United States in more than a decade.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794679-20250307.htm)
-
----
-
-# French shipping giant pledges to boost US shipbuilding
-
-![President Trump listens as Rodolphe Saade, CEO of CMA CGM Group, speaks in the Oval Office. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794675_1_20250307092145.jpg&q=85)
-  
-
-US President Donald Trump on Thursday said French-based shipping firm CMA CGM would invest US$20 billion in the United States to build out shipping logistics and terminals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794675-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794675-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794675-20250307.htm)
 
 ---

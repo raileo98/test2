@@ -1,3 +1,123 @@
+# Hong Kong stocks open higher
+
+![The Hang Seng Index rose 0.8 percent, to open at 23,653. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795677_1_20250314094204.jpg&q=75)
+  
+
+Hong Kong stocks on Friday opened higher, after global markets slid, as US President Donald Trump launched a new volley in his trade war, while gold hit a new record high.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm)
+
+---
+
+# Swiatek cruises past Zheng to reach Indian Wells semis
+
+![Iga Swiatek beat Zheng Qinwen in straight sets to reach the final four at Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795674_1_20250314093042.jpg&q=90)
+  
+
+Defending champion Iga Swiatek beat Zheng Qinwen 6-3, 6-3, avenging her Olympics semi-final loss to the Paris Games gold medallist, to reach the last four at Indian Wells.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795674-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795674-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795674-20250314.htm)
+
+---
+
+# US influencer visa under review after wombat outcry
+
+![Australian Prime Minister Anthony Albanese said Jones should "take a baby crocodile from its mother and see how you go there." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795670_1_20250314091432.jpg&q=90)
+  
+
+Australia is reviewing an American influencer’s visa after she posted video of her snatching a baby wombat from its mother.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm)
+
+---
+
+# Johns Hopkins University to cut thousands of jobs
+
+![President Trump signed an executive order in January demanding a freeze on all US foreign aid to allow time to assess overseas expenses. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795666_1_20250314084123.jpg&q=90)
+  
+
+The prestigious Johns Hopkins University said on Thursday it was being forced to lay off more than 2,000 employees in the aftermath of the Trump administration's massive reduction in foreign aid funding.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795666-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795666-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795666-20250314.htm)
+
+---
+
+# Duterte's first court appearance set for Friday
+
+![People protest against former Philippine President Rodrigo Duterte in front of the ICC in the Hague. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795667_1_20250314085246.jpg&q=80)
+  
+
+Rodrigo Duterte's first appearance at the International Criminal Court has been set for Friday, the court said, as the former Philippines president faces crimes against humanity charges over his deadly war on drugs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795667-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795667-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795667-20250314.htm)
+
+---
+
 # Trump threatens tariffs on EU alcohol
 
 ![President Trump's tariff threat could hit a market worth US$10 billion to EU producers in 2023, according to World Trade Organization figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795656_1_20250314055609.jpg&q=85)
@@ -1317,125 +1437,5 @@ The Hang Seng Index rose 77.09 points, or 0.32 percent, to open at 23,859.23 poi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm)
-
----
-
-# Australia says US steel tariffs 'entirely unjustified'
-
-![Vapour pours from a steel mill chimney in the industrial town of Port Kembla, about 80 km south of Sydney. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795366_1_20250312092156.jpg&q=90)
-  
-
-Washington's looming tariffs on steel and aluminium are "entirely unjustified", Australian Prime Minister Anthony Albanese said on Wednesday after failing to secure a last-minute exemption.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm)
-
----
-
-# HA to cut medication dispensed to patients
-
-![The Hospital Authority's chief pharmacist William Chui said around one-fifth of patients do not finish their medication. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795358_1_20250312090613.jpg&q=45)
-  
-
-The Hospital Authority said on Wednesday it was working on reducing the amount of medicine distributed to patients to reduce wastage.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795358-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795358-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795358-20250312.htm)
-
----
-
-# UK makes manslaughter arrest of ship captain
-
-![Smoke rises from the MV Solong cargo ship in the North Sea, off the coast of England. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795360_1_20250312090215.jpg&q=90)
-  
-
-British police on Tuesday arrested on suspicion of manslaughter the captain of a ship that crashed into a tanker in the North Sea, sparking a massive blaze and leaving one crew member missing, presumed dead.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm)
-
----
-
-# Greenland votes in election eyed by Trump
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795336_1_20250312034150.jpg&q=90)
-  
-
-Greenland voted on Tuesday in legislative elections that could yield a timeline for independence for the Danish self-governing territory coveted by US President Donald Trump.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm)
-
----
-
-# Woods' major season in doubt after surgery
-
-![Woods says he expects to make a full recovery after undergoing surgery. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795356_1_20250312082550.jpg&q=90)
-  
-
-Tiger Woods revealed he had undergone surgery to repair a ruptured left Achilles tendon, derailing the veteran golf superstar's comeback plans in the latest injury setback to rock the twilight of his glittering career.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm)
 
 ---

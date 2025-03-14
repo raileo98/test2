@@ -1,3 +1,218 @@
+# 博智小校下學年未能開辦小一　家長感愕然校長冀為學生作最好安排
+
+  
+
+教育局表示，黃大仙的天主教博智小學及南區的鴨脷洲街坊學校，獲派的學生人數少於16人，2025/26學年未能獲資助開辦小一。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795679-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795679-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795679-20250314.htm)
+
+---
+
+# 人行逆回購1807億元人民幣　本周淨回籠2517億元
+
+![公開市場今日淨回籠43億元人民幣，連續10日淨回籠，本周累計淨回籠2517億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795678_1_20250314094403.jpg&q=80)
+  
+
+人民銀行公開市場開展1807億元人民幣7天期逆回購操作，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795678-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795678-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795678-20250314.htm)
+
+---
+
+# 金價創新高　紐約期金突破3000美元關口
+
+![金價創新高，紐約期金突破3000美元關口，每盎司高見3003.9美元，升0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795676_1_20250314094009.jpg&q=75)
+  
+
+金價創新高，紐約期金突破3000美元關口，每盎司高見3003.9美元，升0.4%，其後於3000美元爭持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795676-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795676-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795676-20250314.htm)
+
+---
+
+# 滬深股市初段造好　人行指支持資本市場穩定發展
+
+![內地股市初段造好，上證指數較早時報3368點，升9點，升幅0.29%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795675_1_20250314093546.jpg&q=85)
+  
+
+內地股市初段造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795675-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795675-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795675-20250314.htm)
+
+---
+
+# 港股競價時段升190點　科指升逾1%
+
+![港股競價時段升190點　科指升逾1%](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795672_1_20250314092204.jpg&q=60)
+  
+
+港股止跌回升，恒生指數競價時段報23653點，升190點，升幅0.81%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm)
+
+---
+
+# 美國航空客機丹佛國際機場起火　所有乘客疏散無人傷
+
+![美國航空公司一架客機在丹佛國際機場起火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795673_1_20250314093831.jpg&q=90)
+  
+
+美國航空公司一架客機在丹佛國際機場起火，所有乘客疏散，無人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795673-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795673-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795673-20250314.htm)
+
+---
+
+# 人民幣兌美元中間價跌10點子　連跌兩日
+
+![人民幣中間價報7.1738兌1美元，較昨日中間價跌10點子，連續兩日下跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795671_1_20250314091927.jpg&q=80)
+  
+
+人民幣中間價報7.1738兌1美元，較昨日中間價跌10點子，連續兩日下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795671-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795671-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795671-20250314.htm)
+
+---
+
+# 美國食品藥物管理局向疫苗製造商就流感疫苗病毒株提出建議
+
+![美國食品藥物管理局向疫苗製造商就流感疫苗病毒株提出建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795669_1_20250314091352.jpg&q=85)
+  
+
+美國食品藥物管理局向疫苗製造商提出用於美國2025/26年流感季節的流感疫苗病毒株的建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795669-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795669-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795669-20250314.htm)
+
+---
+
+# 台股初段窄幅上落
+
+![台灣加權指數較早時報21933點，跌27點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795668_1_20250314090952.jpg&q=90)
+  
+
+台灣股市初段窄幅上落，加權指數較早時報21933點，跌27點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795668-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795668-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795668-20250314.htm)
+
+---
+
 # 友邦去年新業務價值升18%創新高　香港貢獻最大及增長最快
 
 ![香港是友邦貢獻最大及增長最快的市場，去年新業務價值升23%至17.6億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795662_1_20250314081141.jpg&q=75)
@@ -1221,222 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795609-20250313.htm)
-
----
-
-# 兩款源自法國樽裝果醬及塗抹醬產品或含霉菌須回收
-
-![兩款源自法國的樽裝果醬及塗抹醬產品可能含霉菌，食物安全中心呼籲市民不要食用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795608_1_20250313201453.jpg&q=80)
-  
-
-食物安全中心呼籲市民不要食用兩款源自法國的樽裝果醬及塗抹醬產品，因為可能含霉菌。業界如持有受影響批次的產品，應立即停止使用或出售。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795608-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795608-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795608-20250313.htm)
-
----
-
-# 美國中東問題特使抵莫斯科　討論俄烏臨時停火30日建議
-
-![美國中東問題特使威特科夫將與俄方討論美國提出俄烏臨時停火30日的建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795607_1_20250313195204.jpg&q=90)
-  
-
-美國中東問題特使威特科夫抵達俄羅斯首都莫斯科，將與俄方討論美國提出俄烏臨時停火30日的建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795607-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795607-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795607-20250313.htm)
-
----
-
-# 機場東消防局舉行開幕典禮　機場4消防局與洗消救援設施全面運作
-
-![為配合香港國際機場三跑道系統落成啓用，機場東消防局今日舉行開幕典禮。（消防處社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795606_1_20250313193819.jpg&q=90)
-![消防處說，機場內4間消防局與洗消及救援設施已全面運作。（消防處社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795606_2_20250313193819.jpg&q=90)
-  
-
-消防處表示，為配合香港國際機場三跑道系統落成啓用，機場東消防局今日舉行開幕典禮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795606-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795606-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795606-20250313.htm)
-
----
-
-# 實德環球料去年度綜合溢利按年減少約4至5成
-
-![實德環球預計去年度綜合溢利按年減少最多一半。圖為集團旗艦投資項目十六浦。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795600_1_20250313190739.jpg&q=80)
-  
-
-實德環球預計，去年度綜合溢利將按年減少約40%至50%，前年度綜合溢利約1.69億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795600-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795600-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795600-20250313.htm)
-
----
-
-# 林定國稱香港政府面臨對國安法律不實評論　成功駁斥誤導性言論
-
-![林定國說，當局成功駁斥了大量誤導性或誣衊的言論，捍衛了政府的聲譽和國家安全法律的正當性。（林定國社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795605_1_20250313193534.jpg&q=90)
-  
-
-律政司司長林定國表示，律政司邀請前刑事檢控專員江樂士，為政府律師擔任國家安全教育專題研習班第六講的嘉賓，從清除錯誤認知和釐清事實的角度出發，提醒要警惕外界對《香港國安法》和《維護國家安全條例》兩部法律可能存在的誤解和誤讀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795605-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795605-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795605-20250313.htm)
-
----
-
-# 羅淑佩稱透過舉辦文化藝術表演活動　吸引遊客並促進文化旅遊融合
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795604_1_20250313202949.jpg&q=90)
-  
-
-文化體育及旅遊局長羅淑佩表示，香港今個月舉行多場盛事，除了啟德體育園開幕典禮，亦舉辦了世界格蘭披治桌球大獎賽、LIV Golf 香港站賽事，吸引全球各地參賽者和遊客來港，之後亦會有ComplexCon、Art Central、巴塞爾藝術展、香港國際七人欖球賽等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795604-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795604-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795604-20250313.htm)
-
----
-
-# 微博去年少賺12%　經調整盈利升6%
-
-![微博去年度盈利按年減少12%至3億美元，經調整盈利升6%至近4.8億美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795584_1_20250313175116.jpg&q=90)
-  
-
-微博去年度盈利3億美元，按年減少12%。每股普通股或每股美國存託股派息0.82美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795584-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795584-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795584-20250313.htm)
-
----
-
-# 楊銘宇黃燜雞米飯厨房亂象事件　國務院食安辦核查處置工作
-
-![楊銘宇黃燜雞米飯厨房亂象事件　國務院食安辦核查處置工作](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795603_1_20250313192514.jpg&q=90)
-  
-
-國務院食安辦就「楊銘宇黃燜雞米飯厨房亂象」事件，今日向山東省食安辦、河南省食安辦發出掛牌督辦通知書，對兩地核查處置工作實行掛牌督辦。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795603-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795603-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795603-20250313.htm)
-
----
-
-# 杜特爾特支持者聚集拘留中心外　質疑國際刑事法院被用作政治工具
-
-![支持者要求釋放杜特爾特。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795602_1_20250313192346.jpg&q=90)
-  
-
-菲律賓前總統杜特爾特被送到荷蘭海牙並移交國際刑事法院。他的一批支持者在法院拘留中心外聚集，揮舞菲律賓國旗並高呼口號，要求釋放杜特爾特。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm)
 
 ---

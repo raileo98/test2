@@ -1,3 +1,147 @@
+# 人行逆回購1807億元人民幣　本周淨回籠2517億元
+
+![公開市場今日淨回籠43億元人民幣，連續10日淨回籠，本周累計淨回籠2517億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795678_1_20250314094403.jpg&q=80)
+  
+
+人民銀行公開市場開展1807億元人民幣7天期逆回購操作，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795678-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795678-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795678-20250314.htm)
+
+---
+
+# 金價創新高　紐約期金突破3000美元關口
+
+![金價創新高，紐約期金突破3000美元關口，每盎司高見3003.9美元，升0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795676_1_20250314094009.jpg&q=75)
+  
+
+金價創新高，紐約期金突破3000美元關口，每盎司高見3003.9美元，升0.4%，其後於3000美元爭持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795676-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795676-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795676-20250314.htm)
+
+---
+
+# 滬深股市初段造好　人行指支持資本市場穩定發展
+
+![內地股市初段造好，上證指數較早時報3368點，升9點，升幅0.29%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795675_1_20250314093546.jpg&q=85)
+  
+
+內地股市初段造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795675-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795675-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795675-20250314.htm)
+
+---
+
+# 港股競價時段升190點　科指升逾1%
+
+![港股競價時段升190點　科指升逾1%](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795672_1_20250314092204.jpg&q=60)
+  
+
+港股止跌回升，恒生指數競價時段報23653點，升190點，升幅0.81%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm)
+
+---
+
+# 人民幣兌美元中間價跌10點子　連跌兩日
+
+![人民幣中間價報7.1738兌1美元，較昨日中間價跌10點子，連續兩日下跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795671_1_20250314091927.jpg&q=80)
+  
+
+人民幣中間價報7.1738兌1美元，較昨日中間價跌10點子，連續兩日下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795671-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795671-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795671-20250314.htm)
+
+---
+
+# 台股初段窄幅上落
+
+![台灣加權指數較早時報21933點，跌27點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795668_1_20250314090952.jpg&q=90)
+  
+
+台灣股市初段窄幅上落，加權指數較早時報21933點，跌27點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795668-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795668-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795668-20250314.htm)
+
+---
+
 # 友邦去年新業務價值升18%創新高　香港貢獻最大及增長最快
 
 ![香港是友邦貢獻最大及增長最快的市場，去年新業務價值升23%至17.6億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795662_1_20250314081141.jpg&q=75)
@@ -262,6 +406,54 @@
 
 ---
 
+# 鄭新聰冀澳門做好經濟適度多元發展等四項工作
+
+![澳門舉行全國兩會精神傳達會。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795636_1_20250314001727.jpg&q=80)
+  
+
+澳門中聯辦主任鄭新聰希望，澳門未來做好包括經濟適度多元發展、堅定維護國家安全和穩定澳門大局，著力提升政府治理能力和水平，以及更好服務國家發展大局的四項工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795636-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795636-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795636-20250314.htm)
+
+---
+
+# 岑浩輝強調會將兩會精神轉化為實際行動　不斷開創澳門發展新局面
+
+![岑浩輝相信，國家進一步全面深化改革，擴大高水平對外開放，將為澳門帶來新的發展機遇。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795635_1_20250314001419.jpg&q=90)
+  
+
+澳門行政長官岑浩輝強調，會將兩會精神轉化為實際行動，在參與和助力中國式現代化建設中，不斷開創澳門發展新局面，為強國建設、民族復興作出更大貢獻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795635-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795635-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795635-20250314.htm)
+
+---
+
 # 道指跌幅擴大至逾400點
 
 ![道瓊斯指數較早時報40932點，跌418點，跌幅1.01%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795633_1_20250313234245.jpg&q=90)
@@ -334,6 +526,30 @@
 
 ---
 
+# 運輸及物流局稱香港註冊船舶的總註冊噸位處近10年高位
+
+![運輸及物流局表示，截至去年年底，香港註冊船舶的總註冊噸位處於近10年來的高位，並繼續位列全球第四。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795628_1_20250313223454.jpg&q=80)
+  
+
+運輸及物流局表示，截至去年年底，香港註冊船舶的總註冊噸位處於近10年來的高位，並繼續位列全球第四，僅次於利比里亞、巴拿馬和馬紹爾群島。海事處會繼續透過其海內外網絡，積極向各地船東及相關船務公司宣傳推廣香港船舶註冊的優勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm)
+
+---
+
 # 美股初段下跌　英特爾急升約17%
 
 ![道瓊斯指數較早時報41296點，跌54點，跌幅0.13%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795621_1_20250313214445.jpg&q=90)
@@ -355,6 +571,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795621-20250313.htm)
+
+---
+
+# 張國清在河北雄安新區調研　強調國資央企積極參與雄安新區建設
+
+![張國清在河北雄安新區調研。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795620_1_20250313214333.jpg&q=90)
+  
+
+中共中央政治局委員、國務院副總理張國清在河北調研中央企業支持雄安新區建設發展有關工作。他強調，要深入貫徹習近平總書記關於高標準高質量推進雄安新區建設的重要講話精神，落實黨中央、國務院決策部署，充分發揮中央企業獨特優勢作用，以更大力度、更實舉措支持雄安新區高標準規劃建設、高質量發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm)
 
 ---
 
@@ -1194,245 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795518-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795518-20250313.htm)
-
----
-
-# 港股競價時段升16點　科指升約0.4%
-
-![恒生指數競價時段報23616點，升16點，升幅0.07%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795516_1_20250313092217.jpg&q=40)
-  
-
-港股輕微高開，恒生指數競價時段報23616點，升16點，升幅0.07%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795516-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795516-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795516-20250313.htm)
-
----
-
-# 人民幣兌美元中間價回落32點子
-
-![人民幣兌美元中間價再度回落，報7.1728兌1美元，較昨日中間價跌32點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795515_1_20250313091801.jpg&q=80)
-  
-
-人民幣兌美元中間價再度回落，報7.1728兌1美元，較昨日中間價跌32點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795515-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795515-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795515-20250313.htm)
-
----
-
-# 卡尼明天宣誓就任加國總理　料內閣人數削近半
-
-![卡尼將在當地星期五宣誓就任加拿大總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795514_1_20250313091515.jpg&q=80)
-  
-
-加拿大新當選總理的自由黨黨魁卡尼，將在當地星期五早上宣誓就任，結束杜魯多超過9年的總理生涯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm)
-
----
-
-# 台股初段升約1%
-
-![台灣加權指數較早時報22489點，升210點，升幅0.95%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795513_1_20250313090601.jpg&q=90)
-  
-
-台股初段造好，加權指數較早時報22489點，升210點，升幅0.95%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795513-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795513-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795513-20250313.htm)
-
----
-
-# 新秀麗去年盈利跌約13%
-
-![新秀麗去年盈利3.46億美元，按年跌約13%，經調整盈利跌約6%至3.7億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795509_1_20250313082824.jpg&q=90)
-  
-
-新秀麗去年盈利3.46億美元，按年跌約13%，經調整盈利跌約6%至3.7億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795509-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795509-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795509-20250313.htm)
-
----
-
-# 韓股初段升約0.7%
-
-![首爾綜合指數較早時報2591點，升16點，升幅0.65%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795508_1_20250313081730.jpg&q=90)
-  
-
-南韓股市早段上升，首爾綜合指數較早時報2591點，升16點，升幅0.65%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795508-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795508-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795508-20250313.htm)
-
----
-
-# 日股初段升逾1%　重上37000點
-
-![日經指數重上37000點，較早時報37243點，升424點，升幅1.15%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795507_1_20250313081639.jpg&q=85)
-  
-
-日股初段造好，重上37000點以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795507-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795507-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795507-20250313.htm)
-
----
-
-# OPEC維持全球石油需求預測　上月多國產量超出配額
-
-![石油輸出國組織維持全球石油需求增長預測，又指隨著貿易政策不斷出台，貿易擔憂將加劇波動。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795502_1_20250313074414.jpg&q=90)
-  
-
-石油輸出國組織(OPEC)維持全球石油需求增長預測，估計今年的每日需求增長145萬桶，明年每日需求增加143萬桶，與上月預測相同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795502-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795502-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795502-20250313.htm)
-
----
-
-# 加拿大央行料貿易衝突減慢首季經濟增速　或擾亂就業市場復蘇
-
-![加拿大央行表示，貿易衝突將減慢首季經濟增長速度，關稅影響價格的擔憂已推高短期通脹預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795500_1_20250313073416.jpg&q=30)
-  
-
-加拿大央行總裁麥克勒姆表示，央行討論過維持利率不變及減息0.25厘，最終決定指標利率下調0.25厘，降至2.75厘，連續7次會議減息，由於國內需求將受到關稅影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795500-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795500-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795500-20250313.htm)
-
----
-
-# 特朗普稱愛爾蘭以稅收等優惠政策搶走美國製藥等公司
-
-![特朗普在白宮會見到訪的愛爾蘭總理馬丁。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795497_1_20250313064152.jpg&q=90)
-  
-
-美國總統特朗普在白宮會見到訪的愛爾蘭總理馬丁時，對兩國貿易不平衡表示不滿，稱愛爾蘭「佔美國便宜」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795497-20250313.htm)
 
 ---

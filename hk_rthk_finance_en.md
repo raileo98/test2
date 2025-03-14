@@ -1,3 +1,27 @@
+# Hong Kong stocks open higher
+
+![The Hang Seng Index rose 0.8 percent, to open at 23,653. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795677_1_20250314094204.jpg&q=75)
+  
+
+Hong Kong stocks on Friday opened higher, after global markets slid, as US President Donald Trump launched a new volley in his trade war, while gold hit a new record high.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm)
+
+---
+
 # US stocks slump after new Trump tariff threat
 
 ![Before trading began, Washington unleashed the threat of a 200 percent tariff on wine, champagne and other alcoholic beverages from the European Union. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795654_1_20250314054827.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong home prices retreated to their lowest level in nearly eight and a half
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793618-20250228.htm)
-
----
-
-# HSI dips at open on final trading day of February
-
-![The Hang Seng Index opened down 102 points, or 0.4 percent, at 23,616. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793607_1_20250228095650.jpg&q=75)
-  
-
-Hong Kong stocks opened lower on Friday, the final trading of February, after earnings from artificial intelligence chipmaking leader Nvidia failed to wow the market and US President Donald Trump launched fresh broadsides on trade.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793607-20250228.htm)
 
 ---

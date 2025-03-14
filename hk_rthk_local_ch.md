@@ -1,3 +1,50 @@
+# 博智小校下學年未能開辦小一　家長感愕然校長冀為學生作最好安排
+
+  
+
+教育局表示，黃大仙的天主教博智小學及南區的鴨脷洲街坊學校，獲派的學生人數少於16人，2025/26學年未能獲資助開辦小一。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795679-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795679-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795679-20250314.htm)
+
+---
+
+# 港股競價時段升190點　科指升逾1%
+
+![港股競價時段升190點　科指升逾1%](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795672_1_20250314092204.jpg&q=60)
+  
+
+港股止跌回升，恒生指數競價時段報23653點，升190點，升幅0.81%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm)
+
+---
+
 # 港澳辦轉載評論文章質疑長和出售港口資產交易非普通商業行為
 
 ![港澳辦轉載評論文章，質疑長和出售港口資產交易非普通商業行為。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795634_1_20250314000348.jpg&q=90)
@@ -1398,53 +1445,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795454-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795454-20250312.htm)
-
----
-
-# 李嘉誠基金會贈治肝儀器　港大醫學院稱已於瑪麗醫院臨床試驗
-
-![醫學院表示，研究團隊可透過與港怡醫院共同管理的「臨床試驗中心」，運用另一同類型儀器作臨床試驗，期望讓更多病人受惠。（港怡醫院圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795453_1_20250312211141.jpg&q=90)
-  
-
-李嘉誠基金會去年宣布，分別向香港兩所大學醫學院及養和醫院，各捐贈一部治療肝癌的醫療儀器，其中一部儀器將由港大醫學院移至港怡醫院，將為相關私院病人提供治療服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795453-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795453-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795453-20250312.htm)
-
----
-
-# 梁振英稱大灣區規劃中九個內地城市和兩特區合作還有很多工作要做
-
-![梁振英說，香港可以利用自身在專業服務業上的優勢，為國家的產品提供專業的第三方獨立檢測認證服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795451_1_20250312203821.jpg&q=80)
-  
-
-全國政協副主席、前行政長官梁振英表示，在粵港澳大灣區規劃中，九個內地城市和兩個特區的合作，還有大量空間、很多工作需要做。首要是需要身體力行解決一些情況，廣東九個城市和兩個特區的人流、物流、資金流、信息流，如今仍然未能更好地流通，不僅是香港與澳門特區，廣東九個城市都要有更強的改革開放意識，處理人流、物流、資金流、信息流方面的工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm)
 
 ---

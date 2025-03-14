@@ -1,3 +1,51 @@
+# 美國航空客機丹佛國際機場起火　所有乘客疏散無人傷
+
+![美國航空公司一架客機在丹佛國際機場起火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795673_1_20250314093831.jpg&q=90)
+  
+
+美國航空公司一架客機在丹佛國際機場起火，所有乘客疏散，無人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795673-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795673-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795673-20250314.htm)
+
+---
+
+# 美國食品藥物管理局向疫苗製造商就流感疫苗病毒株提出建議
+
+![美國食品藥物管理局向疫苗製造商就流感疫苗病毒株提出建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795669_1_20250314091352.jpg&q=85)
+  
+
+美國食品藥物管理局向疫苗製造商提出用於美國2025/26年流感季節的流感疫苗病毒株的建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795669-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795669-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795669-20250314.htm)
+
+---
+
 # 《環看天下》：中方將舉行伊朗核問題中俄伊北京會晤
 
 ![伊朗最高領袖哈梅內伊表示，伊朗絕不接受某些「霸凌政府」的談判要求。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795665_1_20250314081511.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795357-20250312.htm)
-
----
-
-# 巴基斯坦武裝分子挾持火車乘客　威脅殺死人質
-
-![醫護人員在火車站為乘客治療。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795349_1_20250312065251.jpg&q=90)
-  
-
-巴基斯坦武裝分子在西南部俾路支省襲擊一列載客火車，並脅持乘客做人質。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795349-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795349-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795349-20250312.htm)
-
----
-
-# 安省暫緩對輸美電力徵收附加費　白宮不向加國鋼鋁加倍徵關稅
-
-![安大略省暫停對輸往美國的電力徵收附加費後，特朗普稱可能重新考慮對加拿大鋼鋁產品加徵一倍關稅的決定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795340_1_20250312044916.jpg&q=85)
-  
-
-加拿大安大略省政府同意暫停對輸往美國三個州的電力，徵收25%的附加費。美國總統特朗普表示，很可能重新考慮對加拿大鋼鋁加倍徵收關稅的決定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795340-20250312.htm)
 
 ---
