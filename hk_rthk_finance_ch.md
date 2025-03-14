@@ -1,3 +1,26 @@
+# Microsoft發現一系列冒充網上旅行社針對酒店業網絡攻擊
+
+  
+
+Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣魚攻擊，冒充旅行社網上旅行社 Booking.com 並利用 ClickFix 社交工程技術。詐騙郵件以處理客戶負面評論為藉口，誘使受害者點擊連結或打開附件，最終竊取登入帳號及財務資料。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795698-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795698-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795698-20250314.htm)
+
+---
+
 # 港股半日升584點　恒指重上24000點關口
 
 ![恒指臨近中午最多升逾630點，觸及24095點，中午報24047點，升584點，升幅約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795697_1_20250314121036.jpg&q=75)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795537-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795537-20250313.htm)
-
----
-
-# 港股半日跌173點　科指跌逾2%
-
-![港股連續5日向下，恒生指數中午收市報23426點，跌173點，跌幅0.74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795534_1_20250313120805.jpg&q=85)
-  
-
-港股連續5日向下，恒生指數中午收市報23426點，跌173點，跌幅0.74%，半日主板成交額逾1215億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795534-20250313.htm)
 
 ---

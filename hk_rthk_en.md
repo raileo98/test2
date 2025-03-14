@@ -1,6 +1,6 @@
 # Sleep vital for a healthy body and mind: expert
 
-![Children learn about correct sleep postures during class. Experts say good sleeping patterns are essential to health and mental well-being. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795692_1_20250314113237.jpg&q=85)
+![Children learn about correct sleep postures during class in China. Experts say good sleeping patterns are essential to health and mental well-being. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795692_1_20250314113237.jpg&q=85)
   
 
 People around the globe marked World Sleep Day on Friday, an annual event that serves as a reminder of the importance of sleep to one's well-being and health.

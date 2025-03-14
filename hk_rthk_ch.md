@@ -1,3 +1,49 @@
+# 博智小學家長冀繼續營辦　校長盼找到最合適方案
+
+  
+
+黃大仙的天主教博智小學及南區的鴨脷洲街坊學校下學年獲派的學生人數少於16人，未能獲資助開辦小一。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795699-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795699-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795699-20250314.htm)
+
+---
+
+# Microsoft發現一系列冒充網上旅行社針對酒店業網絡攻擊
+
+  
+
+Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣魚攻擊，冒充旅行社網上旅行社 Booking.com 並利用 ClickFix 社交工程技術。詐騙郵件以處理客戶負面評論為藉口，誘使受害者點擊連結或打開附件，最終竊取登入帳號及財務資料。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795698-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795698-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795698-20250314.htm)
+
+---
+
 # 港股半日升584點　恒指重上24000點關口
 
 ![恒指臨近中午最多升逾630點，觸及24095點，中午報24047點，升584點，升幅約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795697_1_20250314121036.jpg&q=75)
@@ -48,6 +94,7 @@
 
 # 朱國強料小學或合併求存　張勇邦稱規模大辦學團體才較易處理
 
+![朱國強（左）估計學校如想繼續生存就需考慮合併。張勇邦（右）認為教育局修訂「派0班」小學發展規劃及取消特別視學安排，是適合現時的狀態。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795694_1_20250314122400.jpg&q=90)
   
 
 資助小學校長會名譽主席張勇邦表示，面對適齡學童人口下降的「寒冬期」，需要修訂措施面對現實。他認為教育局修訂「派0班」小學發展規劃及取消特別視學安排，是適合現時的狀態。
@@ -95,7 +142,7 @@
 
 # 香港花卉展維園開幕　羅淑佩：主題花秋英與拚搏運動員有共同特點
 
-![羅淑佩(左)表示，今屆花展有超過80個機構參展，當中包括30多個不同國家和地區的團體和領事館，展出精心設計的圓林造景及花藝擺設。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795691_1_20250314115152.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795691_1_20250314115152.jpg&q=85)
   
 
 香港花卉展今日起一連10日在維園舉行，主題花是秋英。文化體育及旅遊局局長羅淑佩出席開幕禮致辭時表示，秋英生命力旺盛，英姿煥發，與充滿活力和奮力拚搏的運動員有共同特點。今年適逢粵港澳三地攜手主辦第15屆全國運動會以及全國第12屆殘疾人運動會暨第9屆特殊奧林匹克運動會賽事，花展特別設置推廣展覽及專題特色園圃，介紹由香港承辦的9個比賽項目，讓市民在賞花之餘，加深對全運會及殘特奧會的認識。
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm)
-
----
-
-# 教育局成立學生內地考察專責小組　適時優化交流考察活動安排
-
-![蔡若蓮召開特別會議，跟各個承辦機構代表會面，整體檢視所有學生外地交流活動安排。（蔡若蓮社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795626_1_20250313220902.jpg&q=90)
-  
-
-教育局局長蔡若蓮表示，局方非常重視有同學在參加內地交流團出現腸胃炎徵狀的事件，今日她再召開特別會議，跟各個承辦機構代表會面，整體檢視所有學生外地交流活動安排。教育局亦已成立學生內地考察專責小組，直接與各內地部門單位保持密切溝通聯繫，適時優化交流考察活動安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795626-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795626-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795626-20250313.htm)
-
----
-
-# 取消配子或胚胎儲存期限制　林哲玄憂變相鼓勵延遲生育
-
-![林哲玄建議市民如情況許可，應及早生育，同時可減少與下一代的鴻溝及年齡差距。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795624_1_20250313223800.jpg&q=90)
-  
-
-人類生殖科技管理局建議修訂實務守則，取消供自用的精子、卵子或胚胎的10年儲存期法律限制。醫療衞生界立法會議員林哲玄認為，有關建議能幫助部分有需要的婦女，但他擔心或會變相鼓勵女性延遲生育，增加生育風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795624-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795624-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795624-20250313.htm)
 
 ---

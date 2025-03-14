@@ -1,3 +1,49 @@
+# 博智小學家長冀繼續營辦　校長盼找到最合適方案
+
+  
+
+黃大仙的天主教博智小學及南區的鴨脷洲街坊學校下學年獲派的學生人數少於16人，未能獲資助開辦小一。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795699-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795699-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795699-20250314.htm)
+
+---
+
+# Microsoft發現一系列冒充網上旅行社針對酒店業網絡攻擊
+
+  
+
+Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣魚攻擊，冒充旅行社網上旅行社 Booking.com 並利用 ClickFix 社交工程技術。詐騙郵件以處理客戶負面評論為藉口，誘使受害者點擊連結或打開附件，最終竊取登入帳號及財務資料。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795698-20250314.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795698-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795698-20250314.htm)
+
+---
+
 # 港股半日升584點　恒指重上24000點關口
 
 ![恒指臨近中午最多升逾630點，觸及24095點，中午報24047點，升584點，升幅約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795697_1_20250314121036.jpg&q=75)
@@ -24,6 +70,7 @@
 
 # 朱國強料小學或合併求存　張勇邦稱規模大辦學團體才較易處理
 
+![朱國強（左）估計學校如想繼續生存就需考慮合併。張勇邦（右）認為教育局修訂「派0班」小學發展規劃及取消特別視學安排，是適合現時的狀態。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795694_1_20250314122400.jpg&q=90)
   
 
 資助小學校長會名譽主席張勇邦表示，面對適齡學童人口下降的「寒冬期」，需要修訂措施面對現實。他認為教育局修訂「派0班」小學發展規劃及取消特別視學安排，是適合現時的狀態。
@@ -71,7 +118,7 @@
 
 # 香港花卉展維園開幕　羅淑佩：主題花秋英與拚搏運動員有共同特點
 
-![羅淑佩(左)表示，今屆花展有超過80個機構參展，當中包括30多個不同國家和地區的團體和領事館，展出精心設計的圓林造景及花藝擺設。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795691_1_20250314115152.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795691_1_20250314115152.jpg&q=85)
   
 
 香港花卉展今日起一連10日在維園舉行，主題花是秋英。文化體育及旅遊局局長羅淑佩出席開幕禮致辭時表示，秋英生命力旺盛，英姿煥發，與充滿活力和奮力拚搏的運動員有共同特點。今年適逢粵港澳三地攜手主辦第15屆全國運動會以及全國第12屆殘疾人運動會暨第9屆特殊奧林匹克運動會賽事，花展特別設置推廣展覽及專題特色園圃，介紹由香港承辦的9個比賽項目，讓市民在賞花之餘，加深對全運會及殘特奧會的認識。
@@ -1395,54 +1442,5 @@ M+博物館周六起舉行特別展覽，將會展出來自巴黎國立畢加索
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795533-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795533-20250313.htm)
-
----
-
-# 中大研發測序技術識別鼻咽癌癌细胞血漿EB病毒DNA分子特徵
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795527_1_20250313111923.jpg&q=80)
-  
-
-中大醫學院團隊研究發現透過以次世代DNA測序技術，可成功識別出一系列鼻咽癌癌细胞釋放的血漿EB病毒DNA分子特徵，有助更準確分辨出患鼻咽癌的高風險人士，有關研究已於國際醫學期刊《癌細胞》發表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795527-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795527-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795527-20250313.htm)
-
----
-
-# 古諮會將討論舊贊育醫院主樓及上環廣福祠列為古蹟
-
-![西營盤舊贊育醫院主樓樓高四層，設有地庫，採用新古典主義建築風格，糅合中式元素，有紅磚外牆、圓柱及刻有前清官員的題字。（ 香港文化古蹟資源中心）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_1_20250313110927.jpg&q=75)
-![廣福祠建於高台之上，青磚和花崗石門口的匾額和楹聯保存完好，位於前廳正脊上的石灣陶塑屹立至今。（東華三院）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795525_2_20250313110927.jpg&q=80)
-  
-
-古物諮詢委員會下午開會，議程包括討論當局計劃根據法例，將西營盤舊贊育醫院主樓及上環廣福祠宣布為古蹟。古物古蹟辦事處的文件指出有關業主及管理部門已同意當局的建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795525-20250313.htm)
 
 ---
