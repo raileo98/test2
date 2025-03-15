@@ -1,3 +1,27 @@
+# 美國把南非駐美大使列為「不受歡迎人物」
+
+![美方指拉蘇爾「煽動種族情緒」，憎恨美國，把他列為不受歡迎人物。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795832_1_20250315112355.jpg&q=90)
+  
+
+美國把南非駐美國大使列為「不受歡迎人物」，指責他憎恨美國及總統特朗普。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm)
+
+---
+
 # 旅遊及零售業界期望國際七人欖球賽帶動消費及生意
 
 ![香港國際七人欖球賽將在啟德體育園舉辦。 （旅發局資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795831_1_20250315105942.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795760-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795760-20250314.htm)
-
----
-
-# 食環署巡視全港約3600間食物業處所提出5宗檢控
-
-![食物安全中心及環境衞生部人員巡視一間售賣燒味的店鋪，確保食物的存放、處理和衞生情況符合安全標準及相關法例。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795757_1_20250314182911.jpg&q=90)
-  
-
-食環署過去一星期，巡視了全港約3600間食物業處所，就食物的存放、處理和衛生情況作出即時糾正、警告及衞生建議，並提出5宗檢控。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795757-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795757-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795757-20250314.htm)
 
 ---

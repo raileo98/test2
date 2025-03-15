@@ -1,3 +1,27 @@
+# 美國把南非駐美大使列為「不受歡迎人物」
+
+![美方指拉蘇爾「煽動種族情緒」，憎恨美國，把他列為不受歡迎人物。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795832_1_20250315112355.jpg&q=90)
+  
+
+美國把南非駐美國大使列為「不受歡迎人物」，指責他憎恨美國及總統特朗普。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm)
+
+---
+
 # 萬斯料下月限期前可就TikTok所有權問題達成協議
 
 ![特朗普早前表示，政府正與4間對TikTok交易感興趣的集團接觸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795829_1_20250315103020.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm)
-
----
-
-# 普京赴庫爾斯克州聽取匯報　要求俄軍盡快徹底奪回該區
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795569_1_20250313183645.jpg&q=90)
-  
-
-俄羅斯總統普京昨日身穿迷彩軍服，視察庫爾斯克州一個軍事指揮中心，聽取北方集團軍匯報軍事行動進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795569-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795569-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795569-20250313.htm)
 
 ---
