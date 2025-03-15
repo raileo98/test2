@@ -1,3 +1,27 @@
+# Cuba suffers fourth nationwide blackout in five months
+
+![People gather in a neighbourhood during a national electrical grid collapse in Havana, Cuba. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795833_1_20250315115602.jpg&q=90)
+  
+
+Cuba suffered a general blackout on Friday caused by a crash of its national electricity grid, officials said, the fourth major power outage on the cash-strapped communist island in five months.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm)
+
+---
+
 # Crew launch to ISS to replace stuck astronauts
 
 ![SpaceX's Falcon 9 rocket lifts off, carrying NASA's Crew-10 astronauts to the International Space Station at the Kennedy Space Center, Florida. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795820_1_20250315083347.jpg&q=90)
@@ -1411,29 +1435,5 @@ The Organisation of Islamic Cooperation (OIC) formally adopted early on Saturday
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794923-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794923-20250308.htm)
-
----
-
-# S Korea's impeached President Yoon released
-
-![Impeached South Korean President Yoon Suk Yeol bows to his supporters. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794922_1_20250308181642.jpg&q=85)
-  
-
-Impeached South Korean President Yoon Suk Yeol was released from detention on Saturday after a court voided his arrest on procedural grounds – but he remains under investigation over his declaration of martial law.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm)
 
 ---

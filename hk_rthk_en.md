@@ -1,3 +1,27 @@
+# Cuba suffers fourth nationwide blackout in five months
+
+![People gather in a neighbourhood during a national electrical grid collapse in Havana, Cuba. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795833_1_20250315115602.jpg&q=90)
+  
+
+Cuba suffered a general blackout on Friday caused by a crash of its national electricity grid, officials said, the fourth major power outage on the cash-strapped communist island in five months.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm)
+
+---
+
 # 'Govt can do more to promote internationalisation'
 
 ![Starry Lee says Hong Kong can develop ties with the Global South and Asean nations. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795830_1_20250315105816.jpg&q=85)
@@ -1412,29 +1436,5 @@ Former badminton world number one Viktor Axelsen suffered a shock first-round de
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795505-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795505-20250313.htm)
-
----
-
-# SpaceX scrubs launch of ISS replacement crew mission
-
-![SpaceX called off the flight over a last-minute technical issue with the rocket's launchpad. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795503_1_20250313075135.jpg&q=90)
-  
-
-SpaceX on Wednesday scrubbed the expected launch of a replacement crew of four astronauts to the International Space Station that would have set in motion the long-awaited homecoming of US astronauts Butch Wilmore and Suni Williams, who have been stuck in space for nine months after a trip on Boeing's faulty Starliner.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm)
 
 ---
