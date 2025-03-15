@@ -1,3 +1,27 @@
+# 西甲皇馬2:1反勝維拉利爾　麥巴比建兩功
+
+![麥巴比梅開二度，協助皇馬反勝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795900_1_20250316070210.jpg&q=90)
+  
+
+西班牙甲組足球聯賽，皇家馬德里憑麥巴比梅開二度，作客2:1反勝維拉利爾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795900-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795900-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795900-20250316.htm)
+
+---
+
 # 美法官頒令暫阻政府按外國敵人法驅逐部分外來人士　政府一方上訴
 
 ![特朗普政府根據外國敵人法驅逐被指是委內瑞拉黑幫成員的幾名人士。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795899_1_20250316065945.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795824-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795824-20250315.htm)
-
----
-
-# 李慧琼稱香港應與國際深化交流擴大網絡　引進更多人才資金
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795823_1_20250315093033.jpg&q=85)
-  
-
-全國兩會日前閉幕，人大常委李慧琼出席本台節目《星期六問責》時表示，國家非常關心及支持港澳，今年的總理工作報告提及要求深化國際交往合作，她認為可以進一步發揮香港制度的獨有優勢及固有特點，除了經濟，亦涉及政治、文化、體育、科技及教育等方面，與國際深化交流和擴大網絡，引進更多人才資金，提升國家的軟實力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm)
 
 ---
