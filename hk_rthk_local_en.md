@@ -1,3 +1,27 @@
+# HK$2 tweaks can save govt nearly HK$700 million a year
+
+![Chris Sun says changes to the HK$2 scheme will make the beneficiaries choose cheaper transportation. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795864_1_20250315174901.jpg&q=90)
+  
+
+Labour and welfare minister Chris Sun on Saturday said changes to the HK$2 fare scheme could save the government about HK$680 million a year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm)
+
+---
+
 # Deliveroo urged to spell out arrangements to consumers
 
 ![The consumer watchdog is calling on the delivery platform to inform its customers about the handling of their personal data. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795857_1_20250315160814.jpg&q=80)
@@ -1412,29 +1436,5 @@ A rule banning spectators from bringing water bottles into competition venues at
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm)
-
----
-
-# Kai Tak terminal to host 17 cruise ships this month
-
-![Four cruise ships are visiting the SAR this weekend, drawing 5,400 tourists. Photo courtesy of Tourism Board](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794998_1_20250309171406.jpg&q=85)
-  
-
-Seventeen large cruise ships will visit Hong Kong this month, according to Secretary for Culture, Sports and Tourism Rosanna Law.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794998-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794998-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794998-20250309.htm)
 
 ---

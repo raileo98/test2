@@ -1,3 +1,27 @@
+# HK$2 tweaks can save govt nearly HK$700 million a year
+
+![Chris Sun says changes to the HK$2 scheme will make the beneficiaries choose cheaper transportation. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795864_1_20250315174901.jpg&q=90)
+  
+
+Labour and welfare minister Chris Sun on Saturday said changes to the HK$2 fare scheme could save the government about HK$680 million a year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm)
+
+---
+
 # Norris on pole as McLaren lock out Melbourne front row
 
 ![Lando Norris says he knows Sunday's race conditions will be completely different to those during Saturday's qualifying. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795861_1_20250315171554.jpg&q=90)
@@ -1412,29 +1436,5 @@ A US judge on Wednesday extended his order blocking federal authorities from dep
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795530-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795530-20250313.htm)
-
----
-
-# Thunder down Celtics to secure playoff berth
-
-![Shai Gilgeous-Alexander was the star for Oklahoma City yet again. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795528_1_20250313112112.jpg&q=90)
-  
-
-Shai Gilgeous-Alexander scored 34 points as the Oklahoma City Thunder punched their ticket to the playoffs with an impressive 118-112 victory over the reigning champion Boston Celtics in a potential NBA Finals sneak preview.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm)
 
 ---

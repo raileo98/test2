@@ -1,5 +1,54 @@
+# 陳茂波︰邀請大型科企及前沿初創將資源投放教育　培育創科人才
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795866_1_20250315182437.jpg&q=90)
+  
+
+財政司司長陳茂波表示，預算案提出將人工智能作為關鍵產業加強推進，亦邀請大型科技企業及前沿初創，將資源投放到教育，讓學生體驗到技術應用，引起他們對創科的興趣，培育本地創科人才。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795866-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795866-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795866-20250315.htm)
+
+---
+
+# 天文台下午一度發出今年首個黃雨警告　大埔有冰雹報告
+
+![本港下午不少地區落大雨，多區錄得大約20毫米雨量。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795865_1_20250315181844.jpg&q=85)
+  
+
+本港下午不少地區落大雨，多區錄得大約20毫米雨量。天文台一度發出黃色暴雨警告信號，是本港今年第一次；大埔就收到冰雹報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795865-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795865-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795865-20250315.htm)
+
+---
+
 # 銀行職員涉騙取長者逾260萬元　與兄長同被警方扣查
 
+![林華欣表示，銀行職員涉嫌利用自己身份，騙取一名長者網上銀行用戶資料及密碼。 （鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795862_1_20250315180519.jpg&q=90)
   
 
 一名29歲銀行職員涉嫌利用本身職員的身份，騙取一名長者網上銀行用戶資料及密碼，盜取對方超過260萬元，再透過33歲兄長的戶口清洗逾百萬元款項。兩人正被警方扣留調查，警方調查顯示今次案件屬個別事件。
@@ -71,7 +120,7 @@
 
 # 鄧炳強稱定會盡力將餘下被禁錮東南亞港人帶回香港
 
-![鄧炳強出席活動後表示，一定會盡力將餘下港人帶回香港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795854_1_20250315173055.jpg&q=80)
+![鄧炳強出席活動後表示，一定會盡力將餘下港人帶回香港。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795854_2_20250315180325.jpg&q=90)
   
 
 6名被誘騙到緬甸園區從事非法工作的港人早前回港。當局上星期表示，會繼續積極跟進餘下3宗仍未返港的相關求助個案。
@@ -1386,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795702-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795702-20250314.htm)
-
----
-
-# 港鐵本月22日起重鐵網絡各車站均接受「全國交通一卡通」付費
-
-![乘客只需在貼有「交通聯合」標誌閘機上的八達通讀寫器拍卡，便可出入閘。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795701_1_20250314145538.jpg&q=90)
-  
-
-港鐵宣布，本月22日，即下星期六起，除機場快綫車站外，重鐵網絡各車站均接受「全國交通一卡通」付費乘車，為訪港旅客提供新選擇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795701-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795701-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795701-20250314.htm)
-
----
-
-# 博智小學家長冀繼續營辦　校長盼找到最合適方案
-
-![有博智小學的家長表示無奈，希望學校可以繼續營辦，讓子女完成小學。（陳裕行攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795699_1_20250314123649.jpg&q=90)
-  
-
-黃大仙的天主教博智小學及南區的鴨脷洲街坊學校下學年獲派的學生人數少於16人，未能獲資助開辦小一。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795699-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795699-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795699-20250314.htm)
 
 ---
