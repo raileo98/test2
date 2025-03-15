@@ -95,7 +95,7 @@
 
 # 銀行職員涉騙取長者逾260萬元　與兄長同被警方扣查
 
-![林華欣表示，銀行職員涉嫌利用自己身份，騙取一名長者網上銀行用戶資料及密碼。 （鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795862_1_20250315180519.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795862_1_20250315180519.jpg&q=90)
   
 
 一名29歲銀行職員涉嫌利用本身職員的身份，騙取一名長者網上銀行用戶資料及密碼，盜取對方超過260萬元，再透過33歲兄長的戶口清洗逾百萬元款項。兩人正被警方扣留調查，警方調查顯示今次案件屬個別事件。
