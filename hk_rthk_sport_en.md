@@ -1,3 +1,27 @@
+# France beat Scotland to claim Six Nations
+
+![France's scrum-half Antoine Dupont (centre) holds the trophy while celebrating. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795897_1_20250316063919.jpg&q=85)
+  
+
+France claimed their seventh Six Nations trophy in a record-strewn 35-16 victory Scotland on Saturday, shaking off their beautiful runners-up tag on a crisp evening at the Stade de France.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm)
+
+---
+
 # Ohtani hits home run in Dodgers' Tokyo exhibition game
 
 ![Superstar Shohei Ohtani sends the crowd wild with a two-run homer in the third inning. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795879_1_20250315205024.jpg&q=85)
@@ -1422,29 +1446,5 @@ Soviet chess grandmaster Boris Spassky, who was famously defeated in the so-call
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm)
-
----
-
-# Legendary Irish trio to retire at end of Six Nations
-
-![Last year's Six Nations title-winning skipper Peter O'Mahony is as famous for his gardening skills as his rugby prowess. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793545_1_20250227214946.jpg&q=85)
-  
-
-Three "legends" of Irish rugby, record caps holder Cian Healy, last year's Six Nations title-winning skipper Peter O'Mahony and fellow Test centurion Conor Murray will retire from international rugby at the end of the Six Nations, they announced on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793545-20250227.htm)
 
 ---

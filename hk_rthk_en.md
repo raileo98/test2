@@ -1,3 +1,27 @@
+# France beat Scotland to claim Six Nations
+
+![France's scrum-half Antoine Dupont (centre) holds the trophy while celebrating. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795897_1_20250316063919.jpg&q=85)
+  
+
+France claimed their seventh Six Nations trophy in a record-strewn 35-16 victory Scotland on Saturday, shaking off their beautiful runners-up tag on a crisp evening at the Stade de France.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm)
+
+---
+
 # Military jet crashes, pilot ejects unhurt: CCTV
 
 ![The PLA said there was no collateral damage on the ground. File Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795895_1_20250316051831.jpg&q=90)
@@ -1412,29 +1436,5 @@ The Office of the Ombudsman on Thursday urged the Housing Department to step up 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795562-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795562-20250313.htm)
-
----
-
-# Pakistan starts counting toll of train siege
-
-![An injured passenger is wheeled into a hospital in Quetta on Thursday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795561_1_20250313151752.jpg&q=90)
-  
-
-The bodies of at least 25 people, including 21 hostages, killed in a train siege by separatist gunmen in Pakistan were retrieved from the site yesterday ahead of the first funerals, officials said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795561-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795561-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795561-20250313.htm)
 
 ---
