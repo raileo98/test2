@@ -1,3 +1,27 @@
+# Sabalenka books Indian Wells title clash with Andreeva
+
+![Belarus's Aryna Sabalenka shakes hands with USA's Madison Keys after winning their semi-final match at the Indian Wells Tennis. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795836_1_20250315123114.jpg&q=85)
+  
+
+Aryna Sabalenka avenged her Australian Open loss to Madison Keys on Friday, thrashing the American 6-0, 6-1 to book an Indian Wells title showdown with teen sensation Mirra Andreeva.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795836-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795836-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795836-20250315.htm)
+
+---
+
 # Rashford recalled in Tuchel's first England squad
 
 ![Marcus Rashford has looked more like his old self since his loan move to Aston Villa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795783_1_20250314215113.jpg&q=90)
@@ -1424,29 +1448,5 @@ Liverpool moved a giant step closer to the Premier League title with a ruthless 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm)
-
----
-
-# Liverpool's Slot gets two-match ban over derby chaos
-
-![Arne Slot gets his marching orders from referee Michael Oliver. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793366_1_20250226204458.jpg&q=90)
-  
-
-Liverpool manager Arne Slot will not be on the touchline for Wednesday's home match against Newcastle after he was handed a two-match ban and given a hefty fine for his behaviour in the Merseyside derby.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm](https://news.rthk.hk/rthk/en/component/k2/1793366-20250226.htm)
 
 ---

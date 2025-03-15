@@ -1,3 +1,26 @@
+# 陳茂波稱人工智能做事鍥而不捨　勉勵學生學習時要表現出堅持
+
+  
+
+財政司司長陳茂波說，香港在人工智能浪潮裡非常有優勢，根據最新的QS大學排名，在人工智能和數據科學上，香港有5間大學躋身全球前50，同時有16間人工智能和機器人實驗室達到世界級水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795837-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795837-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795837-20250315.htm)
+
+---
+
 # 陳美寶稱運輸署服務電子化提升效率及質素　各類服務持續升級
 
 ![陳美寶表示，位於金鐘及長沙灣的牌照事務處，將各推出一個「國際駕駛許可證自助服務站」。（運輸及物流局網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795835_1_20250315122606.jpg&q=90)
@@ -1411,29 +1434,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm)
-
----
-
-# 運輸及物流局稱香港註冊船舶的總註冊噸位處近10年高位
-
-![運輸及物流局表示，截至去年年底，香港註冊船舶的總註冊噸位處於近10年來的高位，並繼續位列全球第四。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795628_1_20250313223454.jpg&q=80)
-  
-
-運輸及物流局表示，截至去年年底，香港註冊船舶的總註冊噸位處於近10年來的高位，並繼續位列全球第四，僅次於利比里亞、巴拿馬和馬紹爾群島。海事處會繼續透過其海內外網絡，積極向各地船東及相關船務公司宣傳推廣香港船舶註冊的優勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm)
 
 ---
