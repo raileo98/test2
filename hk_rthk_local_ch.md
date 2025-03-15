@@ -25,6 +25,7 @@
 
 # 天水圍體育館在黃雨期間一度漏水　維修期間照常開放
 
+![天水圍體育館的簽場處一度出現漏水情況。（社交網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795878_2_20250315222658.jpg&q=90)
 ![康文署表示，天水圍體育館的簽場處下午一度漏水。（康文署圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795878_1_20250315222535.jpg&q=80)
   
 
