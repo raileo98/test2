@@ -1,3 +1,27 @@
+# 短道速滑世錦賽在北京舉行　中國劉少昂1500米摘銅
+
+![中國劉少昂在短道速滑世錦賽1500米比賽中摘銅。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795880_1_20250315210050.jpg&q=90)
+  
+
+短道速滑世錦賽在北京舉行，中國的劉少昂在男子1500米，奪得一面銅牌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm)
+
+---
+
 # 英格蘭領隊杜曹：希望英軍能運用英超速度和力量
 
 ![杜曹希望英格蘭能夠用到在英超的速度和力量，而不是模仿歐陸打法。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795816_1_20250315071424.jpg&q=90)
@@ -1428,30 +1452,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793820-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793820-20250301.htm)
-
----
-
-# 鄧俊文謝影雪向觀眾拋出羽毛球　樊振東以巨型乒乓球拍打波
-
-![鄧俊文和謝影雪等向觀眾拋出親筆簽名羽毛球。（羅詠暉攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793819_1_20250301203326.jpg&q=90)
-![樊振東以巨型乒乓球拍打波，觀眾高呼喝采。（陳易安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793819_2_20250301203326.jpg&q=80)
-  
-
-啟德體育園開幕禮傍晚6時半舉行，先後有多位奧運名將等上台表演。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm](https://news.rthk.hk/rthk/ch/component/k2/1793819-20250301.htm)
 
 ---

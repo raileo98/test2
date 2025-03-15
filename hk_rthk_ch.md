@@ -1,3 +1,26 @@
+# 北京市出現雨雪降溫天氣　當局延長暖氣供應
+
+  
+
+受到暖濕氣流和冷空氣共同影響，北京市大部分地區出現雨雪天氣，以降雪為主，北部地區相對明顯。由於臨近供暖季結束但氣溫下降，市城市管理委員會表示，2024/25供暖季延長至下周一午夜，共延長2天。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795881-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795881-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795881-20250315.htm)
+
+---
+
 # 天水圍體育館在黃雨期間一度漏水　維修期間照常開放
 
   

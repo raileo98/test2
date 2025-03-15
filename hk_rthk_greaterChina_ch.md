@@ -1,3 +1,50 @@
+# 短道速滑世錦賽在北京舉行　中國劉少昂1500米摘銅
+
+![中國劉少昂在短道速滑世錦賽1500米比賽中摘銅。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795880_1_20250315210050.jpg&q=90)
+  
+
+短道速滑世錦賽在北京舉行，中國的劉少昂在男子1500米，奪得一面銅牌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm)
+
+---
+
+# 北京市出現雨雪降溫天氣　當局延長暖氣供應
+
+  
+
+受到暖濕氣流和冷空氣共同影響，北京市大部分地區出現雨雪天氣，以降雪為主，北部地區相對明顯。由於臨近供暖季結束但氣溫下降，市城市管理委員會表示，2024/25供暖季延長至下周一午夜，共延長2天。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795881-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795881-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795881-20250315.htm)
+
+---
+
 # 央視︰解放軍海軍一架戰鬥機訓練期間失事　飛行員成功跳傘
 
 ![央視︰解放軍海軍一架戰鬥機訓練期間失事　飛行員成功跳傘](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795871_1_20250315193542.jpg&q=90)
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm)
-
----
-
-# 中國將於星期五舉行伊朗核問題中俄伊北京會晤
-
-![外交部發言人說，三方將會就伊朗核問題及其他共同關心的問題交換意見。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795419_1_20250312152300.jpg&q=80)
-  
-
-中國將於星期五舉行伊朗核問題中俄伊北京會晤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795419-20250312.htm)
-
----
-
-# 學生交流團腸胃炎事件懷疑涉事韶關餐廳否認提前準備食物
-
-![流行病學調查顯示，3個交流團的師生曾於相同餐廳用膳，中心未能排除部分患者可能經進食受污染的食物而感染。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795407_1_20250312150058.jpg&q=80)
-  
-
-先後有3間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。教育界立法會議員朱國強表示，涉事交流團包括公民與社會發展科內地考察，均由教育局主辦，旅行社或遊學機構承辦，接待及學校聯繫由教育局與承辦機構負責，亦有招標程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm)
 
 ---
