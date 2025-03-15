@@ -1,5 +1,7 @@
 # 港澳辦再轉載文章　質疑長和擬售巴拿馬運河港口有否考量國家利益
 
+![港澳辦連續第二次轉載《大公報》的評論文章。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795884_2_20250315222028.jpg&q=85)
+![文章談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795884_1_20250315222028.jpg&q=90)
   
 
 港澳辦連續第二次轉載《大公報》的評論文章，談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。
