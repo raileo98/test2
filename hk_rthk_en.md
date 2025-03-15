@@ -72,7 +72,7 @@ An economist has said that the new law proposed by Beijing to protect and enhanc
 
 # Crew launch to ISS to replace stuck astronauts
 
-![SpaceX's Falcon 9 rocket lifts off, carrying NASA's Crew-10 astronauts to the International Space Station at the Kennedy Space Center, Florida. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795820_1_20250315083347.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795820_1_20250315083347.jpg&q=90)
   
 
 After more than nine months on the International Space Station, two astronauts are a step closer to returning home following the launch of a crew swap mission on Friday.
@@ -120,7 +120,7 @@ Wall Street stocks finished higher on Friday following bargain hunting that redu
 
 # Putin tells Ukraine troops in Kursk to 'surrender'
 
-![Russian President Vladimir Putin chairs a meeting with members of the Security Council via video link. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795805_1_20250315050817.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795805_1_20250315050817.jpg&q=90)
   
 
 President Vladimir Putin on Friday called on beleaguered Ukrainian troops in the Russian region of Kursk to "surrender" as Ukraine's President Volodymyr Zelensky accused the Russian leader of seeking to sabotage a ceasefire initiative.
