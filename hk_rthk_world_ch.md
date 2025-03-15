@@ -1,3 +1,27 @@
+# 古巴全國大停電　5個月以來第4次
+
+![全國全國大範圍停電，首都哈瓦那街頭漆黑一片。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795844_1_20250315134013.jpg&q=90)
+  
+
+古巴5個月以來發生第4次大停電，首都哈瓦那街頭漆黑一片。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795844-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795844-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795844-20250315.htm)
+
+---
+
 # 美國把南非駐美大使列為「不受歡迎人物」
 
 ![美方指拉蘇爾「煽動種族情緒」，憎恨美國，把他列為不受歡迎人物。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795832_1_20250315112355.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm)
-
----
-
-# 商務部：中美相關主管部門一直保持溝通
-
-![商務部稱，中方與美方相關主管部門一直保持溝通。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795573_1_20250313161008.jpg&q=75)
-  
-
-在北京，商務部新聞發言人何咏前表示，中方與美方相關主管部門一直保持溝通。中方一貫主張，對於經貿領域的分歧和爭議，中美雙方應秉持積極合作的態度，通過平等對話加強溝通，尋找雙方都能接受的解決方案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795573-20250313.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 古巴全國大停電　5個月以來第4次
+
+![全國全國大範圍停電，首都哈瓦那街頭漆黑一片。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795844_1_20250315134013.jpg&q=90)
+  
+
+古巴5個月以來發生第4次大停電，首都哈瓦那街頭漆黑一片。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795844-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795844-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795844-20250315.htm)
+
+---
+
 # 控煙酒辦打擊非法吸食水煙巡查中區酒吧　發出兩張罰款通知書
 
   
@@ -1407,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm)
-
----
-
-# 港華智慧能源核心利潤升逾三成　末期息連特別息派19仙
-
-![港華智慧能源末期息每股16仙；鑑於可再生能源業務業績令人鼓舞，派發特別息每股3仙。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795758_1_20250314180627.jpg&q=90)
-  
-
-港華智慧能源去年盈利16.06億元，增長約2%，核心利潤上升34.5%，升至16.01億元，若以人民幣計算，升幅37.2%。末期息每股16仙。另外，鑑於可再生能源業務業績令人鼓舞，董事會建議派付一次性特別股息每股3仙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm)
 
 ---
