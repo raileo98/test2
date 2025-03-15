@@ -1,3 +1,27 @@
+# 多國領導人就俄烏問題舉行視像會議　施紀賢批評普京試圖拖延和談
+
+![施紀賢與多國領導人舉行視像會議，討論烏克蘭問題。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795870_1_20250315192619.jpg&q=90)
+  
+
+英國首相施紀賢與多國領導人舉行視像會議，討論烏克蘭問題。施紀賢在開場發言時，指責俄羅斯總統普京試圖拖延和談，他說，如果普京對和平是認真，就必須停止攻擊烏克蘭，並同意停火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795870-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795870-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795870-20250315.htm)
+
+---
+
 # G7外長會後聲明沒再提奉行「一中」政策　中方不滿並嚴正交涉
 
 ![中國駐加拿大使館發言人說，七國集團外長的聲明字裡行間充斥著傲慢、偏見和遏華反華的險惡用心。（中國駐加拿大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795863_1_20250315173417.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795615-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795615-20250313.htm)
-
----
-
-# 美國中東問題特使抵莫斯科　討論俄烏臨時停火30日建議
-
-![美國中東問題特使威特科夫將與俄方討論美國提出俄烏臨時停火30日的建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795607_1_20250313195204.jpg&q=90)
-  
-
-美國中東問題特使威特科夫抵達俄羅斯首都莫斯科，將與俄方討論美國提出俄烏臨時停火30日的建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795607-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795607-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795607-20250313.htm)
 
 ---

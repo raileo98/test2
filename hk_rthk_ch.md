@@ -1,3 +1,27 @@
+# 多國領導人就俄烏問題舉行視像會議　施紀賢批評普京試圖拖延和談
+
+![施紀賢與多國領導人舉行視像會議，討論烏克蘭問題。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795870_1_20250315192619.jpg&q=90)
+  
+
+英國首相施紀賢與多國領導人舉行視像會議，討論烏克蘭問題。施紀賢在開場發言時，指責俄羅斯總統普京試圖拖延和談，他說，如果普京對和平是認真，就必須停止攻擊烏克蘭，並同意停火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795870-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795870-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795870-20250315.htm)
+
+---
+
 # 天水圍有工人吊船上於半空被吹到左搖右擺其後獲救
 
 ![一名吊船工人下午3時許在外牆工作期間遇到大風雨，連人帶船於半空被吹到左搖右擺、搖搖欲墜。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795869_1_20250315192438.jpg&q=90)
