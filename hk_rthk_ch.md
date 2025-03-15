@@ -95,7 +95,7 @@
 
 # 甯漢豪：青協將昔日粉嶺裁判法院活化　為歷史建築賦予新生命
 
-![甯漢豪（中）表示，香港青年協會將昔日的粉嶺裁判法院，活化為培育青年領袖的學院。（發展局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795876_1_20250315203255.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795876_1_20250315203255.jpg&q=90)
   
 
 發展局局長甯漢豪表示，香港青年協會將昔日的粉嶺裁判法院，活化為培育青年領袖的學院，認為是為歷史建築賦予新生命。
