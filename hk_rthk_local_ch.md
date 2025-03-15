@@ -1,3 +1,26 @@
+# 銀行職員涉騙取長者逾260萬元　與兄長同被警方扣查
+
+  
+
+一名29歲銀行職員涉嫌利用本身職員的身份，騙取一名長者網上銀行用戶資料及密碼，盜取對方超過260萬元，再透過33歲兄長的戶口清洗逾百萬元款項。兩人正被警方扣留調查，警方調查顯示今次案件屬個別事件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795862-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795862-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795862-20250315.htm)
+
+---
+
 # 黃色暴雨警告信號取消　大埔有冰雹報告
 
 ![黃色暴雨警告信號取消　大埔有冰雹報告](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795859_1_20250315163508.jpg&q=90)
@@ -48,6 +71,7 @@
 
 # 鄧炳強稱定會盡力將餘下被禁錮東南亞港人帶回香港
 
+![鄧炳強出席活動後表示，一定會盡力將餘下港人帶回香港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795854_1_20250315173055.jpg&q=80)
   
 
 6名被誘騙到緬甸園區從事非法工作的港人早前回港。當局上星期表示，會繼續積極跟進餘下3宗仍未返港的相關求助個案。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795699-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795699-20250314.htm)
-
----
-
-# Microsoft發現一系列冒充網上旅行社針對酒店業網絡攻擊
-
-![Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣魚攻擊，冒充旅行社網上旅行社 Booking.com 並利用 ClickFix 社交工程技術。（Microsoft）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795698_1_20250314124126.jpg&q=90)
-  
-
-Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣魚攻擊，冒充旅行社網上旅行社 Booking.com 並利用 ClickFix 社交工程技術。詐騙郵件以處理客戶負面評論為藉口，誘使受害者點擊連結或打開附件，最終竊取登入帳號及財務資料。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795698-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795698-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795698-20250314.htm)
 
 ---

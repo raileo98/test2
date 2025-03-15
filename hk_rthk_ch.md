@@ -1,3 +1,26 @@
+# 銀行職員涉騙取長者逾260萬元　與兄長同被警方扣查
+
+  
+
+一名29歲銀行職員涉嫌利用本身職員的身份，騙取一名長者網上銀行用戶資料及密碼，盜取對方超過260萬元，再透過33歲兄長的戶口清洗逾百萬元款項。兩人正被警方扣留調查，警方調查顯示今次案件屬個別事件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795862-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795862-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795862-20250315.htm)
+
+---
+
 # 中國成功發射四維高景三號02星
 
 ![中國成功發射四維高景三號02星。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795860_1_20250315172109.jpg&q=90)
@@ -120,6 +143,7 @@
 
 # 鄧炳強稱定會盡力將餘下被禁錮東南亞港人帶回香港
 
+![鄧炳強出席活動後表示，一定會盡力將餘下港人帶回香港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795854_1_20250315173055.jpg&q=80)
   
 
 6名被誘騙到緬甸園區從事非法工作的港人早前回港。當局上星期表示，會繼續積極跟進餘下3宗仍未返港的相關求助個案。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795788-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795788-20250314.htm)
-
----
-
-# 城規會維持決定　港大擬建國際創新中心用地為「未決定用途」
-
-![港大計劃在薄扶林興建國際創新中心，佔地4.72公頃。（港大國際創新中心網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795789_3_20250314224955.jpg&q=90)
-  
-
-港大計劃在薄扶林興建國際創新中心，佔地4.72公頃。城市規劃委員會維持決定，將有關用地由「其他指定用途」註明「國際創新中心」地帶改劃為「未決定用途」地帶，作為過渡性安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795789-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795789-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795789-20250314.htm)
 
 ---
