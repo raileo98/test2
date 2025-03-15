@@ -1,3 +1,27 @@
+# 東部戰區：反分裂國家法是高懸台獨頭頂利劍　維護台海穩定基石
+
+![東部戰區上將司令員林向陽在反分裂國家法實施20周年座談會上發言。（東部戰區微信官方賬號截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795853_3_20250315154807.jpg&q=90)
+  
+
+東部戰區上將司令員林向陽參加反分裂國家法實施20周年座談會。他發言時表示，軍隊堅決依法履行使命責任，不斷加強實戰化練兵備戰，持續開展常態化繞島巡航，周密組織系列演習，有力震懾台獨分裂勢力，有效穩控台海局勢，堅定捍衛國家主權和領土完整。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm)
+
+---
+
 # 鄧炳強稱定會盡力將餘下被禁錮東南亞港人帶回香港
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795781-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795781-20250314.htm)
-
----
-
-# 美股初段上升
-
-![道瓊斯指數較早時報40953點，升140點，升幅0.34%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795778_1_20250314213624.jpg&q=90)
-  
-
-美股在開市初段上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795778-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795778-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795778-20250314.htm)
 
 ---

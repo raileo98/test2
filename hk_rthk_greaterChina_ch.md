@@ -1,3 +1,27 @@
+# 東部戰區：反分裂國家法是高懸台獨頭頂利劍　維護台海穩定基石
+
+![東部戰區上將司令員林向陽在反分裂國家法實施20周年座談會上發言。（東部戰區微信官方賬號截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795853_3_20250315154807.jpg&q=90)
+  
+
+東部戰區上將司令員林向陽參加反分裂國家法實施20周年座談會。他發言時表示，軍隊堅決依法履行使命責任，不斷加強實戰化練兵備戰，持續開展常態化繞島巡航，周密組織系列演習，有力震懾台獨分裂勢力，有效穩控台海局勢，堅定捍衛國家主權和領土完整。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm)
+
+---
+
 # 人民日報文章：賴清德「綠恐謀獨」必然自取滅亡
 
 ![人民日報批評賴清德近日拋出所謂「因應五方面威脅」的「17項策略」，不惜將台灣民眾推入險境的邪惡本質與陰險用心。（人民日報網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795842_1_20250315125000.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm)
-
----
-
-# 全國兩會｜港區人大代表團返港　吳秋北稱不負市民期望
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795319_1_20250311223811.jpg&q=80)
-  
-
-港區全國人大代表團出席全國人大會議後，由北京返抵本港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm)
 
 ---
