@@ -1,3 +1,27 @@
+# 中國成功發射四維高景三號02星
+
+![中國成功發射四維高景三號02星。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795860_1_20250315172109.jpg&q=90)
+  
+
+中國在酒泉衛星發射中心使用長征二號丁運載火箭，成功將四維高景三號02星發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm)
+
+---
+
 # 東部戰區：反分裂國家法是高懸台獨頭頂利劍　維護台海穩定基石
 
 ![東部戰區上將司令員林向陽在反分裂國家法實施20周年座談會上發言。（東部戰區微信官方賬號截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795853_3_20250315154807.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795371-20250312.htm)
-
----
-
-# 全國兩會︳中醫藥管理局讚港中醫醫院標準高　兩地合作前景廣闊
-
-![衞炳江表示，正密鑼緊鼓準備香港中醫醫院開幕，進度符合預期。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795361_2_20250312092301.jpg&q=75)
-  
-
-香港中醫醫院預計今年底起分階段投入服務，由浸會大學管理和營運。全國政協委員、國家中醫藥管理局局長余艷紅，在全國兩會期間接受本台訪問說，相信中醫醫院的設立，有利中醫藥推廣到世界各地，認為國家在中西醫結合治療探索得非常理想，內地與香港在應對慢性疾病和奇難雜症方面，展示廣闊合作前景。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795361-20250312.htm)
 
 ---

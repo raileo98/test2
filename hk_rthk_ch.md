@@ -1,3 +1,27 @@
+# 中國成功發射四維高景三號02星
+
+![中國成功發射四維高景三號02星。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795860_1_20250315172109.jpg&q=90)
+  
+
+中國在酒泉衛星發射中心使用長征二號丁運載火箭，成功將四維高景三號02星發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm)
+
+---
+
 # 黃色暴雨警告信號取消　大埔有冰雹報告
 
 ![黃色暴雨警告信號取消　大埔有冰雹報告](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795859_1_20250315163508.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795789-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795789-20250314.htm)
-
----
-
-# 美國3月消費者信心跌至近兩年半最低　通脹預期上升
-
-![美國密歇根大學3月美國消費者信心指數初值為57.9，創近兩年半以來最低，低過市場預期的63.1。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795786_1_20250314220845.jpg&q=65)
-  
-
-美國3月消費者信心驟降，通脹預期上升，因擔心美國總統特朗普關稅政策會刺激物價並削弱經濟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795786-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795786-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795786-20250314.htm)
 
 ---

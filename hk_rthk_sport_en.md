@@ -1,3 +1,27 @@
+# Norris on pole as McLaren lock out Melbourne front row
+
+![Lando Norris says he knows Sunday's race conditions will be completely different to those during Saturday's qualifying. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795861_1_20250315171554.jpg&q=90)
+  
+
+Lando Norris clinched pole position on Saturday for the season-opening Australian Grand Prix ahead of teammate Oscar Piastri as McLaren fired a warning shot to their rivals.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795861-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795861-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795861-20250315.htm)
+
+---
+
 # 'Rugby Sevens tourists opting for HK Island hotels'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795834_1_20250315121225.jpg&q=70)
@@ -1423,29 +1447,5 @@ Abraham Ancer is gearing up to defend his LIV Golf Hong Kong title this March, e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793456-20250227.htm)
-
----
-
-# Afghanistan knock England out of Champions Trophy
-
-![Afghanistan's Azmatullah Omarzai, left, celebrates with teammate Ibrahim Zadran after the win. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793419_1_20250227081610.jpg&q=85)
-  
-
-Opener Ibrahim Zadran's 177 and five wickets by Azmatullah Omarzai helped Afghanistan knock England out of the Champions Trophy with a thrilling eight-run victory.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm)
 
 ---
