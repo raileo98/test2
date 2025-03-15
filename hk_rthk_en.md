@@ -1,6 +1,6 @@
 # 'New private sector law must rollout gradually'
 
-![In his work report to the NPC, Premier Li Qiang vowed to stamp out 'neijuan' practices. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795827_1_20250315102842.jpg&q=90)
+![Last week, the nation’s top legislators introduced the "private economy promotion law" to create a fairer business environment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795827_2_20250315105255.jpg&q=85)
   
 
 An economist has said that the new law proposed by Beijing to protect and enhance the country's private sector could help address "grey areas" facing private business, but cautioned that it should be gradually rolled out to avoid stifling opportunities.
