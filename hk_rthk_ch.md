@@ -1,3 +1,26 @@
+# 港澳辦再轉載文章　質疑長和擬售巴拿馬運河港口有否考量國家利益
+
+  
+
+港澳辦連續第二次轉載《大公報》的評論文章，談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm)
+
+---
+
 # 施紀賢稱達成停火後西方國家將組「自願聯盟」助確保烏克蘭安全
 
 ![施紀賢強調，停火計劃必須與美國共同完成。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795882_1_20250315214928.jpg&q=90)

@@ -1,3 +1,26 @@
+# 港澳辦再轉載文章　質疑長和擬售巴拿馬運河港口有否考量國家利益
+
+  
+
+港澳辦連續第二次轉載《大公報》的評論文章，談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm)
+
+---
+
 # 短道速滑世錦賽在北京舉行　中國劉少昂1500米摘銅
 
 ![中國劉少昂在短道速滑世錦賽1500米比賽中摘銅。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795880_1_20250315210050.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm)
-
----
-
-# 中方回應美方關稅指貿易戰無贏家　 歐盟宣布反制美方措施
-
-![毛寧說美方做法嚴重違反世貿組織規則。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795424_3_20250312205151.jpg&q=90)
-  
-
-美國對進口鋼鋁徵收25%關稅的措施生效。在北京，外交部表示搞保護主義沒有出路，貿易戰及關稅戰無贏家，這是國際社會的普遍共識。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795424-20250312.htm)
 
 ---

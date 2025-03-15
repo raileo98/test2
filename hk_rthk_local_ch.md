@@ -1,3 +1,26 @@
+# 港澳辦再轉載文章　質疑長和擬售巴拿馬運河港口有否考量國家利益
+
+  
+
+港澳辦連續第二次轉載《大公報》的評論文章，談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm)
+
+---
+
 # 天水圍體育館在黃雨期間一度漏水　維修期間照常開放
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795708-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795708-20250314.htm)
-
----
-
-# 劉麥嘉軒：下年度總開支預算減2%　人工智能應付新工作量
-
-![劉麥嘉軒：下年度總開支預算減2%　人工智能應付新工作量](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795706_1_20250314130458.jpg&q=90)
-  
-
-積金局主席劉麥嘉軒表示，積金局認同及會積極響應政府提出加大力度控制經營開支，2025/26年度的總開支預算會減2%，同時會以人工智能及精簡程序應付新增的工作量。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm)
 
 ---
