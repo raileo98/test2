@@ -1,9 +1,33 @@
-# 泰國曼谷在建高速公路橋樑倒塌7人死亡
+# 石破茂稱將努力讓中國取消對日水產品進口限制
+
+![石破茂表示，將努力爭取中方取消限制進口日本水產品的措施。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795858_1_20250315161943.jpg&q=90)
+  
+
+日本首相石破茂表示，將努力爭取中方取消限制進口日本水產品的措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795858-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795858-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795858-20250315.htm)
+
+---
+
+# 泰國曼谷在建高速公路橋樑倒塌　據報7人死亡
 
 ![泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795851_1_20250315153125.jpg&q=90)
   
 
-泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌，至少7人死亡，27人受傷。
+泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌，據報至少7人死亡，27人受傷。
 
   
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm)
-
----
-
-# 王毅晤老撾外長　強調兩國合作打擊電詐賭博等跨境犯罪活動
-
-![外長王毅在北京同老撾外長通沙萬舉行會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795587_1_20250313183621.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在北京同老撾外長通沙萬舉行會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm)
 
 ---

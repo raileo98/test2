@@ -1,9 +1,33 @@
+# 'Provide mental health support to students early'
+
+![Lam Ching-choi says mental health issues must be addressed early in life. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795855_1_20250315154300.jpg&q=90)
+  
+
+Executive Councillor Lam Ching-choi sounded the alarm on youth mental health in Hong Kong on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795855-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795855-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795855-20250315.htm)
+
+---
+
 # 'Rugby Sevens tourists opting for HK Island hotels'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795834_1_20250315121225.jpg&q=70)
   
 
-The Hong Kong Rugby Sevens, one of the city's most prolific and highly anticipated events, may be hosted at a brand new location this year, but the retail and tourism sectors are still expecting a boost in spending.
+The Hong Kong Rugby Sevens, one of the city's most popular and highly anticipated events, will be hosted at a brand new location this year, but the retail and tourism sectors are still expecting a boost in spending.
 
   
 
@@ -1412,29 +1436,5 @@ Two patients' groups on Sunday gave their thoughts on the city's future medical 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794994-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794994-20250309.htm)
-
----
-
-# 'Non-recurrent social welfare spending can be reduced'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794974_1_20250309150059.jpg&q=90)
-  
-
-Secretary for Labour and Welfare Chris Sun said there's room for non-recurrent social welfare expenditure to go down.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm)
 
 ---

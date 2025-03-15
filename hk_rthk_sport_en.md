@@ -1,3 +1,27 @@
+# 'Rugby Sevens tourists opting for HK Island hotels'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795834_1_20250315121225.jpg&q=70)
+  
+
+The Hong Kong Rugby Sevens, one of the city's most popular and highly anticipated events, will be hosted at a brand new location this year, but the retail and tourism sectors are still expecting a boost in spending.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm)
+
+---
+
 # Sabalenka books Indian Wells title clash with Andreeva
 
 ![Belarus's Aryna Sabalenka shakes hands with USA's Madison Keys after winning their semi-final match at the Indian Wells Tennis. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795836_1_20250315123114.jpg&q=85)
@@ -1423,30 +1447,5 @@ Opener Ibrahim Zadran's 177 and five wickets by Azmatullah Omarzai helped Afghan
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793419-20250227.htm)
-
----
-
-# Liverpool beat Newcastle to extend lead; Arsenal held
-
-![Dominik Szoboszlai opened the scoring early for the Reds. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793414_1_20250227071410.jpg&q=90)
-![Arsenal's Gabriel Magalhães reacts after his side's goalless draw against Nottingham Forest. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793414_2_20250227071410.jpg&q=90)
-  
-
-Liverpool moved a giant step closer to the Premier League title with a ruthless 2-0 win against Newcastle, while Arsenal's challenge was left in tatters after a 0-0 draw against Nottingham Forest.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm](https://news.rthk.hk/rthk/en/component/k2/1793414-20250227.htm)
 
 ---

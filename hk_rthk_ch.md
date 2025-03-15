@@ -1,3 +1,27 @@
+# 石破茂稱將努力讓中國取消對日水產品進口限制
+
+![石破茂表示，將努力爭取中方取消限制進口日本水產品的措施。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795858_1_20250315161943.jpg&q=90)
+  
+
+日本首相石破茂表示，將努力爭取中方取消限制進口日本水產品的措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795858-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795858-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795858-20250315.htm)
+
+---
+
 # 天文台稱大埔有冰雹報告
 
   
@@ -92,12 +116,12 @@
 
 ---
 
-# 泰國曼谷在建高速公路橋樑倒塌7人死亡
+# 泰國曼谷在建高速公路橋樑倒塌　據報7人死亡
 
 ![泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795851_1_20250315153125.jpg&q=90)
   
 
-泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌，至少7人死亡，27人受傷。
+泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌，據報至少7人死亡，27人受傷。
 
   
 
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm)
-
----
-
-# 哈馬斯同意釋放一名有美國和以色列雙重國籍被扣押人員
-
-![哈馬斯同意釋放一名有美國和以色列雙重國籍被扣押人員](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795782_1_20250314214848.jpg&q=90)
-  
-
-巴勒斯坦武裝組織哈馬斯發表聲明說，已同意釋放一名有美國和以色列雙重國籍的被扣押人員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm)
 
 ---
