@@ -1,3 +1,27 @@
+# Deliveroo urged to spell out arrangements to consumers
+
+![The consumer watchdog is calling on the delivery platform to inform its customers about the handling of their personal data. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795857_1_20250315160814.jpg&q=80)
+  
+
+The Consumer Council has so far received 12 complaints involving around HK$5,000 in relation to the shutdown of the online food delivery platform, Deliveroo, in Hong Kong.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm)
+
+---
+
 # 'Provide mental health support to students early'
 
 ![Lam Ching-choi says mental health issues must be addressed early in life. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795855_1_20250315154300.jpg&q=90)
@@ -1412,29 +1436,5 @@ Seventeen large cruise ships will visit Hong Kong this month, according to Secre
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794998-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794998-20250309.htm)
-
----
-
-# 'Improve doctors' training at new medical school'
-
-![Two patients' groups unveil findings of their survey on Hong Kong's third medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794994_1_20250309165758.jpg&q=85)
-  
-
-Two patients' groups on Sunday gave their thoughts on the city's future medical school, hoping it would improve training for doctors and minimise the risk of mishaps.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794994-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794994-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794994-20250309.htm)
 
 ---

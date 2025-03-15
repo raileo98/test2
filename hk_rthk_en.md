@@ -1,3 +1,27 @@
+# Deliveroo urged to spell out arrangements to consumers
+
+![The consumer watchdog is calling on the delivery platform to inform its customers about the handling of their personal data. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795857_1_20250315160814.jpg&q=80)
+  
+
+The Consumer Council has so far received 12 complaints involving around HK$5,000 in relation to the shutdown of the online food delivery platform, Deliveroo, in Hong Kong.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm)
+
+---
+
 # 'Provide mental health support to students early'
 
 ![Lam Ching-choi says mental health issues must be addressed early in life. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795855_1_20250315154300.jpg&q=90)
@@ -1412,29 +1436,5 @@ The Hang Seng Index gained 16.02 points, or 0.07 per cent, to open at 23,616.33 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795517-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795517-20250313.htm)
-
----
-
-# China, EU vow countermeasures against US steel tariffs
-
-![The production line at a cold rolling plant at Baoshan Iron & Steel in Shanghai. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795512_1_20250313085844.jpg&q=90)
-  
-
-China and the EU vowed on Wednesday to strike back and defend their economic interests against sweeping new US steel and aluminium tariffs, moving Washington closer to an all-out trade war with two major partners.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm)
 
 ---
