@@ -1,3 +1,26 @@
+# 天文台：未來兩三小時局部地區會有狂風雷暴
+
+  
+
+天文台表示，一個強雷雨區正影響廣東西部沿岸，並在未來兩三小時可能影響珠江口一帶，局部地區會有狂風雷暴。市民請留意天氣變化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795845-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795845-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795845-20250315.htm)
+
+---
+
 # 古巴全國大停電　5個月以來第4次
 
 ![全國全國大範圍停電，首都哈瓦那街頭漆黑一片。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795844_1_20250315134013.jpg&q=90)
@@ -24,6 +47,7 @@
 
 # 控煙酒辦打擊非法吸食水煙巡查中區酒吧　發出兩張罰款通知書
 
+![控煙酒辦人員在酒吧進行執法工作。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795843_1_20250315141913.jpg&q=90)
   
 
 衞生署控煙酒辦昨晚派員到中區一間酒吧採取行動，向非法吸食水煙的人士，發出兩張定額罰款通知書。調查仍在進行，控煙酒辦會考慮向涉嫌協助及教唆吸煙罪行的酒吧經營者提出檢控，亦會將個案轉介酒牌局跟進。
@@ -71,6 +95,7 @@
 
 # 林正財稱公共醫療收費改革冀更精準減少浪費　並非為解決公共財困
 
+![林正財相信當局會按不同需要訂立收費模式，盡量做到共付概念。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795841_1_20250315141949.jpg&q=80)
   
 
 消息指，政府將於數星期內，交代公營醫療收費調整方案。行政會議成員林正財表示，以他理解，公共醫療收費改革並非為解決公共財政困難，而是希望更精準減少浪費。
@@ -1408,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm)
-
----
-
-# 日本陸上自衛隊一名軍官因訓練事故死亡
-
-![日本陸上自衛隊一名軍官因訓練事故死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795768_1_20250314191556.jpg&q=90)
-  
-
-日本長野縣松本市的陸上自衛隊松本駐屯地發生一宗訓練事故，一名軍官被從高處墮下的機關槍擊中身亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm)
 
 ---
