@@ -1,3 +1,27 @@
+# 'Rugby Sevens tourists opting for HK Island hotels'
+
+![The Hong Kong Rugby Sevens will be held at the Kai Tak Sport Park this year. File Photo Courtesy of the Hong Kong Tourism Board.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795834_1_20250315121225.jpg&q=70)
+  
+
+The Hong Kong Rugby Sevens, one of the city's most prolific and highly anticipated events, may be hosted at a brand new location this year, but the retail and tourism sectors are still expecting a boost in spending.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm)
+
+---
+
 # 'Govt can do more to promote internationalisation'
 
 ![Starry Lee says Hong Kong can develop ties with the Global South and Asean nations. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795830_1_20250315105816.jpg&q=85)
@@ -1412,29 +1436,5 @@ Secretary for Labour and Welfare Chris Sun said there's room for non-recurrent s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794974-20250309.htm)
-
----
-
-# Fleet taxis do not have to charge by meter: govt
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794966_1_20250309111958.jpg&q=80)
-  
-
-Commuters who reserve a ride from a licensed taxi fleet will have the option of negotiating a fare with the driver and not pay by the meter, according to the transport chief.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794966-20250309.htm)
 
 ---

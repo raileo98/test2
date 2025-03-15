@@ -1,3 +1,27 @@
+# 'Rugby Sevens tourists opting for HK Island hotels'
+
+![The Hong Kong Rugby Sevens will be held at the Kai Tak Sport Park this year. File Photo Courtesy of the Hong Kong Tourism Board.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795834_1_20250315121225.jpg&q=70)
+  
+
+The Hong Kong Rugby Sevens, one of the city's most prolific and highly anticipated events, may be hosted at a brand new location this year, but the retail and tourism sectors are still expecting a boost in spending.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm)
+
+---
+
 # Sabalenka books Indian Wells title clash with Andreeva
 
 ![Belarus's Aryna Sabalenka shakes hands with USA's Madison Keys after winning their semi-final match at the Indian Wells Tennis. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795836_1_20250315123114.jpg&q=85)
@@ -1412,29 +1436,5 @@ Former Philippine President Rodrigo Duterte was turned over on Wednesday to the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795510-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795510-20250313.htm)
-
----
-
-# Nasa launches SPHEREx to study universe's origin
-
-![The megaphone-shaped telescope will collect data on more than 450 million galaxies, as well as more than 100 million stars in the Milky Way during its planned two-year mission. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795461_1_20250312212209.jpg&q=85)
-  
-
-A Nasa telescope was launched into space from California on Tuesday for a mission to explore the origins of the universe and to search the Milky Way galaxy for hidden reservoirs of water, a key ingredient for life.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795461-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795461-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795461-20250313.htm)
 
 ---
