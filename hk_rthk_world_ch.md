@@ -1,3 +1,26 @@
+# 美法官頒令暫阻政府按外國敵人法驅逐部分外來人士　政府一方上訴
+
+  
+
+美國一名聯邦法官頒令，暫緩執行總統特朗普政府根據外國敵人法，驅逐部分外來人士的政策。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795899-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795899-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795899-20250316.htm)
+
+---
+
 # 美國惡劣天氣增至最少20死　多州面臨嚴重龍捲風威脅
 
 ![龍捲風導致密蘇里州大批房屋受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795896_1_20250316062240.jpg&q=80)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795647-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795647-20250314.htm)
-
----
-
-# 英國首相宣布將廢除英格蘭國民保健署
-
-![施紀賢表示，廢除英格蘭國民保健署可以減少官僚主義。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795646_1_20250314033605.jpg&q=90)
-  
-
-英國首相施紀賢宣布，將會廢除英格蘭醫療服務的執行機構英格蘭國民保健署。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795646-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795646-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795646-20250314.htm)
 
 ---
