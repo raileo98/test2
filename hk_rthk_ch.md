@@ -1,3 +1,27 @@
+# 澤連斯基據報組團　將代表烏克蘭參與任何可能出現和談
+
+![澤連斯基強調安全是建立可靠、持久和平的關鍵。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795891_1_20250316012257.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基據報已決定組建一個代表團，就結束烏俄衝突與合作伙伴磋商，成員包括總統辦公室主任葉爾馬克、外長瑟比加、國防部長烏梅羅夫等人，他們將代表烏方參與任何可能出現的和平談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm)
+
+---
+
 # 美國中南部多處龍捲風及沙塵暴　最少16死並損毀幾十座房屋
 
 ![密蘇里州有房屋被龍捲風摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795890_1_20250316004501.jpg&q=70)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm)
-
----
-
-# 英格蘭領隊杜曹：希望英軍能運用英超速度和力量
-
-![杜曹希望英格蘭能夠用到在英超的速度和力量，而不是模仿歐陸打法。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795816_1_20250315071424.jpg&q=90)
-  
-
-英格蘭領隊杜曹公布上任後第一份26人大軍名單，出戰稍後世界盃歐洲區兩場外圍賽。其中佐敦軒達臣和拉舒福特再度獲得徵召。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795816-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795816-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795816-20250315.htm)
 
 ---

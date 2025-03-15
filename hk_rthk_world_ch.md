@@ -1,3 +1,27 @@
+# 澤連斯基據報組團　將代表烏克蘭參與任何可能出現和談
+
+![澤連斯基強調安全是建立可靠、持久和平的關鍵。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795891_1_20250316012257.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基據報已決定組建一個代表團，就結束烏俄衝突與合作伙伴磋商，成員包括總統辦公室主任葉爾馬克、外長瑟比加、國防部長烏梅羅夫等人，他們將代表烏方參與任何可能出現的和平談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm)
+
+---
+
 # 美國中南部多處龍捲風及沙塵暴　最少16死並損毀幾十座房屋
 
 ![密蘇里州有房屋被龍捲風摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795890_1_20250316004501.jpg&q=70)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795642-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795642-20250314.htm)
-
----
-
-# 馬朝旭晤伊朗副外長　指續為推動政治解決伊核問題發揮建設作用
-
-![馬朝旭與伊朗副外長加里布阿巴迪會談。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795640_1_20250314012232.jpg&q=90)
-  
-
-在北京，外交部副部長馬朝旭與出席伊朗核問題中俄伊北京會晤的伊朗副外長加里布阿巴迪會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm)
 
 ---
