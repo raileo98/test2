@@ -1,3 +1,27 @@
+# 黃色暴雨警告信號取消
+
+![黃色暴雨警告信號取消](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795859_1_20250315163508.jpg&q=90)
+  
+
+天文台在下午4時35分取消黃色暴雨警告信號。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795859-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795859-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795859-20250315.htm)
+
+---
+
 # 石破茂稱將努力讓中國取消對日水產品進口限制
 
 ![石破茂表示，將努力爭取中方取消限制進口日本水產品的措施。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795858_1_20250315161943.jpg&q=90)
@@ -24,6 +48,7 @@
 
 # 天文台稱大埔有冰雹報告
 
+![天文台表示，在下午3時20分左右，大埔有冰雹報告。（天文台網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795856_1_20250315163236.jpg&q=90)
   
 
 黃色暴雨警告信號和雷暴警告現正生效。天文台表示，在下午3時20分左右，大埔有冰雹報告，預料本港在短期內可能繼續受冰雹影響。
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795786-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795786-20250314.htm)
-
----
-
-# 杜特爾特以視像方式出席海牙國際刑事法院首次聆訊
-
-![杜特爾特以視像方式出席海牙國際刑事法院首次聆訊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795784_1_20250314223639.jpg&q=90)
-  
-
-涉嫌違反人權的菲律賓前總統杜特爾特，以視像方式出席荷蘭海牙國際刑事法院首次聆訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm)
 
 ---

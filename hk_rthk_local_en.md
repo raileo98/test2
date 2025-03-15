@@ -24,7 +24,7 @@ The Consumer Council has so far received 12 complaints involving around HK$5,000
 
 # 'Provide mental health support to students early'
 
-![Lam Ching-choi says mental health issues must be addressed early in life. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795855_1_20250315154300.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795855_1_20250315154300.jpg&q=90)
   
 
 Executive Councillor Lam Ching-choi sounded the alarm on youth mental health in Hong Kong on Saturday.
@@ -72,7 +72,7 @@ The Hong Kong Rugby Sevens, one of the city's most popular and highly anticipate
 
 # 'Govt can do more to promote internationalisation'
 
-![Starry Lee says Hong Kong can develop ties with the Global South and Asean nations. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795830_1_20250315105816.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795830_1_20250315105816.jpg&q=85)
   
 
 Hong Kong’s sole delegate to the nation’s top legislature, Starry Lee, on Saturday called on the government to continue to coordinate with other major cities around the world to further strengthen the SAR's position across fields.
