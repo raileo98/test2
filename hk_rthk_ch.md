@@ -1,3 +1,51 @@
+# 中國駐加使館斥七國集團粗暴干涉中國內政　已提嚴正交涉
+
+![中國駐加拿大使館表示，七國集團外長會議會後聯合聲明，無視客觀事實和中方嚴正立場，中方已向加方提出嚴正交涉。 （中國駐加拿大使館網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795822_1_20250315090144.jpg&q=90)
+  
+
+中國駐加拿大使館批評，七國集團外長會議結束後發布的聯合聲明，再次老調重彈，無視客觀事實和中方嚴正立場，粗暴干涉中國內政，惡意污衊抹黑中國。中方對此強烈不滿、堅決反對，已向加方提出嚴正交涉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795822-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795822-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795822-20250315.htm)
+
+---
+
+# 格陵蘭政黨領袖發表聯合聲明譴責特朗普控制格陵蘭島言論
+
+![格陵蘭島所有政黨領袖發表聯合聲明，表明拒絕接受關於吞併和控制格陵蘭島的反覆言論。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795821_1_20250315085333.jpg&q=85)
+  
+
+丹麥自治領地格陵蘭所有政黨領袖，譴責美國總統特朗普關於控制格陵蘭島的言論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795821-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795821-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795821-20250315.htm)
+
+---
+
 # 《環看天下》：美國部分人憂慮特朗普政府動用稅款儲備虛擬資產
 
 ![特朗普與薩克斯在白宮出席首次加密貨幣峰會。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795819_1_20250315080254.jpg&q=90)
@@ -51,7 +99,7 @@
 ![「龍」飛船由獵鷹9號運載火箭搭戴，從佛羅里達州甘迺迪太空中心發射升空。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795817_1_20250315073751.jpg&q=90)
   
 
-美國太空探索技術公司SpaceX的「龍」飛船從佛羅里達州發射升空，搭載4名太空人飛往國際太空站，並會接回滯留太空站9個月的兩名太空人返回地球。
+美國太空探索技術公司SpaceX的「龍」飛船從佛羅里達州發射升空，搭載4名太空人飛往國際太空站，並會接回滯留太空站9個月的兩名美國太空人返回地球。
 
   
 
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm)
-
----
-
-# 發改委經濟研究所所長稱今年中國經濟政策著力點轉向惠民生促消費
-
-![郭春麗表示，隨著中國擴大消費的政策加碼，相信今年居民消費將明顯回升。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795750_1_20250314182331.jpg&q=90)
-  
-
-在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，今年中國的經濟政策著力點，會轉向「惠民生、促消費」，以消費升級引領產業轉型升級，而且固定投資保持良好增長等，相信今年中國經濟增長可達5%左右的目標，其他目標可在增長支撐下實現。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm)
-
----
-
-# 本港二手樓價按周跌近1%　創21周新低
-
-![代理：本港二手樓價按周跌逾0.7%，但九龍區樓價按周升近2%，結束3周連跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795744_1_20250314170102.jpg&q=80)
-  
-
-反映本港二手樓價走勢的中原城市領先指數（CCL）最新報136.48，按周跌逾0.7%，創21周新低，繼續處於逾8年半低位。樓價今年暫時累計跌逾0.8%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795744-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795744-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795744-20250314.htm)
 
 ---

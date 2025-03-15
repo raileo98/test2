@@ -1,3 +1,27 @@
+# 中國駐加使館斥七國集團粗暴干涉中國內政　已提嚴正交涉
+
+![中國駐加拿大使館表示，七國集團外長會議會後聯合聲明，無視客觀事實和中方嚴正立場，中方已向加方提出嚴正交涉。 （中國駐加拿大使館網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795822_1_20250315090144.jpg&q=90)
+  
+
+中國駐加拿大使館批評，七國集團外長會議結束後發布的聯合聲明，再次老調重彈，無視客觀事實和中方嚴正立場，粗暴干涉中國內政，惡意污衊抹黑中國。中方對此強烈不滿、堅決反對，已向加方提出嚴正交涉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795822-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795822-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795822-20250315.htm)
+
+---
+
 # 王毅：中東問題已夠多　不應再製造新的緊張甚至危機
 
 ![王毅在北京會見俄羅斯副外長里亞布科夫及伊朗副外長加里布阿巴迪。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795797_1_20250315012635.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm)
-
----
-
-# 全國兩會｜中總稱中央高度重視香港角色　香港應發揮好獨特優勢
-
-![蔡冠深指，香港應致力成為國家金融強國的關鍵支點，期望國家支持香港豐富離岸人民幣市場投資產品種類。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795307_1_20250311204458.jpg&q=80)
-  
-
-為期7日的十四屆全國人大三次會議閉幕，香港中華總商會表示，今年兩會多次提及香港，充份體現中央對香港角色的高度重視，為香港長遠發展注入強心針，帶來多元發展新機遇，香港要更好發揮「內聯外通」的獨特優勢和功能，促進對外聯繫、大力招商引才引資，為國家新質生產力和高質量發展增添動能。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795307-20250311.htm)
 
 ---
