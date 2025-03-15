@@ -1,9 +1,9 @@
-# 黃色暴雨警告信號取消
+# 黃色暴雨警告信號取消　大埔有冰雹報告
 
-![黃色暴雨警告信號取消](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795859_1_20250315163508.jpg&q=90)
+![黃色暴雨警告信號取消　大埔有冰雹報告](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795859_1_20250315163508.jpg&q=90)
   
 
-天文台在下午4時35分取消黃色暴雨警告信號。
+黃色暴雨警告信號在下午4時35分取消。另外，雷暴警告仍然生效。
 
   
 
