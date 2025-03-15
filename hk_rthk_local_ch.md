@@ -1,5 +1,29 @@
+# 鄧炳強稱定會盡力將餘下被禁錮東南亞港人帶回香港
+
+  
+
+6名被誘騙到緬甸園區從事非法工作的港人早前回港。當局上星期表示，會繼續積極跟進餘下3宗仍未返港的相關求助個案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm)
+
+---
+
 # 暴雨警告生效　勞工處提醒進行電力工作時須確保安全
 
+![勞工處提醒僱主及承建商，當僱員在進行電力工作或處理電力作業裝置時，須採取所需的工作安排及適當安全措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795852_1_20250315152952.jpg&q=80)
   
 
 勞工處表示，鑑於天文台已發出暴雨警告，提醒僱主及承建商，當僱員在進行電力工作或處理電力作業裝置時，須採取所需的工作安排及適當安全措施，以保障僱員的安全。
@@ -1410,29 +1434,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795694-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795694-20250314.htm)
-
----
-
-# 港股升幅擴大至逾500點　一度升穿24000點
-
-![恒生指數一度重上24000點以上，曾見24003點，較早時報23978點，升516點，升幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795693_1_20250314113407.jpg&q=75)
-  
-
-港股高開後升幅持續擴大，一度重上24000點以上，恒生指數曾見24003點，較早時報23978點，升516點，升幅2.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795693-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795693-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795693-20250314.htm)
 
 ---

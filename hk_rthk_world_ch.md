@@ -1,6 +1,10 @@
 # 泰國曼谷在建高速公路橋樑倒塌7人死亡
 
+![泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795851_1_20250315153125.jpg&q=90)
   
+
+泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌，至少7人死亡，27人受傷。
+
   
 
 

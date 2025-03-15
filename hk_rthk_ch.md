@@ -1,5 +1,29 @@
+# 鄧炳強稱定會盡力將餘下被禁錮東南亞港人帶回香港
+
+  
+
+6名被誘騙到緬甸園區從事非法工作的港人早前回港。當局上星期表示，會繼續積極跟進餘下3宗仍未返港的相關求助個案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm)
+
+---
+
 # 暴雨警告生效　勞工處提醒進行電力工作時須確保安全
 
+![勞工處提醒僱主及承建商，當僱員在進行電力工作或處理電力作業裝置時，須採取所需的工作安排及適當安全措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795852_1_20250315152952.jpg&q=80)
   
 
 勞工處表示，鑑於天文台已發出暴雨警告，提醒僱主及承建商，當僱員在進行電力工作或處理電力作業裝置時，須採取所需的工作安排及適當安全措施，以保障僱員的安全。
@@ -23,7 +47,11 @@
 
 # 泰國曼谷在建高速公路橋樑倒塌7人死亡
 
+![泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795851_1_20250315153125.jpg&q=90)
   
+
+泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌，至少7人死亡，27人受傷。
+
   
 
 
@@ -1406,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795778-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795778-20250314.htm)
-
----
-
-# 兩元優惠調整　孫玉菡：不想老友記搭程車都心掛掛
-
-![財政預算案提出「兩元優惠計劃」調整方案，包括新增每月240程限制，10元以上改為全額車費「兩折」。（勞工及福利局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795776_1_20250314213016.jpg&q=90)
-  
-
-新一份財政預算案提出「兩元優惠計劃」調整方案，包括新增每月240程限制，10元以上改為全額車費「兩折」。勞工及福利局局長孫玉菡表示，在250萬受惠人士中，只有約360人每月優惠車程超出240程，他說假設長者每天兩度出行，即使每程都要轉車，8程車仍足以應付；而且上限以每月計算，偶有乘車超過8程的日子仍可拉上補下。他強調，政府在設定優惠車程上限時採取寬鬆的做法，就是不想老友記「搭程車都心掛掛」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm)
 
 ---
