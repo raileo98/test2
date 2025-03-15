@@ -1,3 +1,46 @@
+# 黃色暴雨警告信號生效
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm)
+
+---
+
+# 社署嘉許禮20周年　杜永恒稱得獎者展現勇氣及堅毅不屈精神
+
+  
+
+截至去年底，共有788名兒童及青少年受社會福利署署長監護，有44名接受社署署長監護及東華三院住宿照顧服務的兒童及青少年，分別獲頒「最佳成就獎」或「最佳進步獎」。社署署長杜永恒在嘉許禮致辭時表示，嘉許禮踏入20周年，得獎者面對挑戰時展現勇氣和堅毅不屈的精神，是其他兒童及青少年的良好榜樣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm)
+
+---
+
 # 天文台預料本港短期內可能受冰雹影響
 
   
@@ -1385,53 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795774-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795774-20250314.htm)
-
----
-
-# 沙特增4宗中東呼吸綜合症個案　防護中心籲勿安排旅客騎單峰駱駝
-
-![中心建議營辦中東團的旅行社，不應安排旅客騎單峰駱駝或參與直接接觸單峰駱駝的活動。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795773_2_20250314204906.jpg&q=90)
-  
-
-衞生防護中心表示，根據世界衞生組織通報，沙特阿拉伯新增4宗中東呼吸綜合症個案，其中一人曾間接接觸單峰駱駝及未經處理的駱駝奶。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795773-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795773-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795773-20250314.htm)
-
----
-
-# 釜山航空客機1月底起火事件　調查指或因乘客攜帶充電寶起火導致
-
-![釜山航空客機1月底起火事件　調查指或因乘客攜帶充電寶起火導致](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795772_1_20250314203231.jpg&q=90)
-  
-
-南韓釜山航空1月底一架原定從釜山飛往香港的客機，在準備起飛時起火事件，南韓國土交通部航空鐵路事故調查委員會說，當局的調查分析結果顯示，乘客攜帶的充電寶起火導致飛機發生火警的可能性較大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm)
 
 ---

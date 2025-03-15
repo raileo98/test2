@@ -1,3 +1,46 @@
+# 黃色暴雨警告信號生效
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm)
+
+---
+
+# 社署嘉許禮20周年　杜永恒稱得獎者展現勇氣及堅毅不屈精神
+
+  
+
+截至去年底，共有788名兒童及青少年受社會福利署署長監護，有44名接受社署署長監護及東華三院住宿照顧服務的兒童及青少年，分別獲頒「最佳成就獎」或「最佳進步獎」。社署署長杜永恒在嘉許禮致辭時表示，嘉許禮踏入20周年，得獎者面對挑戰時展現勇氣和堅毅不屈的精神，是其他兒童及青少年的良好榜樣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm)
+
+---
+
 # 天文台預料本港短期內可能受冰雹影響
 
   
@@ -1385,53 +1428,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795691-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795691-20250314.htm)
-
----
-
-# 多名議員質疑公屋入息及資產上調後變相鼓勵申請者「躺平」
-
-![李佩詩強調政府絕不鼓勵市民「躺平」，檢討機制的方程式已包括及反映法定最低工資升幅情況。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795689_1_20250314113317.jpg&q=90)
-  
-
-立法會討論2025/26年度公屋入息和資產限額平均上調1.7%的建議。多名議員不滿公屋入息和資產限額的升幅，比今年5月起最低工資上調幅度低，變相是鼓勵申請者「躺平」，要求房屋署檢視現有檢討機制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795689-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795689-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795689-20250314.htm)
-
----
-
-# 當局計劃容許物理治療師及職業治療師等接受中醫師轉介病人
-
-![當局計劃容許輔助醫療專業人員，包括物理治療師、職業治療師、放射技師及醫務化驗師，接受中醫師轉介病人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795687_1_20250314113246.jpg&q=80)
-  
-
-政府今年底將發表《中醫藥發展藍圖》，以勾劃未來的發展路向，包括加強中醫藥在基層醫療的角色、進一步發揮中醫藥及中西醫協作的療效優勢，並檢視現行規管制度等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795687-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795687-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795687-20250314.htm)
 
 ---
