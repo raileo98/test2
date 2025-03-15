@@ -1,3 +1,27 @@
+# Judge bars deportations after Trump's invasion claim
+
+![The ruling came hours after Trump claimed the Venezuelan gang Tren de Aragua was invading the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795902_1_20250316073140.jpg&q=90)
+  
+
+A federal judge on Saturday barred the administration of President Donald Trump from deportations under an 18th century law that Trump invoked just hours earlier asserting the United States was being invaded by a Venezuelan gang and that he had new powers to remove its members from the country.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795902-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795902-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795902-20250316.htm)
+
+---
+
 # Gaza civil defence says Israeli strikes kill 9
 
 ![Hamas says the Israeli strikes on Beit Lahia violate the Gaza truce deal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795885_1_20250315222731.jpg&q=80)
@@ -1411,29 +1435,5 @@ US President Donald Trump declined on Sunday to rule out the possibility that th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm)
-
----
-
-# Mark Carney to succeed Trudeau as Canadian PM
-
-![During the campaign, Carney said he supported dollar-for-dollar retaliatory tariffs against the United States. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795033_1_20250310065447.jpg&q=90)
-  
-
-Former central banker Mark Carney won the race to become leader of Canada's ruling Liberal Party and will succeed Justin Trudeau as prime minister, official results showed on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795033-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795033-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795033-20250310.htm)
 
 ---

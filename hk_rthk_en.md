@@ -1,3 +1,27 @@
+# Judge bars deportations after Trump's invasion claim
+
+![The ruling came hours after Trump claimed the Venezuelan gang Tren de Aragua was invading the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795902_1_20250316073140.jpg&q=90)
+  
+
+A federal judge on Saturday barred the administration of President Donald Trump from deportations under an 18th century law that Trump invoked just hours earlier asserting the United States was being invaded by a Venezuelan gang and that he had new powers to remove its members from the country.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795902-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795902-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795902-20250316.htm)
+
+---
+
 # France beat Scotland to claim Six Nations
 
 ![France's scrum-half Antoine Dupont (centre) holds the trophy while celebrating. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795897_1_20250316063919.jpg&q=85)
@@ -1412,29 +1436,5 @@ China called on Thursday for a "diplomatic" resolution to the Iran nuclear issue
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795572-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795572-20250313.htm)
-
----
-
-# Govt urged to tackle illegal parking in public estates
-
-![The Office of the Ombudsman says it has found long-term cases of illegal parking in some public estates. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795562_1_20250313152553.jpg&q=60)
-  
-
-The Office of the Ombudsman on Thursday urged the Housing Department to step up efforts to tackle illegal parking in public housing estates.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795562-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795562-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795562-20250313.htm)
 
 ---
