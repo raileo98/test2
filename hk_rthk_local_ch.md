@@ -1,3 +1,27 @@
+# 工業傷亡權益會促改善溝通確保重要天氣資訊可有效傳達吊船操作員
+
+![事發時操作員連人帶船於半空被吹到左搖右擺。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795888_1_20250316001759.jpg&q=90)
+  
+
+工業傷亡權益會要求房署及相關公司檢討現時工作指引，包括改善與吊船操作員的溝通，確保重要天氣資訊可有效傳達到操作員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795888-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795888-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795888-20250316.htm)
+
+---
+
 # 警方檢約40粒含太空油毒品電子煙彈　男子涉販毒落網
 
 ![警方在新蒲崗一個住宅單位外截查涉案男子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795887_1_20250315234840.jpg&q=60)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm)
-
----
-
-# 勞工處屯門與元朗就業中心下月起合併
-
-![門就業中心將由下月1日起與元朗就業中心合併。合併後新界屯門青棉徑3號好勝大廈地下的就業中心會易名為新界西就業中心。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795716_1_20250314145648.jpg&q=80)
-  
-
-勞工處公布為更有效運用公共資源，屯門就業中心將由下月1日起與元朗就業中心合併。合併後新界屯門青棉徑3號好勝大廈地下的就業中心會易名為新界西就業中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795716-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795716-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795716-20250314.htm)
 
 ---
