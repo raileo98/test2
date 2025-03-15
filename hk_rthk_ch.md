@@ -1,3 +1,27 @@
+# 德甲拜仁慕尼黑被柏林聯逼和1:1
+
+![德甲拜仁慕尼黑與柏林聯不分勝負。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795901_1_20250316072256.jpg&q=90)
+  
+
+德國甲組足球聯賽，排榜首的拜仁慕尼黑作客被柏林聯逼和1:1。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795901-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795901-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795901-20250316.htm)
+
+---
+
 # 西甲皇馬2:1反勝維拉利爾　麥巴比建兩功
 
 ![麥巴比梅開二度，協助皇馬反勝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795900_1_20250316070210.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795825-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795825-20250315.htm)
-
----
-
-# 古巴電網故障　全國大範圍停電
-
-![古巴去年12月亦曾發生大範停電。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795824_1_20250315091846.jpg&q=90)
-  
-
-古巴國家電網發生故障，導致全國大範圍停電。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795824-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795824-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795824-20250315.htm)
 
 ---
