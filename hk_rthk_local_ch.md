@@ -1,7 +1,7 @@
 # 香港藝術中心於首爾辦漫畫電影展覽　推廣香港文化與旅遊
 
+![圖示香港插畫家Pearl Law的作品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795886_3_20250315230128.jpg&q=85)
 ![歐慧心（中）在南韓首爾仁寺藝術中心舉行的《影‧畫　香港地》香港漫畫 x 電影展覽業界酒會上與展覽主辦方及一眾參與藝術家合照。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795886_1_20250315225842.jpg&q=85)
-![歐慧心出席韓國首爾仁寺藝術中心舉行的《影‧畫　香港地》香港漫畫 x 電影展覽業界酒會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795886_2_20250315225842.jpg&q=90)
   
 
 香港藝術中心「動漫基地」在南韓首爾舉辦漫畫電影展覽，展期至本月30日，免費入場。
