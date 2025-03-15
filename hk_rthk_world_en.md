@@ -1,3 +1,27 @@
+# Putin will have to 'come to table,' UK PM tells summit
+
+![Keir Starmer and French President Emmanuel Macron have been leading efforts to assemble a so-called "coalition of the willing."  Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795873_1_20250315201758.jpg&q=90)
+  
+
+UK premier Keir Starmer said on Saturday that Russian President Vladimir Putin would "sooner or later" have to "come to the table" as he opened a virtual summit to drum up support for a coalition willing to protect any eventual ceasefire in Ukraine.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm)
+
+---
+
 # Cuba suffers fourth nationwide blackout in five months
 
 ![People gather in a neighbourhood during a national electrical grid collapse in Havana, Cuba. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795833_1_20250315115602.jpg&q=90)
@@ -1411,29 +1435,5 @@ Pope Francis was doing physiotherapy on Saturday after passing a quiet night, th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794926-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794926-20250308.htm)
-
----
-
-# OIC adopts Gaza counter-proposal by Arab League
-
-![The OIC's decision came at an emergency meeting in Jeddah, Saudi Arabia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794923_1_20250308192050.jpg&q=85)
-  
-
-The Organisation of Islamic Cooperation (OIC) formally adopted early on Saturday an Arab League counter-proposal to US President Donald Trump's plan to take over Gaza and displace its residents, calling on the international community to support the regional initiative.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794923-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794923-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794923-20250308.htm)
 
 ---

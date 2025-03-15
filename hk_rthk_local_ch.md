@@ -1,3 +1,50 @@
+# 天水圍體育館在黃雨期間一度漏水　維修期間照常開放
+
+  
+
+天文台於下午3時發出今年首個黃色暴雨警告信號，到下午4時35分取消。期間多處地區錄得大約20毫米雨量，天水圍體育館期間一度漏水。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm)
+
+---
+
+# 甯漢豪：青協將昔日粉嶺裁判法院活化　為歷史建築賦予新生命
+
+![甯漢豪（中）表示，香港青年協會將昔日的粉嶺裁判法院，活化為培育青年領袖的學院。（發展局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795876_1_20250315203255.jpg&q=90)
+  
+
+發展局局長甯漢豪表示，香港青年協會將昔日的粉嶺裁判法院，活化為培育青年領袖的學院，認為是為歷史建築賦予新生命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm)
+
+---
+
 # 天水圍有工人吊船上於半空被吹到左搖右擺其後獲救
 
 ![一名吊船工人下午3時許在外牆工作期間遇到大風雨，連人帶船於半空被吹到左搖右擺、搖搖欲墜。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795869_1_20250315192438.jpg&q=90)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm)
-
----
-
-# 盧寵茂：正考慮公營門診病人共付電腦掃描及磁力共振等檢查費用
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795705_2_20250314212749.jpg&q=80)
-  
-
-消息指，政府將於未來數星期內，交代公營醫療收費調整方案。醫務衞生局局長盧寵茂表示，正考慮電腦掃描及磁力共振等複雜的影像檢查，需要市民按項目共付費用，但強調只適用於門診病人，急症及住院病人需要有關服務仍維持免費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795705-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795705-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795705-20250314.htm)
-
----
-
-# 康體通本月17日至20日每晚11時至翌日早上6時暫停服務
-
-![SmartPLAY康體通將於本月17日至20日期間每晚11時至翌日上午6時暫停服務，以便進行設備提升工程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795704_1_20250314145718.jpg&q=80)
-  
-
-康文署宣布為提升服務質素，SmartPLAY康體通將於本月17日至20日期間每晚11時至翌日上午6時暫停服務，以便進行設備提升工程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795704-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795704-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795704-20250314.htm)
 
 ---

@@ -1,3 +1,98 @@
+# 天水圍體育館在黃雨期間一度漏水　維修期間照常開放
+
+  
+
+天文台於下午3時發出今年首個黃色暴雨警告信號，到下午4時35分取消。期間多處地區錄得大約20毫米雨量，天水圍體育館期間一度漏水。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm)
+
+---
+
+# 法國財長稱美歐貿易爭端將升級
+
+![隆巴爾說，美歐間貿易爭端將進入升級階段。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795875_1_20250315202727.jpg&q=90)
+  
+
+針對美國總統特朗普威脅對歐盟酒類產品徵收200%關稅的言論，法國經濟與財政部長隆巴爾表示，美歐間貿易爭端將進入升級階段。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795875-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795875-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795875-20250315.htm)
+
+---
+
+# 甯漢豪：青協將昔日粉嶺裁判法院活化　為歷史建築賦予新生命
+
+![甯漢豪（中）表示，香港青年協會將昔日的粉嶺裁判法院，活化為培育青年領袖的學院。（發展局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795876_1_20250315203255.jpg&q=90)
+  
+
+發展局局長甯漢豪表示，香港青年協會將昔日的粉嶺裁判法院，活化為培育青年領袖的學院，認為是為歷史建築賦予新生命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm)
+
+---
+
+# 澤連斯基：庫爾斯克地區烏軍沒被包圍並繼續牽制俄軍
+
+![澤連斯基說，在庫爾斯克地區的烏軍沒有被包圍，烏軍的作戰行動仍在進行。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795874_1_20250315201903.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基說，他聽取了烏克蘭武裝部隊總司令瑟爾斯基關於戰況的報告，在庫爾斯克地區的烏軍沒有被包圍，烏軍的作戰行動仍在進行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795874-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795874-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795874-20250315.htm)
+
+---
+
 # 俄羅斯國防部稱又收復庫爾斯克州兩個地方
 
 ![普京在聯邦安全會議常務委員視像會議上表示，如果烏軍放低武器投降，俄方會保證他們的安全。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795872_1_20250315195155.jpg&q=90)

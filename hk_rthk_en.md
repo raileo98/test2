@@ -1,3 +1,27 @@
+# Putin will have to 'come to table,' UK PM tells summit
+
+![Keir Starmer and French President Emmanuel Macron have been leading efforts to assemble a so-called "coalition of the willing."  Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795873_1_20250315201758.jpg&q=90)
+  
+
+UK premier Keir Starmer said on Saturday that Russian President Vladimir Putin would "sooner or later" have to "come to the table" as he opened a virtual summit to drum up support for a coalition willing to protect any eventual ceasefire in Ukraine.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm)
+
+---
+
 # Three rescued from gondola platform amid high winds
 
 ![A video circulating online shows the platform swaying from side to side during the incident.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795868_1_20250315182730.jpg&q=90)
@@ -1412,29 +1436,5 @@ South Korean military investigators charged two air force pilots on Thursday wit
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm)
-
----
-
-# Macau girl injured in Taiwan mall blast dies
-
-![The suspected gas explosion on February 13 hit the food court of the Shin Kong Mitsukoshi department store in Taichung. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795531_1_20250313114111.jpg&q=90)
-  
-
-Macau health authorities on Thursday said that a two-year-old girl from the SAR who was seriously injured in a shopping mall blast in Taichung has died.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795531-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795531-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795531-20250313.htm)
 
 ---
