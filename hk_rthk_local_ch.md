@@ -1,3 +1,26 @@
+# 暴雨警告生效　勞工處提醒進行電力工作時須確保安全
+
+  
+
+勞工處表示，鑑於天文台已發出暴雨警告，提醒僱主及承建商，當僱員在進行電力工作或處理電力作業裝置時，須採取所需的工作安排及適當安全措施，以保障僱員的安全。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm)
+
+---
+
 # 黃色暴雨警告信號生效　天文台料本港短期內或受冰雹影響
 
 ![黃色暴雨警告信號生效　天文台料本港短期內或受冰雹影響](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795850_1_20250315150428.jpg&q=90)
@@ -1411,29 +1434,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795693-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795693-20250314.htm)
-
----
-
-# 香港花卉展維園開幕　羅淑佩：主題花秋英與拚搏運動員有共同特點
-
-![羅淑佩(左)表示，今屆花展有超過80個機構參展，當中包括30多個不同國家和地區的團體和領事館，展出精心設計的圓林造景及花藝擺設。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795691_1_20250314115152.jpg&q=85)
-  
-
-香港花卉展今日起一連10日在維園舉行，主題花是秋英。文化體育及旅遊局局長羅淑佩出席開幕禮致辭時表示，秋英生命力旺盛，英姿煥發，與充滿活力和奮力拚搏的運動員有共同特點。今年適逢粵港澳三地攜手主辦第15屆全國運動會以及全國第12屆殘疾人運動會暨第9屆特殊奧林匹克運動會賽事，花展特別設置推廣展覽及專題特色園圃，介紹由香港承辦的9個比賽項目，讓市民在賞花之餘，加深對全運會及殘特奧會的認識。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795691-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795691-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795691-20250314.htm)
 
 ---

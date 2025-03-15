@@ -1,3 +1,46 @@
+# 暴雨警告生效　勞工處提醒進行電力工作時須確保安全
+
+  
+
+勞工處表示，鑑於天文台已發出暴雨警告，提醒僱主及承建商，當僱員在進行電力工作或處理電力作業裝置時，須採取所需的工作安排及適當安全措施，以保障僱員的安全。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm)
+
+---
+
+# 泰國曼谷在建高速公路橋樑倒塌7人死亡
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795851-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795851-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795851-20250315.htm)
+
+---
+
 # 黃色暴雨警告信號生效　天文台料本港短期內或受冰雹影響
 
 ![黃色暴雨警告信號生效　天文台料本港短期內或受冰雹影響](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795850_1_20250315150428.jpg&q=90)
@@ -1387,53 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm)
-
----
-
-# 碧桂園服務料去年多賺逾4倍
-
-![碧桂園服務預計，去年度歸屬於公司股東的淨利潤介乎約16億至20億元人民幣，按年升約4.5至5.8倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795775_1_20250314212347.jpg&q=90)
-  
-
-碧桂園服務預計，去年度歸屬於公司股東的淨利潤介乎約16億至20億元人民幣，按年升約4.5至5.8倍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795775-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795775-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795775-20250314.htm)
-
----
-
-# 廣華醫院一名護士遇襲受傷　警拘一名懷疑涉案探病男子
-
-![廣華醫院表示非常關注事件，向受傷護士致以深切慰問及提供所需支援。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795774_2_20250314204218.jpg&q=85)
-  
-
-廣華醫院一名護士昨日下午在病房工作期間遇襲受傷，病房職員和保安人員到場支援及報警求助，並將受傷的護士送往急症室治理。護士手臂受傷，經治療後已經出院。警方其後在醫院拘捕一名探病男子，懷疑與事件有關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795774-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795774-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795774-20250314.htm)
 
 ---
