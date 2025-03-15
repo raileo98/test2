@@ -1,3 +1,27 @@
+# 美國惡劣天氣增至最少20死　多州面臨嚴重龍捲風威脅
+
+![龍捲風導致密蘇里州大批房屋受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795896_1_20250316062240.jpg&q=80)
+  
+
+美國中部及南部廣泛地區受惡劣天氣影響，增至最少20人死亡，多人受傷，多座建築物損毀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm)
+
+---
+
 # 特朗普下令攻擊也門胡塞武裝　指不能容忍襲擊美國船隻
 
 ![特朗普警告胡塞武裝必須停止攻擊行為。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795894_1_20250316033308.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795821-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795821-20250315.htm)
-
----
-
-# 《環看天下》：美國部分人憂慮特朗普政府動用稅款儲備虛擬資產
-
-![特朗普與薩克斯在白宮出席首次加密貨幣峰會。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795819_1_20250315080254.jpg&q=90)
-  
-
-美國總統特朗普第二次執政後落實競選承諾，推動虛擬資產市場發展。他近期發布行政命令，設立戰略比特幣儲備，又在白宮舉行第一次加密貨幣峰會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795819-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795819-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795819-20250315.htm)
 
 ---

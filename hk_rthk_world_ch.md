@@ -1,3 +1,27 @@
+# 美國惡劣天氣增至最少20死　多州面臨嚴重龍捲風威脅
+
+![龍捲風導致密蘇里州大批房屋受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795896_1_20250316062240.jpg&q=80)
+  
+
+美國中部及南部廣泛地區受惡劣天氣影響，增至最少20人死亡，多人受傷，多座建築物損毀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm)
+
+---
+
 # 特朗普下令攻擊也門胡塞武裝　指不能容忍襲擊美國船隻
 
 ![特朗普警告胡塞武裝必須停止攻擊行為。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795894_1_20250316033308.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795646-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795646-20250314.htm)
-
----
-
-# 普京晤盧卡申科同意擴大各領域合作　準備反制北約敵對行動
-
-![普京與盧卡申科在儀式上交換文件。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795645_1_20250314031431.jpg&q=90)
-  
-
-俄羅斯總統普京與到訪的白俄羅斯總統盧卡申科會談，雙方同意擴大經貿、安全等各領域合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795645-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795645-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795645-20250314.htm)
 
 ---
