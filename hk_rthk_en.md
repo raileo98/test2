@@ -1,3 +1,27 @@
+# Ohtani hits home run in Dodgers' Tokyo exhibition game
+
+![Superstar Shohei Ohtani sends the crowd wild with a two-run homer in the third inning. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795879_1_20250315205024.jpg&q=85)
+  
+
+Shohei Ohtani fever in Tokyo reached boiling point on Saturday as the Japanese baseball superstar hit a home run in his first game in a Los Angeles Dodgers uniform in his home country.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795879-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795879-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795879-20250315.htm)
+
+---
+
 # Putin will have to 'come to table,' UK PM tells summit
 
 ![Keir Starmer and French President Emmanuel Macron have been leading efforts to assemble a so-called "coalition of the willing."  Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795873_1_20250315201758.jpg&q=90)
@@ -1412,29 +1436,5 @@ Struggling chipmaker Intel has hired former board member and semiconductor indus
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm)
-
----
-
-# Two air force pilots charged over S Korea bombing
-
-![Officials inspect an area with damaged buildings in the aftermath of the accidental bombing in Pocheon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795521_1_20250313095556.jpg&q=80)
-  
-
-South Korean military investigators charged two air force pilots on Thursday with criminal negligence over an accidental bombing of a village last week during a training exercise, which injured at least 29 people and caused extensive property damage.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm)
 
 ---
