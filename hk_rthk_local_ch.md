@@ -1,3 +1,26 @@
+# 強雷雨區逐漸移近　料未來兩三小時本港雨勢較大及有強烈狂風雷暴
+
+  
+
+天文台表示，位於珠江口以西的強雷雨區正逐漸移近本港，預料未來兩三小時本港雨勢較大及有強烈狂風雷暴。市民請提高警惕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795847-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795847-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795847-20250315.htm)
+
+---
+
 # 天文台：未來兩三小時局部地區會有狂風雷暴
 
 ![天文台：未來兩三小時局部地區會有狂風雷暴](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795845_1_20250315142448.jpg&q=90)
@@ -1411,29 +1434,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795686-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795686-20250314.htm)
-
----
-
-# 消息：公立醫院電腦掃瞄和磁力共振等擬逐項收費　不適用緊急病人
-
-![據了解，當中除了考慮急症室收費或作調整外，亦會考慮向部分服務，實施逐項收費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795682_1_20250314103559.jpg&q=70)
-  
-
-消息指，政府將於未來數星期內，交代公營醫療收費調整方案。據了解，當中除了考慮急症室收費或作調整外，亦會考慮向部分服務，實施逐項收費，包括電腦掃瞄和磁力共振，但強調價格會是可負擔水平，有關收費亦不適用於病情緊急或情況嚴重的患者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795682-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795682-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795682-20250314.htm)
 
 ---

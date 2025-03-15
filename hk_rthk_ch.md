@@ -1,3 +1,26 @@
+# 強雷雨區逐漸移近　料未來兩三小時本港雨勢較大及有強烈狂風雷暴
+
+  
+
+天文台表示，位於珠江口以西的強雷雨區正逐漸移近本港，預料未來兩三小時本港雨勢較大及有強烈狂風雷暴。市民請提高警惕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795847-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795847-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795847-20250315.htm)
+
+---
+
 # 朝中社：俄羅斯副外長訪問北韓
 
 ![朝中社：俄羅斯副外長訪問北韓](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795846_1_20250315143249.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm)
-
----
-
-# 中方：冀各方通過對話談判就烏克蘭危機達成公平持久和平協議
-
-![毛寧說，中方願意同國際社會一起，為最終化解危機、實現持久和平繼續發揮建設性的作用。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795771_1_20250314202242.jpg&q=90)
-  
-
-在北京，外交部回應有關俄羅斯總統普京提議與美國總統特朗普就俄烏臨時停火協議舉行會談的提問，發言人毛寧說，在烏克蘭危機問題上，中方始終堅持習近平主席提出的「四個應該」，也就是各國的主權領土完整都應該得到尊重，聯合國的憲章宗旨和原則都應該得到遵守，各國合理的安全關切都應該得到重視，一切有利於和平解決危機的努力都應該得到支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm)
 
 ---
