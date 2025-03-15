@@ -1,3 +1,98 @@
+# 萬斯料下月限期前可就TikTok所有權問題達成協議
+
+![特朗普早前表示，政府正與4間對TikTok交易感興趣的集團接觸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795829_1_20250315103020.jpg&q=90)
+  
+
+路透社引述兩名美國白宮官員報道，副總統萬斯預計，可以在下月5日限期前，就短片分享平台TikTok所有權的一般條款達成協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795829-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795829-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795829-20250315.htm)
+
+---
+
+# 林正財稱九成精神病於21歲前發展　應做好青少年預防工作
+
+  
+
+行政會議成員、精神健康諮詢委員會主席林正財說，委員會做過3項大型研究，結果顯示小學至大學的學生，都有一定比例數量面對精神健康挑戰，情況令人擔心。他強調要對焦工作，將資源放在青少年，因為九成精神病在21歲之前發展成立，認為做好青少年工作，就能減輕成年人精神負擔。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795828-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795828-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795828-20250315.htm)
+
+---
+
+# 黃鳳嫺提醒消費者有權要求醫療機構提供書面報價
+
+![黃鳳嫺說，機構應提供更多套餐價，清晰交代涵蓋範疇，增加收費透明度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795826_1_20250315101707.jpg&q=85)
+  
+
+消委會硏究報告發現，不少私家醫院價目資料難明不足，收費統計數據沒有即時更新，病人之間收費差距甚大，部分醫療機構缺乏詳盡書面費用預算，政府計劃今年內就探討立法提升私營醫療收費透明度諮詢業界。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795826-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795826-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795826-20250315.htm)
+
+---
+
+# 外賣平台「戶戶送」撤出香港　消委會暫接12宗投訴
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795825_1_20250315101525.jpg&q=90)
+  
+
+外賣平台「戶戶送」Deliveroo宣布撤出香港市場，將出售部分資產予另一個外賣平台foodpanda，現有客戶會被轉至foodpanda，並領取6個月免費會籍。消委會總幹事黃鳳嫺說，暫接獲12宗投訴，涉款5000多元，金額最高個案為600多元，主要涉及如何處理預先購買的套票。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795825-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795825-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795825-20250315.htm)
+
+---
+
 # 古巴電網故障　全國大範圍停電
 
 ![古巴去年12月亦曾發生大範停電。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795824_1_20250315091846.jpg&q=90)
@@ -1339,101 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795756-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795756-20250314.htm)
-
----
-
-# 發改委經濟研究所所長：現時仍有空間適時降準和減息
-
-![郭春麗表示，今年要實施積極有為的宏觀政策，要打好政策組合拳。(羅煒皓攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795755_1_20250314182205.jpg&q=90)
-  
-
-在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，今年要實施積極有為的宏觀政策，要打好政策組合拳，特別要強調宏觀政策取向一致性，加強財政、貨幣政策等各類政策的協同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm)
-
----
-
-# 人民幣兌美元收市創逾4個月新高
-
-![人民幣收市報7.2288兌1美元，較上日收市升139點子，創逾4個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795753_1_20250314173620.jpg&q=90)
-  
-
-人民幣兌美元收市創逾4個月新高，報7.2288兌1美元，較上日收市升139點子。中間價則微跌至7.1738兌1美元，與市場預測偏離仍逾700點子，反映監管層延續過濾舉措，繼續穩定市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795753-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795753-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795753-20250314.htm)
-
----
-
-# 內地2月新增人民幣貸款1.01萬億元遜預期
-
-![外電測算內地2月新增人民幣貸款1.01萬億元，低過市場預期中值的1.28萬億元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795754_1_20250314174206.jpg&q=90)
-  
-
-人民銀行公布，今年首兩個月人民幣貸款增加6.14萬億元。外電計算，內地2月新增人民幣貸款1.01萬億元，低過市場預期中值的1.28萬億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm)
-
----
-
-# 反分裂國家法座談會舉行　趙樂際稱要打擊台獨分裂遏制外部干涉
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795751_1_20250314173134.jpg&q=90)
-  
-
-《反分裂國家法》實施20周年座談會在北京舉行，中共中央政治局常委、全國人大常委會委員長趙樂際出席並發表講話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm)
 
 ---

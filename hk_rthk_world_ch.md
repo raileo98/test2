@@ -1,3 +1,27 @@
+# 萬斯料下月限期前可就TikTok所有權問題達成協議
+
+![特朗普早前表示，政府正與4間對TikTok交易感興趣的集團接觸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795829_1_20250315103020.jpg&q=90)
+  
+
+路透社引述兩名美國白宮官員報道，副總統萬斯預計，可以在下月5日限期前，就短片分享平台TikTok所有權的一般條款達成協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795829-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795829-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795829-20250315.htm)
+
+---
+
 # 古巴電網故障　全國大範圍停電
 
 ![古巴去年12月亦曾發生大範停電。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795824_1_20250315091846.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795569-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795569-20250313.htm)
-
----
-
-# 外交部：中方冀早日就伊朗核問題將重啟對話談判勢頭轉化為現實
-
-![毛寧說，中方希望早日就伊朗核問題將重啟對話談判的勢頭轉化為現實。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795567_1_20250313154005.jpg&q=90)
-  
-
-中方將於明天舉行伊朗核問題中俄伊北京會晤。外交部發言人毛寧表示，作為聯合國安理會的常任理事國和伊朗核問題全面協議的參與方，中國一貫主張通過政治外交途徑妥善解決伊朗核問題，維護國際核不擴散機制，促進中東地區的和平穩定。北京會晤是中方最新的外交努力，目的是加強溝通協調，為早日恢復對話談判創造條件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm)
 
 ---

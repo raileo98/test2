@@ -1,3 +1,27 @@
+# 'New private sector law must rollout gradually'
+
+![In his work report to the NPC, Premier Li Qiang vowed to stamp out 'neijuan' practices. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795827_1_20250315102842.jpg&q=90)
+  
+
+An economist has said that the new law proposed by Beijing to protect and enhance the country's private sector could help address "grey areas" facing private business, but cautioned that it should be gradually rolled out to avoid stifling opportunities.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm)
+
+---
+
 # CK Hutchison shares down after port deal criticism
 
 ![CK Hutchison earlier agreed to sell its interests in a key Panama Canal port operator to a consortium led by BlackRock. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795749_1_20250314172048.jpg&q=80)
@@ -1413,29 +1437,5 @@ Chief Executive John Lee on Wednesday said he was encouraged by remarks about Ho
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794345-20250305.htm)
-
----
-
-# Chinese firms double down on tech: Xiaomi, Haier
-
-![Zhou Yunjie, chairman of home appliances firm Haier, says technological innovation is a key factor to enable enterprises become international brands. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794332_2_20250305112824.jpg&q=90)
-  
-
-Chinese companies are doubling down on innovation as part of efforts to contribute to the national drive of developing "new quality productive forces", with leaders convening in Beijing for the annual Two Sessions meetings.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm)
 
 ---

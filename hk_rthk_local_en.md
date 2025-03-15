@@ -1,3 +1,27 @@
+# 'New private sector law must rollout gradually'
+
+![In his work report to the NPC, Premier Li Qiang vowed to stamp out 'neijuan' practices. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795827_1_20250315102842.jpg&q=90)
+  
+
+An economist has said that the new law proposed by Beijing to protect and enhance the country's private sector could help address "grey areas" facing private business, but cautioned that it should be gradually rolled out to avoid stifling opportunities.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm)
+
+---
+
 # CHP urges caution as Saudi Arabia sees more MERS cases
 
 ![The Centre for Health Protection says people should avoid direct contact with dromedary camels. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795787_2_20250314222716.jpg&q=85)
@@ -1412,29 +1436,5 @@ Financial Secretary Paul Chan said on Sunday that Hong Kong must closely link it
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794969-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794969-20250309.htm)
-
----
-
-# 'Each Legco election should be better than the last’
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794968_1_20250309114238.jpg&q=75)
-  
-
-Each Legislative Council election should be better than the previous one, according to a senior Beijing official overseeing Hong Kong affairs, who also stressed the SAR needs “capable, responsible and accomplished” individuals to serve the city.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm)
 
 ---

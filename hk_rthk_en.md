@@ -1,3 +1,27 @@
+# 'New private sector law must rollout gradually'
+
+![In his work report to the NPC, Premier Li Qiang vowed to stamp out 'neijuan' practices. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795827_1_20250315102842.jpg&q=90)
+  
+
+An economist has said that the new law proposed by Beijing to protect and enhance the country's private sector could help address "grey areas" facing private business, but cautioned that it should be gradually rolled out to avoid stifling opportunities.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm)
+
+---
+
 # Crew launch to ISS to replace stuck astronauts
 
 ![SpaceX's Falcon 9 rocket lifts off, carrying NASA's Crew-10 astronauts to the International Space Station at the Kennedy Space Center, Florida. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795820_1_20250315083347.jpg&q=90)
@@ -1413,29 +1437,5 @@ Real Madrid produced a gritty display to reach the Champions League quarter-fina
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm)
-
----
-
-# Mark Carney to be sworn in as Canadian PM on Friday
-
-![The new Liberal leader has promised a "seamless and quick" transition as he takes over from Justin Trudeau. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795499_1_20250313072252.jpg&q=90)
-  
-
-Mark Carney will be sworn in as Canada's next prime minister on Friday morning, marking the final day of Justin Trudeau's more than nine years in power.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm)
 
 ---
