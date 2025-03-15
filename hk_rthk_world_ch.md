@@ -1,3 +1,27 @@
+# 施紀賢稱達成停火後西方國家將組「自願聯盟」助確保烏克蘭安全
+
+![施紀賢強調，停火計劃必須與美國共同完成。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795882_1_20250315214928.jpg&q=90)
+  
+
+英國首相施紀賢與來自歐盟、加拿大及北約等大約25位領導人舉行視像會議，討論烏克蘭問題。施紀賢在開場發言時，指責俄羅斯總統普京試圖拖延和談，他說，如果普京對和平是認真，就必須停止攻擊烏克蘭，並同意停火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795882-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795882-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795882-20250315.htm)
+
+---
+
 # 法國財長稱美歐貿易爭端將升級
 
 ![隆巴爾說，美歐間貿易爭端將進入升級階段。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795875_1_20250315202727.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795638-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795638-20250314.htm)
-
----
-
-# 美財長：除金屬和汽車關稅　其他商品所可進行關稅談判
-
-![貝森特強調，政府關注的是整體市場表現和美國人的中長期收益。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795637_1_20250314003017.jpg&q=90)
-  
-
-美國財長貝森特表示，除了金屬和可能的汽車關稅外，其他所有東西都可以進行關稅談判，如果貿易夥伴想加速談判，貿易盈餘國家將會受到最大打擊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795637-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795637-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795637-20250314.htm)
 
 ---

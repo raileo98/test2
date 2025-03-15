@@ -1,3 +1,27 @@
+# 施紀賢稱達成停火後西方國家將組「自願聯盟」助確保烏克蘭安全
+
+![施紀賢強調，停火計劃必須與美國共同完成。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795882_1_20250315214928.jpg&q=90)
+  
+
+英國首相施紀賢與來自歐盟、加拿大及北約等大約25位領導人舉行視像會議，討論烏克蘭問題。施紀賢在開場發言時，指責俄羅斯總統普京試圖拖延和談，他說，如果普京對和平是認真，就必須停止攻擊烏克蘭，並同意停火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795882-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795882-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795882-20250315.htm)
+
+---
+
 # 短道速滑世錦賽在北京舉行　中國劉少昂1500米摘銅
 
 ![中國劉少昂在短道速滑世錦賽1500米比賽中摘銅。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795880_1_20250315210050.jpg&q=90)
