@@ -1,3 +1,27 @@
+# 旅遊及零售業界期望國際七人欖球賽帶動消費及生意
+
+![香港國際七人欖球賽將在啟德體育園舉辦。 （旅發局資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795831_1_20250315105942.jpg&q=90)
+  
+
+本月底舉行的香港國際七人欖球賽首次移師至啟德體育園主場館，旅遊及零售業界均期望帶動消費及旅遊業。旅遊界議員姚柏良表示，門票銷售理想，但啟德體育園的周邊經濟生態圈仍有待觀察及磨合。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795831-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795831-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795831-20250315.htm)
+
+---
+
 # 萬斯料下月限期前可就TikTok所有權問題達成協議
 
 ![特朗普早前表示，政府正與4間對TikTok交易感興趣的集團接觸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795829_1_20250315103020.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795757-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795757-20250314.htm)
-
----
-
-# 和記電訊香港去年轉賺600萬元
-
-![和記電訊香港去年轉賺600萬元，前一年虧損5200萬元，維持派末期息每股5.21港仙。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795756_1_20250314175407.jpg&q=90)
-  
-
-和記電訊香港去年業績由虧轉盈，轉賺600萬元，而前一年虧損5200萬元。維持派末期息每股5.21港仙，連同中期息，全年派7.49港仙，與前年相同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795756-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795756-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795756-20250314.htm)
 
 ---
