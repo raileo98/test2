@@ -1,3 +1,27 @@
+# 特朗普下令攻擊也門胡塞武裝　指不能容忍襲擊美國船隻
+
+![特朗普警告胡塞武裝必須停止攻擊行為。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795894_1_20250316033308.jpg&q=90)
+  
+
+美國總統特朗普宣布，已下令對也門胡塞武裝組織採取果段而有力的軍事行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795894-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795894-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795894-20250316.htm)
+
+---
+
 # 伯勒爾被撤回人質事務美國總統特使提名　續以特別僱員身份辦事
 
 ![伯勒爾近日就釋放加沙地帶被扣押人員問題，與哈馬斯直接對話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795893_1_20250316031618.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795819-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795819-20250315.htm)
-
----
-
-# 美國國會通過短期支出法案避免政府「停擺」
-
-![美國國會參議院在限期前通過短期支出法案，避免政府「停擺」。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795818_1_20250315074643.jpg&q=90)
-  
-
-美國國會參議院通過短期支出法案，為聯邦政府繼續提供資金至9月，趕在限期前，避免政府「停擺」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795818-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795818-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795818-20250315.htm)
 
 ---
