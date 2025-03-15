@@ -1,3 +1,27 @@
+# 李慧琼：政府可考慮高層次統籌「深化國際交往合作」策略
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795867_1_20250315182615.jpg&q=85)
+  
+
+國務院總理李強發表的政府工作報告，港澳篇幅提出「深化國際交往合作」，全國人大常委李慧琼認為，特區政府可以考慮高層次統籌「深化國際交往合作」策略，推動民間一齊參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm)
+
+---
+
 # G7外長會後聲明沒再提奉行「一中」政策　中方不滿並嚴正交涉
 
 ![中國駐加拿大使館發言人說，七國集團外長的聲明字裡行間充斥著傲慢、偏見和遏華反華的險惡用心。（中國駐加拿大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795863_1_20250315173417.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm)
-
----
-
-# 國台辦：解決台灣問題基礎更雄厚　有力塑造祖國必然統一大勢
-
-![陳斌華表示，決定兩岸關係走向的關鍵因素是祖國大陸發展進步。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795379_1_20250312105404.jpg&q=90)
-  
-
-在北京，國台辦發言人陳斌華表示，決定兩岸關係走向的關鍵因素是祖國大陸發展進步。經濟實力、科技能力、綜合國力、國際影響力持續增強，中國式現代化邁出堅實步伐，解決台灣問題的基礎更雄厚、能力更強大，有力塑造祖國必然統一的大勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795379-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795379-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795379-20250312.htm)
 
 ---

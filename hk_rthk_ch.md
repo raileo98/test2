@@ -1,3 +1,27 @@
+# 李慧琼：政府可考慮高層次統籌「深化國際交往合作」策略
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795867_1_20250315182615.jpg&q=85)
+  
+
+國務院總理李強發表的政府工作報告，港澳篇幅提出「深化國際交往合作」，全國人大常委李慧琼認為，特區政府可以考慮高層次統籌「深化國際交往合作」策略，推動民間一齊參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm)
+
+---
+
 # 陳茂波︰邀請大型科企及前沿初創將資源投放教育　培育創科人才
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795866_1_20250315182437.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795794-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795794-20250315.htm)
-
----
-
-# 叙福樓料去年度轉蝕最多3600萬元
-
-![叙福樓預計，去年度轉蝕最多3600萬元，前年度錄得8810萬元盈利。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795793_1_20250314232113.jpg&q=85)
-  
-
-叙福樓預計，去年度轉蝕最多3600萬元，前年度錄得8810萬元盈利。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795793-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795793-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795793-20250314.htm)
 
 ---

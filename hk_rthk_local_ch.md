@@ -1,3 +1,27 @@
+# 李慧琼：政府可考慮高層次統籌「深化國際交往合作」策略
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795867_1_20250315182615.jpg&q=85)
+  
+
+國務院總理李強發表的政府工作報告，港澳篇幅提出「深化國際交往合作」，全國人大常委李慧琼認為，特區政府可以考慮高層次統籌「深化國際交往合作」策略，推動民間一齊參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm)
+
+---
+
 # 陳茂波︰邀請大型科企及前沿初創將資源投放教育　培育創科人才
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795866_1_20250315182437.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795703-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795703-20250314.htm)
-
----
-
-# 中醫醫院門診今年9月公布收費詳情　醫務衞生局強調水平可負擔
-
-![張偉麟解釋說收費會分為兩個部分，三分二由政府資助，由局方釐定；其餘非政府資助則由中醫醫院董事局根據市場導向。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795702_1_20250314145839.jpg&q=90)
-  
-
-政府今年底發表《中醫藥發展藍圖》，以勾劃未來的發展路向。醫務衞生局局長盧寵茂出席立法會衞生事務委員會表示，正推動兩個中醫藥發展旗艦機構的籌備工作，分別是將軍澳的香港中醫醫院及科學園的政府中藥檢測中心永久大樓，預計如期在今年底分階段啟用及開展服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795702-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795702-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795702-20250314.htm)
 
 ---
