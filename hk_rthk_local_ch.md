@@ -1,3 +1,27 @@
+# 陳美寶稱運輸署服務電子化提升效率及質素　各類服務持續升級
+
+![陳美寶表示，位於金鐘及長沙灣的牌照事務處，將各推出一個「國際駕駛許可證自助服務站」。（運輸及物流局網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795835_1_20250315122606.jpg&q=90)
+  
+
+運輸及物流局局長陳美寶上星期到訪運輸署，形容多項服務已電子化，提升效率及質素。她在網誌表示，根據最新數字，各類主要牌證服務的申請數目由2021年約245萬宗增加至去年約280萬宗，3年間多了約35萬宗，升幅約14%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm)
+
+---
+
 # 旅遊及零售業界期望國際七人欖球賽帶動消費及生意
 
 ![香港國際七人欖球賽將在啟德體育園舉辦。 （旅發局資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795831_1_20250315105942.jpg&q=90)
@@ -1411,29 +1435,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795628-20250313.htm)
-
----
-
-# 教育局成立學生內地考察專責小組　適時優化交流考察活動安排
-
-![蔡若蓮召開特別會議，跟各個承辦機構代表會面，整體檢視所有學生外地交流活動安排。（蔡若蓮社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795626_1_20250313220902.jpg&q=90)
-  
-
-教育局局長蔡若蓮表示，局方非常重視有同學在參加內地交流團出現腸胃炎徵狀的事件，今日她再召開特別會議，跟各個承辦機構代表會面，整體檢視所有學生外地交流活動安排。教育局亦已成立學生內地考察專責小組，直接與各內地部門單位保持密切溝通聯繫，適時優化交流考察活動安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795626-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795626-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795626-20250313.htm)
 
 ---

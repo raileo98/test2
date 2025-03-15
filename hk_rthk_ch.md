@@ -1,3 +1,27 @@
+# 陳美寶稱運輸署服務電子化提升效率及質素　各類服務持續升級
+
+![陳美寶表示，位於金鐘及長沙灣的牌照事務處，將各推出一個「國際駕駛許可證自助服務站」。（運輸及物流局網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795835_1_20250315122606.jpg&q=90)
+  
+
+運輸及物流局局長陳美寶上星期到訪運輸署，形容多項服務已電子化，提升效率及質素。她在網誌表示，根據最新數字，各類主要牌證服務的申請數目由2021年約245萬宗增加至去年約280萬宗，3年間多了約35萬宗，升幅約14%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm)
+
+---
+
 # 美國把南非駐美大使列為「不受歡迎人物」
 
 ![美方指拉蘇爾「煽動種族情緒」，憎恨美國，把他列為不受歡迎人物。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795832_1_20250315112355.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795761-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795761-20250314.htm)
-
----
-
-# 盧寵茂︰考慮公營門診病人共付電腦掃描及磁力共振等檢查費用
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795760_1_20250314184625.jpg&q=90)
-  
-
-消息指，政府將於數星期內，交代公營醫療收費調整方案。醫務衞生局局長盧寵茂表示，正考慮電腦掃描及磁力共振等複雜的影像檢查，需要市民按項目共付費用，但急症室及住院病人接受有關服務仍維持免費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795760-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795760-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795760-20250314.htm)
 
 ---
