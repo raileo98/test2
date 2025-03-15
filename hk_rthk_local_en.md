@@ -46,7 +46,7 @@ Hong Kong’s sole delegate to the nation’s top legislature, Starry Lee, on Sa
 
 ---
 
-# 'New private sector law must rollout gradually'
+# 'New private sector law must be rolled out gradually'
 
 ![Last week, the nation’s top legislators tabled the 'private economy promotion law', aimed at creating a fairer business environment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795827_2_20250315105255.jpg&q=85)
   
