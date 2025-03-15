@@ -1,3 +1,27 @@
+# 'Russia is doing everything to prevent a ceasefire'
+
+![Volodymyr Zelensky says he wants European boots on the ground in Ukraine. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795883_1_20250315215053.jpg&q=90)
+  
+
+Ukrainian President Volodymyr Zelensky said on Saturday he had urged Kyiv's Western allies to give "a clear position" on security guarantees, including about a potential foreign troop contingent on Ukrainian soil with a US backstop.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795883-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795883-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795883-20250315.htm)
+
+---
+
 # Russian captain of North Sea crash ship in UK court
 
 ![The collision left a huge hole in the US-registered Stena Immaculate tanker. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795877_1_20250315203158.jpg&q=75)
@@ -1412,29 +1436,5 @@ Health officials said medical devices donated by a tycoon for treating liver can
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795541-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795541-20250313.htm)
-
----
-
-# 'Students may have contracted gastroenteritis in HK'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795536_1_20250313121837.jpg&q=90)
-  
-
-The chairman of the Hong Kong Society for Infectious Diseases on Thursday said it would "not be surprising" if some students might have already caught norovirus – which can cause gastroenteritis – before departing for an exchange trip on the mainland.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795536-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795536-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795536-20250313.htm)
 
 ---

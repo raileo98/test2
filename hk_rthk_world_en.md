@@ -1,3 +1,27 @@
+# 'Russia is doing everything to prevent a ceasefire'
+
+![Volodymyr Zelensky says he wants European boots on the ground in Ukraine. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795883_1_20250315215053.jpg&q=90)
+  
+
+Ukrainian President Volodymyr Zelensky said on Saturday he had urged Kyiv's Western allies to give "a clear position" on security guarantees, including about a potential foreign troop contingent on Ukrainian soil with a US backstop.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795883-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795883-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795883-20250315.htm)
+
+---
+
 # Russian captain of North Sea crash ship in UK court
 
 ![The collision left a huge hole in the US-registered Stena Immaculate tanker. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795877_1_20250315203158.jpg&q=75)
@@ -1411,29 +1435,5 @@ Argentina's port city of Bahia Blanca has been "destroyed" after being pummelled
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794956-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794956-20250309.htm)
-
----
-
-# Man with Palestinian flag scales Big Ben
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794937_1_20250309005211.jpg&q=90)
-  
-
-A man who climbed Big Ben's Elizabeth Tower at London's Palace of Westminster waving a Palestinian flag early on Saturday has come down after 16 hours, according to Sky News.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794937-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794937-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794937-20250309.htm)
 
 ---
