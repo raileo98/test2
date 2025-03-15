@@ -1,3 +1,26 @@
+# 天文台稱大埔有冰雹報告
+
+  
+
+黃色暴雨警告信號和雷暴警告現正生效。天文台表示，在下午3時20分左右，大埔有冰雹報告，預料本港在短期內可能繼續受冰雹影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm)
+
+---
+
 # 東部戰區：反分裂國家法是高懸台獨頭頂利劍　維護台海穩定基石
 
 ![東部戰區上將司令員林向陽在反分裂國家法實施20周年座談會上發言。（東部戰區微信官方賬號截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795853_3_20250315154807.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm)
-
----
-
-# 天文台料明日稍後北風逐漸增強　下週初最低氣溫14至15度
-
-![天文台預料明日稍後北風逐漸增強，隨後兩三日早上清涼。（天文台網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795781_1_20250314214908.jpg&q=90)
-  
-
-天文台表示，受冷鋒相關的東北季候風持續影響，星期日沿岸地區天氣轉涼，風勢頗大，下週初最低氣溫約14至15度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795781-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795781-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795781-20250314.htm)
 
 ---

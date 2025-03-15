@@ -1,3 +1,26 @@
+# 天文台稱大埔有冰雹報告
+
+  
+
+黃色暴雨警告信號和雷暴警告現正生效。天文台表示，在下午3時20分左右，大埔有冰雹報告，預料本港在短期內可能繼續受冰雹影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm)
+
+---
+
 # 鄧炳強稱定會盡力將餘下被禁錮東南亞港人帶回香港
 
   
@@ -911,7 +934,7 @@
 
 # 恒指高收497點　未能企穩24000點　長和跌逾6%
 
-![恒生指數高見24113點，一度升逾650點，收市報23959點，升497點，升幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795737_1_20250314162135.jpg&q=80)
+![恒生指數高見24113點，一度升逾650點，收市報23959點，升497點，升幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795737_1_20250314162135.jpg&q=1)
   
 
 港股結束連續5日跌勢，恒生指數高見24113點，一度升逾650點，收市升幅收窄，報23959點，升497點，升幅2.1%，全日主板成交額2906億元。
@@ -1410,29 +1433,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795697-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795697-20250314.htm)
-
----
-
-# 朱國強料小學或合併求存　張勇邦稱規模大辦學團體才較易處理
-
-![朱國強（左）估計學校如想繼續生存就需考慮合併。張勇邦（右）認為教育局修訂「派0班」小學發展規劃及取消特別視學安排，是適合現時的狀態。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795694_1_20250314122400.jpg&q=90)
-  
-
-資助小學校長會名譽主席張勇邦表示，面對適齡學童人口下降的「寒冬期」，需要修訂措施面對現實。他認為教育局修訂「派0班」小學發展規劃及取消特別視學安排，是適合現時的狀態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795694-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795694-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795694-20250314.htm)
 
 ---
