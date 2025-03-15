@@ -1,3 +1,27 @@
+# 'Govt can do more to promote internationalisation'
+
+![Starry Lee says Hong Kong can develop ties with the Global South and Asean nations. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795830_1_20250315105816.jpg&q=85)
+  
+
+Hong Kong’s sole delegate to the nation’s top legislature, Starry Lee, on Saturday called on the government to continue to coordinate with other major cities around the world to further strengthen the SAR's position across fields.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm)
+
+---
+
 # 'New private sector law must rollout gradually'
 
 ![Last week, the nation’s top legislators introduced the "private economy promotion law" to create a fairer business environment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795827_2_20250315105255.jpg&q=85)
@@ -1412,30 +1436,5 @@ SpaceX on Wednesday scrubbed the expected launch of a replacement crew of four a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm)
-
----
-
-# Real, Arsenal to clash in Champions League quarters
-
-![Kylian Mbappé celebrates with teammates after Real Madrid's penalty shoot-out victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795501_1_20250313074046.jpg&q=90)
-![Arsenal players celebrate after the team's second goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795501_2_20250313074046.jpg&q=90)
-  
-
-Real Madrid produced a gritty display to reach the Champions League quarter-finals with a 4-2 win on penalties against rivals Atlético Madrid, following a 1-0 defeat after extra time.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm)
 
 ---
