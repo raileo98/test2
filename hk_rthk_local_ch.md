@@ -1,3 +1,26 @@
+# 控煙酒辦打擊非法吸食水煙巡查中區酒吧　發出兩張罰款通知書
+
+  
+
+衞生署控煙酒辦昨晚派員到中區一間酒吧採取行動，向非法吸食水煙的人士，發出兩張定額罰款通知書。調查仍在進行，控煙酒辦會考慮向涉嫌協助及教唆吸煙罪行的酒吧經營者提出檢控，亦會將個案轉介酒牌局跟進。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795843-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795843-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795843-20250315.htm)
+
+---
+
 # 林正財稱公共醫療收費改革冀更精準減少浪費　並非為解決公共財困
 
   
@@ -23,6 +46,7 @@
 
 # 孫玉菡料「兩元兩折」優惠有更大誘因選乘車費較便宜車程
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795840_1_20250315125757.jpg&q=90)
   
 
 新一份《財政預算案》提出調整「兩元優惠計劃」。勞工及福利局局長孫玉菡表示，假設受惠人士乘車習慣不變，估計一個年度可節省6億8千萬，數目不少，佔估算開支超過一成。他認為修訂可維持計劃原意，同時增加財政可持續性。
@@ -163,7 +187,7 @@
 
 # 林正財稱九成精神病於21歲前發展　應做好青少年預防工作
 
-![林正財說，研究顯示小學至大學的學生，都有一定比例數量面對精神健康挑戰，情況令人擔心。(陳感恩攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795828_1_20250315103454.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795828_1_20250315103454.jpg&q=90)
   
 
 行政會議成員、精神健康諮詢委員會主席林正財說，委員會做過3項大型研究，結果顯示小學至大學的學生，都有一定比例數量面對精神健康挑戰，情況令人擔心。他強調要對焦工作，將資源放在青少年，因為九成精神病在21歲之前發展成立，認為做好青少年工作，就能減輕成年人精神負擔。
@@ -1406,29 +1430,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795680-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795680-20250314.htm)
-
----
-
-# 博智小校下學年未能開辦小一　家長感愕然校長冀為學生作最好安排
-
-![博智小校校長何妙賢說，將與辦學團體及教育局商討，為學生作出最好安排。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795679_2_20250314102321.jpg&q=90)
-  
-
-教育局表示，黃大仙的天主教博智小學及南區的鴨脷洲街坊學校，獲派的學生人數少於16人，2025/26學年未能獲資助開辦小一。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795679-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795679-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795679-20250314.htm)
 
 ---
