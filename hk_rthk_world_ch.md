@@ -1,3 +1,27 @@
+# 俄羅斯國防部稱又收復庫爾斯克州兩個地方
+
+![普京在聯邦安全會議常務委員視像會議上表示，如果烏軍放低武器投降，俄方會保證他們的安全。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795872_1_20250315195155.jpg&q=90)
+  
+
+俄羅斯國防部表示，俄軍在庫爾斯克州的進攻行動中，又收復兩個地方，分別是扎奧列申卡村和魯班錫納村。又說過去24小時內，烏克蘭軍隊在庫爾斯克損失約220名士兵、一輛坦克、一輛步兵戰車和一輛裝甲戰車等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795872-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795872-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795872-20250315.htm)
+
+---
+
 # 多國領導人就俄烏問題舉行視像會議　施紀賢批評普京試圖拖延和談
 
 ![施紀賢與多國領導人舉行視像會議，討論烏克蘭問題。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795870_1_20250315192619.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795629-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795629-20250313.htm)
-
----
-
-# 特朗普威脅向歐盟葡萄酒、香檳及酒精產品徵收200%關稅
-
-![特朗普威脅向歐盟葡萄酒、香檳及酒精產品徵收200%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795615_1_20250313211302.jpg&q=90)
-  
-
-美國總統特朗普威脅，會對來自歐盟的葡萄酒、香檳及酒精產品徵收200%關稅，除非歐盟停止向美國威士忌徵收50%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795615-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795615-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795615-20250313.htm)
 
 ---
