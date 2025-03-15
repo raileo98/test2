@@ -1,3 +1,95 @@
+# 林正財稱公共醫療收費改革冀更精準減少浪費　並非為解決公共財困
+
+  
+
+消息指，政府將於數星期內，交代公營醫療收費調整方案。行政會議成員林正財表示，以他理解，公共醫療收費改革並非為解決公共財政困難，而是希望更精準減少浪費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm)
+
+---
+
+# 孫玉菡料「兩元兩折」優惠有更大誘因選乘車費較便宜車程
+
+  
+
+新一份《財政預算案》提出調整「兩元優惠計劃」。勞工及福利局局長孫玉菡表示，假設受惠人士乘車習慣不變，估計一個年度可節省6億8千萬，數目不少，佔估算開支超過一成。他認為修訂可維持計劃原意，同時增加財政可持續性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm)
+
+---
+
+# 孫玉菡：兩元乘車優惠調整方案可省7億元　亦有助處理長車短搭
+
+  
+
+勞工及福利局局長孫玉菡表示，「兩元兩折」乘車優惠調整方案，可以在一個年度節省近7億元開支，仍未計及受惠人士可能的乘車習慣改變，方案亦有助處理「長車短搭」問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm)
+
+---
+
+# 黃鳳嫺：消委會正與接手戶戶送外賣平台溝通　跟進後續安排
+
+  
+
+外賣平台「戶戶送」Deliveroo撤出香港市場。消委會總幹事黃鳳嫺說，暫接獲12宗投訴，共涉款5000多元，金額最高的一宗個案達600多元，正與接手的外賣平台溝通，跟進後續安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm)
+
+---
+
 # 陳茂波稱人工智能做事鍥而不捨　勉勵學生學習時要表現出堅持
 
   
@@ -1338,101 +1430,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795679-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795679-20250314.htm)
-
----
-
-# 港股競價時段升190點　科指升逾1%
-
-![港股競價時段升190點　科指升逾1%](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795672_1_20250314092204.jpg&q=60)
-  
-
-港股止跌回升，恒生指數競價時段報23653點，升190點，升幅0.81%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm)
-
----
-
-# 港澳辦轉載評論文章質疑長和出售港口資產交易非普通商業行為
-
-![港澳辦轉載評論文章，質疑長和出售港口資產交易非普通商業行為。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795634_1_20250314000348.jpg&q=90)
-  
-
-國務院港澳辦網站轉載《大公報》有關長和計劃出售巴拿馬運河兩端港口等資產的評論文章。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm)
-
----
-
-# 兩小學「派0班」　張勇邦稱數目較預期少冀政府和學界想可行方法
-
-![張勇邦說，想改善「派0班」情況，需要有整體套配措施配合。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795632_1_20250313231642.jpg&q=80)
-  
-
-2025/26學年有兩間資助小學的小一派位學生少於16人，按開班準則「派0班」，未能獲教育局資助開辦小一，分別是黃大仙的天主教博智小學和南區的鴨脷洲街坊學校。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795632-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795632-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795632-20250313.htm)
-
----
-
-# 梁振英：香港貫徹落實「一國兩制」對台灣已起示範作用
-
-![梁振英說，相信《基本法》大部分條文，台灣民眾都會接受。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795631_1_20250313230723.jpg&q=80)
-  
-
-全國政協副主席、前行政長官梁振英表示，香港貫徹落實「一國兩制」，特區政府亦按照《基本法》的規定施政，對台灣已起了示範作用。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795631-20250313.htm)
 
 ---

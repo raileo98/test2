@@ -1,3 +1,119 @@
+# 人民日報文章：賴清德「綠恐謀獨」必然自取滅亡
+
+![人民日報批評賴清德近日拋出所謂「因應五方面威脅」的「17項策略」，不惜將台灣民眾推入險境的邪惡本質與陰險用心。（人民日報網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795842_1_20250315125000.jpg&q=90)
+  
+
+人民日報發表署名文章，批評賴清德近日拋出所謂「因應五方面威脅」的「17項策略」，立場之頑固，態度之囂張，挑釁之倡狂，充分暴露其人瘋狂謀「獨」對抗、不惜將台灣民眾推入險境的邪惡本質與陰險用心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795842-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795842-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795842-20250315.htm)
+
+---
+
+# 林正財稱公共醫療收費改革冀更精準減少浪費　並非為解決公共財困
+
+  
+
+消息指，政府將於數星期內，交代公營醫療收費調整方案。行政會議成員林正財表示，以他理解，公共醫療收費改革並非為解決公共財政困難，而是希望更精準減少浪費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm)
+
+---
+
+# 孫玉菡料「兩元兩折」優惠有更大誘因選乘車費較便宜車程
+
+  
+
+新一份《財政預算案》提出調整「兩元優惠計劃」。勞工及福利局局長孫玉菡表示，假設受惠人士乘車習慣不變，估計一個年度可節省6億8千萬，數目不少，佔估算開支超過一成。他認為修訂可維持計劃原意，同時增加財政可持續性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm)
+
+---
+
+# 孫玉菡：兩元乘車優惠調整方案可省7億元　亦有助處理長車短搭
+
+  
+
+勞工及福利局局長孫玉菡表示，「兩元兩折」乘車優惠調整方案，可以在一個年度節省近7億元開支，仍未計及受惠人士可能的乘車習慣改變，方案亦有助處理「長車短搭」問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm)
+
+---
+
+# 黃鳳嫺：消委會正與接手戶戶送外賣平台溝通　跟進後續安排
+
+  
+
+外賣平台「戶戶送」Deliveroo撤出香港市場。消委會總幹事黃鳳嫺說，暫接獲12宗投訴，共涉款5000多元，金額最高的一宗個案達600多元，正與接手的外賣平台溝通，跟進後續安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm)
+
+---
+
 # 陳茂波稱人工智能做事鍥而不捨　勉勵學生學習時要表現出堅持
 
   
@@ -1314,125 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795767-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795767-20250314.htm)
-
----
-
-# 國防部：中方奉勸菲方放棄挑釁　通過對話妥處分歧
-
-![張曉剛說，中方維護自身領土主權和海洋權益的決心意志堅定不移。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795766_1_20250314184114.jpg&q=90)
-  
-
-在北京，國防部新聞發言人張曉剛表示，中方奉勸菲律賓不要誤判形勢，立即放棄徒勞的冒險挑釁，切實回到通過對話妥處分歧的正確軌道上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm)
-
----
-
-# 現貨金升穿3000美元創新高
-
-![避險資金支撐金價創新高，現貨金較早時報每盎士3004美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795765_1_20250314182123.jpg&q=90)
-  
-
-避險資金支撐金價創新高，紐約期金突破每盎士3000美元關口後持續向上，較早時在3012美元以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795765-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795765-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795765-20250314.htm)
-
----
-
-# 3.5億元走私電子貨物　海關偵破4宗以遠洋船及內河船走私案
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795764_1_20250314191044.jpg&q=80)
-  
-
-海關在葵涌貨櫃碼頭及青衣海關驗貨場偵破4宗涉嫌利用遠洋船和內河船走私貨物的案件，檢獲大批懷疑走私電子貨物，估計市值約3億5千5百萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795764-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795764-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795764-20250314.htm)
-
----
-
-# 多個國家出現麻疹疫情　衞生防護中心提醒外遊市民完成兩劑疫苗
-
-![衞生防護中心表示，市民接種疫苗是預防麻疹最安全有效的方法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795763_1_20250314191914.jpg&q=80)
-  
-
-衞生防護中心表示，鑑於近期多個海外國家出現麻疹疫情，提醒市民外遊前應確保完成接種兩劑麻疹疫苗，以減低感染風險。香港今年暫時錄得1宗外地傳入麻疹個案，病人曾於潛伏期到過越南，目前沒有錄得其他個案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795763-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795763-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795763-20250314.htm)
-
----
-
-# 蔡若蓮︰學齡人口下降屬「結構性」情況　未來幾年挑戰更大
-
-![蔡若蓮說，學齡人口下降屬「結構性」情況，預料未來數年挑戰更大。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795762_2_20250314204018.jpg&q=90)
-  
-
-兩間小學2025/26學年獲「派0班」，教育局局長蔡若蓮表示，學齡人口下降屬「結構性」情況並非「過渡性」，預料未來數年挑戰更大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795762-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795762-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795762-20250314.htm)
 
 ---

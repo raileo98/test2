@@ -1,3 +1,27 @@
+# 人民日報文章：賴清德「綠恐謀獨」必然自取滅亡
+
+![人民日報批評賴清德近日拋出所謂「因應五方面威脅」的「17項策略」，不惜將台灣民眾推入險境的邪惡本質與陰險用心。（人民日報網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795842_1_20250315125000.jpg&q=90)
+  
+
+人民日報發表署名文章，批評賴清德近日拋出所謂「因應五方面威脅」的「17項策略」，立場之頑固，態度之囂張，挑釁之倡狂，充分暴露其人瘋狂謀「獨」對抗、不惜將台灣民眾推入險境的邪惡本質與陰險用心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795842-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795842-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795842-20250315.htm)
+
+---
+
 # 李慧琼稱香港應與國際深化交流擴大網絡　引進更多人才資金
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795823_1_20250315093033.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795319-20250311.htm)
-
----
-
-# 全國兩會｜葉文祺稱香港須加快推動金融科技等領域及配合國家戰略
-
-![葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795317_1_20250311223158.jpg&q=90)
-  
-
-全國兩會在北京圓滿結束。團結香港基金副總裁兼公共政策研究院執行總監葉文祺認為，政府工作報告在香港的角色定位提出四個方向，包括香港繼續貫徹「一國兩制」、維繫憲制秩序；中央繼續支持香港發展經濟和改善民生；香港要深化對外交流合作；以及繼續融入國家發展大局，服務國家所需。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm)
 
 ---
