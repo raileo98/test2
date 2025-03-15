@@ -1,3 +1,27 @@
+# 伯勒爾被撤回人質事務美國總統特使提名　續以特別僱員身份辦事
+
+![伯勒爾近日就釋放加沙地帶被扣押人員問題，與哈馬斯直接對話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795893_1_20250316031618.jpg&q=90)
+  
+
+美國白宮表示，總統特朗普政府撤回提名伯勒爾擔任人質事務總統特使。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795893-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795893-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795893-20250316.htm)
+
+---
+
 # 南非總統府對駐美大使被驅逐表遺憾　籲相關方保持外交禮儀
 
 ![南非總統府發表聲明說拉蘇爾被驅逐令人遺憾。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795892_1_20250316013456.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795643-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795643-20250314.htm)
-
----
-
-# 敘利亞過渡時期總統簽署憲法宣言　確定敘利亞過渡階段為期5年
-
-![沙拉簽署憲法宣言。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795641_1_20250314012336.jpg&q=90)
-  
-
-敘利亞過渡時期總統沙拉簽署憲法宣言，確定敘利亞的過渡階段為期5年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795641-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795641-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795641-20250314.htm)
 
 ---
