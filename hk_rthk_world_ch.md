@@ -1,3 +1,27 @@
+# 《環看天下》：美國部分人憂慮特朗普政府動用稅款儲備虛擬資產
+
+![特朗普與薩克斯在白宮出席首次加密貨幣峰會。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795819_1_20250315080254.jpg&q=90)
+  
+
+美國總統特朗普第二次執政後落實競選承諾，推動虛擬資產市場發展。他近期發布行政命令，設立戰略比特幣儲備，又在白宮舉行第一次加密貨幣峰會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795819-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795819-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795819-20250315.htm)
+
+---
+
 # 美國國會通過短期支出法案避免政府「停擺」
 
 ![美國國會參議院在限期前通過短期支出法案，避免政府「停擺」。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795818_1_20250315074643.jpg&q=90)
@@ -27,7 +51,7 @@
 ![「龍」飛船由獵鷹9號運載火箭搭戴，從佛羅里達州甘迺迪太空中心發射升空。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795817_1_20250315073751.jpg&q=90)
   
 
-美國太空探索技術公司SpaceX的「龍」飛船從佛羅里達州發射升空，搭載4名太空人飛往國際太空站，並會接回滯留太空站9月個月的兩名太空人返回地球。
+美國太空探索技術公司SpaceX的「龍」飛船從佛羅里達州發射升空，搭載4名太空人飛往國際太空站，並會接回滯留太空站9個月的兩名太空人返回地球。
 
   
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795523-20250313.htm)
-
----
-
-# 卡尼明天宣誓就任加國總理　料內閣人數削近半
-
-![卡尼將在當地星期五宣誓就任加拿大總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795514_1_20250313091515.jpg&q=80)
-  
-
-加拿大新當選總理的自由黨黨魁卡尼，將在當地星期五早上宣誓就任，結束杜魯多超過9年的總理生涯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795514-20250313.htm)
 
 ---

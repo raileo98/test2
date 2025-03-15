@@ -1,3 +1,27 @@
+# Crew launch to ISS to replace stuck astronauts
+
+![SpaceX's Falcon 9 rocket lifts off, carrying NASA's Crew-10 astronauts to the International Space Station at the Kennedy Space Center, Florida. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795820_1_20250315083347.jpg&q=90)
+  
+
+After more than nine months on the International Space Station, two astronauts are a step closer to returning home following the launch of a crew swap mission on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm)
+
+---
+
 # US share gains cut into week's losses
 
 ![On Friday, all 11 sectors of the S&P 500 posted gains, while the Dow index was mostly up. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795808_1_20250315054816.jpg&q=85)
@@ -1413,29 +1437,5 @@ Mark Carney will be sworn in as Canada's next prime minister on Friday morning, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm)
-
----
-
-# Wall Street regains some ground after inflation report
-
-![The shifts came after the consumer price index came in at a cooler than expected 2.8 percent for February. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795496_1_20250313063349.jpg&q=90)
-  
-
-Wall Street stocks regained some ground Wednesday helped by a rise in tech shares, as easing inflation assuaged some investor jitters about the world's biggest economy even as tariff worries lingered.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm)
 
 ---

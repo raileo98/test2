@@ -1,3 +1,27 @@
+# Crew launch to ISS to replace stuck astronauts
+
+![SpaceX's Falcon 9 rocket lifts off, carrying NASA's Crew-10 astronauts to the International Space Station at the Kennedy Space Center, Florida. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795820_1_20250315083347.jpg&q=90)
+  
+
+After more than nine months on the International Space Station, two astronauts are a step closer to returning home following the launch of a crew swap mission on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm)
+
+---
+
 # Putin tells Ukraine troops in Kursk to 'surrender'
 
 ![Russian President Vladimir Putin chairs a meeting with members of the Security Council via video link. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795805_1_20250315050817.jpg&q=90)
@@ -1411,29 +1435,5 @@ Impeached South Korean President Yoon Suk Yeol was released from detention on Sa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794922-20250308.htm)
-
----
-
-# Ex-Cyclone Alfred sparks flood warnings in Australia
-
-![Alfred has battered the coastline with gale-force winds that toppled trees. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794891_1_20250308152018.jpg&q=80)
-  
-
-Ex-Cyclone Alfred stalled off the rain- and wind-lashed coast of eastern Australia on Saturday, threatening to unleash floods after blacking out more than a quarter of a million homes and businesses.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794891-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794891-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794891-20250308.htm)
 
 ---
