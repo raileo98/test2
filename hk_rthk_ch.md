@@ -1,3 +1,51 @@
+# 古巴電網故障　全國大範圍停電
+
+![古巴去年12月亦曾發生大範停電。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795824_1_20250315091846.jpg&q=90)
+  
+
+古巴國家電網發生故障，導致全國大範圍停電。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795824-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795824-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795824-20250315.htm)
+
+---
+
+# 李慧琼稱香港應與國際深化交流擴大網絡　引進更多人才資金
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795823_1_20250315093033.jpg&q=85)
+  
+
+全國兩會日前閉幕，人大常委李慧琼出席本台節目《星期六問責》時表示，國家非常關心及支持港澳，今年的總理工作報告提及要求深化國際交往合作，她認為可以進一步發揮香港制度的獨有優勢及固有特點，除了經濟，亦涉及政治、文化、體育、科技及教育等方面，與國際深化交流和擴大網絡，引進更多人才資金，提升國家的軟實力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm)
+
+---
+
 # 中國駐加使館斥七國集團粗暴干涉中國內政　已提嚴正交涉
 
 ![中國駐加拿大使館表示，七國集團外長會議會後聯合聲明，無視客觀事實和中方嚴正立場，中方已向加方提出嚴正交涉。 （中國駐加拿大使館網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795822_1_20250315090144.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm)
-
----
-
-# 理想上季經調整盈利按年跌逾10%　收入創新高
-
-![理想汽車按照美國公認會計準則，上季普通股股東應佔盈利按年跌約38%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795748_1_20250314170923.jpg&q=85)
-  
-
-理想汽車按照美國公認會計準則，上季普通股股東應佔盈利35.2億元人民幣，按年跌約38%，按季增加25%。經調整盈利40.3億元，按年跌逾10%，按季升約5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795748-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795748-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795748-20250314.htm)
-
----
-
-# 全國兩會｜李家超提示官員留意總理工作報告首提深化國際交往合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795752_1_20250314182059.jpg&q=90)
-  
-
-行政長官李家超表示，今早舉行政府高層內部學習分享會，和政治委任官員等分享學習全國兩會精神的體會；包括香港如何更好對接國家發展戰略，以及對香港特區政府管治的重要意義等，並要求官員學習領會和貫徹全國兩會精神。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm)
 
 ---

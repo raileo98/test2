@@ -1,3 +1,51 @@
+# 古巴電網故障　全國大範圍停電
+
+![古巴去年12月亦曾發生大範停電。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795824_1_20250315091846.jpg&q=90)
+  
+
+古巴國家電網發生故障，導致全國大範圍停電。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795824-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795824-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795824-20250315.htm)
+
+---
+
+# 李慧琼稱香港應與國際深化交流擴大網絡　引進更多人才資金
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795823_1_20250315093033.jpg&q=85)
+  
+
+全國兩會日前閉幕，人大常委李慧琼出席本台節目《星期六問責》時表示，國家非常關心及支持港澳，今年的總理工作報告提及要求深化國際交往合作，她認為可以進一步發揮香港制度的獨有優勢及固有特點，除了經濟，亦涉及政治、文化、體育、科技及教育等方面，與國際深化交流和擴大網絡，引進更多人才資金，提升國家的軟實力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm)
+
+---
+
 # 中國駐加使館斥七國集團粗暴干涉中國內政　已提嚴正交涉
 
 ![中國駐加拿大使館表示，七國集團外長會議會後聯合聲明，無視客觀事實和中方嚴正立場，中方已向加方提出嚴正交涉。 （中國駐加拿大使館網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795822_1_20250315090144.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm)
-
----
-
-# 中國駐泰大使：中方全力協調查找解救電詐網賭失聯被困人員
-
-![韓志強稱，中方全力協調查找解救電詐網賭失聯被困人員。（中國駐泰國大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795564_1_20250313152754.jpg&q=90)
-  
-
-中國駐泰國大使韓志強表示，中方對泰方採取強而有力措施摧毀電詐團夥、維護中國及各國公民生命財產安全表示讚賞。中方將繼續深化同包括泰國在內的相關國家之間的執法合作，加大力度打擊電詐網賭、人口販賣等跨境違法犯罪活動，全力協調查找解救失聯、被困人員，切實維護人民群眾生命財產安全和合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm)
-
----
-
-# 謝展寰稱香港能成為世界各地氫能及其他綠色技術示範中心
-
-![謝展寰說，作為國際金融中心，香港可以透過提供綠色融資和專業服務，幫助各地和企業的綠色轉型。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795555_1_20250313154708.jpg&q=90)
-  
-
-由機電署主辦及中國氫能聯盟協辦的國際氫能發展論壇在香港科學園舉行開幕禮，由中聯辦教育科技部副部長葉水球、環境及生態局局長謝展寰、機電署署長潘國英、投資推廣署署長劉凱旋和中國氫能聯盟秘書長劉瑋擔任開幕嘉賓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795555-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795555-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795555-20250313.htm)
 
 ---

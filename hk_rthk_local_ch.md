@@ -1,3 +1,27 @@
+# 李慧琼稱香港應與國際深化交流擴大網絡　引進更多人才資金
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795823_1_20250315093033.jpg&q=85)
+  
+
+全國兩會日前閉幕，人大常委李慧琼出席本台節目《星期六問責》時表示，國家非常關心及支持港澳，今年的總理工作報告提及要求深化國際交往合作，她認為可以進一步發揮香港制度的獨有優勢及固有特點，除了經濟，亦涉及政治、文化、體育、科技及教育等方面，與國際深化交流和擴大網絡，引進更多人才資金，提升國家的軟實力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm)
+
+---
+
 # 嶺大有信息系統被黑客入侵　數千份內部文件外洩
 
 ![校方已就事件通報個人資料私隱專員公署。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795804_1_20250315045007.jpg&q=75)
@@ -1411,29 +1435,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795612-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795612-20250313.htm)
-
----
-
-# O．PARK1廚餘儲存缸滲漏須維修　服務由O．PARK2處理
-
-![環保署說，會因應O．PARK1維修工作的進展及最新情況，主動聯絡受影響的廚餘生產者及運送者，確保相關廚餘運送工作繼續有序進行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795610_1_20250313201348.jpg&q=90)
-  
-
-環保署表示，位於大嶼山小蠔灣的有機資源回收中心第一期O．PARK1，一個廚餘儲存缸出現滲漏，需要緊急維修。現時O．PARK1需暫停接收廚餘，相關廚餘會由其他設施接收和處理，包括位於北區沙嶺的有機資源回收中心第二期O．PARK2。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795610-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795610-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795610-20250313.htm)
 
 ---

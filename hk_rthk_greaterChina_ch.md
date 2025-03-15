@@ -1,3 +1,27 @@
+# 李慧琼稱香港應與國際深化交流擴大網絡　引進更多人才資金
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795823_1_20250315093033.jpg&q=85)
+  
+
+全國兩會日前閉幕，人大常委李慧琼出席本台節目《星期六問責》時表示，國家非常關心及支持港澳，今年的總理工作報告提及要求深化國際交往合作，她認為可以進一步發揮香港制度的獨有優勢及固有特點，除了經濟，亦涉及政治、文化、體育、科技及教育等方面，與國際深化交流和擴大網絡，引進更多人才資金，提升國家的軟實力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm)
+
+---
+
 # 中國駐加使館斥七國集團粗暴干涉中國內政　已提嚴正交涉
 
 ![中國駐加拿大使館表示，七國集團外長會議會後聯合聲明，無視客觀事實和中方嚴正立場，中方已向加方提出嚴正交涉。 （中國駐加拿大使館網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795822_1_20250315090144.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795317-20250311.htm)
-
----
-
-# 多兩中學韶關交流有師生腸胃炎累計52人不適　曾到相同餐廳用膳
-
-![再多兩間參與廣東韶關交流團的中學師生，出現腸胃炎徵狀。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795309_1_20250311212434.jpg&q=80)
-  
-
-再多兩間參與廣東韶關交流團的中學，有師生出現腸胃炎徵狀。3間學校、共52名師生於本月3日至10日期間出現急性腸胃炎徵狀，16人已求醫，全部毋須入院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795309-20250311.htm)
 
 ---
