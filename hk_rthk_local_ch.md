@@ -1,3 +1,28 @@
+# 香港藝術中心於首爾辦漫畫電影展覽　推廣香港文化與旅遊
+
+![歐慧心（中）在南韓首爾仁寺藝術中心舉行的《影‧畫　香港地》香港漫畫 x 電影展覽業界酒會上與展覽主辦方及一眾參與藝術家合照。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795886_1_20250315225842.jpg&q=85)
+![歐慧心出席韓國首爾仁寺藝術中心舉行的《影‧畫　香港地》香港漫畫 x 電影展覽業界酒會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795886_2_20250315225842.jpg&q=90)
+  
+
+香港藝術中心「動漫基地」在南韓首爾舉辦漫畫電影展覽，展期至本月30日，免費入場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795886-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795886-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795886-20250315.htm)
+
+---
+
 # 港澳辦再轉載文章　質疑長和擬售巴拿馬運河港口有否考量國家利益
 
 ![港澳辦連續第二次轉載《大公報》的評論文章。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795884_2_20250315222028.jpg&q=85)
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795715-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795715-20250314.htm)
-
----
-
-# 港股下午初段在24000點關口爭持
-
-![恒生指數在24000點關口爭持，較早時報23994點，升532點，升幅2.27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795708_1_20250314130613.jpg&q=65)
-  
-
-港股下午初段造好，恒生指數在24000點關口爭持，較早時報23994點，升532點，升幅2.27%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795708-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795708-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795708-20250314.htm)
 
 ---
