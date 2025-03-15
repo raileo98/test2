@@ -1,3 +1,26 @@
+# 天文台預料本港短期內可能受冰雹影響
+
+  
+
+天文台表示，位於珠江口以西的強雷雨區正逐漸移近本港，預料未來兩三小時本港雨勢較大及有強烈狂風雷暴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795848-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795848-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795848-20250315.htm)
+
+---
+
 # 強雷雨區逐漸移近　料未來兩三小時本港雨勢較大及有強烈狂風雷暴
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm)
-
----
-
-# 李強︰要更注重加大政策力度和激發市場力量良性互動
-
-![李強說，要實施好更加積極有為的宏觀政策，最大限度發揮政策效應。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795770_1_20250314201958.jpg&q=90)
-  
-
-國務院總理李強主持召開國務院第八次全體會議，深入學習貫徹總書記習近平在全國兩會期間的重要講話和全國兩會精神，對落實國務院2025年重點工作進行部署。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm)
 
 ---
