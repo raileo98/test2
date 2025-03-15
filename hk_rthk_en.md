@@ -1,3 +1,27 @@
+# Gaza civil defence says Israeli strikes kill 9
+
+![Hamas says the Israeli strikes on Beit Lahia violate the Gaza truce deal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795885_1_20250315222731.jpg&q=80)
+  
+
+Gaza's civil defence agency said nine people, including journalists, were killed in Israeli strikes in the north on Saturday, an attack Hamas denounced as a "blatant violation" of the fragile ceasefire.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795885-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795885-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795885-20250315.htm)
+
+---
+
 # 'Russia is doing everything to prevent a ceasefire'
 
 ![Volodymyr Zelensky says he wants European boots on the ground in Ukraine. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795883_1_20250315215053.jpg&q=90)
@@ -22,7 +46,7 @@ Ukrainian President Volodymyr Zelensky said on Saturday he had urged Kyiv's West
 
 ---
 
-# Russian captain of North Sea crash ship in UK court
+# Captain of North Sea crash ship in UK court
 
 ![The collision left a huge hole in the US-registered Stena Immaculate tanker. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795877_1_20250315203158.jpg&q=75)
   
@@ -1412,29 +1436,5 @@ Nearly 70 percent of local university courses have seen their global rankings ri
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795543-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795543-20250313.htm)
-
----
-
-# Cancer devices donated by Li require clinical trials
-
-![HKU says 40 patients have been treated with the donated device over the past six months. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795541_1_20250313123550.jpg&q=75)
-  
-
-Health officials said medical devices donated by a tycoon for treating liver cancer are still under clinical trials and require careful evaluation before wider use in public healthcare.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795541-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795541-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795541-20250313.htm)
 
 ---
