@@ -1,3 +1,27 @@
+# G7外長會後聲明沒再提奉行「一中」政策　中方不滿並嚴正交涉
+
+![中國駐加拿大使館發言人說，七國集團外長的聲明字裡行間充斥著傲慢、偏見和遏華反華的險惡用心。（中國駐加拿大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795863_1_20250315173417.jpg&q=90)
+  
+
+七國集團（G7）外長結束一連兩日在加拿大魁北克舉行的會議，相對於去年11月的會後聲明，七國集團外長今次的聯合聲明並無再提及奉行「一個中國」政策，聲明中又表示，鼓勵涉及台海兩岸的事項，應以和平方式處理，反對任何單方面使用武力，企圖改變現狀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm)
+
+---
+
 # 石破茂稱將努力讓中國取消對日水產品進口限制
 
 ![石破茂表示，將努力爭取中方取消限制進口日本水產品的措施。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795858_1_20250315161943.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795607-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795607-20250313.htm)
-
----
-
-# 杜特爾特支持者聚集拘留中心外　質疑國際刑事法院被用作政治工具
-
-![支持者要求釋放杜特爾特。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795602_1_20250313192346.jpg&q=90)
-  
-
-菲律賓前總統杜特爾特被送到荷蘭海牙並移交國際刑事法院。他的一批支持者在法院拘留中心外聚集，揮舞菲律賓國旗並高呼口號，要求釋放杜特爾特。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795602-20250313.htm)
 
 ---
