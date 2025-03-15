@@ -1,3 +1,51 @@
+# 美國中南部多處龍捲風及沙塵暴　最少16死並損毀幾十座房屋
+
+![密蘇里州有房屋被龍捲風摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795890_1_20250316004501.jpg&q=70)
+  
+
+美國中部及南部多處自當地星期五起，出現龍捲風及沙塵暴等惡劣天氣，截至周六早上，已造成最少16人死亡，多人受傷，幾十座房屋損毀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm)
+
+---
+
+# 南韓傳媒料總統彈劾案裁決或本周中後期出爐
+
+![法院未就尹錫悅彈劾案通告宣判日期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795889_1_20250316003436.jpg&q=90)
+  
+
+南韓憲法法院未向總統尹錫悅彈劾案的申請方及被申請方，通告宣判日期。當地傳媒推測，裁決結果可能在本周中、後期出爐。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm)
+
+---
+
 # 工業傷亡權益會促改善溝通確保重要天氣資訊可有效傳達吊船操作員
 
 ![事發時操作員連人帶船於半空被吹到左搖右擺。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795888_1_20250316001759.jpg&q=90)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795816-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795816-20250315.htm)
-
----
-
-# 北海撞船事故　涉事貨船船長被控重大過失殺人
-
-![涉事運油輪嚴重損毀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795814_1_20250315065710.jpg&q=85)
-  
-
-英格蘭東北部附近海域日前發生撞船意外，涉事的貨船船長被檢察部門控以重大過失殺人罪。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm)
-
----
-
-# 港股美國預託證券造好　滙控升近4%
-
-![滙控ADR比本港昨日收市價升近4%，以港元計折合報88.7元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795813_1_20250315060638.jpg&q=90)
-  
-
-港股美國預託證券(ADR)造好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795813-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795813-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795813-20250315.htm)
 
 ---

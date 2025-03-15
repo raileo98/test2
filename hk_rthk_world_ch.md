@@ -1,3 +1,51 @@
+# 美國中南部多處龍捲風及沙塵暴　最少16死並損毀幾十座房屋
+
+![密蘇里州有房屋被龍捲風摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795890_1_20250316004501.jpg&q=70)
+  
+
+美國中部及南部多處自當地星期五起，出現龍捲風及沙塵暴等惡劣天氣，截至周六早上，已造成最少16人死亡，多人受傷，幾十座房屋損毀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm)
+
+---
+
+# 南韓傳媒料總統彈劾案裁決或本周中後期出爐
+
+![法院未就尹錫悅彈劾案通告宣判日期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795889_1_20250316003436.jpg&q=90)
+  
+
+南韓憲法法院未向總統尹錫悅彈劾案的申請方及被申請方，通告宣判日期。當地傳媒推測，裁決結果可能在本周中、後期出爐。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm)
+
+---
+
 # 施紀賢稱達成停火後西方國家將組「自願聯盟」助確保烏克蘭安全
 
 ![施紀賢強調，停火計劃必須與美國共同完成。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795882_1_20250315214928.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm)
-
----
-
-# 七國集團召開外長會議　加國外長稱希望烏克蘭實現公正持久和平
-
-![與會者在會前大合照。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795639_1_20250314012055.jpg&q=90)
-  
-
-七國集團外長一連兩日在加拿大魁北克舉行會議，聚焦俄烏戰事及貿易戰等議題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795639-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795639-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795639-20250314.htm)
-
----
-
-# 普京稱同意與烏臨時停火建議惟須討論細節　或與特朗普通電話
-
-![普京說，停火的建議正確，但要透過停火實現長久和平，消除衝突根源。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795638_1_20250314005435.jpg&q=90)
-  
-
-俄羅斯總統普京表示，俄方同意與烏克蘭臨時停火30日的建議，但很多細節問題仍需討論。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795638-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795638-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795638-20250314.htm)
 
 ---
