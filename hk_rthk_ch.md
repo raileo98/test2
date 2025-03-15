@@ -1,3 +1,27 @@
+# 央視︰解放軍海軍一架戰鬥機訓練期間失事　飛行員成功跳傘
+
+![央視︰解放軍海軍一架戰鬥機訓練期間失事　飛行員成功跳傘](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795871_1_20250315193542.jpg&q=90)
+  
+
+央視新聞報道，解放軍海軍一架戰鬥機訓練期間失事，飛行員成功跳傘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795871-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795871-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795871-20250315.htm)
+
+---
+
 # 多國領導人就俄烏問題舉行視像會議　施紀賢批評普京試圖拖延和談
 
 ![施紀賢與多國領導人舉行視像會議，討論烏克蘭問題。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795870_1_20250315192619.jpg&q=90)
