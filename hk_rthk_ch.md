@@ -1,5 +1,30 @@
+# 短道速滑世錦賽在北京舉行　中國劉少昂1500米摘銅
+
+![中國劉少昂在短道速滑世錦賽1500米比賽中摘銅。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795880_1_20250315210050.jpg&q=90)
+  
+
+短道速滑世錦賽在北京舉行，中國的劉少昂在男子1500米，奪得一面銅牌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm)
+
+---
+
 # 北京市出現雨雪降溫天氣　當局延長暖氣供應
 
+![北京民眾在雨雪中前行。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795881_1_20250315211729.jpg&q=90)
   
 
 受到暖濕氣流和冷空氣共同影響，北京市大部分地區出現雨雪天氣，以降雪為主，北部地區相對明顯。由於臨近供暖季結束但氣溫下降，市城市管理委員會表示，2024/25供暖季延長至下周一午夜，共延長2天。

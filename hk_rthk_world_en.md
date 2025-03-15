@@ -1,3 +1,27 @@
+# Russian captain of North Sea crash ship in UK court
+
+![The collision left a huge hole in the US-registered Stena Immaculate tanker. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795877_1_20250315203158.jpg&q=75)
+  
+
+The Russian captain of a cargo ship which struck a tanker in the North Sea off the UK's northeastern coast appeared in court on Saturday charged with gross negligence manslaughter.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795877-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795877-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795877-20250315.htm)
+
+---
+
 # Putin will have to 'come to table,' UK PM tells summit
 
 ![Keir Starmer and French President Emmanuel Macron have been leading efforts to assemble a so-called "coalition of the willing."  Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795873_1_20250315201758.jpg&q=90)
@@ -1411,29 +1435,5 @@ A man who climbed Big Ben's Elizabeth Tower at London's Palace of Westminster wa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794937-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794937-20250309.htm)
-
----
-
-# Pope doing physiotherapy in hospital after quiet night
-
-![Italian Cardinal Pietro Parolin reads aloud a message on the pope's behalf during a mass in St Peter's Basilica on Saturday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794926_1_20250308200342.jpg&q=80)
-  
-
-Pope Francis was doing physiotherapy on Saturday after passing a quiet night, the Vatican said, as the 88-year-old head of the global Catholic Church battles pneumonia.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794926-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794926-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794926-20250308.htm)
 
 ---

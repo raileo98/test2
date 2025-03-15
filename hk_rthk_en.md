@@ -1,3 +1,27 @@
+# Russian captain of North Sea crash ship in UK court
+
+![The collision left a huge hole in the US-registered Stena Immaculate tanker. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795877_1_20250315203158.jpg&q=75)
+  
+
+The Russian captain of a cargo ship which struck a tanker in the North Sea off the UK's northeastern coast appeared in court on Saturday charged with gross negligence manslaughter.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795877-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795877-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795877-20250315.htm)
+
+---
+
 # Ohtani hits home run in Dodgers' Tokyo exhibition game
 
 ![Superstar Shohei Ohtani sends the crowd wild with a two-run homer in the third inning. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795879_1_20250315205024.jpg&q=85)
@@ -1412,29 +1436,5 @@ The chairman of the Hong Kong Society for Infectious Diseases on Thursday said i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795536-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795536-20250313.htm)
-
----
-
-# Intel hires Malaysian veteran to head reboot
-
-![Tan Lip Bu rejoins Intel as chief executive on Tuesday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795538_1_20250313134923.jpg&q=90)
-  
-
-Struggling chipmaker Intel has hired former board member and semiconductor industry veteran Tan Lip Bu as the latest in a succession of chief executives to attempt to turn around a once-dominant company that helped define Silicon Valley.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm)
 
 ---
