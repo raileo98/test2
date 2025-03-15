@@ -1,3 +1,27 @@
+# 朝中社：俄羅斯副外長訪問北韓
+
+![朝中社：俄羅斯副外長訪問北韓](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795846_1_20250315143249.jpg&q=90)
+  
+
+朝中社報道，俄羅斯副外長魯登科正在北韓訪問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795846-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795846-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795846-20250315.htm)
+
+---
+
 # 古巴全國大停電　5個月以來第4次
 
 ![全國全國大範圍停電，首都哈瓦那街頭漆黑一片。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795844_1_20250315134013.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm)
-
----
-
-# 俄駐英大使稱俄方將考慮美國所提出停火建議　達協議後才完全停火
-
-![美烏代表團日前在沙特會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795574_1_20250313185809.jpg&q=85)
-  
-
-俄羅斯駐英國大使克林接受美國報章訪問時說，俄方將考慮美國提出的烏克蘭停火建議，但只有在達成全面和平協議後，才會完全停止軍事行動，俄羅斯非常謹慎看待有關倡議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795574-20250313.htm)
 
 ---

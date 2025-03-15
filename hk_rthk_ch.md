@@ -1,3 +1,27 @@
+# 朝中社：俄羅斯副外長訪問北韓
+
+![朝中社：俄羅斯副外長訪問北韓](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795846_1_20250315143249.jpg&q=90)
+  
+
+朝中社報道，俄羅斯副外長魯登科正在北韓訪問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795846-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795846-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795846-20250315.htm)
+
+---
+
 # 天文台：未來兩三小時局部地區會有狂風雷暴
 
 ![天文台：未來兩三小時局部地區會有狂風雷暴](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795845_1_20250315142448.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm)
-
----
-
-# 國防部：中方要求日方在軍事安全領域謹言慎行
-
-![張曉剛說，中方要求日方在軍事安全領域謹言慎行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795769_1_20250314193657.jpg&q=90)
-  
-
-在北京，國防部新聞發言人張曉剛說，中方要求日方深刻汲取歷史教訓，在軍事安全領域謹言慎行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm)
 
 ---
