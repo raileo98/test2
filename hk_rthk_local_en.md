@@ -1,3 +1,27 @@
+# Three rescued from gondola platform amid high winds
+
+![A video circulating online shows the platform swaying from side to side during the incident.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795868_1_20250315182730.jpg&q=90)
+  
+
+Nobody was reported injured after three workers became trapped on a gondola platform in Tin Shui Wai on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm)
+
+---
+
 # HK$2 tweaks can save govt nearly HK$700 million a year
 
 ![Chris Sun says changes to the HK$2 scheme will make the beneficiaries choose cheaper transportation. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795864_1_20250315174901.jpg&q=90)
@@ -1412,29 +1436,5 @@ Sergio Garcia of Spain on Sunday carded a seven-under 63 to take home the LIV Go
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm)
-
----
-
-# 'Reduce waste by allowing water bottles into venues'
-
-![A number of spectators were seen with bottled water next to their seats during Sunday's World Snooker Grand Prix final at Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794990_1_20250309170511.jpg&q=90)
-  
-
-A rule banning spectators from bringing water bottles into competition venues at Kai Tak Sports Park should be relaxed to reduce waste, a green group said, after noticing exemptions were given to certain guests.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794990-20250309.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Three rescued from gondola platform amid high winds
+
+![A video circulating online shows the platform swaying from side to side during the incident.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795868_1_20250315182730.jpg&q=90)
+  
+
+Nobody was reported injured after three workers became trapped on a gondola platform in Tin Shui Wai on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm)
+
+---
+
 # HK$2 tweaks can save govt nearly HK$700 million a year
 
 ![Chris Sun says changes to the HK$2 scheme will make the beneficiaries choose cheaper transportation. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795864_1_20250315174901.jpg&q=90)
@@ -1412,29 +1436,5 @@ Macau health authorities on Thursday said that a two-year-old girl from the SAR 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795531-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795531-20250313.htm)
-
----
-
-# Student activist fights his deportation from the US
-
-![Pro-Palestinian protestors rally in support of Mahmoud Khalil outside of court in New York. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795530_1_20250313114045.jpg&q=85)
-  
-
-A US judge on Wednesday extended his order blocking federal authorities from deporting a detained Columbia University student, in a case that has become a flashpoint of the Trump administration's pledge to deport some pro-Palestinian college activists.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795530-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795530-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795530-20250313.htm)
 
 ---
