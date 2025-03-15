@@ -1,3 +1,27 @@
+# 警方檢約40粒含太空油毒品電子煙彈　男子涉販毒落網
+
+![警方在新蒲崗一個住宅單位外截查涉案男子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795887_1_20250315234840.jpg&q=60)
+  
+
+警方在新蒲崗檢獲大約40粒含有「太空油毒品」的電子煙彈，市值約1.4萬元，拘捕一名24歲男子，指他涉嫌販運危險藥物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795887-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795887-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795887-20250315.htm)
+
+---
+
 # 香港藝術中心於首爾辦漫畫電影展覽　推廣香港文化與旅遊
 
 ![圖示香港插畫家Pearl Law的作品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795886_3_20250315230128.jpg&q=85)
