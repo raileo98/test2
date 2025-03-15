@@ -1,3 +1,27 @@
+# Military jet crashes, pilot ejects unhurt: CCTV
+
+![The PLA said there was no collateral damage on the ground. File Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795895_1_20250316051831.jpg&q=90)
+  
+
+CCTV news says a People's Liberation Army naval fighter jet crashed on Saturday during a training exercise in Hainan Province, with the pilot safely ejecting.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795895-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795895-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795895-20250316.htm)
+
+---
+
 # Gaza civil defence says Israeli strikes kill 9
 
 ![Hamas says the Israeli strikes on Beit Lahia violate the Gaza truce deal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795885_1_20250315222731.jpg&q=80)
@@ -1412,29 +1436,5 @@ The bodies of at least 25 people, including 21 hostages, killed in a train siege
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795561-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795561-20250313.htm)
-
----
-
-# 6 HK university courses make top 10 in global ranking
-
-![HKU’s dentistry course sits at the number-two spot when compared with its global peers. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795543_1_20250313124205.jpg&q=75)
-  
-
-Nearly 70 percent of local university courses have seen their global rankings rise, compared to last year’s results.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795543-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795543-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795543-20250313.htm)
 
 ---
