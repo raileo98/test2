@@ -1,3 +1,26 @@
+# 天水圍有工人吊船上於半空被吹到左搖右擺其後獲救
+
+  
+
+天水圍天瑞邨有一名吊船工人下午3時許在外牆工作期間遇到大風雨，連人帶船於半空被吹到左搖右擺、搖搖欲墜，工人其後趁吊船被吹回外牆窗邊時，自行爬上窗邊石壆，消防到場後將他救回地面，無人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795869-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795869-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795869-20250315.htm)
+
+---
+
 # 李慧琼：政府可考慮高層次統籌「深化國際交往合作」策略
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795867_1_20250315182615.jpg&q=85)
@@ -240,7 +263,7 @@
 
 # 鄧炳強稱定會盡力將餘下被禁錮東南亞港人帶回香港
 
-![鄧炳強出席活動後表示，一定會盡力將餘下港人帶回香港。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795854_2_20250315180325.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795854_2_20250315180325.jpg&q=90)
   
 
 6名被誘騙到緬甸園區從事非法工作的港人早前回港。當局上星期表示，會繼續積極跟進餘下3宗仍未返港的相關求助個案。
