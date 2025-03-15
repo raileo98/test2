@@ -1,3 +1,27 @@
+# 央視︰解放軍海軍一架戰鬥機訓練期間失事　飛行員成功跳傘
+
+![央視︰解放軍海軍一架戰鬥機訓練期間失事　飛行員成功跳傘](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795871_1_20250315193542.jpg&q=90)
+  
+
+央視新聞報道，解放軍海軍一架戰鬥機訓練期間失事，飛行員成功跳傘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795871-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795871-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795871-20250315.htm)
+
+---
+
 # 李慧琼：政府可考慮高層次統籌「深化國際交往合作」策略
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795867_1_20250315182615.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795407-20250312.htm)
-
----
-
-# 回應民進黨當局威脅台灣藝人　國台辦：充分暴露其虛偽
-
-![陳斌華批評民進黨當局充分暴露其標榜的「民主自由」的虛偽。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795395_1_20250312124617.jpg&q=90)
-  
-
-在北京，國台辦回應民進黨當局威脅台灣藝人，發言人陳斌華批評民進黨當局動輒威脅恫嚇、打擊報復，企圖限制、剝奪台灣同胞的思想自由、言論自由，充分暴露其標榜的「民主自由」的虛偽。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795395-20250312.htm)
 
 ---
