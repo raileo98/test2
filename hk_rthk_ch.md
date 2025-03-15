@@ -1,3 +1,27 @@
+# 南非總統府對駐美大使被驅逐表遺憾　籲相關方保持外交禮儀
+
+![南非總統府發表聲明說拉蘇爾被驅逐令人遺憾。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795892_1_20250316013456.jpg&q=90)
+  
+
+南非國際關係與合作部發言人菲里確認，南非駐美國大使拉蘇爾已被要求在72小時內離開美國。南非總統府發表聲明說，拉蘇爾被驅逐令人遺憾，呼籲相關方在處理事件時保持外交禮儀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795892-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795892-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795892-20250316.htm)
+
+---
+
 # 澤連斯基據報組團　將代表烏克蘭參與任何可能出現和談
 
 ![澤連斯基強調安全是建立可靠、持久和平的關鍵。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795891_1_20250316012257.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795817-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795817-20250315.htm)
-
----
-
-# 歐元兌美元曾升穿1.09　美元指數於104得而復失
-
-![德國財政改革有進展，歐元兌美元一度升穿1.09水平，高見1.0911。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795815_1_20250315070837.jpg&q=85)
-  
-
-德國財政改革有進展，國會下星期將會表決債務協議，協議包括設立5000億歐元基金，用於國防及基礎設施投資。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm)
 
 ---
