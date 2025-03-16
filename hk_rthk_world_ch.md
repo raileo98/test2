@@ -1,4 +1,28 @@
-# 外交部駐港公署：美英加等國干涉香港事務和中國內政注定徒勞無功
+# 澤連斯基：烏俄停火不應與領土問題掛鉤
+
+![澤連斯基在基輔舉行記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795951_1_20250316194009.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基強調，烏俄兩國停火的第一步不應與領土問題掛鉤。他同時表示，烏克蘭不會承認被佔領土屬於俄羅斯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm)
+
+---
+
+# 外交部駐港公署：美英等國干涉香港事務和中國內政　注定徒勞無功
 
 ![發言人說，公署敦促有關國家立即停止以任何手段干預香港事務和中國內政。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795950_1_20250316191423.jpg&q=90)
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm)
-
----
-
-# 石破茂發商品券給部分自民黨眾議員遭在野黨批評
-
-![石破茂分發商品券給部分自民黨眾議員，受到在野黨批評。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795730_1_20250314153635.jpg&q=90)
-  
-
-日本首相石破茂承認本月初以禮品名義，向參加聚餐並首次當選眾議員的自民黨籍議員分發每人10萬日圓的商品券。他就事件致歉，並強調不構成法律問題，但仍然受到在野黨批評。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795730-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795730-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795730-20250314.htm)
 
 ---

@@ -1,4 +1,28 @@
-# 外交部駐港公署：美英加等國干涉香港事務和中國內政注定徒勞無功
+# 澤連斯基：烏俄停火不應與領土問題掛鉤
+
+![澤連斯基在基輔舉行記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795951_1_20250316194009.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基強調，烏俄兩國停火的第一步不應與領土問題掛鉤。他同時表示，烏克蘭不會承認被佔領土屬於俄羅斯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm)
+
+---
+
+# 外交部駐港公署：美英等國干涉香港事務和中國內政　注定徒勞無功
 
 ![發言人說，公署敦促有關國家立即停止以任何手段干預香港事務和中國內政。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795950_1_20250316191423.jpg&q=90)
   
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795874-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795874-20250315.htm)
-
----
-
-# 俄羅斯國防部稱又收復庫爾斯克州兩個地方
-
-![普京在聯邦安全會議常務委員視像會議上表示，如果烏軍放低武器投降，俄方會保證他們的安全。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795872_1_20250315195155.jpg&q=90)
-  
-
-俄羅斯國防部表示，俄軍在庫爾斯克州的進攻行動中，又收復兩個地方，分別是扎奧列申卡村和魯班錫納村。又說過去24小時內，烏克蘭軍隊在庫爾斯克損失約220名士兵、一輛坦克、一輛步兵戰車和一輛裝甲戰車等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795872-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795872-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795872-20250315.htm)
 
 ---
