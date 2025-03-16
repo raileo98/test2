@@ -1,3 +1,26 @@
+# 也門胡塞武裝領導人揚言會將所有美國航母及軍艦作為襲擊目標
+
+  
+
+也門胡塞武裝領導人發表講話，揚言會將所有美國航空母艦及軍艦，作為襲擊目標，又指責美國的所作所為是將海洋變為戰場，影響國際航道的航行。他又說如果美國繼續進行針對胡塞武裝的軍事行動，胡塞武裝會升級報復手段。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795979-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795979-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795979-20250317.htm)
+
+---
+
 # 以國總理尋求解除國安總局長巴爾職務　巴爾指對方期望違公眾利益
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm)
-
----
-
-# 德甲拜仁慕尼黑被柏林聯逼和1:1
-
-![德甲拜仁慕尼黑與柏林聯不分勝負。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795901_1_20250316072256.jpg&q=90)
-  
-
-德國甲組足球聯賽，排榜首的拜仁慕尼黑作客被柏林聯逼和1:1。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795901-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795901-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795901-20250316.htm)
 
 ---
