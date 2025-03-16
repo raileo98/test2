@@ -1,3 +1,27 @@
+# 巴拿馬電廠指電力系統已恢復　供電陸逐恢復
+
+![當地星期六晚開始停電，目前電力供應陸續恢復。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795968_1_20250317013530.jpg&q=90)
+  
+
+巴拿馬電力傳輸公司通報，電力系統已經恢復。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795968-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795968-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795968-20250317.htm)
+
+---
+
 # 美防長稱除非停止襲擊美方船隻否則美軍不會停止無情打擊胡塞武裝
 
 ![也門首都薩那有房屋在轟炸中被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795967_1_20250317012709.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm)
-
----
-
-# 哈馬斯同意釋放一名有美國和以色列雙重國籍被扣押人員
-
-![哈馬斯同意釋放一名有美國和以色列雙重國籍被扣押人員](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795782_1_20250314214848.jpg&q=90)
-  
-
-巴勒斯坦武裝組織哈馬斯發表聲明說，已同意釋放一名有美國和以色列雙重國籍的被扣押人員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm)
 
 ---

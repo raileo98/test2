@@ -1,3 +1,27 @@
+# 巴拿馬電廠指電力系統已恢復　供電陸逐恢復
+
+![當地星期六晚開始停電，目前電力供應陸續恢復。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795968_1_20250317013530.jpg&q=90)
+  
+
+巴拿馬電力傳輸公司通報，電力系統已經恢復。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795968-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795968-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795968-20250317.htm)
+
+---
+
 # 美防長稱除非停止襲擊美方船隻否則美軍不會停止無情打擊胡塞武裝
 
 ![也門首都薩那有房屋在轟炸中被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795967_1_20250317012709.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795893-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795893-20250316.htm)
-
----
-
-# 南非總統府對駐美大使被驅逐表遺憾　籲相關方保持外交禮儀
-
-![南非總統府發表聲明說拉蘇爾被驅逐令人遺憾。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795892_1_20250316013456.jpg&q=90)
-  
-
-南非國際關係與合作部發言人菲里確認，南非駐美國大使拉蘇爾已被要求在72小時內離開美國。南非總統府發表聲明說，拉蘇爾被驅逐令人遺憾，呼籲相關方在處理事件時保持外交禮儀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795892-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795892-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795892-20250316.htm)
 
 ---
