@@ -1,3 +1,72 @@
+# 團體建議加强公眾認識有特殊教育需要小學生　鼓勵雙向共融
+
+  
+
+政府統計處數字顯示，截至上個學年，本港有3萬1千多名SEN、即有特殊教育需要的小學生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795947-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795947-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795947-20250316.htm)
+
+---
+
+# 李慧琼稱可考慮北都成特區中一個特區加快發展
+
+  
+
+全國人大常委李慧琼表示，可以考慮北部都會區成為「特區中的一個特區」，賦予它一個特別審批流程或者特別行政措施，以加快發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795946-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795946-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795946-20250316.htm)
+
+---
+
+# 陳美寶稱私家汽車出租法例規管年代久遠是時候檢視
+
+  
+
+運輸及物流局局長陳美寶表示，現有私家汽車出租法例規管年代久遠，是時候檢視法例，令點對點服務更全面，做到領先而非追落後。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795945-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795945-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795945-20250316.htm)
+
+---
+
 # 陳茂波冀科企助培育青年科技人才　提供優質就業發展機會
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795939_1_20250316183245.jpg&q=90)
@@ -1365,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795781-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795781-20250314.htm)
-
----
-
-# 兩元優惠調整　孫玉菡：不想老友記搭程車都心掛掛
-
-![財政預算案提出「兩元優惠計劃」調整方案，包括新增每月240程限制，10元以上改為全額車費「兩折」。（勞工及福利局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795776_1_20250314213016.jpg&q=90)
-  
-
-新一份財政預算案提出「兩元優惠計劃」調整方案，包括新增每月240程限制，10元以上改為全額車費「兩折」。勞工及福利局局長孫玉菡表示，在250萬受惠人士中，只有約360人每月優惠車程超出240程，他說假設長者每天兩度出行，即使每程都要轉車，8程車仍足以應付；而且上限以每月計算，偶有乘車超過8程的日子仍可拉上補下。他強調，政府在設定優惠車程上限時採取寬鬆的做法，就是不想老友記「搭程車都心掛掛」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm)
-
----
-
-# 廣華醫院一名護士遇襲受傷　警拘一名懷疑涉案探病男子
-
-![廣華醫院表示非常關注事件，向受傷護士致以深切慰問及提供所需支援。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795774_2_20250314204218.jpg&q=85)
-  
-
-廣華醫院一名護士昨日下午在病房工作期間遇襲受傷，病房職員和保安人員到場支援及報警求助，並將受傷的護士送往急症室治理。護士手臂受傷，經治療後已經出院。警方其後在醫院拘捕一名探病男子，懷疑與事件有關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795774-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795774-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795774-20250314.htm)
-
----
-
-# 前任懲教助理涉打傷情婦　傷人及普通襲擊罪成被判社會服務令
-
-![法庭給予被告最後一次機會，兩罪分別判處180及80小時社會服務令，同期執行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795773_3_20250315180052.jpg&q=85)
-  
-
-一名懲教署前任二級懲教助理與情婦發生爭執，掌摑及扯開對方擋格右手，導致對方中指骨裂，又威脅公開對方裸照，他早前被裁定傷人及普通襲擊罪成，在荃灣裁判法院被判處180小時社會服務令。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795773-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795773-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795773-20250314.htm)
 
 ---
