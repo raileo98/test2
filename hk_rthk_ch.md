@@ -1,3 +1,26 @@
+# 海關落馬洲檢獲懷疑「太空油毒品」等毒品　拘捕一名男子
+
+  
+
+海關在落馬洲管制站檢獲5粒懷疑「太空油毒品」煙彈、16粒懷疑第1部毒藥「他達拉非」，以及一支電子煙裝置，拘捕一名35歲男子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm)
+
+---
+
 # 葵涌道有私家車起火無人傷　初步懷疑引擎過熱所致
 
 ![葵涌道有私家車起火，3人及時離開車廂，無人受傷。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795937_1_20250316173642.jpg&q=75)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm)
-
----
-
-# 黃色暴雨警告信號取消　大埔有冰雹報告
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795859_2_20250315173626.jpg&q=80)
-  
-
-黃色暴雨警告信號在下午4時35分取消。另外，雷暴警告仍然生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795859-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795859-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795859-20250315.htm)
 
 ---

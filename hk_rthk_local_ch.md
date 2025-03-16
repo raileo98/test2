@@ -1,3 +1,26 @@
+# 海關落馬洲檢獲懷疑「太空油毒品」等毒品　拘捕一名男子
+
+  
+
+海關在落馬洲管制站檢獲5粒懷疑「太空油毒品」煙彈、16粒懷疑第1部毒藥「他達拉非」，以及一支電子煙裝置，拘捕一名35歲男子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm)
+
+---
+
 # 葵涌道有私家車起火無人傷　初步懷疑引擎過熱所致
 
 ![葵涌道有私家車起火，3人及時離開車廂，無人受傷。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795937_1_20250316173642.jpg&q=75)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795761-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795761-20250314.htm)
-
----
-
-# 盧寵茂︰考慮公營門診病人共付電腦掃描及磁力共振等檢查費用
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795760_1_20250314184625.jpg&q=90)
-  
-
-消息指，政府將於數星期內，交代公營醫療收費調整方案。醫務衞生局局長盧寵茂表示，正考慮電腦掃描及磁力共振等複雜的影像檢查，需要市民按項目共付費用，但急症室及住院病人接受有關服務仍維持免費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795760-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795760-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795760-20250314.htm)
 
 ---

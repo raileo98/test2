@@ -1,3 +1,27 @@
+# N Macedonia nightclub fire kills 51
+
+![A view of a burnt down nightclub inside which a fire broke out and killed 51 people in Kocani. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795938_1_20250316174342.jpg&q=50)
+  
+
+A fire that tore through a nightclub in North Macedonia killed 51 revellers attending a hip-hop concert at the venue, with more than 100 wounded, the country's interior minister said on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795938-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795938-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795938-20250316.htm)
+
+---
+
 # HK firms should strive for win-win deals: Starry Lee
 
 ![Starry Lee responds to questions on articles criticising the CK Hutchison port deal. Photo courtesy of TVB](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795934_1_20250316165214.jpg&q=90)
@@ -1411,29 +1435,5 @@ Scores of people poured into the lobby of Trump Tower in New York City on Thursd
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795650-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795650-20250314.htm)
-
----
-
-# Putin agrees to ceasefire but raises 'questions'
-
-![Putin makes his first comments on the plan, saying he's "for" the proposed ceasefire, but he has "serious questions" about how it would work. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795644_1_20250314025202.jpg&q=90)
-  
-
-Russian President Vladimir Putin said on Thursday he had "serious questions" about Washington's plan for a 30-day ceasefire in Ukraine, but Moscow was ready to discuss it with US President Donald Trump.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm)
 
 ---
