@@ -1,3 +1,26 @@
+# 澳門動物保護團體舉行活動　讓公眾領養澳門賽馬會場內流浪貓
+
+  
+
+結業近一年的澳門賽馬會，將在下月1日交還用地給政府。澳門動物保護協會上午在場內舉行流浪貓領養活動，希望為之前已經捕捉及圈養登記的流浪貓覓得新主人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795929-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795929-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795929-20250316.htm)
+
+---
+
 # 李慧琼指立法會議員應多「落場踢」　要促成甚至成為參與者
 
   
@@ -95,7 +118,7 @@
 
 # 小西灣邨瑞泰樓有石屎高處墮下擊傷女途人
 
-![案件列作高空墮物有人受傷，暫未有人被捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795924_1_20250316132745.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795924_2_20250316150903.jpg&q=80)
   
 
 柴灣小西灣邨瑞泰樓有石屎從高處墮下，擊傷一名26歲女途人。
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795851-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795851-20250315.htm)
-
----
-
-# 黃色暴雨警告信號生效　天文台料本港短期內或受冰雹影響
-
-![黃色暴雨警告信號生效　天文台料本港短期內或受冰雹影響](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795850_1_20250315150428.jpg&q=90)
-  
-
-天文台在下午3時發出黃色暴雨警告信號，雷暴警告亦正生效，天文台預料本港在短期內可能受冰雹影響，市民請提高警惕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm)
 
 ---

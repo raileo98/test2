@@ -1,3 +1,26 @@
+# 澳門動物保護團體舉行活動　讓公眾領養澳門賽馬會場內流浪貓
+
+  
+
+結業近一年的澳門賽馬會，將在下月1日交還用地給政府。澳門動物保護協會上午在場內舉行流浪貓領養活動，希望為之前已經捕捉及圈養登記的流浪貓覓得新主人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795929-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795929-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795929-20250316.htm)
+
+---
+
 # 李慧琼指立法會議員應多「落場踢」　要促成甚至成為參與者
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm)
-
----
-
-# 全國兩會｜趙樂際會見採訪全國人大會議的傳媒代表
-
-![趙樂際在北京會見採訪全國人大會議的傳媒代表，是他早前感染呼吸道疾病後，首次公開露面。（央視新聞截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795466_1_20250312215548.jpg&q=85)
-  
-
-全國人大委員長趙樂際下午在北京會見採訪全國人大會議的傳媒代表，是他早前感染呼吸道疾病、缺席全國人大會議閉幕會後，首次公開露面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795466-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795466-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795466-20250312.htm)
 
 ---
