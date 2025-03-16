@@ -1,3 +1,27 @@
+# 美國將南韓列入「敏感國家」名單　韓方稱將與美方積極磋商
+
+![美國將南韓列入「敏感國家」名單　韓方稱將與美方積極磋商](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795932_1_20250316161836.jpg&q=90)
+  
+
+美國能源部證實，美國今年1月初已將南韓列入「敏感國家」名單，但未對南韓施加新的限制措施，美國能源部願同南韓推進互利合作。韓聯社引述南韓外交部表示，韓方將會就事件與美方積極磋商。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm)
+
+---
+
 # 北馬其頓一間夜總會發生大火　據報至少50人死亡
 
 ![北馬其頓一間夜總會發生大火　據報至少50人死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795931_1_20250316155011.jpg&q=90)
@@ -434,7 +458,7 @@
 
 # 啟德體育園舉行開幕後首項跑步賽　約3200人參加
 
-![啟德體育園早上舉行「啟德飛步跑」，約有3200名跑手參加。(陳曉慶攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795907_1_20250316094023.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795907_1_20250316094023.jpg&q=80)
   
 
 啟德體育園早上舉行開幕後園區內首項跑步賽「啟德飛步跑」，約有3200名跑手參加。賽事起點和終點都設在啟德青年運動場。大會今早舉行起步禮，啟德體育園行政總裁莊澤基、啟德體育園總監鄧竟成及立法會議員鄭泳舜等出席。
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm)
-
----
-
-# 暴雨警告生效　勞工處提醒進行電力工作時須確保安全
-
-![勞工處提醒僱主及承建商，當僱員在進行電力工作或處理電力作業裝置時，須採取所需的工作安排及適當安全措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795852_1_20250315152952.jpg&q=80)
-  
-
-勞工處表示，鑑於天文台已發出暴雨警告，提醒僱主及承建商，當僱員在進行電力工作或處理電力作業裝置時，須採取所需的工作安排及適當安全措施，以保障僱員的安全。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm)
 
 ---

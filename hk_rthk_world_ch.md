@@ -1,3 +1,27 @@
+# 美國將南韓列入「敏感國家」名單　韓方稱將與美方積極磋商
+
+![美國將南韓列入「敏感國家」名單　韓方稱將與美方積極磋商](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795932_1_20250316161836.jpg&q=90)
+  
+
+美國能源部證實，美國今年1月初已將南韓列入「敏感國家」名單，但未對南韓施加新的限制措施，美國能源部願同南韓推進互利合作。韓聯社引述南韓外交部表示，韓方將會就事件與美方積極磋商。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm)
+
+---
+
 # 北馬其頓一間夜總會發生大火　據報至少50人死亡
 
 ![北馬其頓一間夜總會發生大火　據報至少50人死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795931_1_20250316155011.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795710-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795710-20250314.htm)
-
----
-
-# 日媒稱日本男子在長城拍攝不雅照片遭拘留後遣返
-
-![萬里長城是國家著名景點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795683_1_20250314103707.jpg&q=90)
-  
-
-日本傳媒報道，一名日本男子今年一月，在中國長城景點觀光時，裸露臀部拍照，違反治安管理處罰法被拘留，目前已被遣返。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm)
 
 ---

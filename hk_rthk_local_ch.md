@@ -288,7 +288,7 @@
 
 # 啟德體育園舉行開幕後首項跑步賽　約3200人參加
 
-![啟德體育園早上舉行「啟德飛步跑」，約有3200名跑手參加。(陳曉慶攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795907_1_20250316094023.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795907_1_20250316094023.jpg&q=80)
   
 
 啟德體育園早上舉行開幕後園區內首項跑步賽「啟德飛步跑」，約有3200名跑手參加。賽事起點和終點都設在啟德青年運動場。大會今早舉行起步禮，啟德體育園行政總裁莊澤基、啟德體育園總監鄧竟成及立法會議員鄭泳舜等出席。
