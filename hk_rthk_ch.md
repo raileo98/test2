@@ -1,3 +1,27 @@
+# 美防長稱除非停止襲擊美方船隻否則美軍不會停止無情打擊胡塞武裝
+
+![也門首都薩那有房屋在轟炸中被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795967_1_20250317012709.jpg&q=80)
+  
+
+美國國防部長赫格塞思表示，除非也門胡塞武裝組織停止襲擊美方船隻，否則美國不會停止無情打擊胡塞武裝的無人機，美軍行動亦不會結束。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795967-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795967-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795967-20250317.htm)
+
+---
+
 # 秘魯漁民漂流太平洋95日後獲救　曾吃蟑螂及雀鳥並飲雨水維生
 
 ![卡斯特羅在派塔接受身體檢查，然後被送返秘魯。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795966_1_20250317005510.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795892-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795892-20250316.htm)
-
----
-
-# 澤連斯基據報組團　將代表烏克蘭參與任何可能出現和談
-
-![澤連斯基強調安全是建立可靠、持久和平的關鍵。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795891_1_20250316012257.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基據報已決定組建一個代表團，就結束烏俄衝突與合作伙伴磋商，成員包括總統辦公室主任葉爾馬克、外長瑟比加、國防部長烏梅羅夫等人，他們將代表烏方參與任何可能出現的和平談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm)
 
 ---

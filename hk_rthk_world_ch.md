@@ -1,3 +1,27 @@
+# 美防長稱除非停止襲擊美方船隻否則美軍不會停止無情打擊胡塞武裝
+
+![也門首都薩那有房屋在轟炸中被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795967_1_20250317012709.jpg&q=80)
+  
+
+美國國防部長赫格塞思表示，除非也門胡塞武裝組織停止襲擊美方船隻，否則美國不會停止無情打擊胡塞武裝的無人機，美軍行動亦不會結束。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795967-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795967-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795967-20250317.htm)
+
+---
+
 # 秘魯漁民漂流太平洋95日後獲救　曾吃蟑螂及雀鳥並飲雨水維生
 
 ![卡斯特羅在派塔接受身體檢查，然後被送返秘魯。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795966_1_20250317005510.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795782-20250314.htm)
-
----
-
-# 釜山航空客機1月底起火事件　調查指或因乘客攜帶充電寶起火導致
-
-![釜山航空客機1月底起火事件　調查指或因乘客攜帶充電寶起火導致](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795772_1_20250314203231.jpg&q=90)
-  
-
-南韓釜山航空1月底一架原定從釜山飛往香港的客機，在準備起飛時起火事件，南韓國土交通部航空鐵路事故調查委員會說，當局的調查分析結果顯示，乘客攜帶的充電寶起火導致飛機發生火警的可能性較大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm)
 
 ---
