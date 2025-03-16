@@ -1,3 +1,26 @@
+# 李家超與妻子觀看《哪吒2》　稱哪吒精神激勵大家繼續披荊斬棘
+
+  
+
+行政長官李家超表示，早前與太太到戲院觀賞全國影史票房最高電影《哪吒2之魔童鬧海》，他說電影充分展示國家動畫製作技術和水平快速發展，讓世界感受中華文化和中國故事的魅力；另一「看點」是配樂由本港青年音樂人操刀，用嗩吶和電結他等樂器為電影添上「港風」，打造中西合璧的視聽盛宴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795913-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795913-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795913-20250316.htm)
+
+---
+
 # 陳茂波：數碼港聚焦人工智能招聘博覽提供逾2千個職位
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795911_1_20250316105629.jpg&q=90)
@@ -24,6 +47,7 @@
 
 # 市建局稱聯廈聯管中標物管公司每戶每月費用僅百餘元
 
+![方先生說，大廈部分公用地方的天花和牆身石屎剝落和鋼筋外露。（韋志成網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795910_1_20250316110618.jpg&q=90)
   
 
 由市建局與香港房屋經理學會組成的團隊早前在九龍城試行「聯廈聯管」，協調單幢式舊樓聘用同一物業管理公司。團隊本月初已將報告提交政府。市建局行政總監韋志成說，參與試行「聯廈聯管」的樓宇雖然不多，但仍吸引了15間在市場上擁有豐富物管經驗，而且具實力公司入標競投「聯廈聯管」服務合約，最終中標的物管公司，每戶每月的「基本服務」費用大約只需百餘元。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm)
-
----
-
-# 黃鳳嫺：消委會正與接手戶戶送外賣平台溝通　跟進後續安排
-
-![外賣平台「戶戶送」Deliveroo撤出香港市場，黃鳳嫺表示，消委會正與接手的外賣平台溝通，跟進後續安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795838_1_20250315134518.jpg&q=85)
-  
-
-外賣平台「戶戶送」Deliveroo撤出香港市場。消委會總幹事黃鳳嫺說，暫接獲12宗投訴，共涉款5000多元，金額最高的一宗個案達600多元，正與接手的外賣平台溝通，跟進後續安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm)
 
 ---
