@@ -1,3 +1,27 @@
+# Cavs win streak halted after Magic comeback
+
+![Orlando's Paolo Banchero led the Magic with 24 points in the road victory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795978_1_20250317061009.jpg&q=90)
+  
+
+Paolo Banchero scored 24 points as the Orlando Magic overturned a 13-point deficit to end the Cleveland Cavaliers' 16-game unbeaten streak with a gutsy 108-103 road victory.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm)
+
+---
+
 # Andreeva downs Sabalenka for Indian Wells title
 
 ![Russia's Mirra Andreeva celebrates after defeating Aryna Sabalenka at the Indian Wells tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795977_1_20250317054052.jpg&q=90)
@@ -1423,29 +1447,5 @@ World number one Aryna Sabalenka praised on Friday the WTA's mission to highligh
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm)
-
----
-
-# Jos Buttler quits as England's white-ball captain
-
-![England had a disastrous preparation for the Champions Trophy when it won only one of its eight white-ball matches against India before arriving in Pakistan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793773_1_20250301115819.jpg&q=90)
-  
-
-Jos Buttler resigned as England white-ball captain on Friday after his team made an early exit from the Champions Trophy with back-to-back defeats against Australia and Afghanistan.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm)
 
 ---

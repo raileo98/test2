@@ -1,3 +1,27 @@
+# Cavs win streak halted after Magic comeback
+
+![Orlando's Paolo Banchero led the Magic with 24 points in the road victory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795978_1_20250317061009.jpg&q=90)
+  
+
+Paolo Banchero scored 24 points as the Orlando Magic overturned a 13-point deficit to end the Cleveland Cavaliers' 16-game unbeaten streak with a gutsy 108-103 road victory.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm)
+
+---
+
 # Andreeva downs Sabalenka for Indian Wells title
 
 ![Russia's Mirra Andreeva celebrates after defeating Aryna Sabalenka at the Indian Wells tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795977_1_20250317054052.jpg&q=90)
@@ -1412,29 +1436,5 @@ Bruno Fernandes netted a hat-trick as Manchester United beat Real Sociedad 4-1 i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795685-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795685-20250314.htm)
-
----
-
-# Hong Kong stocks open higher
-
-![The Hang Seng Index rose 0.8 percent, to open at 23,653. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795677_1_20250314094204.jpg&q=75)
-  
-
-Hong Kong stocks on Friday opened higher, after global markets slid, as US President Donald Trump launched a new volley in his trade war, while gold hit a new record high.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm)
 
 ---
