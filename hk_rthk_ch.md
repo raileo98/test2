@@ -1,3 +1,26 @@
+# 被美國驅逐委內瑞拉人已抵薩爾瓦多　引發是否無視法庭命令爭議
+
+  
+
+200多名被美國引用《外國敵人法》驅逐出境的委內瑞拉人乘坐的飛機，已經降落第三方的薩爾瓦多。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795971-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795971-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795971-20250317.htm)
+
+---
+
 # 亞洲電影大獎劉青雲獲最佳男主角獎　九龍城寨之圍城獲最佳美指獎
 
 ![劉青雲憑《爸爸》收獲最佳男主角獎。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795970_1_20250317020721.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795898-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795898-20250316.htm)
-
----
-
-# 美國惡劣天氣增至最少20死　多州面臨嚴重龍捲風威脅
-
-![龍捲風導致密蘇里州大批房屋受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795896_1_20250316062240.jpg&q=80)
-  
-
-美國中部及南部廣泛地區受惡劣天氣影響，增至最少20人死亡，多人受傷，多座建築物損毀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm)
 
 ---
