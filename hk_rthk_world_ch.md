@@ -1,3 +1,27 @@
+# 外交部駐港公署：美英加等國干涉香港事務和中國內政注定徒勞無功
+
+![發言人說，公署敦促有關國家立即停止以任何手段干預香港事務和中國內政。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795950_1_20250316191423.jpg&q=90)
+  
+
+外交部駐港公署發言人說，美國、英國、加拿大等國常駐聯合國機構官員公然會見有關反中亂港首惡分子的家屬及所謂「律師團隊」，為反中亂港勢力撐腰，抹黑香港特區法治，干涉香港事務和中國內政，公署表示強烈不滿和堅決反對，有關行徑注定徒勞無功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm)
+
+---
+
 # 北馬其頓一間夜總會發生大火　51死逾百人傷
 
 ![北馬其頓一間夜總會發生大火後，救援人員到場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795936_1_20250316171255.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795730-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795730-20250314.htm)
-
----
-
-# 美國紐約警方拘捕逾百名進入特朗普大廈示威者
-
-![紐約警方拘捕進入特朗普大廈的示威者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795724_1_20250314150605.jpg&q=90)
-  
-
-在美國紐約市，大約150名猶太人進入曼哈頓第五大道特朗普大廈，聲援巴勒斯坦人，警方到場，拘捕示威者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm)
 
 ---

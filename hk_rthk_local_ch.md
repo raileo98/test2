@@ -1,3 +1,27 @@
+# 外交部駐港公署：美英加等國干涉香港事務和中國內政注定徒勞無功
+
+![發言人說，公署敦促有關國家立即停止以任何手段干預香港事務和中國內政。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795950_1_20250316191423.jpg&q=90)
+  
+
+外交部駐港公署發言人說，美國、英國、加拿大等國常駐聯合國機構官員公然會見有關反中亂港首惡分子的家屬及所謂「律師團隊」，為反中亂港勢力撐腰，抹黑香港特區法治，干涉香港事務和中國內政，公署表示強烈不滿和堅決反對，有關行徑注定徒勞無功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm)
+
+---
+
 # 團體建議加强公眾認識有特殊教育需要小學生　鼓勵雙向共融
 
 ![調查發現，近五成育有SEN兒童的受訪家長說，曾因子女行為受到不友善對待。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795947_1_20250316184414.jpg&q=90)
@@ -144,7 +168,7 @@
 
 # 男子火炭捱斬傷重死亡　兩疑兇在逃
 
-![警方指兩名男子於麗禾里和穗禾路交界斬傷一名男子後，乘的士逃去。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795944_2_20250316185947.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795944_2_20250316185947.jpg&q=90)
   
 
 火炭發生斬人案，一名年約50歲的男子被斬傷，送往威爾斯醫院搶救，延至傍晚約6時不治。
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795789-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795789-20250314.htm)
-
----
-
-# 天文台料明日稍後北風逐漸增強　下週初最低氣溫14至15度
-
-![天文台預料明日稍後北風逐漸增強，隨後兩三日早上清涼。（天文台網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795781_1_20250314214908.jpg&q=90)
-  
-
-天文台表示，受冷鋒相關的東北季候風持續影響，星期日沿岸地區天氣轉涼，風勢頗大，下週初最低氣溫約14至15度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795781-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795781-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795781-20250314.htm)
 
 ---

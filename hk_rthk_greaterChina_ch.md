@@ -1,3 +1,27 @@
+# 外交部駐港公署：美英加等國干涉香港事務和中國內政注定徒勞無功
+
+![發言人說，公署敦促有關國家立即停止以任何手段干預香港事務和中國內政。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795950_1_20250316191423.jpg&q=90)
+  
+
+外交部駐港公署發言人說，美國、英國、加拿大等國常駐聯合國機構官員公然會見有關反中亂港首惡分子的家屬及所謂「律師團隊」，為反中亂港勢力撐腰，抹黑香港特區法治，干涉香港事務和中國內政，公署表示強烈不滿和堅決反對，有關行徑注定徒勞無功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm)
+
+---
+
 # 澳門動物保護團體舉行活動　讓公眾領養澳門賽馬會場內流浪貓
 
 ![澳門賽馬會早上與愛護動物協會合辦領養活動，解決馬會用地交還政府前，場內的流浪貓去向。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795929_1_20250316151723.jpg&q=80)
@@ -1415,30 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795504-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795504-20250313.htm)
-
----
-
-# 全國兩會｜夏寶龍會見科大沈向洋及葉玉如冀積極參與北都建設
-
-![夏寶龍下午在北京會見香港科技大學管理層。（港澳辦圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795471_1_20250312223922.jpg&q=90)
-![夏寶龍說，科大在培養優秀專業人才、推動產學研協同創新等方面，取得優異成績。（港澳辦圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795471_2_20250312223922.jpg&q=90)
-  
-
-中央港澳辦、國務院港澳辦主任夏寶龍，下午在北京會見香港科技大學校董會主席沈向洋、校長葉玉如等人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795471-20250312.htm)
 
 ---
