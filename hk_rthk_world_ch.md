@@ -1,3 +1,27 @@
+# 何立峰會見美國前財長保爾森
+
+![何立峰在北京會見美國前財長保爾森。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795963_1_20250316223000.jpg&q=90)
+  
+
+在北京，中共中央政治局委員、中央財辦主任何立峰會見美國前財政部長保爾森，雙方就中美經貿關係、全球經濟等交換看法。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm)
+
+---
+
 # 日本沖繩縣知事反對部署長程導彈
 
 ![日本沖繩縣知事玉城丹尼反對部署長程導彈。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795954_1_20250316204834.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm)
-
----
-
-# 國防部：中方奉勸菲方放棄挑釁　通過對話妥處分歧
-
-![張曉剛說，中方維護自身領土主權和海洋權益的決心意志堅定不移。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795766_1_20250314184114.jpg&q=90)
-  
-
-在北京，國防部新聞發言人張曉剛表示，中方奉勸菲律賓不要誤判形勢，立即放棄徒勞的冒險挑釁，切實回到通過對話妥處分歧的正確軌道上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm)
 
 ---

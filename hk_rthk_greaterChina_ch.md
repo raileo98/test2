@@ -1,3 +1,27 @@
+# 何立峰會見美國前財長保爾森
+
+![何立峰在北京會見美國前財長保爾森。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795963_1_20250316223000.jpg&q=90)
+  
+
+在北京，中共中央政治局委員、中央財辦主任何立峰會見美國前財政部長保爾森，雙方就中美經貿關係、全球經濟等交換看法。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm)
+
+---
+
 # 外交部駐港公署：美英等國干涉香港事務和中國內政　注定徒勞無功
 
 ![發言人說，公署敦促有關國家立即停止以任何手段干預香港事務和中國內政。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795950_1_20250316191423.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm)
-
----
-
-# 台中氣爆事件傷重2歲女童　上周在澳門醫院離世
-
-![上月中發生氣爆的台中新光三越損毀嚴重，事件中傷重的澳門女童至上周不治。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795504_1_20250313084746.jpg&q=90)
-  
-
-在上月台中氣爆事件中重傷的2歲澳門女童不治，令事件的死亡人數增至5人，另外30多人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795504-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795504-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795504-20250313.htm)
 
 ---
