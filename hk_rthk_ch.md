@@ -1,3 +1,50 @@
+# 葵涌道有私家車起火無人傷　初步懷疑引擎過熱所致
+
+  
+
+葵涌道有私家車起火，3人及時離開車廂，無人受傷。警方初步懷疑車輛引擎過熱導致起火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795937-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795937-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795937-20250316.htm)
+
+---
+
+# 北馬其頓一間夜總會發生大火　51死逾百人傷
+
+![北馬其頓一間夜總會發生大火後，救援人員到場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795936_1_20250316171255.jpg&q=90)
+  
+
+歐洲巴爾幹半島國家北馬其頓一間夜總會發生大火，內政部長表示，大火已造成51人死亡，超過100人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795936-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795936-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795936-20250316.htm)
+
+---
+
 # 美國多州遭龍捲風等惡劣天氣影響至少34死　7個州25萬戶停電
 
 ![美國密蘇里州遭受龍捲風吹襲，有房屋損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795935_1_20250316165438.jpg&q=60)
@@ -1393,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795859-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795859-20250315.htm)
-
----
-
-# 石破茂稱將努力讓中國取消對日水產品進口限制
-
-![石破茂表示，將努力爭取中方取消限制進口日本水產品的措施。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795858_1_20250315161943.jpg&q=90)
-  
-
-日本首相石破茂表示，將努力爭取中方取消限制進口日本水產品的措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795858-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795858-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795858-20250315.htm)
-
----
-
-# 天文台稱大埔有冰雹報告
-
-![天文台表示，在下午3時20分左右，大埔有冰雹報告。（天文台網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795856_1_20250315163236.jpg&q=90)
-  
-
-黃色暴雨警告信號和雷暴警告現正生效。天文台表示，在下午3時20分左右，大埔有冰雹報告，預料本港在短期內可能繼續受冰雹影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm)
 
 ---

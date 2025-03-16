@@ -1,3 +1,27 @@
+# 北馬其頓一間夜總會發生大火　51死逾百人傷
+
+![北馬其頓一間夜總會發生大火後，救援人員到場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795936_1_20250316171255.jpg&q=90)
+  
+
+歐洲巴爾幹半島國家北馬其頓一間夜總會發生大火，內政部長表示，大火已造成51人死亡，超過100人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795936-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795936-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795936-20250316.htm)
+
+---
+
 # 美國多州遭龍捲風等惡劣天氣影響至少34死　7個州25萬戶停電
 
 ![美國密蘇里州遭受龍捲風吹襲，有房屋損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795935_1_20250316165438.jpg&q=60)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795724-20250314.htm)
-
----
-
-# 伊朗核問題中俄伊北京會晤聲明重申應摒棄制裁施壓、武力威脅
-
-![會晤由外交部副部長馬朝旭主持，俄羅斯和伊朗外交部副部長與會。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795714_1_20250314141811.jpg&q=90)
-  
-
-伊朗核問題中俄伊北京會晤舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm)
 
 ---

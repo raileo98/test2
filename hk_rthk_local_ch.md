@@ -1,3 +1,26 @@
+# 葵涌道有私家車起火無人傷　初步懷疑引擎過熱所致
+
+  
+
+葵涌道有私家車起火，3人及時離開車廂，無人受傷。警方初步懷疑車輛引擎過熱導致起火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795937-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795937-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795937-20250316.htm)
+
+---
+
 # 陳美寶冀本港點對點運輸更全面　領先國際而非追落後
 
 ![陳美寶表示，目前本港已成立的士車隊，當局願景是點對點運輸與網約平台雙結合。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795933_1_20250316163510.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795760-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795760-20250314.htm)
-
----
-
-# 食環署巡視全港約3600間食物業處所提出5宗檢控
-
-![食物安全中心及環境衞生部人員巡視一間售賣燒味的店鋪，確保食物的存放、處理和衞生情況符合安全標準及相關法例。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795757_1_20250314182911.jpg&q=90)
-  
-
-食環署過去一星期，巡視了全港約3600間食物業處所，就食物的存放、處理和衛生情況作出即時糾正、警告及衞生建議，並提出5宗檢控。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795757-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795757-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795757-20250314.htm)
 
 ---

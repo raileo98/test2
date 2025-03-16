@@ -1,3 +1,27 @@
+# HK firms should strive for win-win deals: Starry Lee
+
+![Starry Lee responds to questions on articles criticising the CK Hutchison port deal. Photo courtesy of TVB](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795934_1_20250316165214.jpg&q=90)
+  
+
+Hong Kong's sole delegate to the country's top legislature on Sunday said all Chinese people should do their part to help the nation’s development, and business exchanges are only sustainable if it is a win-win situation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795934-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795934-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795934-20250316.htm)
+
+---
+
 # CE draws inspiration from blockbuster Ne Zha 2
 
 ![The chief executive has expressd optimism about Hong Kong's film industry. Photo: John Lee's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795922_1_20250316122802.jpg&q=65)
@@ -1412,29 +1436,5 @@ Businessman Irons Sze on Monday said Hong Kong's position as an international fi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm)
-
----
-
-# HK must take advantage of int'l position: NPC delegate
-
-![Priscilla Leung says local NPC delegates were being encouraged to help Hong Kong build on its international strengths. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795062_1_20250310102114.jpg&q=85)
-  
-
-Lawmaker and National People's Congress delegate Priscilla Leung on Monday said the central government wants Hong Kong to take advantage of its international position.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795062-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795062-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795062-20250310.htm)
 
 ---
