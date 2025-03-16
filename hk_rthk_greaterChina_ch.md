@@ -1,3 +1,27 @@
+# 內地推提振消費專項行動方案　涉增加收入、住房及生育等
+
+![內地公布《提振消費專項行動方案》，以大力提振消費，全方位擴大國內需求等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795984_1_20250317074822.jpg&q=90)
+  
+
+內地公布《提振消費專項行動方案》，涉及8方面30項重點任務，涉及住房、汽車、生育等多方面，以大力提振消費，全方位擴大國內需求等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm)
+
+---
+
 # 短道速滑世錦賽　中國隊獲男子5000米接力銀牌
 
 ![中國隊獲銀後在場館內慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795962_1_20250316222432.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm)
-
----
-
-# 林緯遜料交流團學生出發前或已染腸胃炎　鄧飛稱現時相關指引足夠
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795519_1_20250313101825.jpg&q=90)
-  
-
-先後有學校參與廣東韶關及安徽黃山的交流團後，多名師生出現急性腸胃炎徵狀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm)
 
 ---

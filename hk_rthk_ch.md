@@ -1,3 +1,27 @@
+# 內地推提振消費專項行動方案　涉增加收入、住房及生育等
+
+![內地公布《提振消費專項行動方案》，以大力提振消費，全方位擴大國內需求等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795984_1_20250317074822.jpg&q=90)
+  
+
+內地公布《提振消費專項行動方案》，涉及8方面30項重點任務，涉及住房、汽車、生育等多方面，以大力提振消費，全方位擴大國內需求等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm)
+
+---
+
 # 補時階段入兩球　西甲巴塞4:2反勝馬體會重返榜首
 
 ![巴塞的費蘭托利斯今仗梅開二度。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795983_1_20250317072715.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795908-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795908-20250316.htm)
-
----
-
-# 啟德體育園舉行開幕後首項跑步賽　約3200人參加
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795907_1_20250316094023.jpg&q=80)
-  
-
-啟德體育園早上舉行開幕後園區內首項跑步賽「啟德飛步跑」，約有3200名跑手參加。賽事起點和終點都設在啟德青年運動場。大會今早舉行起步禮，啟德體育園行政總裁莊澤基、啟德體育園總監鄧竟成及立法會議員鄭泳舜等出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795907-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795907-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795907-20250316.htm)
 
 ---
