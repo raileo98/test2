@@ -1,3 +1,27 @@
+# 埃爾多安與特朗普通電話　稱土耳其與美國加強各領域磋商至關重要
+
+![埃爾多安說自俄烏衝突爆發以來，土耳其一直致力推動公正及可持續的和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795964_1_20250317002135.jpg&q=90)
+  
+
+土耳其總統埃爾多安與美國總統特朗普通電話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795964-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795964-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795964-20250317.htm)
+
+---
+
 # 短道速滑世錦賽　中國隊獲男子5000米接力銀牌
 
 ![中國隊獲銀後在場館內慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795962_1_20250316222432.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm)
-
----
-
-# 工業傷亡權益會促改善溝通確保重要天氣資訊可有效傳達吊船操作員
-
-![事發時操作員連人帶船於半空被吹到左搖右擺。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795888_1_20250316001759.jpg&q=90)
-  
-
-工業傷亡權益會要求房署及相關公司檢討現時工作指引，包括改善與吊船操作員的溝通，確保重要天氣資訊可有效傳達到操作員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795888-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795888-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795888-20250316.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 埃爾多安與特朗普通電話　稱土耳其與美國加強各領域磋商至關重要
+
+![埃爾多安說自俄烏衝突爆發以來，土耳其一直致力推動公正及可持續的和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795964_1_20250317002135.jpg&q=90)
+  
+
+土耳其總統埃爾多安與美國總統特朗普通電話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795964-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795964-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795964-20250317.htm)
+
+---
+
 # 何立峰會見美國前財長保爾森
 
 ![何立峰在北京會見美國前財長保爾森。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795963_1_20250316223000.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm)
-
----
-
-# 日本陸上自衛隊一名軍官因訓練事故死亡
-
-![日本陸上自衛隊一名軍官因訓練事故死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795768_1_20250314191556.jpg&q=90)
-  
-
-日本長野縣松本市的陸上自衛隊松本駐屯地發生一宗訓練事故，一名軍官被從高處墮下的機關槍擊中身亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795768-20250314.htm)
 
 ---
