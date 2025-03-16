@@ -1,3 +1,26 @@
+# 美國廣泛地區遭受龍捲風等惡劣天氣影響　逾30人喪生
+
+  
+
+美國中部和南部廣泛地區受惡劣天氣影響，包括遭受多股龍捲風和猛烈暴風雨吹襲，造成超過30人死亡，數十人受傷。密西西比、佐治亞等多個州進入緊急狀態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm)
+
+---
+
 # 李家超與妻子觀看《哪吒2》　稱哪吒精神激勵大家繼續披荊斬棘
 
 ![李家超（右）早前與太太到戲院觀賞全國影史票房最高電影《哪吒2之魔童鬧海》。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795913_1_20250316111038.jpg&q=65)
@@ -72,7 +95,7 @@
 
 # 楊德強：全運會測試賽部分環節可做得更好　將加強照顧落後運動員
 
-![楊德強表示，早前與內地和澳門方面就兩個跨境項目舉行測試賽，整體順利完成。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795909_1_20250316104545.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795909_1_20250316104545.jpg&q=85)
   
 
 第15屆全運會及殘特奧會將於年底在粵港澳三地舉行，其中香港將承辦8個全運會及4個殘特奧會項目，另外亦會與內地及澳門合辦兩個項目，包括公路單車和馬拉松。
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm)
-
----
-
-# 孫玉菡：兩元乘車優惠調整方案可省7億元　亦有助處理長車短搭
-
-![孫玉菡表示，「兩元兩折」乘車優惠調整方案，可以在一個年度節省近7億元開支。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795839_1_20250315144124.jpg&q=80)
-  
-
-勞工及福利局局長孫玉菡表示，「兩元兩折」乘車優惠調整方案，可以在一個年度節省近7億元開支，仍未計及受惠人士可能的乘車習慣改變，方案亦有助處理「長車短搭」問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm)
 
 ---

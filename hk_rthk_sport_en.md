@@ -1,3 +1,27 @@
+# 'National Games test events show room for improvement'
+
+![Yeung Tak-keung says organisers are working to improve cross-border sports events. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795914_1_20250316112203.jpg&q=90)
+  
+
+The local official who heads the National Games Coordination Office on Sunday said test runs for cross-border sports events have shown there is room for improvement.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm)
+
+---
+
 # France beat Scotland to claim Six Nations
 
 ![France's scrum-half Antoine Dupont (centre) holds the trophy while celebrating. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795897_1_20250316063919.jpg&q=85)
@@ -1422,29 +1446,5 @@ Leicester sank closer to an immediate return to the Championship after West Ham 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm)
-
----
-
-# Russian chess grandmaster Spassky dies aged 88
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793572_1_20250228052907.jpg&q=90)
-  
-
-Soviet chess grandmaster Boris Spassky, who was famously defeated in the so-called match of the century at the height of the Cold War, has died aged 88, the Chess Federation of Russia said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793572-20250228.htm)
 
 ---

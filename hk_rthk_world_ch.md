@@ -1,3 +1,26 @@
+# 美國廣泛地區遭受龍捲風等惡劣天氣影響　逾30人喪生
+
+  
+
+美國中部和南部廣泛地區受惡劣天氣影響，包括遭受多股龍捲風和猛烈暴風雨吹襲，造成超過30人死亡，數十人受傷。密西西比、佐治亞等多個州進入緊急狀態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm)
+
+---
+
 # 特朗普調整特使任命　凱洛格只負責烏克蘭事務
 
 ![80歲的凱洛格原本被提名為烏克蘭和俄羅斯問題特使，現在縮減為烏克蘭事務特使。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795908_1_20250316095715.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm)
-
----
-
-# 葡萄牙總統宣布解散議會並提前在5月舉行議會選舉
-
-![德索薩發表全國電視講話，指提前大選是一條沒人預計到、亦沒人希望的路。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795653_1_20250314054623.jpg&q=90)
-  
-
-葡萄牙總統德索薩宣布解散議會，並在5月18日提前舉行議會選舉，將會是葡萄牙在不足4年內，第三次提前大選。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795653-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795653-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795653-20250314.htm)
 
 ---
