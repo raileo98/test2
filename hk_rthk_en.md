@@ -1,3 +1,27 @@
+# CK Hutchison Panama port deal questioned
+
+![View of Port of Balboa, managed by CK Hutchison Holdings at the entrance of the Panama Canal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795930_1_20250316152201.jpg&q=90)
+  
+
+Beijing officials have shared a second article by the Ta Kung Pao newspaper criticising the sale by Hong Kong conglomerate CK Hutchison of its Panama Canal ports – and dozens of other ports across the globe – to a US consortium.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm)
+
+---
+
 # CE draws inspiration from blockbuster Ne Zha 2
 
 ![The chief executive has expressd optimism about Hong Kong's film industry. Photo: John Lee's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795922_1_20250316122802.jpg&q=65)
@@ -1411,29 +1435,5 @@ Two primary schools will not receive grants from the Education Bureau to operate
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795622-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795622-20250313.htm)
-
----
-
-# Angus Ng knocked out of All England Open by Loh
-
-![Angus Ng remains winless against Loh, having been beaten in each of their five meetings. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795625_1_20250313220623.jpg&q=90)
-  
-
-Hong Kong, China badminton star Angus Ng was sent packing at the All England Open in Birmingham, losing to Singapore's Loh Kean Yew in straight games in the round of 16 on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795625-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795625-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795625-20250313.htm)
 
 ---

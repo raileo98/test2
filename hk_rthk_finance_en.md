@@ -1,3 +1,27 @@
+# CK Hutchison Panama port deal questioned
+
+![View of Port of Balboa, managed by CK Hutchison Holdings at the entrance of the Panama Canal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795930_1_20250316152201.jpg&q=90)
+  
+
+Beijing officials have shared a second article by the Ta Kung Pao newspaper criticising the sale by Hong Kong conglomerate CK Hutchison of its Panama Canal ports – and dozens of other ports across the globe – to a US consortium.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm)
+
+---
+
 # US share gains cut into week's losses
 
 ![On Friday, all 11 sectors of the S&P 500 posted gains, while the Dow index was mostly up. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795808_1_20250315054816.jpg&q=85)
@@ -1411,29 +1435,5 @@ China's manufacturing activity grew in February after a dip the previous month, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 3.3 percent at 22,941. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793684_1_20250228172129.jpg&q=80)
-  
-
-Hong Kong's stocks ended lower on Friday, with the benchmark Hang Seng Index down 3.3 percent at 22,941.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793684-20250228.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793684-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793684-20250228.htm)
 
 ---

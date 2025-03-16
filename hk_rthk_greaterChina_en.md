@@ -1,3 +1,27 @@
+# CK Hutchison Panama port deal questioned
+
+![View of Port of Balboa, managed by CK Hutchison Holdings at the entrance of the Panama Canal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795930_1_20250316152201.jpg&q=90)
+  
+
+Beijing officials have shared a second article by the Ta Kung Pao newspaper criticising the sale by Hong Kong conglomerate CK Hutchison of its Panama Canal ports – and dozens of other ports across the globe – to a US consortium.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm)
+
+---
+
 # 'National Games test events show room for improvement'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795914_1_20250316112203.jpg&q=90)
@@ -1413,29 +1437,5 @@ Hong Kong and Macau will always have the central government's backing in terms o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm)
-
----
-
-# Market regulator vows e-commerce malpractice crackdown
-
-![Luo Wen took questions from reporters in the 'Ministers' Corridor' inside the Great Hall of the People. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794400_1_20250305165431.jpg&q=90)
-  
-
-The head of China's market regulator has pledged to tighten oversight of the rapidly growing e-commerce sector, and promote the healthy development of the so-called platform economy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794400-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794400-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794400-20250305.htm)
 
 ---
