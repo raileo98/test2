@@ -1,3 +1,27 @@
+# 特朗普調整特使任命　凱洛格只負責烏克蘭事務
+
+![80歲的凱洛格原本被提名為烏克蘭和俄羅斯問題特使，現在縮減為烏克蘭事務特使。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795908_1_20250316095715.jpg&q=90)
+  
+
+美國總統特朗普調整負責俄烏事務特使的任命，退役美軍將領凱洛格由原本的俄烏問題特使改為烏克蘭事務特使。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795908-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795908-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795908-20250316.htm)
+
+---
+
 # 馬克龍：歐美必須施壓迫使俄羅斯接受停火建議
 
 ![馬克髛認為必須與美國一起向俄羅斯施加明確的壓力，迫使其接受停火提議。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795906_1_20250316092241.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795653-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795653-20250314.htm)
-
----
-
-# 國際刑事法院稱杜特爾特將於周五首次出庭
-
-![國際刑事法院表示，菲律賓前總統杜特爾特將於星期五首次出庭。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795649_1_20250314053630.jpg&q=90)
-  
-
-國際刑事法院表示，菲律賓前總統杜特爾特將於星期五首次出庭。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795649-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795649-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795649-20250314.htm)
 
 ---
