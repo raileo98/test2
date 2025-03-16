@@ -47,7 +47,7 @@
 
 # 美防長稱除非停止襲擊美方船隻否則美軍不會停止無情打擊胡塞武裝
 
-![也門首都薩那有房屋在轟炸中被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795967_1_20250317012709.jpg&q=80)
+![美國較早時從艦艇發射導彈，打擊胡塞武裝目標。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795967_2_20250317014345.jpg&q=90)
   
 
 美國國防部長赫格塞思表示，除非也門胡塞武裝組織停止襲擊美方船隻，否則美國不會停止無情打擊胡塞武裝的無人機，美軍行動亦不會結束。
