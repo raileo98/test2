@@ -1,3 +1,27 @@
+# 'Most scared I've been': US strikes sow panic in Yemen
+
+![Armed Yemenis shout slogans and raise their weapons during a protest against Israel's decision to block aid into the Gaza Strip, in the capital Sanaa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795952_1_20250316194411.jpg&q=80)
+  
+
+The first US strikes against Yemen's Houthis since Donald Trump took office killed 31 people, the rebels said on Sunday, with the US president warning "hell will rain down upon" the Iran-backed group if it did not stop attacking shipping.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm)
+
+---
+
 # N Macedonia nightclub fire kills 59
 
 ![A view of a burnt down nightclub inside which a fire broke out and killed 51 people in Kocani. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795938_1_20250316174342.jpg&q=50)
@@ -1411,29 +1435,5 @@ Russia said on Monday it was expelling two British "diplomats" on suspicion of c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795146-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795146-20250310.htm)
-
----
-
-# N Korea fires missiles as South begins drills with US
-
-![Seoul says the south's military will bolster surveillance and maintain a full readiness posture. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795098_1_20250310141933.jpg&q=90)
-  
-
-North Korea fired "multiple unidentified ballistic missiles" on Monday, South Korea's military said, the same day Seoul and Washington began a major annual joint military drill known as Freedom Shield.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795098-20250310.htm)
 
 ---

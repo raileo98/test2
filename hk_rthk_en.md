@@ -1,3 +1,27 @@
+# 'Most scared I've been': US strikes sow panic in Yemen
+
+![Armed Yemenis shout slogans and raise their weapons during a protest against Israel's decision to block aid into the Gaza Strip, in the capital Sanaa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795952_1_20250316194411.jpg&q=80)
+  
+
+The first US strikes against Yemen's Houthis since Donald Trump took office killed 31 people, the rebels said on Sunday, with the US president warning "hell will rain down upon" the Iran-backed group if it did not stop attacking shipping.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm)
+
+---
+
 # Man dies after alleged chopper attack in Fo Tan
 
 ![Police say the victim was allegedly attacked by two knife-wielding men. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795948_2_20250316185117.jpg&q=70)
@@ -1411,29 +1435,5 @@ Rodrigo Duterte's first appearance at the International Criminal Court has been 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795667-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795667-20250314.htm)
-
----
-
-# Trump threatens tariffs on EU alcohol
-
-![President Trump's tariff threat could hit a market worth US$10 billion to EU producers in 2023, according to World Trade Organization figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795656_1_20250314055609.jpg&q=85)
-  
-
-US President Donald Trump on Thursday threatened to slap a 200 percent tariff on wine, cognac, and other alcohol imports from Europe.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm)
 
 ---
