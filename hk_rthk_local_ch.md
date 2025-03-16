@@ -144,7 +144,7 @@
 
 # 男子火炭捱斬傷重死亡　兩疑兇在逃
 
-![一名男子被人斬至重傷昏迷，送往威爾斯醫院治理，其後不治。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795944_1_20250316185124.jpg&q=75)
+![警方指兩名男子於麗禾里和穗禾路交界斬傷一名男子後，乘的士逃去。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795944_2_20250316185947.jpg&q=90)
   
 
 火炭發生斬人案，一名年約50歲的男子被斬傷，送往威爾斯醫院搶救，延至傍晚約6時不治。
