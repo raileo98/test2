@@ -1,3 +1,26 @@
+# 也門胡塞武裝領導人揚言會將所有美國航母及軍艦作為襲擊目標
+
+  
+
+也門胡塞武裝領導人發表講話，揚言會將所有美國航空母艦及軍艦，作為襲擊目標，又指責美國的所作所為是將海洋變為戰場，影響國際航道的航行。他又說如果美國繼續進行針對胡塞武裝的軍事行動，胡塞武裝會升級報復手段。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795979-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795979-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795979-20250317.htm)
+
+---
+
 # 以國總理尋求解除國安總局長巴爾職務　巴爾指對方期望違公眾利益
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm)
-
----
-
-# 卡尼正式宣誓就任加拿大新總理　多個內閣職位續由前任閣員擔任
-
-![卡尼宣誓就任總理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795796_1_20250315011506.jpg&q=90)
-  
-
-加拿大自由黨新任黨魁卡尼接替執政超過九年的杜魯多，正式宣誓就任新一任總理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795796-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795796-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795796-20250315.htm)
 
 ---
