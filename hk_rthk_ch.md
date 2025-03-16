@@ -1,3 +1,26 @@
+# 也門胡塞武裝稱向美國杜魯門號航母群發射導彈及出動無人機
+
+  
+
+也門胡塞武裝組織控制的電視台報道，組織對位於紅海北部的美國杜魯門號航空母艦及隨行艦隻，發射18枚彈道導彈及巡航導彈，以及出現一架攻擊型無人機，報復美國之前空襲也門境內目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795969-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795969-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795969-20250317.htm)
+
+---
+
 # 巴拿馬電廠指電力系統已恢復　供電陸逐恢復
 
 ![當地星期六晚開始停電，目前電力供應陸續恢復。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795968_1_20250317013530.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795894-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795894-20250316.htm)
-
----
-
-# 伯勒爾被撤回人質事務美國總統特使提名　續以特別僱員身份辦事
-
-![伯勒爾近日就釋放加沙地帶被扣押人員問題，與哈馬斯直接對話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795893_1_20250316031618.jpg&q=90)
-  
-
-美國白宮表示，總統特朗普政府撤回提名伯勒爾擔任人質事務總統特使。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795893-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795893-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795893-20250316.htm)
 
 ---

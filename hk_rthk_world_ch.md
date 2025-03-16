@@ -1,3 +1,26 @@
+# 也門胡塞武裝稱向美國杜魯門號航母群發射導彈及出動無人機
+
+  
+
+也門胡塞武裝組織控制的電視台報道，組織對位於紅海北部的美國杜魯門號航空母艦及隨行艦隻，發射18枚彈道導彈及巡航導彈，以及出現一架攻擊型無人機，報復美國之前空襲也門境內目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795969-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795969-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795969-20250317.htm)
+
+---
+
 # 巴拿馬電廠指電力系統已恢復　供電陸逐恢復
 
 ![當地星期六晚開始停電，目前電力供應陸續恢復。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795968_1_20250317013530.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795788-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795788-20250314.htm)
-
----
-
-# 杜特爾特以視像方式出席海牙國際刑事法院首次聆訊
-
-![杜特爾特以視像方式出席海牙國際刑事法院首次聆訊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795784_1_20250314223639.jpg&q=90)
-  
-
-涉嫌違反人權的菲律賓前總統杜特爾特，以視像方式出席荷蘭海牙國際刑事法院首次聆訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795784-20250314.htm)
 
 ---
