@@ -1,3 +1,27 @@
+# 聯合國呼籲於也門保持克制　憂引發報復循環
+
+![古特雷斯（圖）的發言人指軍事活動會加劇緊張局勢。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795972_1_20250317044948.jpg&q=90)
+  
+
+聯合國呼籲在也門保持最大限度克制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795972-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795972-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795972-20250317.htm)
+
+---
+
 # 被美國驅逐委內瑞拉人已抵薩爾瓦多　引發是否無視法庭命令爭議
 
 ![被驅逐者已轉移到恐怖主義羈押中心。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795971_1_20250317033813.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795899-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795899-20250316.htm)
-
----
-
-# 英超曼城與白禮頓賽和2:2　森林4:2贏葉士域治
-
-![夏蘭特攻入一球，刷新英超最快取得「入球加助攻」達到100球大關的紀錄。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795898_1_20250316065303.jpg&q=90)
-  
-
-英格蘭超級足球聯賽，曼城在主場被白禮頓逼和2:2，錯失升上前四的機會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795898-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795898-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795898-20250316.htm)
 
 ---

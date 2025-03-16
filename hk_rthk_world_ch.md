@@ -1,3 +1,27 @@
+# 聯合國呼籲於也門保持克制　憂引發報復循環
+
+![古特雷斯（圖）的發言人指軍事活動會加劇緊張局勢。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795972_1_20250317044948.jpg&q=90)
+  
+
+聯合國呼籲在也門保持最大限度克制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795972-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795972-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795972-20250317.htm)
+
+---
+
 # 被美國驅逐委內瑞拉人已抵薩爾瓦多　引發是否無視法庭命令爭議
 
 ![被驅逐者已轉移到恐怖主義羈押中心。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795971_1_20250317033813.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795794-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795794-20250315.htm)
-
----
-
-# 律師指杜特爾特患醫療問題　法官稱醫生認為杜特爾特神志清醒
-
-![杜特爾特以視像方式出席荷蘭海牙國際刑事法院首次聆訊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795792_1_20250315021320.jpg&q=90)
-  
-
-涉嫌違反人權的菲律賓前總統杜特爾特，以視像方式出席荷蘭海牙國際刑事法院首次聆訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795792-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795792-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795792-20250314.htm)
 
 ---
