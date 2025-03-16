@@ -24,7 +24,7 @@ US Secretary of State Marco Rubio and Russia's Foreign Minister Sergei Lavrov sp
 
 # US launches large-scale strikes against Yemeni Houthis
 
-![The strikes on Saturday were carried out in part by fighter aircraft from the Harry S. Truman aircraft carrier, which is in the Red Sea. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795905_1_20250316083448.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795905_1_20250316083448.jpg&q=90)
   
 
 At least 19 were killed as US President Donald Trump launched large-scale military strikes against Yemen's Iran-aligned Houthis on Saturday over the group's attacks against Red Sea shipping, warning "hell will rain down" on them if they do not stop.
