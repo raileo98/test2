@@ -1,3 +1,26 @@
+# 陳美寶冀本港點對點運輸更全面　領先國際而非追落後
+
+  
+
+政府目標今年內就規管網約車平台提出法律框架建議，運輸及物流局局長陳美寶表示，目前本港已成立的士車隊，當局願景是點對點運輸與網約平台雙結合，兩者發展並存，不存在你我之爭，強調有競爭才有進步。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795933-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795933-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795933-20250316.htm)
+
+---
+
 # 李慧琼指立法會議員應多「落場踢」　要促成甚至成為參與者
 
 ![李慧琼提到，立法會議員可以透過他們的網絡帶企業來港，推薦人才給政府。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795928_1_20250316151601.jpg&q=80)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795757-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795757-20250314.htm)
-
----
-
-# 全國兩會｜李家超提示官員留意總理工作報告首提深化國際交往合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795752_1_20250314182059.jpg&q=90)
-  
-
-行政長官李家超表示，今早舉行政府高層內部學習分享會，和政治委任官員等分享學習全國兩會精神的體會；包括香港如何更好對接國家發展戰略，以及對香港特區政府管治的重要意義等，並要求官員學習領會和貫徹全國兩會精神。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm)
 
 ---

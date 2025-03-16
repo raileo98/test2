@@ -1,3 +1,26 @@
+# 陳美寶冀本港點對點運輸更全面　領先國際而非追落後
+
+  
+
+政府目標今年內就規管網約車平台提出法律框架建議，運輸及物流局局長陳美寶表示，目前本港已成立的士車隊，當局願景是點對點運輸與網約平台雙結合，兩者發展並存，不存在你我之爭，強調有競爭才有進步。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795933-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795933-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795933-20250316.htm)
+
+---
+
 # 美國將南韓列入「敏感國家」名單　韓方稱將與美方積極磋商
 
 ![美國將南韓列入「敏感國家」名單　韓方稱將與美方積極磋商](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795932_1_20250316161836.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm)
-
----
-
-# 鄧炳強稱定會盡力將餘下被禁錮東南亞港人帶回香港
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795854_2_20250315180325.jpg&q=90)
-  
-
-6名被誘騙到緬甸園區從事非法工作的港人早前回港。當局上星期表示，會繼續積極跟進餘下3宗仍未返港的相關求助個案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm)
 
 ---
