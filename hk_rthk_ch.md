@@ -1,3 +1,27 @@
+# 英超阿仙奴1:0挫車路士　落後利物浦12分
+
+![美連奴（左）一箭定江山，協助兵工廠擊敗車路士，他與迪勤懷斯慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795981_1_20250317070946.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，阿仙奴主場1:0擊敗車路士，繼續追趕榜首的利物浦。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795981-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795981-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795981-20250317.htm)
+
+---
+
 # 紐卡素2:1挫利物浦捧英聯盃　結束70年本土錦標荒
 
 ![紐卡素球員慶祝70年來首項本土錦標。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795980_1_20250317070018.jpg&q=75)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795906-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795906-20250316.htm)
-
----
-
-# 也門胡塞武裝：美軍空襲造成至少19人喪生
-
-![戰機從航空母艦起飛，執行空襲任務。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795903_1_20250316075403.jpg&q=90)
-  
-
-美國總統特朗普下令對也門胡塞武裝採取「果斷而有力的軍事行動」。胡塞武裝說，空襲造成至少19人喪生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795903-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795903-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795903-20250316.htm)
 
 ---
