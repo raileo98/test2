@@ -1,3 +1,27 @@
+# 被美國驅逐委內瑞拉人已抵薩爾瓦多　引發是否無視法庭命令爭議
+
+![被驅逐者已轉移到恐怖主義羈押中心。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795971_1_20250317033813.jpg&q=90)
+  
+
+200多名被美國引用《外國敵人法》驅逐出境的委內瑞拉人乘坐的飛機，已經降落第三方的薩爾瓦多。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795971-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795971-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795971-20250317.htm)
+
+---
+
 # 也門胡塞武裝稱向美國杜魯門號航母群發射導彈及出動無人機
 
 ![薩那有房屋被炸中。胡塞武裝早前已表明會予以回應。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795969_1_20250317014553.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795792-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795792-20250314.htm)
-
----
-
-# 逾2200名中國涉詐犯罪嫌疑人經泰國被分批押解回國
-
-![逾2200名中國涉詐犯罪嫌疑人經泰國被分批押解回國](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795788_1_20250314223927.jpg&q=90)
-  
-
-再有超過2200名緬甸妙瓦底地區的中國涉詐犯罪嫌疑人，被公安機關經泰國押解回國。中緬泰自2月20日聯合開展相關工作以來，累積2876名中國涉詐犯罪嫌疑人被押解回國。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795788-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795788-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795788-20250314.htm)
 
 ---
