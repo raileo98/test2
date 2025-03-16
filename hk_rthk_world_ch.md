@@ -1,3 +1,23 @@
+# 北馬其頓夜總會大火增至59死
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795953-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795953-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795953-20250316.htm)
+
+---
+
 # 澤連斯基：烏俄停火不應與領土問題掛鉤
 
 ![澤連斯基在基輔舉行記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795951_1_20250316194009.jpg&q=90)
@@ -1411,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm)
-
----
-
-# 外交部︰中俄伊北京會晤是推動伊朗核問題政治解決有益嘗試
-
-![外交部強調，制裁施壓、武力威脅沒有出路，對話協商才是正確的解決之道。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795733_1_20250314155735.jpg&q=80)
-  
-
-中國、俄羅斯和伊朗副外長在北京會晤，討論伊朗核問題。外交部發言人毛寧表示，北京會晤是中、俄、伊為推動伊朗核問題政治解決的有益嘗試，強調制裁施壓、武力威脅沒有出路，對話協商才是正確的解決之道，呼籲各方加強溝通對話，為早日恢復對話談判累積有利條件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm)
 
 ---
