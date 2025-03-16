@@ -1,3 +1,52 @@
+# Newcastle win the League Cup, stunning Liverpool
+
+![Newcastle United players celebrate after the final whistle. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795975_1_20250317053653.jpg&q=90)
+  
+
+Newcastle ended their 56-year trophy drought in stunning style as Dan Burn and Alexander Isak sealed a 2-1 win against Liverpool in the League Cup final on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm)
+
+---
+
+# Arsenal edge out Chelsea; Man Utd beat Leicester
+
+![Arsenal and Chelsea players clashed during the match at the Emirates Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795974_1_20250317053437.jpg&q=90)
+![Manchester United midfielder Bruno Fernandes celebrates his side's third goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795974_2_20250317053437.jpg&q=90)
+  
+
+Chelsea's challenge for a place in next season's Champions League faltered in a toothless 1-0 defeat at Arsenal, as Manchester United continued their upward trend with a 3-0 win at Leicester.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm)
+
+---
+
 # Hospitalised Pope Francis addresses frailty
 
 ![Children holding balloons gather by the statue of John Paul II outside the Gemelli University Hospital where Pope Francis is hospitalised, in Rome. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795960_1_20250316215620.jpg&q=85)
@@ -1387,53 +1436,5 @@ Defending champion Iga Swiatek beat Zheng Qinwen of China 6-3, 6-3, avenging her
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795674-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795674-20250314.htm)
-
----
-
-# US influencer visa under review after wombat outcry
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795670_1_20250314091432.jpg&q=90)
-  
-
-Australia is reviewing an American influencer’s visa after she posted video of her snatching a baby wombat from its mother.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm)
-
----
-
-# Johns Hopkins University to cut thousands of jobs
-
-![President Trump signed an executive order in January demanding a freeze on all US foreign aid to allow time to assess overseas expenses. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795666_1_20250314084123.jpg&q=90)
-  
-
-The prestigious Johns Hopkins University said on Thursday it was being forced to lay off more than 2,000 employees in the aftermath of the Trump administration's massive reduction in foreign aid funding.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795666-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795666-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795666-20250314.htm)
 
 ---

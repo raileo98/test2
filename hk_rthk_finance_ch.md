@@ -1,3 +1,27 @@
+# 美股本周聚焦聯儲局議息結果
+
+![美股3大指數上周下跌，本周市場聚焦聯儲局議息結果，市場普遍預期維持利率不變。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795973_1_20250317053101.jpg&q=90)
+  
+
+美股3大指數上周下跌，道瓊斯指數累計跌3.1%，連跌兩星期；標普500指數及納斯達克指數跌逾2%，兩者是連跌4星期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795973-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795973-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795973-20250317.htm)
+
+---
+
 # 旅遊及零售業界期望國際七人欖球賽帶動消費及生意
 
 ![香港國際七人欖球賽將在啟德體育園舉辦。 （旅發局資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795831_1_20250315105942.jpg&q=90)
@@ -1411,29 +1435,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795662-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795662-20250314.htm)
-
----
-
-# 日股初段跌約0.1%
-
-![日經指數較早時報36758點，跌31點，跌幅0.09%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795663_1_20250314081249.jpg&q=75)
-  
-
-日股初段偏軟，日經指數較早時報36758點，跌31點，跌幅0.09%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795663-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795663-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795663-20250314.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 以國總理尋求解除國安總局長巴爾職務　巴爾指對方期望違公眾利益
+
+  
+
+以色列總理辦公室發表聲明，指總理內塔尼亞胡將向內閣提案，解除國家安全總局局長巴爾的職務，理由是持續不信任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795976-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795976-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795976-20250317.htm)
+
+---
+
 # 聯合國呼籲於也門保持克制　憂引發報復循環
 
 ![古特雷斯（圖）的發言人指軍事活動會加劇緊張局勢。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795972_1_20250317044948.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795796-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795796-20250315.htm)
-
----
-
-# 普京透過威特科夫轉達涉烏問題意見　特朗普：討論富有成效
-
-![佩斯科夫說，威特科夫向普京提供了更多涉及烏克蘭問題的信息。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795794_1_20250314234808.jpg&q=90)
-  
-
-俄羅斯總統普京星期四會見到訪的美國中東問題特使威特科夫，克里姆林宮發言人佩斯科夫說，普京已透過對方向美國總統特朗普轉達涉及烏克蘭問題的意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795794-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795794-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795794-20250315.htm)
 
 ---

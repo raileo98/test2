@@ -1,3 +1,50 @@
+# 以國總理尋求解除國安總局長巴爾職務　巴爾指對方期望違公眾利益
+
+  
+
+以色列總理辦公室發表聲明，指總理內塔尼亞胡將向內閣提案，解除國家安全總局局長巴爾的職務，理由是持續不信任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795976-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795976-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795976-20250317.htm)
+
+---
+
+# 美股本周聚焦聯儲局議息結果
+
+![美股3大指數上周下跌，本周市場聚焦聯儲局議息結果，市場普遍預期維持利率不變。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795973_1_20250317053101.jpg&q=90)
+  
+
+美股3大指數上周下跌，道瓊斯指數累計跌3.1%，連跌兩星期；標普500指數及納斯達克指數跌逾2%，兩者是連跌4星期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795973-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795973-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795973-20250317.htm)
+
+---
+
 # 聯合國呼籲於也門保持克制　憂引發報復循環
 
 ![古特雷斯（圖）的發言人指軍事活動會加劇緊張局勢。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795972_1_20250317044948.jpg&q=90)
@@ -1391,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795901-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795901-20250316.htm)
-
----
-
-# 西甲皇馬2:1反勝維拉利爾　麥巴比建兩功
-
-![麥巴比梅開二度，協助皇馬反勝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795900_1_20250316070210.jpg&q=90)
-  
-
-西班牙甲組足球聯賽，皇家馬德里憑麥巴比梅開二度，作客2:1反勝維拉利爾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795900-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795900-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795900-20250316.htm)
-
----
-
-# 美法官頒令暫阻政府按外國敵人法驅逐部分外來人士　政府一方上訴
-
-![特朗普政府根據外國敵人法驅逐被指是委內瑞拉黑幫成員的幾名人士。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795899_1_20250316065945.jpg&q=90)
-  
-
-美國一名聯邦法官頒令，暫緩執行總統特朗普政府根據外國敵人法，驅逐部分外來人士的政策。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795899-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795899-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795899-20250316.htm)
 
 ---

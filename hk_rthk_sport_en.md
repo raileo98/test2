@@ -1,3 +1,52 @@
+# Newcastle win the League Cup, stunning Liverpool
+
+![Newcastle United players celebrate after the final whistle. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795975_1_20250317053653.jpg&q=90)
+  
+
+Newcastle ended their 56-year trophy drought in stunning style as Dan Burn and Alexander Isak sealed a 2-1 win against Liverpool in the League Cup final on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm)
+
+---
+
+# Arsenal edge out Chelsea; Man Utd beat Leicester
+
+![Arsenal and Chelsea players clashed during the match at the Emirates Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795974_1_20250317053437.jpg&q=90)
+![Manchester United midfielder Bruno Fernandes celebrates his side's third goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795974_2_20250317053437.jpg&q=90)
+  
+
+Chelsea's challenge for a place in next season's Champions League faltered in a toothless 1-0 defeat at Arsenal, as Manchester United continued their upward trend with a 3-0 win at Leicester.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm)
+
+---
+
 # 'National Games test events show room for improvement'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795914_1_20250316112203.jpg&q=90)
@@ -1398,53 +1447,5 @@ Two-time Asian Games gold medallist, Stone Shek, on Friday announced his retirem
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm)
-
----
-
-# Spurs' coach Popovich says he won't return this season
-
-![Popovich said he hopes to make a return to coaching in the near future. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793588_1_20250228074546.jpg&q=90)
-  
-
-Hall of Fame coach Gregg Popovich said Thursday he won't return this season as coach of the San Antonio Spurs as he continues to recover from a stroke he suffered in November.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793588-20250228.htm)
-
----
-
-# West Ham ease to victory over lacklustre Leicester
-
-![West Ham climbed to 15th and 16 points clear of the relegation zone with the victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793582_1_20250228071128.jpg&q=90)
-  
-
-Leicester sank closer to an immediate return to the Championship after West Ham pulled clear of the bottom three with a convincing 2-0 win.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793582-20250228.htm)
 
 ---
