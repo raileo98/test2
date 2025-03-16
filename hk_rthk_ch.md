@@ -1,3 +1,26 @@
+# 李慧琼指立法會議員應多「落場踢」　要促成甚至成為參與者
+
+  
+
+全國人大常委李慧琼表示，終審法院近日就支聯會拒交資料案的判決，顯示終審法院處理國安法案件的門檻相當高，因此要對法庭有信心。她認為這是一個實施細則的事情，還沒到釋法的層面，國安法在實施的過程中，需要不斷完善。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm)
+
+---
+
 # 李慧琼指可考慮北都成為「特區中的一個特區」　賦予特別行政措施
 
 ![李慧琼認為，可以考慮北部都會區成為「特區中的一個特區」。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795927_1_20250316140812.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm)
-
----
-
-# 社署嘉許禮20周年　杜永恒稱得獎者展現勇氣及堅毅不屈精神
-
-![44名接受社署署長監護及東華三院住宿照顧服務的兒童及青少年，分別獲頒「最佳成就獎」或「最佳進步獎」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795849_1_20250315150249.jpg&q=80)
-  
-
-截至去年底，共有788名兒童及青少年受社會福利署署長監護，有44名接受社署署長監護及東華三院住宿照顧服務的兒童及青少年，分別獲頒「最佳成就獎」或「最佳進步獎」。社署署長杜永恒在嘉許禮致辭時表示，嘉許禮踏入20周年，得獎者面對挑戰時展現勇氣和堅毅不屈的精神，是其他兒童及青少年的良好榜樣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm)
 
 ---

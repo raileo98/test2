@@ -1,3 +1,27 @@
+# CE draws inspiration from blockbuster Ne Zha 2
+
+![The chief executive has expressd optimism about Hong Kong's film industry. Photo: John Lee's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795922_1_20250316122802.jpg&q=65)
+  
+
+Chief Executive John Lee on Sunday said the success of mainland film Ne Zha 2 has inspired his administration to continue breaking barriers and forging its own path.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795922-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795922-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795922-20250316.htm)
+
+---
+
 # 3,000 compete in inaugural Kai Tak Run
 
 ![Organisers of the first Kai Tak Run say more than 3,000 people had taken part in the event. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795923_1_20250316124107.jpg&q=85)
@@ -1412,29 +1436,5 @@ Lawmaker and National People's Congress delegate Priscilla Leung on Monday said 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795062-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795062-20250310.htm)
-
----
-
-# Unsold homes dampens interest for new sites: tycoon
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795043_1_20250310083626.jpg&q=85)
-  
-
-A property tycoon says he believes Hong Kong developers will take a "conservative" approach over acquiring new plots, noting such firms still had a lot of unsold units.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm)
 
 ---

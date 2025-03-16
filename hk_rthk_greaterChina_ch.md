@@ -1,3 +1,26 @@
+# 李慧琼指立法會議員應多「落場踢」　要促成甚至成為參與者
+
+  
+
+全國人大常委李慧琼表示，終審法院近日就支聯會拒交資料案的判決，顯示終審法院處理國安法案件的門檻相當高，因此要對法庭有信心。她認為這是一個實施細則的事情，還沒到釋法的層面，國安法在實施的過程中，需要不斷完善。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm)
+
+---
+
 # 李慧琼指可考慮北都成為「特區中的一個特區」　賦予特別行政措施
 
 ![李慧琼認為，可以考慮北部都會區成為「特區中的一個特區」。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795927_1_20250316140812.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795466-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795466-20250312.htm)
-
----
-
-# 國常會：已明確全年經濟社會發展目標　各部門要細化措施加快落實
-
-![李強主持召開國常會指出，政府工作報告明確全年經濟社會發展目標任務，各部門各單位要主動對號入座，細化措施加快落實。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795459_1_20250312210430.jpg&q=90)
-  
-
-國務院總理李強主持召開國常會指出，最新審議通過的政府工作報告，明確全年經濟社會發展目標任務，各部門各單位要主動對號入座，細化措施加快落實，與各種不確定因素搶時間並靠前發力，亦要做好政策儲備，確保需要時能夠及時推出，盡快見效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795459-20250312.htm)
 
 ---
