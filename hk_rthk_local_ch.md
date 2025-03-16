@@ -1,3 +1,75 @@
+# 陳茂波冀科企助培育青年科技人才　提供優質就業發展機會
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795939_1_20250316183245.jpg&q=90)
+  
+
+財政司司長陳茂波表示，不少已落戶本港或打算擴展業務的科企希望增聘人手，數碼港將在本周五舉行聚焦人工智能的招聘博覽，580多家企業及機構提供逾2000個職位，約6成跟人工智能相關。另外，他鼓勵更多科企參與培育本地青年科技人才，為他們提供更多優質就業和發展機會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm)
+
+---
+
+# 楊德強指全運跨境項目測試賽銜接可改善
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795942_1_20250316182944.jpg&q=85)
+  
+
+第15屆全運會及殘特奧會將於年底在粵港澳三地舉行，其中香港將承辦8個全運會及4個殘特奧會項目，另外亦會與內地及澳門合辦兩個項目，包括公路單車和馬拉松。全運會統籌辦公室主任楊德強說，這兩個跨境項目早前舉行測試賽，經檢討認為部分環節銜接可以改善。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm)
+
+---
+
+# 啟德體育園舉行開幕後首場跑步賽　議員倡跑步賽與旅遊深度結合
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795940_1_20250316182735.jpg&q=85)
+  
+
+啟德體育園舉辦開幕後首個跑步賽事，約3200人參賽。有參與的市民表示，感覺新鮮，好像參加國際賽，亦有參賽的立法會議員希望體育園多舉辦類似賽事，與旅遊業深度結合，吸引旅客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm)
+
+---
+
 # 男子火炭捱斬傷重死亡　兩疑兇在逃
 
   
@@ -1365,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795773-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795773-20250314.htm)
-
----
-
-# 證監會下月恢復向中介人徵收牌照費　業界稱極度失望及深切憂慮
-
-![證監會下月起恢復向所有中介人及持牌人士徵收牌照年費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795767_1_20250314184714.jpg&q=90)
-  
-
-證監會發出通函，下月1日起恢復向所有中介人及持牌人士徵收牌照年費，並表示按《證券及期貨條例》有關規定，所有中介人及持牌人士須於牌照或註冊證明書每年周年日期後一個月內繳付年費，否則須繳付附加費，牌照或註冊可能會被暫時吊銷或撤銷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795767-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795767-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795767-20250314.htm)
-
----
-
-# 3.5億元走私電子貨物　海關偵破4宗以遠洋船及內河船走私案
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795764_1_20250314191044.jpg&q=80)
-  
-
-海關在葵涌貨櫃碼頭及青衣海關驗貨場偵破4宗涉嫌利用遠洋船和內河船走私貨物的案件，檢獲大批懷疑走私電子貨物，估計市值約3億5千5百萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795764-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795764-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795764-20250314.htm)
-
----
-
-# 多個國家出現麻疹疫情　衞生防護中心提醒外遊市民完成兩劑疫苗
-
-![衞生防護中心表示，市民接種疫苗是預防麻疹最安全有效的方法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795763_1_20250314191914.jpg&q=80)
-  
-
-衞生防護中心表示，鑑於近期多個海外國家出現麻疹疫情，提醒市民外遊前應確保完成接種兩劑麻疹疫苗，以減低感染風險。香港今年暫時錄得1宗外地傳入麻疹個案，病人曾於潛伏期到過越南，目前沒有錄得其他個案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795763-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795763-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795763-20250314.htm)
 
 ---

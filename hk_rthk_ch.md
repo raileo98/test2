@@ -1,3 +1,75 @@
+# 陳茂波冀科企助培育青年科技人才　提供優質就業發展機會
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795939_1_20250316183245.jpg&q=90)
+  
+
+財政司司長陳茂波表示，不少已落戶本港或打算擴展業務的科企希望增聘人手，數碼港將在本周五舉行聚焦人工智能的招聘博覽，580多家企業及機構提供逾2000個職位，約6成跟人工智能相關。另外，他鼓勵更多科企參與培育本地青年科技人才，為他們提供更多優質就業和發展機會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm)
+
+---
+
+# 楊德強指全運跨境項目測試賽銜接可改善
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795942_1_20250316182944.jpg&q=85)
+  
+
+第15屆全運會及殘特奧會將於年底在粵港澳三地舉行，其中香港將承辦8個全運會及4個殘特奧會項目，另外亦會與內地及澳門合辦兩個項目，包括公路單車和馬拉松。全運會統籌辦公室主任楊德強說，這兩個跨境項目早前舉行測試賽，經檢討認為部分環節銜接可以改善。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm)
+
+---
+
+# 啟德體育園舉行開幕後首場跑步賽　議員倡跑步賽與旅遊深度結合
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795940_1_20250316182735.jpg&q=85)
+  
+
+啟德體育園舉辦開幕後首個跑步賽事，約3200人參賽。有參與的市民表示，感覺新鮮，好像參加國際賽，亦有參賽的立法會議員希望體育園多舉辦類似賽事，與旅遊業深度結合，吸引旅客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm)
+
+---
+
 # 男子火炭捱斬傷重死亡　兩疑兇在逃
 
   
@@ -1367,77 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm)
-
----
-
-# 陳茂波︰邀請大型科企及前沿初創將資源投放教育　培育創科人才
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795866_1_20250315182437.jpg&q=90)
-  
-
-財政司司長陳茂波表示，預算案提出將人工智能作為關鍵產業加強推進，亦邀請大型科技企業及前沿初創，將資源投放到教育，讓學生體驗到技術應用，引起他們對創科的興趣，培育本地創科人才。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795866-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795866-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795866-20250315.htm)
-
----
-
-# 天文台下午一度發出今年首個黃雨警告　大埔有冰雹報告
-
-![本港下午不少地區落大雨，多區錄得大約20毫米雨量。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795865_1_20250315181844.jpg&q=85)
-  
-
-本港下午不少地區落大雨，多區錄得大約20毫米雨量。天文台一度發出黃色暴雨警告信號，是本港今年第一次；大埔就收到冰雹報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795865-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795865-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795865-20250315.htm)
-
----
-
-# G7外長會後聲明沒再提奉行「一中」政策　中方不滿並嚴正交涉
-
-![中國駐加拿大使館發言人說，七國集團外長的聲明字裡行間充斥著傲慢、偏見和遏華反華的險惡用心。（中國駐加拿大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795863_1_20250315173417.jpg&q=90)
-  
-
-七國集團（G7）外長結束一連兩日在加拿大魁北克舉行的會議，相對於去年11月的會後聲明，七國集團外長今次的聯合聲明並無再提及奉行「一個中國」政策，聲明中又表示，鼓勵涉及台海兩岸的事項，應以和平方式處理，反對任何單方面使用武力，企圖改變現狀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm)
 
 ---
