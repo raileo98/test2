@@ -1,3 +1,27 @@
+# US launches large-scale strikes against Yemeni Houthis
+
+![The strikes on Saturday were carried out in part by fighter aircraft from the Harry S. Truman aircraft carrier, which is in the Red Sea. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795905_1_20250316083448.jpg&q=90)
+  
+
+At least 19 were killed as US President Donald Trump launched large-scale military strikes against Yemen's Iran-aligned Houthis on Saturday over the group's attacks against Red Sea shipping, warning "hell will rain down" on them if they do not stop.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm)
+
+---
+
 # Judge bars deportations after Trump's invasion claim
 
 ![The ruling came hours after Trump claimed the Venezuelan gang Tren de Aragua was invading the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795902_1_20250316073140.jpg&q=90)
@@ -1411,29 +1435,5 @@ The first major global effort to crack down on the fast-growing industry of scam
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795054-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795054-20250310.htm)
-
----
-
-# Trump declines to rule out 2025 US recession
-
-![President Trump told reporters aboard Air Force One "Who knows?", when asked on Sunday to clarify whether there could be a recession. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795044_1_20250310084801.jpg&q=90)
-  
-
-US President Donald Trump declined on Sunday to rule out the possibility that the United States might enter a recession this year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm)
 
 ---

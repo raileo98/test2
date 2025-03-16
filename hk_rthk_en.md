@@ -1,3 +1,27 @@
+# US launches large-scale strikes against Yemeni Houthis
+
+![The strikes on Saturday were carried out in part by fighter aircraft from the Harry S. Truman aircraft carrier, which is in the Red Sea. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795905_1_20250316083448.jpg&q=90)
+  
+
+At least 19 were killed as US President Donald Trump launched large-scale military strikes against Yemen's Iran-aligned Houthis on Saturday over the group's attacks against Red Sea shipping, warning "hell will rain down" on them if they do not stop.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm)
+
+---
+
 # Judge bars deportations after Trump's invasion claim
 
 ![The ruling came hours after Trump claimed the Venezuelan gang Tren de Aragua was invading the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795902_1_20250316073140.jpg&q=90)
@@ -1412,29 +1436,5 @@ A driver, who was behind the wheel of a light goods vehicle travelling along the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795576-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795576-20250313.htm)
-
----
-
-# China urges diplomatic Iran nuclear solution
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795572_1_20250313155832.jpg&q=90)
-  
-
-China called on Thursday for a "diplomatic" resolution to the Iran nuclear issue as it prepared to host diplomats from Tehran and Moscow for talks in Beijing.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795572-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795572-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795572-20250313.htm)
 
 ---
