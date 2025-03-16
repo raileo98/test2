@@ -1,3 +1,27 @@
+# Hospitalised Pope Francis addresses frailty
+
+![Children holding balloons gather by the statue of John Paul II outside the Gemelli University Hospital where Pope Francis is hospitalised, in Rome. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795960_1_20250316215620.jpg&q=85)
+  
+
+Pope Francis acknowledged being fragile and "facing a period of trial", as he thanked well-wishers on Sunday for prayers in a message from hospital, where he has been slowly recovering from pneumonia.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795960-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795960-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795960-20250316.htm)
+
+---
+
 # 'Most scared I've been': US strikes sow panic in Yemen
 
 ![Armed Yemenis shout slogans and raise their weapons during a protest against Israel's decision to block aid into the Gaza Strip, in the capital Sanaa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795952_1_20250316194411.jpg&q=80)
@@ -1411,29 +1435,5 @@ Israel is due to send a delegation to Qatar on Monday for a fresh round of talks
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm)
-
----
-
-# Russia expels two British 'diplomats' on spy charges
-
-![The Kremlin has summoned a UK embassy representative in connection with the allegations. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795146_1_20250310190631.jpg&q=80)
-  
-
-Russia said on Monday it was expelling two British "diplomats" on suspicion of carrying out espionage activities.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795146-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795146-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795146-20250310.htm)
 
 ---
