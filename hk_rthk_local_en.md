@@ -1,3 +1,27 @@
+# 3,000 compete in inaugural Kai Tak Run
+
+![Organisers of the first Kai Tak Run say more than 3,000 people had taken part in the event. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795923_1_20250316124107.jpg&q=85)
+  
+
+More than 3,000 runners took part in the inaugural Kai Tak Run at the Kai Tak Sports Ground on Sunday morning.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795923-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795923-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795923-20250316.htm)
+
+---
+
 # Thousands of tech jobs on offer to attract talent: FS
 
 ![Paul Chan says grooming tech talent is important for the SAR. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795917_1_20250316115514.jpg&q=80)
@@ -24,7 +48,7 @@ Financial Secretary Paul Chan said grooming local tech talent and attracting peo
 
 # 'National Games test events show room for improvement'
 
-![Yeung Tak-keung says organisers are working to improve cross-border sports events. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795914_1_20250316112203.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795914_1_20250316112203.jpg&q=90)
   
 
 The local official who heads the National Games Coordination Office on Sunday said test runs for cross-border sports events have shown there is room for improvement.
@@ -1412,29 +1436,5 @@ A property tycoon says he believes Hong Kong developers will take a "conservativ
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795043-20250310.htm)
-
----
-
-# Robertson romps to World Snooker Grand Prix title
-
-![Smiles all round but the trophy definitely belongs to Neil Robertson. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795014_1_20250309214747.jpg&q=85)
-  
-
-Neil Robertson from Australia won the 2025 World Snooker Grand Prix on Sunday, delivering a dominant performance by whitewashing Stuart Bingham from England by a score of 10-frames-to-nil.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm)
 
 ---

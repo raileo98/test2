@@ -1,3 +1,26 @@
+# 小西灣邨瑞泰樓有石屎高處墮下擊傷女途人
+
+  
+
+柴灣小西灣邨瑞泰樓有石屎從高處墮下，擊傷一名26歲女途人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm)
+
+---
+
 # 聖保羅書院中五生內地交流期間死亡　蔡若蓮重申與交流考察無關
 
 ![蔡若蓮重申，調查已結束，證明事件與交流及考察無關。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795921_1_20250316123957.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795747-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795747-20250314.htm)
-
----
-
-# 香港總商會推出人工智能驅動平台助中小企進行ESG審核及報告
-
-![丘應樺表示，該創新平台不僅符合全球綠色經濟的發展趨勢，亦強調香港在整合先進技術商業發展的領導角色。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795745_1_20250314173640.jpg&q=80)
-  
-
-香港總商會推出由人工智能驅動的環境、社會及管治（ESG）自我審核及學習平台「Green360」，旨在教育企業認識實踐 ESG 最佳做法 ，以協助尤其是中小企等進行ESG審核及報告程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795745-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795745-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795745-20250314.htm)
 
 ---

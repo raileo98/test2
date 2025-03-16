@@ -1,6 +1,6 @@
 # 'National Games test events show room for improvement'
 
-![Yeung Tak-keung says organisers are working to improve cross-border sports events. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795914_1_20250316112203.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795914_1_20250316112203.jpg&q=90)
   
 
 The local official who heads the National Games Coordination Office on Sunday said test runs for cross-border sports events have shown there is room for improvement.
