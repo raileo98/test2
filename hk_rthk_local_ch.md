@@ -1,3 +1,26 @@
+# 男子火炭捱斬傷重死亡　兩疑兇在逃
+
+  
+
+火炭發生斬人案，一名年約50歲的男子被斬傷，送往威爾斯醫院搶救，延至傍晚約6時不治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm)
+
+---
+
 # 五旬男子火炭遭斬傷昏迷　兩疑兇乘的士逃去
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795763-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795763-20250314.htm)
-
----
-
-# 蔡若蓮︰學齡人口下降屬「結構性」情況　未來幾年挑戰更大
-
-![蔡若蓮說，學齡人口下降屬「結構性」情況，預料未來數年挑戰更大。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795762_2_20250314204018.jpg&q=90)
-  
-
-兩間小學2025/26學年獲「派0班」，教育局局長蔡若蓮表示，學齡人口下降屬「結構性」情況並非「過渡性」，預料未來數年挑戰更大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795762-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795762-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795762-20250314.htm)
 
 ---

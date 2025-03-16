@@ -1,3 +1,26 @@
+# 男子火炭捱斬傷重死亡　兩疑兇在逃
+
+  
+
+火炭發生斬人案，一名年約50歲的男子被斬傷，送往威爾斯醫院搶救，延至傍晚約6時不治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm)
+
+---
+
 # 五旬男子火炭遭斬傷昏迷　兩疑兇乘的士逃去
 
   
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm)
-
----
-
-# 銀行職員涉騙取長者逾260萬元　與兄長同被警方扣查
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795862_1_20250315180519.jpg&q=90)
-  
-
-一名29歲銀行職員涉嫌利用本身職員的身份，騙取一名長者網上銀行用戶資料及密碼，盜取對方超過260萬元，再透過33歲兄長的戶口清洗逾百萬元款項。兩人正被警方扣留調查，警方調查顯示今次案件屬個別事件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795862-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795862-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795862-20250315.htm)
 
 ---
