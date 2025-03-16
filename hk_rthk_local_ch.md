@@ -1,3 +1,26 @@
+# 世界互聯網大會亞太峰會將在港舉行　孫東赴北京明開記者會介紹
+
+  
+
+創新科技及工業局局長孫東傍晚啓程前往北京，明日與世界互聯網大會秘書長任賢良共同出席新聞發布會，介紹將在香港舉行的世界互聯網大會亞太峰會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm)
+
+---
+
 # 李家超與妻子觀看《哪吒2》　稱哪吒精神激勵大家繼續披荊斬棘
 
 ![李家超（右）早前與太太到戲院觀賞全國影史票房最高電影《哪吒2之魔童鬧海》。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795913_1_20250316111038.jpg&q=65)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm)
-
----
-
-# 蔡若蓮：推動學校「數字教育」轉型　持續加強教師相關專業培訓
-
-![蔡若蓮指，已成立數字教育策略發展督導委員會，為推動學校「數字教育」轉型，提出發展方向及建議策略。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795738_1_20250314164134.jpg&q=80)
-  
-
-教育局局長蔡若蓮出席香港教育城25周年啟動禮致辭時表示，今年全國兩會提出要堅持創新引領發展，推進教育、科技創新及人才培養；教育局將於7月與教育城合辦「數字教育周」，配合人工智能國際高峰會舉行，緊貼創新科技及數字教育的最新趨勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795738-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795738-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795738-20250314.htm)
 
 ---

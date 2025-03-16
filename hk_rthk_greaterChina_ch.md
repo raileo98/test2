@@ -1,3 +1,26 @@
+# 世界互聯網大會亞太峰會將在港舉行　孫東赴北京明開記者會介紹
+
+  
+
+創新科技及工業局局長孫東傍晚啓程前往北京，明日與世界互聯網大會秘書長任賢良共同出席新聞發布會，介紹將在香港舉行的世界互聯網大會亞太峰會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm)
+
+---
+
 # 港澳辦再轉載文章　質疑長和擬售巴拿馬運河港口有否考量國家利益
 
 ![港澳辦連續第二次轉載《大公報》的評論文章。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795884_2_20250315222028.jpg&q=85)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm)
-
----
-
-# 沃爾瑪據報要求中國供應商大幅降價而被商務部約談
-
-![沃爾瑪據報要求中國供應商大幅降價而被商務部約談。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795428_1_20250312162651.jpg&q=75)
-  
-
-央視旗下社交平台「玉淵譚天」引述知情人士報道，沃爾瑪因為要求一些中國供應商大幅降價，企圖將美國對華加徵關稅的負擔，轉嫁給中國供應商和消費者，昨日被商務部等部門約談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795428-20250312.htm)
 
 ---
