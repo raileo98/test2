@@ -1,3 +1,27 @@
+# Thousands of tech jobs on offer to attract talent: FS
+
+![Paul Chan says grooming tech talent is important for the SAR. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795917_1_20250316115514.jpg&q=80)
+  
+
+Financial Secretary Paul Chan said grooming local tech talent and attracting people in the field from outside Hong Kong are both important for the development of innovation and technology in the city.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795917-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795917-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795917-20250316.htm)
+
+---
+
 # 'National Games test events show room for improvement'
 
 ![Yeung Tak-keung says organisers are working to improve cross-border sports events. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795914_1_20250316112203.jpg&q=90)
@@ -1412,29 +1436,5 @@ Neil Robertson from Australia won the 2025 World Snooker Grand Prix on Sunday, d
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm)
-
----
-
-# Fans enjoy the atmosphere on the final day of LIV Golf
-
-![Many fans told RTHK the all-star player roster was a big draw for them. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795008_1_20250309201219.jpg&q=80)
-  
-
-Spectators were immersed in what felt like a party-like atmosphere on the third and final day of the LIV Golf Hong Kong tournament, as the second edition of the event wrapped up in Fanling on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm)
 
 ---

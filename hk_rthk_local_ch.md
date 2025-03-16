@@ -1,5 +1,52 @@
+# 調查指近5成受訪SEN兒童家長稱子女曾受不友善對待
+
+  
+
+有調查發現，近5成受訪育有特殊教育需要（SEN）兒童的家長稱，子女曾受不友善對待。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm)
+
+---
+
+# 發展局：今年起以「成熟一項推一項」模式推行減低建造成本措施
+
+  
+
+發展局表示，政府自2023年第四季開始展開研究，就減低建造成本措施制定了四大具體方向，方向包括優化項目採購模式、善用先進科技及建造技術、精簡審批流程，以及檢視設計標準及要求。政府今年起會以「成熟一項推一項」、先行先試的模式推行相關措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795918-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795918-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795918-20250316.htm)
+
+---
+
 # 世界互聯網大會亞太峰會將在港舉行　孫東赴北京明開記者會介紹
 
+![孫東傍晚啓程前往北京，明日與世界互聯網大會秘書長任賢良共同出席新聞發布會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795916_1_20250316120526.jpg&q=75)
   
 
 創新科技及工業局局長孫東傍晚啓程前往北京，明日與世界互聯網大會秘書長任賢良共同出席新聞發布會，介紹將在香港舉行的世界互聯網大會亞太峰會。
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm)
-
----
-
-# 恒指高收497點　未能企穩24000點　長和跌逾6%
-
-![恒生指數高見24113點，一度升逾650點，收市報23959點，升497點，升幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795737_1_20250314162135.jpg&q=80)
-  
-
-港股結束連續5日跌勢，恒生指數高見24113點，一度升逾650點，收市升幅收窄，報23959點，升497點，升幅2.1%，全日主板成交額2906億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm)
-
----
-
-# 涉參與示威衝突後移居日本返港被捕　男子改認暴動罪還押候判
-
-![案件原訂今日於區域法院開審，被告開審前改為承認暴動罪，還押至下星期四判刑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795739_2_20250315174122.jpg&q=80)
-  
-
-一名青年2019年在灣仔參與示威衝突，翌年離港移居日本，直至前年年中，返港探望病母時被捕，被控一項暴動罪。案件原訂今日於區域法院開審，現年27歲被告開審前改為承認暴動罪，還押至下星期四判刑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795739-20250314.htm)
 
 ---

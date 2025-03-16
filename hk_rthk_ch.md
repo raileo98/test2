@@ -1,5 +1,52 @@
+# 調查指近5成受訪SEN兒童家長稱子女曾受不友善對待
+
+  
+
+有調查發現，近5成受訪育有特殊教育需要（SEN）兒童的家長稱，子女曾受不友善對待。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm)
+
+---
+
+# 發展局：今年起以「成熟一項推一項」模式推行減低建造成本措施
+
+  
+
+發展局表示，政府自2023年第四季開始展開研究，就減低建造成本措施制定了四大具體方向，方向包括優化項目採購模式、善用先進科技及建造技術、精簡審批流程，以及檢視設計標準及要求。政府今年起會以「成熟一項推一項」、先行先試的模式推行相關措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795918-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795918-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795918-20250316.htm)
+
+---
+
 # 世界互聯網大會亞太峰會將在港舉行　孫東赴北京明開記者會介紹
 
+![孫東傍晚啓程前往北京，明日與世界互聯網大會秘書長任賢良共同出席新聞發布會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795916_1_20250316120526.jpg&q=75)
   
 
 創新科技及工業局局長孫東傍晚啓程前往北京，明日與世界互聯網大會秘書長任賢良共同出席新聞發布會，介紹將在香港舉行的世界互聯網大會亞太峰會。
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795843-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795843-20250315.htm)
-
----
-
-# 人民日報文章：賴清德「綠恐謀獨」必然自取滅亡
-
-![人民日報批評賴清德近日拋出所謂「因應五方面威脅」的「17項策略」，不惜將台灣民眾推入險境的邪惡本質與陰險用心。（人民日報網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795842_1_20250315125000.jpg&q=90)
-  
-
-人民日報發表署名文章，批評賴清德近日拋出所謂「因應五方面威脅」的「17項策略」，立場之頑固，態度之囂張，挑釁之猖狂，充分暴露其人瘋狂謀「獨」對抗、不惜將台灣民眾推入險境的邪惡本質與陰險用心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795842-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795842-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795842-20250315.htm)
-
----
-
-# 林正財稱公共醫療收費改革冀更精準減少浪費　並非為解決公共財困
-
-![林正財相信當局會按不同需要訂立收費模式，盡量做到共付概念。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795841_1_20250315141949.jpg&q=80)
-  
-
-消息指，政府將於數星期內，交代公營醫療收費調整方案。行政會議成員林正財表示，以他理解，公共醫療收費改革並非為解決公共財政困難，而是希望更精準減少浪費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm)
 
 ---
