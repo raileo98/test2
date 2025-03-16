@@ -1,3 +1,27 @@
+# 短道速滑世錦賽　中國隊獲男子5000米接力銀牌
+
+![中國隊獲銀後在場館內慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795962_1_20250316222432.jpg&q=90)
+  
+
+在北京，國際滑聯短道速滑世錦賽最後一天賽事，中國獲男子5000米接力銀牌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm)
+
+---
+
 # 何立峰會見美國前財長保爾森
 
 ![何立峰在北京會見美國前財長保爾森。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795963_1_20250316223000.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795519-20250313.htm)
-
----
-
-# 韓媒稱北韓走私貨船與中國船隻相撞後沉沒　近20名北韓船員死亡
-
-![韓媒稱北韓走私貨船與中國船隻相撞後沉沒　近20名北韓船員死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795511_1_20250313085848.jpg&q=90)
-  
-
-韓聯社報道，一艘疑似走私煤炭的北韓貨船上月在西部海域與一艘中國船隻相撞後沉沒，造成近20名北韓船員死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795511-20250313.htm)
 
 ---
