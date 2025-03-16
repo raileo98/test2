@@ -1,6 +1,10 @@
 # 北馬其頓一間夜總會發生大火　據報至少50人死亡
 
+![北馬其頓一間夜總會發生大火　據報至少50人死亡](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795931_1_20250316155011.jpg&q=90)
   
+
+歐洲巴爾幹半島國家北馬其頓一間夜總會發生大火，當地傳媒報道，至少50人死亡。
+
   
 
 
