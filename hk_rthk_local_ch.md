@@ -1,3 +1,26 @@
+# 新界南反黑組接手調查火炭斬人案　將安排為死者驗屍
+
+  
+
+一名52歲男子在火炭被人以刀襲擊，身體多處受傷，昏迷被送往威爾斯親王醫院，其後傷重不治。警方列作謀殺案，並追緝2名身穿黑衣、年約20歲的男子。新界南總區反三合會行動組正調查案件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795959-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795959-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795959-20250316.htm)
+
+---
+
 # 海關機場檢獲市值220萬元懷疑海洛英　一對男女被捕
 
 ![海關檢獲的懷疑海洛英約重3.6公斤、估計市值約220萬元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795958_2_20250316213346.jpg&q=80)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795828-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795828-20250315.htm)
-
----
-
-# 黃鳳嫺提醒消費者有權要求醫療機構提供書面報價
-
-![黃鳳嫺說，機構應提供更多套餐價，清晰交代涵蓋範疇，增加收費透明度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795826_1_20250315101707.jpg&q=85)
-  
-
-消委會硏究報告發現，不少私家醫院價目資料難明不足，收費統計數據沒有即時更新，病人之間收費差距甚大，部分醫療機構缺乏詳盡書面費用預算，政府計劃今年內就探討立法提升私營醫療收費透明度諮詢業界。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795826-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795826-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795826-20250315.htm)
 
 ---
