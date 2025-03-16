@@ -1,3 +1,27 @@
+# 補時階段入兩球　西甲巴塞4:2反勝馬體會重返榜首
+
+![巴塞的費蘭托利斯今仗梅開二度。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795983_1_20250317072715.jpg&q=85)
+  
+
+西班牙甲組足球聯賽，巴塞羅那在半場落後一球下，作客4:2反勝馬體會，重返榜首。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795983-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795983-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795983-20250317.htm)
+
+---
+
 # 英超阿仙奴1:0挫車路士　落後利物浦12分
 
 ![美連奴（左）一箭定江山，協助兵工廠擊敗車路士，他與迪勤懷斯慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795981_1_20250317070946.jpg&q=90)
@@ -1427,29 +1451,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793891-20250302.htm)
-
----
-
-# 英足盃曼城3:1反勝普利茅夫晉級
-
-![曼城年輕小將歷高奧懷利建兩功。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793848_1_20250302064149.jpg&q=90)
-  
-
-英格蘭足總盃第五圈，英超的曼城3:1反勝英冠的普利芧夫晉級。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1793848-20250302.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1793848-20250302.htm](https://news.rthk.hk/rthk/ch/component/k2/1793848-20250302.htm)
 
 ---
