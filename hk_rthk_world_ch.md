@@ -1,3 +1,27 @@
+# 也門胡塞武裝：美軍空襲造成逾30人死　揚言以升級回應升級
+
+![特朗普下令對也門胡塞武裝採取大規模軍事行動後，美軍船艦向不明地點開火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795925_1_20250316131959.jpg&q=90)
+  
+
+美國總統特朗普下令對也門胡塞武裝採取大規模軍事行動，胡塞武裝說，首都薩那、北部薩達省等地遭到空襲，造成至少31人死亡，主要是婦女和兒童，另有超過100人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795925-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795925-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795925-20250316.htm)
+
+---
+
 # 美國廣泛地區遭受龍捲風等惡劣天氣影響　逾30人喪生
 
 ![美國多個州遭受多股龍捲風和猛烈暴風雨吹襲，造成多人傷亡，圖為密蘇里州一間房屋受龍捲風破壞的情況。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795915_1_20250316114534.jpg&q=55)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795669-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795669-20250314.htm)
-
----
-
-# 《環看天下》：中方將舉行伊朗核問題中俄伊北京會晤
-
-![伊朗最高領袖哈梅內伊表示，伊朗絕不接受某些「霸凌政府」的談判要求。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795665_1_20250314081511.jpg&q=90)
-  
-
-中方今日舉行伊朗核問題中俄伊北京會晤。三方將就伊朗核問題及其他共同關心的問題，交換意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm)
 
 ---
