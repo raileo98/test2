@@ -1,3 +1,26 @@
+# 特朗普政府凍結美國之音等傳媒機構資助　員工被通知休假
+
+  
+
+美國特朗普政府凍結美國之音等多個傳媒機構的資助，機構員工被通知休假。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm)
+
+---
+
 # 也門胡塞武裝：美軍空襲造成逾30人死　揚言以升級回應升級
 
 ![特朗普下令對也門胡塞武裝採取大規模軍事行動後，美軍船艦向不明地點開火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795925_1_20250316131959.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795673-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795673-20250314.htm)
-
----
-
-# 美國食品藥物管理局向疫苗製造商就流感疫苗病毒株提出建議
-
-![美國食品藥物管理局向疫苗製造商就流感疫苗病毒株提出建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795669_1_20250314091352.jpg&q=85)
-  
-
-美國食品藥物管理局向疫苗製造商提出用於美國2025/26年流感季節的流感疫苗病毒株的建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795669-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795669-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795669-20250314.htm)
 
 ---

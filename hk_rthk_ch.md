@@ -1,3 +1,49 @@
+# 李慧琼指可考慮北都成為「特區中的一個特區」　賦予特別行政措施
+
+  
+
+全國人大常委李慧琼認為，可以考慮北部都會區成為「特區中的一個特區」，賦予它一個特別審批流程或者特別行政措施。她舉例稱，例如鐵路原本要10年後才建好，或者3年後才招標完成，但北都或河套區是否可一年就可完成招標。她說，以現時香港工作方式太慢，香港要突破自己框框。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm)
+
+---
+
+# 特朗普政府凍結美國之音等傳媒機構資助　員工被通知休假
+
+  
+
+美國特朗普政府凍結美國之音等多個傳媒機構的資助，機構員工被通知休假。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm)
+
+---
+
 # 也門胡塞武裝：美軍空襲造成逾30人死　揚言以升級回應升級
 
 ![特朗普下令對也門胡塞武裝採取大規模軍事行動後，美軍船艦向不明地點開火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795925_1_20250316131959.jpg&q=90)
@@ -1391,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm)
-
----
-
-# 天文台預料本港短期內可能受冰雹影響
-
-![天文台預料本港短期內可能受冰雹影響，提醒市民提高警惕。（天文台網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795848_1_20250315150657.jpg&q=90)
-  
-
-天文台表示，位於珠江口以西的強雷雨區正逐漸移近本港，預料未來兩三小時本港雨勢較大及有強烈狂風雷暴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795848-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795848-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795848-20250315.htm)
-
----
-
-# 強雷雨區逐漸移近　料未來兩三小時本港雨勢較大及有強烈狂風雷暴
-
-![天文台表示，位於珠江口以西的強雷雨區正逐漸移近本港。（天文台網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795847_1_20250315150721.jpg&q=90)
-  
-
-天文台表示，位於珠江口以西的強雷雨區正逐漸移近本港，預料未來兩三小時本港雨勢較大及有強烈狂風雷暴。市民請提高警惕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795847-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795847-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795847-20250315.htm)
 
 ---

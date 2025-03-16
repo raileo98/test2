@@ -1,3 +1,26 @@
+# 李慧琼指可考慮北都成為「特區中的一個特區」　賦予特別行政措施
+
+  
+
+全國人大常委李慧琼認為，可以考慮北部都會區成為「特區中的一個特區」，賦予它一個特別審批流程或者特別行政措施。她舉例稱，例如鐵路原本要10年後才建好，或者3年後才招標完成，但北都或河套區是否可一年就可完成招標。她說，以現時香港工作方式太慢，香港要突破自己框框。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm)
+
+---
+
 # 小西灣邨瑞泰樓有石屎高處墮下擊傷女途人
 
 ![案件列作高空墮物有人受傷，暫未有人被捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795924_1_20250316132745.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795744-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795744-20250314.htm)
-
----
-
-# 啟德智慧綠色集體運輸系統車站擬由5個增至6個　料下半年招標
-
-![運輸及物流局公布啟德智慧綠色集體運輸系統項目的優化方案，包括增設車站及微調走線等。（運輸及物流局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795747_1_20250314173705.jpg&q=90)
-  
-
-政府去年展開啟德智慧綠色集體運輸系統項目的勘查研究工作，運輸及物流局公布項目的優化方案，包括增設車站及微調走線等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795747-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795747-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795747-20250314.htm)
 
 ---
