@@ -1,5 +1,6 @@
 # 亞洲電影大獎劉青雲獲最佳男主角獎　九龍城寨之圍城獲最佳美指獎
 
+![劉青雲憑《爸爸》收獲最佳男主角獎。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795970_1_20250317020721.jpg&q=90)
   
 
 第18屆亞洲電影大獎在香港西九文化區戲曲中心舉行頒獎典禮。
