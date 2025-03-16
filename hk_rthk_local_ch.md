@@ -1,5 +1,31 @@
+# 啟德體育園舉行開幕後首項跑步賽　約3200人參加
+
+![啟德體育園早上舉行「啟德飛步跑」，約有3200名跑手參加。(陳曉慶攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795907_1_20250316094023.jpg&q=80)
+  
+
+啟德體育園早上舉行開幕後園區內首項跑步賽「啟德飛步跑」，約有3200名跑手參加。賽事起點和終點都設在啟德青年運動場。大會今早舉行起步禮，啟德體育園行政總裁莊澤基、啟德體育園總監鄧竟成及立法會議員鄭泳舜等出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795907-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795907-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795907-20250316.htm)
+
+---
+
 # 約4000人參加單車百萬行　九龍和新界多條主幹道封閉
 
+![約4000名單車手參加單車百萬行，「博愛組」由青沙公路出發，沿昂船洲大橋，途經南灣隧道，全長約13公里。 「挑戰組」 在原有路線再延伸至汀九橋，全長約 21 公里。 (鄧鈞尤攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795904_1_20250316093409.jpg&q=75)
+![黃金寶表示，今日溫度適合踩單車。(鄧鈞尤攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795904_2_20250316093409.jpg&q=90)
   
 
 單車百萬行早上舉行，因應活動，九龍和新界多條主要幹道凌晨起封閉。
@@ -749,7 +775,7 @@
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795825_1_20250315101525.jpg&q=90)
   
 
-外賣平台「戶戶送」Deliveroo宣布撤出香港市場，將出售部分資產予另一個外賣平台foodpanda，現有客戶會被轉至foodpanda，並領取6個月免費會籍。消委會總幹事黃鳳嫺說，暫接獲12宗投訴，涉款5000多元，金額最高個案為600多元，主要涉及如何處理預先購買的套票。
+外賣平台「戶戶送」Deliveroo宣布撤出香港市場，將出售部分資產予另一個外賣平台foodpanda。消委會總幹事黃鳳嫺說，暫接獲12宗投訴，涉款5000多元，金額最高個案為600多元，主要涉及如何處理預先購買的套票。
 
   
 
@@ -1413,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm)
-
----
-
-# 香港與巴林促進和保護投資協定將生效　丘應樺稱增強投資者信心
-
-![丘應樺說，投資協定確保投資者在對方境內的投資享有對等保護，將增強投資者信心和擴大雙邊投資流動，進一步鞏固兩地經貿聯繫。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795719_1_20250314150732.jpg&q=80)
-  
-
-香港與巴林去年3月簽署促進和保護投資協定，雙方完成所需內部程序，協定將於本月21日生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm)
 
 ---

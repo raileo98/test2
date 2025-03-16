@@ -1,3 +1,51 @@
+# 啟德體育園舉行開幕後首項跑步賽　約3200人參加
+
+![啟德體育園早上舉行「啟德飛步跑」，約有3200名跑手參加。(陳曉慶攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795907_1_20250316094023.jpg&q=80)
+  
+
+啟德體育園早上舉行開幕後園區內首項跑步賽「啟德飛步跑」，約有3200名跑手參加。賽事起點和終點都設在啟德青年運動場。大會今早舉行起步禮，啟德體育園行政總裁莊澤基、啟德體育園總監鄧竟成及立法會議員鄭泳舜等出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795907-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795907-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795907-20250316.htm)
+
+---
+
+# 馬克龍：歐美必須施壓迫使俄羅斯接受停火建議
+
+![馬克髛認為必須與美國一起向俄羅斯施加明確的壓力，迫使其接受停火提議。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795906_1_20250316092241.jpg&q=90)
+  
+
+法國總統馬克龍說，歐洲和美國必須施壓，迫使俄羅斯接受與烏克蘭停火的建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795906-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795906-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795906-20250316.htm)
+
+---
+
 # 也門胡塞武裝：美軍空襲造成至少19人喪生
 
 ![戰機從航空母艦起飛，執行空襲任務。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795903_1_20250316075403.jpg&q=90)
@@ -24,6 +72,8 @@
 
 # 約4000人參加單車百萬行　九龍和新界多條主幹道封閉
 
+![約4000名單車手參加單車百萬行，「博愛組」由青沙公路出發，沿昂船洲大橋，途經南灣隧道，全長約13公里。 「挑戰組」 在原有路線再延伸至汀九橋，全長約 21 公里。 (鄧鈞尤攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795904_1_20250316093409.jpg&q=75)
+![黃金寶表示，今日溫度適合踩單車。(鄧鈞尤攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795904_2_20250316093409.jpg&q=90)
   
 
 單車百萬行早上舉行，因應活動，九龍和新界多條主要幹道凌晨起封閉。
@@ -1389,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795831-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795831-20250315.htm)
-
----
-
-# 萬斯料下月限期前可就TikTok所有權問題達成協議
-
-![特朗普早前表示，政府正與4間對TikTok交易感興趣的集團接觸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795829_1_20250315103020.jpg&q=90)
-  
-
-路透社引述兩名美國白宮官員報道，副總統萬斯預計，可以在下月5日限期前，就短片分享平台TikTok所有權的一般條款達成協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795829-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795829-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795829-20250315.htm)
-
----
-
-# 林正財稱九成精神病於21歲前發展　應做好青少年預防工作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795828_1_20250315103454.jpg&q=90)
-  
-
-行政會議成員、精神健康諮詢委員會主席林正財說，委員會做過3項大型研究，結果顯示小學至大學的學生，都有一定比例數量面對精神健康挑戰，情況令人擔心。他強調要對焦工作，將資源放在青少年，因為九成精神病在21歲之前發展成立，認為做好青少年工作，就能減輕成年人精神負擔。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795828-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795828-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795828-20250315.htm)
 
 ---

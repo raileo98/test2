@@ -1,3 +1,27 @@
+# 馬克龍：歐美必須施壓迫使俄羅斯接受停火建議
+
+![馬克髛認為必須與美國一起向俄羅斯施加明確的壓力，迫使其接受停火提議。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795906_1_20250316092241.jpg&q=90)
+  
+
+法國總統馬克龍說，歐洲和美國必須施壓，迫使俄羅斯接受與烏克蘭停火的建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795906-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795906-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795906-20250316.htm)
+
+---
+
 # 也門胡塞武裝：美軍空襲造成至少19人喪生
 
 ![戰機從航空母艦起飛，執行空襲任務。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795903_1_20250316075403.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795649-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795649-20250314.htm)
-
----
-
-# 特朗普認為吞併格陵蘭是會發生　格陵蘭自治政府總理稱已受夠
-
-![特朗普在白宮與北約秘書長呂特會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795648_1_20250314043951.jpg&q=90)
-  
-
-美國總統特朗普在白宮與北約秘書長呂特會面時，被記者問到關於吞併格陵蘭的問題。特朗普回應說，他認為是將會發生的事，美國已經在格陵蘭有駐軍，或者會有越來越多美國士兵在那裡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795648-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795648-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795648-20250314.htm)
 
 ---
