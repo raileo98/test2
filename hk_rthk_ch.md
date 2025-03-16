@@ -1,3 +1,26 @@
+# 聖保羅書院中五生內地交流期間死亡　蔡若蓮重申與交流考察無關
+
+  
+
+聖保羅書院一名中五學生早前在杭州交流期間死亡，教育局局長蔡若蓮出席活動時，被問到學界仍有不同揣測，局方會否進一步交代；蔡若蓮重申，調查已結束，證明事件與交流及考察無關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm)
+
+---
+
 # 10名深圳公務員完成3個月在港交流　指深港有非常大合作潛力
 
   
@@ -23,6 +46,7 @@
 
 # 調查指近5成受訪SEN兒童家長稱子女曾受不友善對待
 
+![調查發現，近5成受訪育有特殊教育需要（SEN）兒童的家長稱，子女曾受不友善對待。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795919_1_20250316122625.jpg&q=90)
   
 
 有調查發現，近5成受訪育有特殊教育需要（SEN）兒童的家長稱，子女曾受不友善對待。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795845-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795845-20250315.htm)
-
----
-
-# 古巴全國大停電　5個月以來第4次
-
-![全國全國大範圍停電，首都哈瓦那街頭漆黑一片。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795844_1_20250315134013.jpg&q=90)
-  
-
-古巴5個月以來發生第4次大停電，首都哈瓦那街頭漆黑一片。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795844-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795844-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795844-20250315.htm)
 
 ---

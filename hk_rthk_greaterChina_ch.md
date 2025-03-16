@@ -1,3 +1,26 @@
+# 聖保羅書院中五生內地交流期間死亡　蔡若蓮重申與交流考察無關
+
+  
+
+聖保羅書院一名中五學生早前在杭州交流期間死亡，教育局局長蔡若蓮出席活動時，被問到學界仍有不同揣測，局方會否進一步交代；蔡若蓮重申，調查已結束，證明事件與交流及考察無關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm)
+
+---
+
 # 世界互聯網大會亞太峰會將在港舉行　孫東赴北京明開記者會介紹
 
 ![孫東傍晚啓程前往北京，明日與世界互聯網大會秘書長任賢良共同出席新聞發布會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795916_1_20250316120526.jpg&q=75)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795451-20250312.htm)
-
----
-
-# 中醫醫院公營服務收費料與公立醫院看齊
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795443_1_20250312183326.jpg&q=90)
-  
-
-由浸會大學承辦的香港中醫醫院，預計年底開始投入運作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795443-20250312.htm)
 
 ---
