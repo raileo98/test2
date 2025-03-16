@@ -1,3 +1,27 @@
+# 美國多州遭龍捲風等惡劣天氣影響至少34死　7個州25萬戶停電
+
+![美國密蘇里州遭受龍捲風吹襲，有房屋損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795935_1_20250316165438.jpg&q=60)
+  
+
+美國中部和南部廣泛地區受惡劣天氣影響，包括遭受多股龍捲風和猛烈暴風雨吹襲，增至最少34人死亡，數十人受傷，多個州進入緊急狀態。7個州總共超過25萬個用戶無電力供應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795935-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795935-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795935-20250316.htm)
+
+---
+
 # 美國將南韓列入「敏感國家」名單　韓方稱將與美方積極磋商
 
 ![美國將南韓列入「敏感國家」名單　韓方稱將與美方積極磋商](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795932_1_20250316161836.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm)
-
----
-
-# 尹錫悅彈劾案最快或下周宣判　代總統稱堅決應對非法暴力集會
-
-![韓媒預計尹錫悅彈劾案最快或下周宣判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795710_1_20250314135306.jpg&q=90)
-  
-
-韓聯社報道，南韓憲法法院截至昨日，仍未向當事方通知總統尹錫悅彈劾案的宣判日期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795710-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795710-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795710-20250314.htm)
 
 ---

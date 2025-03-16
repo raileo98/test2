@@ -1,3 +1,27 @@
+# 美國多州遭龍捲風等惡劣天氣影響至少34死　7個州25萬戶停電
+
+![美國密蘇里州遭受龍捲風吹襲，有房屋損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795935_1_20250316165438.jpg&q=60)
+  
+
+美國中部和南部廣泛地區受惡劣天氣影響，包括遭受多股龍捲風和猛烈暴風雨吹襲，增至最少34人死亡，數十人受傷，多個州進入緊急狀態。7個州總共超過25萬個用戶無電力供應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795935-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795935-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795935-20250316.htm)
+
+---
+
 # 陳美寶冀本港點對點運輸更全面　領先國際而非追落後
 
 ![陳美寶表示，目前本港已成立的士車隊，當局願景是點對點運輸與網約平台雙結合。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795933_1_20250316163510.jpg&q=85)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm)
-
----
-
-# 東部戰區：反分裂國家法是高懸台獨頭頂利劍　維護台海穩定基石
-
-![東部戰區上將司令員林向陽在反分裂國家法實施20周年座談會上發言。（東部戰區微信官方賬號截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795853_3_20250315154807.jpg&q=90)
-  
-
-東部戰區上將司令員林向陽參加反分裂國家法實施20周年座談會。他發言時表示，軍隊堅決依法履行使命責任，不斷加強實戰化練兵備戰，持續開展常態化繞島巡航，周密組織系列演習，有力震懾台獨分裂勢力，有效穩控台海局勢，堅定捍衛國家主權和領土完整。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm)
 
 ---
