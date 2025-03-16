@@ -1,3 +1,23 @@
+# 北馬其頓一間夜總會發生大火　據報至少50人死亡
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm)
+
+---
+
 # 特朗普政府凍結美國之音等傳媒機構資助　員工被通知休假
 
 ![特朗普政府凍結美國之音等多個傳媒機構的資助。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795926_1_20250316140900.jpg&q=90)
@@ -1411,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm)
-
----
-
-# 美國航空客機丹佛國際機場起火　所有乘客疏散無人傷
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795673_1_20250314093831.jpg&q=90)
-  
-
-美國航空公司一架客機在丹佛國際機場起火，所有乘客疏散，無人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795673-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795673-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795673-20250314.htm)
 
 ---

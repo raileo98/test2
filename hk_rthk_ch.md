@@ -1,3 +1,23 @@
+# 北馬其頓一間夜總會發生大火　據報至少50人死亡
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm)
+
+---
+
 # 澳門動物保護團體舉行活動　讓公眾領養澳門賽馬會場內流浪貓
 
 ![澳門賽馬會早上與愛護動物協會合辦領養活動，解決馬會用地交還政府前，場內的流浪貓去向。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795929_1_20250316151723.jpg&q=80)
@@ -1417,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm)
-
----
-
-# 泰國曼谷在建高速公路橋樑倒塌　據報7人死亡
-
-![泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795851_1_20250315153125.jpg&q=90)
-  
-
-泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌，據報至少7人死亡，27人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795851-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795851-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795851-20250315.htm)
 
 ---
