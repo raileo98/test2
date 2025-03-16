@@ -1,3 +1,50 @@
+# 也門胡塞武裝：美軍空襲造成至少19人喪生
+
+![戰機從航空母艦起飛，執行空襲任務。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795903_1_20250316075403.jpg&q=90)
+  
+
+美國總統特朗普下令對也門胡塞武裝採「果斷而有力的軍事行動」。胡塞武裝說，空襲造成至少19人喪生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795903-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795903-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795903-20250316.htm)
+
+---
+
+# 約4000人參加單車百萬行　九龍和新界多條主幹道封閉
+
+  
+
+單車百萬行早上舉行，因應活動，九龍和新界多條主要幹道凌晨起封閉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm)
+
+---
+
 # 德甲拜仁慕尼黑被柏林聯逼和1:1
 
 ![德甲拜仁慕尼黑與柏林聯不分勝負。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795901_1_20250316072256.jpg&q=90)
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795828-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795828-20250315.htm)
-
----
-
-# 黃鳳嫺提醒消費者有權要求醫療機構提供書面報價
-
-![黃鳳嫺說，機構應提供更多套餐價，清晰交代涵蓋範疇，增加收費透明度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795826_1_20250315101707.jpg&q=85)
-  
-
-消委會硏究報告發現，不少私家醫院價目資料難明不足，收費統計數據沒有即時更新，病人之間收費差距甚大，部分醫療機構缺乏詳盡書面費用預算，政府計劃今年內就探討立法提升私營醫療收費透明度諮詢業界。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795826-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795826-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795826-20250315.htm)
-
----
-
-# 外賣平台「戶戶送」撤出香港　消委會暫接12宗投訴
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795825_1_20250315101525.jpg&q=90)
-  
-
-外賣平台「戶戶送」Deliveroo宣布撤出香港市場，將出售部分資產予另一個外賣平台foodpanda，現有客戶會被轉至foodpanda，並領取6個月免費會籍。消委會總幹事黃鳳嫺說，暫接獲12宗投訴，涉款5000多元，金額最高個案為600多元，主要涉及如何處理預先購買的套票。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795825-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795825-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795825-20250315.htm)
 
 ---

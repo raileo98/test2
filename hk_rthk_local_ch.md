@@ -1,3 +1,26 @@
+# 約4000人參加單車百萬行　九龍和新界多條主幹道封閉
+
+  
+
+單車百萬行早上舉行，因應活動，九龍和新界多條主要幹道凌晨起封閉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm)
+
+---
+
 # 工業傷亡權益會促改善溝通確保重要天氣資訊可有效傳達吊船操作員
 
 ![事發時操作員連人帶船於半空被吹到左搖右擺。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795888_1_20250316001759.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm)
-
----
-
-# 第三個InnoHK創新香港研發平台開始接受申請
-
-![​創新科技署宣布第三個InnoHK創新香港研發平台名為「SEAM@InnoHK」，開始接受申請。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795718_1_20250314145924.jpg&q=90)
-  
-
-​創新科技署宣布第三個InnoHK創新香港研發平台名為「SEAM@InnoHK」，開始接受申請，聚焦可持續發展、能源、先進製造及材料。歡迎從事相關領域研究的國際頂尖大學及科研機構提交建議書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm)
 
 ---
