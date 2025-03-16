@@ -1,3 +1,123 @@
+# 海關機場檢獲市值220萬元懷疑海洛英　一對男女被捕
+
+![海關人員清關時，在該女旅客的寄艙行李內發現該批懷疑海洛英。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795958_1_20250316212700.jpg&q=90)
+  
+
+​海關在機場破獲一宗行李藏毒案，檢獲約3.6公斤、估計市值約220萬元的懷疑海洛英，以及一支懷疑另類吸煙產品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795958-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795958-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795958-20250316.htm)
+
+---
+
+# 環保署：沒限制啟德體藝館活動時間　環評報告噪音不會超標
+
+![環保署表示，啟德體藝館舉行的活動均在有中央空調的室內進行，環境影響評估噪音不會超標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795957_1_20250316211815.jpg&q=90)
+  
+
+世界格蘭披治桌球大獎賽早前在啟德體藝館舉行，部分賽事進行至凌晨。環保署表示，署方和環境影響評估都沒有限制啟德體藝館活動的時間，亦沒有就超過午夜12時的活動施加任何限制，而啟德體藝館舉行的活動，包括體育活動或音樂表演，均在有中央空調的室內進行，所以環境影響評估報告的評估是噪音不會超標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm)
+
+---
+
+# 假冒學校校長及教職員電騙　6人被捕涉款52萬元
+
+![警方相信騙徒假冒學校校長、教職員等致電學校校務處，要求校工接聽，再訛稱急需現金，欺騙他們轉帳。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795956_1_20250316211512.jpg&q=40)
+  
+
+警方搗破一個詐騙集團，涉嫌招聘非華裔人士開設傀儡戶口，及登記電話卡，並發現有騙徒致電學校，訛稱是受害人的同事以騙取金錢。至今有6人被捕，包括3名外傭、2名本地男子及一名非華裔男子，年齡介乎23至44歲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm)
+
+---
+
+# 52歲男子火炭被斬傷重不治　警方追緝兩名約20歲在逃疑兇
+
+![現場留下大灘血跡，警員事後拉起封鎖線調查。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795955_1_20250316205750.jpg&q=80)
+  
+
+一名52歲男子下午在火炭被斬至重傷昏迷，送往威爾斯醫院搶救後不治，警方列作謀殺案處理，並追緝兩名穿黑衣、年約20歲的男子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm)
+
+---
+
+# 日本沖繩縣知事反對部署長程導彈
+
+![日本沖繩縣知事玉城丹尼反對部署長程導彈。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795954_1_20250316204834.jpg&q=90)
+  
+
+日本沖繩縣知事玉城丹尼在宜野灣市與內閣官房長官林芳正會面時表示，反對部署將用於反擊能力的長程導彈。他說，今後若計劃將導彈部署在沖繩縣內，可以預見會導致基地負擔增加，並有風險會成為被攻擊對象，得不到縣民的理解。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm)
+
+---
+
 # 北馬其頓夜總會大火增至59死　警方向4名懷疑涉案人士發拘捕令
 
 ![當局到發生大火的夜總會調查起火原因。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795953_1_20250316201014.jpg&q=90)
@@ -1320,126 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795882-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795882-20250315.htm)
-
----
-
-# 短道速滑世錦賽在北京舉行　中國劉少昂1500米摘銅
-
-![中國劉少昂在短道速滑世錦賽1500米比賽中摘銅。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795880_1_20250315210050.jpg&q=90)
-  
-
-短道速滑世錦賽在北京舉行，中國的劉少昂在男子1500米，奪得一面銅牌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm)
-
----
-
-# 北京市出現雨雪降溫天氣　當局延長暖氣供應
-
-![北京民眾在雨雪中前行。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795881_1_20250315211729.jpg&q=90)
-  
-
-受到暖濕氣流和冷空氣共同影響，北京市大部分地區出現雨雪天氣，以降雪為主，北部地區相對明顯。由於臨近供暖季結束但氣溫下降，市城市管理委員會表示，2024/25供暖季延長至下周一午夜，共延長2天。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795881-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795881-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795881-20250315.htm)
-
----
-
-# 天水圍體育館在黃雨期間一度漏水　維修期間照常開放
-
-![天水圍體育館的簽場處一度出現漏水情況。（社交網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795878_2_20250315222658.jpg&q=90)
-![康文署表示，天水圍體育館的簽場處下午一度漏水。（康文署圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795878_1_20250315222535.jpg&q=80)
-  
-
-天文台於下午3時發出今年首個黃色暴雨警告信號，到下午4時35分取消。期間多處地區錄得大約20毫米雨量，天水圍體育館期間一度漏水。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm)
-
----
-
-# 法國財長稱美歐貿易爭端將升級
-
-![隆巴爾說，美歐間貿易爭端將進入升級階段。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795875_1_20250315202727.jpg&q=90)
-  
-
-針對美國總統特朗普威脅對歐盟酒類產品徵收200%關稅的言論，法國經濟與財政部長隆巴爾表示，美歐間貿易爭端將進入升級階段。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795875-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795875-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795875-20250315.htm)
-
----
-
-# 甯漢豪：青協將昔日粉嶺裁判法院活化　為歷史建築賦予新生命
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795876_1_20250315203255.jpg&q=90)
-  
-
-發展局局長甯漢豪表示，香港青年協會將昔日的粉嶺裁判法院，活化為培育青年領袖的學院，認為是為歷史建築賦予新生命。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm)
 
 ---

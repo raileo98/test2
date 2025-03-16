@@ -1,3 +1,27 @@
+# 日本沖繩縣知事反對部署長程導彈
+
+![日本沖繩縣知事玉城丹尼反對部署長程導彈。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795954_1_20250316204834.jpg&q=90)
+  
+
+日本沖繩縣知事玉城丹尼在宜野灣市與內閣官房長官林芳正會面時表示，反對部署將用於反擊能力的長程導彈。他說，今後若計劃將導彈部署在沖繩縣內，可以預見會導致基地負擔增加，並有風險會成為被攻擊對象，得不到縣民的理解。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm)
+
+---
+
 # 北馬其頓夜總會大火增至59死　警方向4名懷疑涉案人士發拘捕令
 
 ![當局到發生大火的夜總會調查起火原因。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795953_1_20250316201014.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm)
-
----
-
-# 回應歐盟官員涉華言論　外交部：中方反對拿中國說事
-
-![毛寧說，美歐有責任維護以世貿組織為核心的多邊貿易體制，而不是轉嫁矛盾。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795736_1_20250314161952.jpg&q=90)
-  
-
-在北京，外交部回應歐盟外交與安全政策高級代表卡拉斯的涉華言論，發言人毛寧說，中方多次強調關稅戰、貿易戰沒有贏家，美歐之間如何相處，中方不做評論，但中方反對拿中國說事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm)
 
 ---

@@ -1,3 +1,99 @@
+# 海關機場檢獲市值220萬元懷疑海洛英　一對男女被捕
+
+![海關人員清關時，在該女旅客的寄艙行李內發現該批懷疑海洛英。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795958_1_20250316212700.jpg&q=90)
+  
+
+​海關在機場破獲一宗行李藏毒案，檢獲約3.6公斤、估計市值約220萬元的懷疑海洛英，以及一支懷疑另類吸煙產品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795958-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795958-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795958-20250316.htm)
+
+---
+
+# 環保署：沒限制啟德體藝館活動時間　環評報告噪音不會超標
+
+![環保署表示，啟德體藝館舉行的活動均在有中央空調的室內進行，環境影響評估噪音不會超標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795957_1_20250316211815.jpg&q=90)
+  
+
+世界格蘭披治桌球大獎賽早前在啟德體藝館舉行，部分賽事進行至凌晨。環保署表示，署方和環境影響評估都沒有限制啟德體藝館活動的時間，亦沒有就超過午夜12時的活動施加任何限制，而啟德體藝館舉行的活動，包括體育活動或音樂表演，均在有中央空調的室內進行，所以環境影響評估報告的評估是噪音不會超標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm)
+
+---
+
+# 假冒學校校長及教職員電騙　6人被捕涉款52萬元
+
+![警方相信騙徒假冒學校校長、教職員等致電學校校務處，要求校工接聽，再訛稱急需現金，欺騙他們轉帳。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795956_1_20250316211512.jpg&q=40)
+  
+
+警方搗破一個詐騙集團，涉嫌招聘非華裔人士開設傀儡戶口，及登記電話卡，並發現有騙徒致電學校，訛稱是受害人的同事以騙取金錢。至今有6人被捕，包括3名外傭、2名本地男子及一名非華裔男子，年齡介乎23至44歲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm)
+
+---
+
+# 52歲男子火炭被斬傷重不治　警方追緝兩名約20歲在逃疑兇
+
+![現場留下大灘血跡，警員事後拉起封鎖線調查。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795955_1_20250316205750.jpg&q=80)
+  
+
+一名52歲男子下午在火炭被斬至重傷昏迷，送往威爾斯醫院搶救後不治，警方列作謀殺案處理，並追緝兩名穿黑衣、年約20歲的男子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm)
+
+---
+
 # 外交部駐港公署：美英等國干涉香港事務和中國內政　注定徒勞無功
 
 ![發言人說，公署敦促有關國家立即停止以任何手段干預香港事務和中國內政。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795950_1_20250316191423.jpg&q=90)
@@ -1343,101 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795826-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795826-20250315.htm)
-
----
-
-# 外賣平台「戶戶送」撤出香港　消委會暫接12宗投訴
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795825_1_20250315101525.jpg&q=90)
-  
-
-外賣平台「戶戶送」Deliveroo宣布撤出香港市場，將出售部分資產予另一個外賣平台foodpanda。消委會總幹事黃鳳嫺說，暫接獲12宗投訴，涉款5000多元，金額最高個案為600多元，主要涉及如何處理預先購買的套票。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795825-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795825-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795825-20250315.htm)
-
----
-
-# 李慧琼稱香港應與國際深化交流擴大網絡　引進更多人才資金
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795823_1_20250315093033.jpg&q=85)
-  
-
-全國兩會日前閉幕，人大常委李慧琼出席本台節目《星期六問責》時表示，國家非常關心及支持港澳，今年的總理工作報告提及要求深化國際交往合作，她認為可以進一步發揮香港制度的獨有優勢及固有特點，除了經濟，亦涉及政治、文化、體育、科技及教育等方面，與國際深化交流和擴大網絡，引進更多人才資金，提升國家的軟實力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm)
-
----
-
-# 嶺大有信息系統被黑客入侵　數千份內部文件外洩
-
-![校方已就事件通報個人資料私隱專員公署。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795804_1_20250315045007.jpg&q=75)
-  
-
-嶺南大學表示，有信息系統被黑客入侵，數千份內部文件外洩，其中約200份涉及主要個人資料，已就事件通報個人資料私隱專員公署。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795804-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795804-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795804-20250315.htm)
-
----
-
-# 城規會維持決定　港大擬建國際創新中心用地為「未決定用途」
-
-![港大計劃在薄扶林興建國際創新中心，佔地4.72公頃。（港大國際創新中心網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795789_3_20250314224955.jpg&q=90)
-  
-
-港大計劃在薄扶林興建國際創新中心，佔地4.72公頃。城市規劃委員會維持決定，將有關用地由「其他指定用途」註明「國際創新中心」地帶改劃為「未決定用途」地帶，作為過渡性安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795789-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795789-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795789-20250314.htm)
 
 ---
