@@ -1,3 +1,26 @@
+# 世界互聯網大會亞太峰會將在港舉行　孫東赴北京明開記者會介紹
+
+  
+
+創新科技及工業局局長孫東傍晚啓程前往北京，明日與世界互聯網大會秘書長任賢良共同出席新聞發布會，介紹將在香港舉行的世界互聯網大會亞太峰會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm)
+
+---
+
 # 美國廣泛地區遭受龍捲風等惡劣天氣影響　逾30人喪生
 
 ![美國多個州遭受多股龍捲風和猛烈暴風雨吹襲，造成多人傷亡，圖為密蘇里州一間房屋受龍捲風破壞的情況。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795915_1_20250316114534.jpg&q=55)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm)
-
----
-
-# 孫玉菡料「兩元兩折」優惠有更大誘因選乘車費較便宜車程
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795840_1_20250315125757.jpg&q=90)
-  
-
-新一份《財政預算案》提出調整「兩元優惠計劃」。勞工及福利局局長孫玉菡表示，假設受惠人士乘車習慣不變，估計一個年度可節省6億8千萬，數目不少，佔估算開支超過一成。他認為修訂可維持計劃原意，同時增加財政可持續性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm)
 
 ---
