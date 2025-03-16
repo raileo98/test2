@@ -96,7 +96,7 @@ Chief Executive John Lee on Sunday said the success of mainland film Ne Zha 2 ha
 
 # 3,000 compete in inaugural Kai Tak Run
 
-![Organisers of the first Kai Tak Run say more than 3,000 people had taken part in the event. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795923_1_20250316124107.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795923_1_20250316124107.jpg&q=85)
   
 
 More than 3,000 runners took part in the inaugural Kai Tak Run at the Kai Tak Sports Ground on Sunday morning.
