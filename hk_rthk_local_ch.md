@@ -1,3 +1,26 @@
+# 五旬男子火炭遭斬傷昏迷　兩疑兇乘的士逃去
+
+  
+
+火炭發生斬人案，一名年約50歲的男子被人斬至重傷昏迷，送往威爾斯醫院治理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795943-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795943-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795943-20250316.htm)
+
+---
+
 # 海關落馬洲檢獲懷疑「太空油毒品」等毒品　拘捕一名男子
 
 ![海關檢獲的懷疑「太空油毒品」煙彈。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795941_1_20250316175529.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795762-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795762-20250314.htm)
-
----
-
-# 去年檢約12萬隻活鼠及死鼠増26%　食環署稱鼠患黑點減六成
-
-![政府跨部門防治蟲鼠督導委員會舉行會議，會議由環境及生態局副局長黃淑嫻（左五）主持，與會者來自三個決策局和 20 個政府部門及機構。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795761_1_20250314182650.jpg&q=90)
-  
-
-政府跨部門防治蟲鼠督導委員會召開第19次會議，檢視蚊患最新情況以及各部門在「各界滅鼠行動」的工作進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795761-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795761-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795761-20250314.htm)
 
 ---

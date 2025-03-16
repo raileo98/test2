@@ -1,3 +1,26 @@
+# 五旬男子火炭遭斬傷昏迷　兩疑兇乘的士逃去
+
+  
+
+火炭發生斬人案，一名年約50歲的男子被人斬至重傷昏迷，送往威爾斯醫院治理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795943-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795943-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795943-20250316.htm)
+
+---
+
 # 海關落馬洲檢獲懷疑「太空油毒品」等毒品　拘捕一名男子
 
 ![海關檢獲的懷疑「太空油毒品」煙彈。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795941_1_20250316175529.jpg&q=85)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795862-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795862-20250315.htm)
-
----
-
-# 中國成功發射四維高景三號02星
-
-![中國成功發射四維高景三號02星。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795860_1_20250315172109.jpg&q=90)
-  
-
-中國在酒泉衛星發射中心使用長征二號丁運載火箭，成功將四維高景三號02星發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm)
 
 ---
