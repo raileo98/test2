@@ -1,3 +1,26 @@
+# 小西灣邨瑞泰樓有石屎高處墮下擊傷女途人
+
+  
+
+柴灣小西灣邨瑞泰樓有石屎從高處墮下，擊傷一名26歲女途人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm)
+
+---
+
 # 聖保羅書院中五生內地交流期間死亡　蔡若蓮重申與交流考察無關
 
 ![蔡若蓮重申，調查已結束，證明事件與交流及考察無關。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795921_1_20250316123957.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795846-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795846-20250315.htm)
-
----
-
-# 天文台：未來兩三小時局部地區會有狂風雷暴
-
-![天文台：未來兩三小時局部地區會有狂風雷暴](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795845_1_20250315142448.jpg&q=90)
-  
-
-天文台表示，一個強雷雨區正影響廣東西部沿岸，並在未來兩三小時可能影響珠江口一帶，局部地區會有狂風雷暴。市民請留意天氣變化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795845-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795845-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795845-20250315.htm)
 
 ---
