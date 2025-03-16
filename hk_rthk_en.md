@@ -1,3 +1,27 @@
+# 'National Games test events show room for improvement'
+
+![Yeung Tak-keung says organisers are working to improve cross-border sports events. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795914_1_20250316112203.jpg&q=90)
+  
+
+The local official who heads the National Games Coordination Office on Sunday said test runs for cross-border sports events have shown there is room for improvement.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm)
+
+---
+
 # US, Russian diplomats discuss next steps on Ukraine
 
 ![Ukrainian firefighters work to extinguish a fire following a strike on the outskirts of Odessa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795912_1_20250316105435.jpg&q=90)
@@ -1412,29 +1436,5 @@ An upcoming exhibition dedicated to Spanish artist Pablo Picasso is set to bring
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795585-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795585-20250313.htm)
-
----
-
-# Cryopreservation break for those with fertility fears
-
-![The Council on Human Reproductive Technology is suggesting people be allowed to store gametes or embryos for as long as they want. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795575_2_20250313170514.jpg&q=90)
-  
-
-The government launched on Thursday a consultation on lifting the storage period limitation for frozen eggs, sperm or embryos.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm)
 
 ---
