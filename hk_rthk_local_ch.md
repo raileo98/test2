@@ -1,3 +1,26 @@
+# 亞洲電影大獎劉青雲獲最佳男主角獎　九龍城寨之圍城獲最佳美指獎
+
+  
+
+第18屆亞洲電影大獎在香港西九文化區戲曲中心舉行頒獎典禮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795970-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795970-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795970-20250317.htm)
+
+---
+
 # 元朗攸壆路簡約公屋項目本月28日起分批入伙
 
 ![何永賢今日與幾戶即將入住攸壆路項目的家庭，到場進行壁畫創作，在公共空間的兩幅大牆畫上自己喜愛的食物。（何永賢社交專頁影片截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795961_1_20250316221946.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm)
-
----
-
-# 旅遊及零售業界期望國際七人欖球賽帶動消費及生意
-
-![香港國際七人欖球賽將在啟德體育園舉辦。 （旅發局資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795831_1_20250315105942.jpg&q=90)
-  
-
-本月底舉行的香港國際七人欖球賽首次移師至啟德體育園主場館，旅遊及零售業界均期望帶動消費及旅遊業。旅遊界議員姚柏良表示，門票銷售理想，但啟德體育園的周邊經濟生態圈仍有待觀察及磨合。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795831-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795831-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795831-20250315.htm)
 
 ---

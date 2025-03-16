@@ -1,3 +1,26 @@
+# 亞洲電影大獎劉青雲獲最佳男主角獎　九龍城寨之圍城獲最佳美指獎
+
+  
+
+第18屆亞洲電影大獎在香港西九文化區戲曲中心舉行頒獎典禮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795970-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795970-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795970-20250317.htm)
+
+---
+
 # 也門胡塞武裝稱向美國杜魯門號航母群發射導彈及出動無人機
 
 ![薩那有房屋被炸中。胡塞武裝早前已表明會予以回應。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795969_1_20250317014553.jpg&q=80)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm)
-
----
-
-# 特朗普下令攻擊也門胡塞武裝　指不能容忍襲擊美國船隻
-
-![特朗普警告胡塞武裝必須停止攻擊行為。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795894_1_20250316033308.jpg&q=90)
-  
-
-美國總統特朗普宣布，已下令對也門胡塞武裝組織採取果段而有力的軍事行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795894-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795894-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795894-20250316.htm)
 
 ---
