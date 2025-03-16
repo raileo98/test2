@@ -1,3 +1,26 @@
+# 10名深圳公務員完成3個月在港交流　指深港有非常大合作潛力
+
+  
+
+特區政府與內地多個城市合辦的「公務員交流計劃」，去年12月共有30名內地公務員在港交流。公務員事務局局長楊何蓓茵說，當中來自深圳的10人近期完成共3個月交流。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795920-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795920-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795920-20250316.htm)
+
+---
+
 # 調查指近5成受訪SEN兒童家長稱子女曾受不友善對待
 
   
@@ -23,6 +46,7 @@
 
 # 發展局：今年起以「成熟一項推一項」模式推行減低建造成本措施
 
+![發展局就減低建造成本措施制定了四大具體方向。（發展局社交網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795918_1_20250316121809.jpg&q=90)
   
 
 發展局表示，政府自2023年第四季開始展開研究，就減低建造成本措施制定了四大具體方向，方向包括優化項目採購模式、善用先進科技及建造技術、精簡審批流程，以及檢視設計標準及要求。政府今年起會以「成熟一項推一項」、先行先試的模式推行相關措施。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795844-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795844-20250315.htm)
-
----
-
-# 控煙酒辦打擊非法吸食水煙巡查中區酒吧　發出兩張罰款通知書
-
-![控煙酒辦人員在酒吧進行執法工作。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795843_1_20250315141913.jpg&q=90)
-  
-
-衞生署控煙酒辦昨晚派員到中區一間酒吧採取行動，向非法吸食水煙的人士，發出兩張定額罰款通知書。調查仍在進行，控煙酒辦會考慮向涉嫌協助及教唆吸煙罪行的酒吧經營者提出檢控，亦會將個案轉介酒牌局跟進。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795843-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795843-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795843-20250315.htm)
 
 ---

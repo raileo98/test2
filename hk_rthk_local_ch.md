@@ -1,3 +1,26 @@
+# 10名深圳公務員完成3個月在港交流　指深港有非常大合作潛力
+
+  
+
+特區政府與內地多個城市合辦的「公務員交流計劃」，去年12月共有30名內地公務員在港交流。公務員事務局局長楊何蓓茵說，當中來自深圳的10人近期完成共3個月交流。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795920-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795920-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795920-20250316.htm)
+
+---
+
 # 調查指近5成受訪SEN兒童家長稱子女曾受不友善對待
 
   
@@ -23,6 +46,7 @@
 
 # 發展局：今年起以「成熟一項推一項」模式推行減低建造成本措施
 
+![發展局就減低建造成本措施制定了四大具體方向。（發展局社交網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795918_1_20250316121809.jpg&q=90)
   
 
 發展局表示，政府自2023年第四季開始展開研究，就減低建造成本措施制定了四大具體方向，方向包括優化項目採購模式、善用先進科技及建造技術、精簡審批流程，以及檢視設計標準及要求。政府今年起會以「成熟一項推一項」、先行先試的模式推行相關措施。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795742-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795742-20250314.htm)
-
----
-
-# 蔡若蓮稱學齡人口下降屬結構性須正視　料未來幾年挑戰更大
-
-![蔡若蓮稱過去幾年已經降低開班要求，小一以一班16人劃線，她形容要求已經很寬鬆。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795740_1_20250314171306.jpg&q=80)
-  
-
-黃大仙的天主教博智小學及南區的鴨脷洲街坊學校下學年獲派的學生人數少於16人，按開班準則「派0班」，未能獲資助開辦小一。教育局局長蔡若蓮表示，隨著學齡人口下降，加上出生率持續下降，預計學齡人口下降屬結構性，而不是過渡性情況，當局預計到2030年下降速度會進一步加快。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795740-20250314.htm)
 
 ---
