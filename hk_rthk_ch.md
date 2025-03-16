@@ -1,6 +1,7 @@
 # 海關機場檢獲市值220萬元懷疑海洛英　一對男女被捕
 
-![海關人員清關時，在該女旅客的寄艙行李內發現該批懷疑海洛英。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795958_1_20250316212700.jpg&q=90)
+![海關檢獲的懷疑海洛英約重3.6公斤、估計市值約220萬元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795958_2_20250316213346.jpg&q=80)
+![海關又在該女旅客隨身袋中檢獲一支懷疑另類吸煙產品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795958_3_20250316213346.jpg&q=85)
   
 
 ​海關在機場破獲一宗行李藏毒案，檢獲約3.6公斤、估計市值約220萬元的懷疑海洛英，以及一支懷疑另類吸煙產品。
