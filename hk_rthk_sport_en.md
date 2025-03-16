@@ -1,3 +1,27 @@
+# Australia's Gout Gout clocks world-leading 200m time
+
+![Gout Gout poses after winning the men's 200m final during the Queensland State Championships in Brisbane. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795982_1_20250317071956.jpg&q=90)
+  
+
+Australian sprinting prodigy Gout Gout ran the fastest men's 200m in the world this year, with the 17-year-old saying he felt "literally free".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795982-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795982-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795982-20250317.htm)
+
+---
+
 # Cavs win streak halted after Magic comeback
 
 ![Orlando's Paolo Banchero led the Magic with 24 points in the road victory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795978_1_20250317061009.jpg&q=90)
@@ -1423,29 +1447,5 @@ Ronnie O'Sullivan has withdrawn from the World Snooker Grand Prix 2025 scheduled
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm)
-
----
-
-# Tennis star welcomes WTA rebranding
-
-![Aryna Sabalenka at the Qatar Open 2025 WTA 1000 tennis tournament in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793781_1_20250301123815.jpg&q=90)
-  
-
-World number one Aryna Sabalenka praised on Friday the WTA's mission to highlight the personalities of its athletes and called Saudi Arabia's investment in the women's tennis tour an important part of growing the game.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793781-20250301.htm)
 
 ---
