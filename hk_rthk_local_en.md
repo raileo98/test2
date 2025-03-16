@@ -1,3 +1,27 @@
+# Man dies after alleged chopper attack in Fo Tan
+
+![Police say the victim was allegedly attacked by two knife-wielding men. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795948_1_20250316182832.jpg&q=70)
+  
+
+A man in his 50s on Sunday died after an apparent chopper attack in Fo Tan.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm)
+
+---
+
 # Parents need more guidance on child abuse law: YMCA
 
 ![The Chinese YMCA says parents should be aware of their own emotions when taking care of their children, and to seek help when needed. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795949_1_20250316183822.jpg&q=90)
@@ -1412,29 +1436,5 @@ Hong Kong's finance and technology ministers on Monday welcomed a HK$200 million
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm)
-
----
-
-# Driver flees after three-vehicle collision
-
-![Two private cars and a taxi are severely damaged after a collision in Shing Mun Tunnel. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795078_1_20250310115428.jpg&q=90)
-  
-
-Four people were injured and one driver fled the scene following a three-vehicle collision in Shing Mun Tunnel early on Monday morning.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795078-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795078-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795078-20250310.htm)
 
 ---

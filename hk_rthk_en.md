@@ -1,3 +1,51 @@
+# Man dies after alleged chopper attack in Fo Tan
+
+![Police say the victim was allegedly attacked by two knife-wielding men. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795948_1_20250316182832.jpg&q=70)
+  
+
+A man in his 50s on Sunday died after an apparent chopper attack in Fo Tan.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm)
+
+---
+
+# Parents need more guidance on child abuse law: YMCA
+
+![The Chinese YMCA says parents should be aware of their own emotions when taking care of their children, and to seek help when needed. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795949_1_20250316183822.jpg&q=90)
+  
+
+An NGO on Sunday said many parents are still unclear about an incoming law which makes it mandatory to report child abuse, adding that authorities should step up efforts to explain the legislation which comes into effect next year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795949-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795949-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795949-20250316.htm)
+
+---
+
 # N Macedonia nightclub fire kills 51
 
 ![A view of a burnt down nightclub inside which a fire broke out and killed 51 people in Kocani. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795938_1_20250316174342.jpg&q=50)
@@ -1387,53 +1435,5 @@ US President Donald Trump on Thursday threatened to slap a 200 percent tariff on
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm)
-
----
-
-# US stocks slump after new Trump tariff threat
-
-![Before trading began, Washington unleashed the threat of a 200 percent tariff on wine, champagne and other alcoholic beverages from the European Union. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795654_1_20250314054827.jpg&q=90)
-  
-
-Wall Street stocks closed sharply lower on Thursday on a fresh wave of tariff threats by US President Donald Trump, and despite producer inflation remaining flat.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm)
-
----
-
-# Pro-Palestinian protesters fill NY's Trump Tower
-
-![Police officers detain a protester inside Trump Tower during a rally against the ICE detention of Palestinian activist and Columbia University graduate student Mahmoud Khalil. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795650_1_20250314053853.jpg&q=90)
-  
-
-Scores of people poured into the lobby of Trump Tower in New York City on Thursday to protest the arrest and detention of Columbia University student Mahmoud Khalil, whom the Trump administration aims to deport over his pro-Palestinian activism.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795650-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795650-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795650-20250314.htm)
 
 ---
