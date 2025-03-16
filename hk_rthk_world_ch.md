@@ -1,5 +1,6 @@
 # 特朗普政府凍結美國之音等傳媒機構資助　員工被通知休假
 
+![特朗普政府凍結美國之音等多個傳媒機構的資助。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795926_1_20250316140900.jpg&q=90)
   
 
 美國特朗普政府凍結美國之音等多個傳媒機構的資助，機構員工被通知休假。
