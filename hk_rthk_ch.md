@@ -1,3 +1,27 @@
+# 紐卡素2:1挫利物浦捧英聯盃　結束70年本土錦標荒
+
+![紐卡素球員慶祝70年來首項本土錦標。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795980_1_20250317070018.jpg&q=75)
+  
+
+英格蘭聯賽盃決賽，紐卡素2:1擊敗利物浦奪得冠軍，打破70年來本土錦標荒。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795980-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795980-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795980-20250317.htm)
+
+---
+
 # 也門胡塞武裝領導人揚言會將所有美國航母及軍艦作為襲擊目標
 
 ![胡塞武裝領導人揚言會將所有美國航空母艦及軍艦，作為襲擊目標。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795979_1_20250317065647.jpg&q=90)
@@ -1414,30 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795903-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795903-20250316.htm)
-
----
-
-# 約4000人參加單車百萬行　九龍和新界多條主幹道封閉
-
-![約4000名單車手參加單車百萬行，「博愛組」由青沙公路出發，沿昂船洲大橋，途經南灣隧道，全長約13公里。 「挑戰組」 在原有路線再延伸至汀九橋，全長約 21 公里。 (鄧鈞尤攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795904_1_20250316093409.jpg&q=75)
-![黃金寶表示，今日溫度適合踩單車。(鄧鈞尤攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795904_2_20250316093409.jpg&q=90)
-  
-
-單車百萬行早上舉行，因應活動，九龍和新界多條主要幹道凌晨起封閉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm)
 
 ---
