@@ -1,3 +1,27 @@
+# 元朗攸壆路簡約公屋項目本月28日起分批入伙
+
+![何永賢今日與幾戶即將入住攸壆路項目的家庭，到場進行壁畫創作，在公共空間的兩幅大牆畫上自己喜愛的食物。（何永賢社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795961_1_20250316221946.jpg&q=90)
+  
+
+房屋局局長何永賢表示，元朗攸壆路簡約公屋項目的住戶，將於3月28日獲派鎖匙，分批入伙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795961-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795961-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795961-20250316.htm)
+
+---
+
 # 新界南反黑組接手調查火炭斬人案　將安排為死者驗屍
 
 ![警方接報指火炭麗禾里3A號對開有一名男子懷疑被另外兩名男子以刀襲擊，施襲者其後登上一輛的士逃去。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795959_1_20250316220304.jpg&q=55)
@@ -1416,30 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795886-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795886-20250315.htm)
-
----
-
-# 港澳辦再轉載文章　質疑長和擬售巴拿馬運河港口有否考量國家利益
-
-![港澳辦連續第二次轉載《大公報》的評論文章。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795884_2_20250315222028.jpg&q=85)
-![文章談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795884_1_20250315222028.jpg&q=90)
-  
-
-港澳辦連續第二次轉載《大公報》的評論文章，談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 元朗攸壆路簡約公屋項目本月28日起分批入伙
+
+![何永賢今日與幾戶即將入住攸壆路項目的家庭，到場進行壁畫創作，在公共空間的兩幅大牆畫上自己喜愛的食物。（何永賢社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795961_1_20250316221946.jpg&q=90)
+  
+
+房屋局局長何永賢表示，元朗攸壆路簡約公屋項目的住戶，將於3月28日獲派鎖匙，分批入伙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795961-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795961-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795961-20250316.htm)
+
+---
+
 # 新界南反黑組接手調查火炭斬人案　將安排為死者驗屍
 
 ![警方接報指火炭麗禾里3A號對開有一名男子懷疑被另外兩名男子以刀襲擊，施襲者其後登上一輛的士逃去。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795959_1_20250316220304.jpg&q=55)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795831-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795831-20250315.htm)
-
----
-
-# 林正財稱九成精神病於21歲前發展　應做好青少年預防工作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795828_1_20250315103454.jpg&q=90)
-  
-
-行政會議成員、精神健康諮詢委員會主席林正財說，委員會做過3項大型研究，結果顯示小學至大學的學生，都有一定比例數量面對精神健康挑戰，情況令人擔心。他強調要對焦工作，將資源放在青少年，因為九成精神病在21歲之前發展成立，認為做好青少年工作，就能減輕成年人精神負擔。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795828-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795828-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795828-20250315.htm)
 
 ---
