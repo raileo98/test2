@@ -1,3 +1,27 @@
+# Andreeva downs Sabalenka for Indian Wells title
+
+![Russia's Mirra Andreeva celebrates after defeating Aryna Sabalenka at the Indian Wells tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795977_1_20250317054052.jpg&q=90)
+  
+
+Russian 17-year-old Mirra Andreeva toppled world number one Aryna Sabalenka 2-6, 6-4, 6-3 to capture her second WTA 1000 title at Indian Wells.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795977-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795977-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795977-20250317.htm)
+
+---
+
 # Newcastle win the League Cup, stunning Liverpool
 
 ![Newcastle United players celebrate after the final whistle. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795975_1_20250317053653.jpg&q=90)
@@ -1412,29 +1436,5 @@ Hong Kong stocks on Friday opened higher, after global markets slid, as US Presi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm)
-
----
-
-# Swiatek cruises past Zheng to reach Indian Wells semis
-
-![Iga Swiatek beat Zheng Qinwen in straight sets to reach the final four at Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795674_1_20250314093042.jpg&q=90)
-  
-
-Defending champion Iga Swiatek beat Zheng Qinwen of China 6-3, 6-3, avenging her Olympics semi-final loss to the Paris Games gold medallist, to reach the last four at Indian Wells.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795674-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795674-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795674-20250314.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Andreeva downs Sabalenka for Indian Wells title
+
+![Russia's Mirra Andreeva celebrates after defeating Aryna Sabalenka at the Indian Wells tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795977_1_20250317054052.jpg&q=90)
+  
+
+Russian 17-year-old Mirra Andreeva toppled world number one Aryna Sabalenka 2-6, 6-4, 6-3 to capture her second WTA 1000 title at Indian Wells.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795977-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795977-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795977-20250317.htm)
+
+---
+
 # Newcastle win the League Cup, stunning Liverpool
 
 ![Newcastle United players celebrate after the final whistle. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795975_1_20250317053653.jpg&q=90)
@@ -1423,29 +1447,5 @@ Jos Buttler resigned as England white-ball captain on Friday after his team made
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793773-20250301.htm)
-
----
-
-# HK gymnast Stone Shek calls it a career
-
-![Stone Shek gives himself a full score of 10 for his gymnastics career. File photo courtesy of SF&OC](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793697_1_20250228183035.jpg&q=90)
-  
-
-Two-time Asian Games gold medallist, Stone Shek, on Friday announced his retirement from gymnastics.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm](https://news.rthk.hk/rthk/en/component/k2/1793697-20250228.htm)
 
 ---
