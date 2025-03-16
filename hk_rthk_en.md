@@ -1,6 +1,6 @@
 # Man dies after alleged chopper attack in Fo Tan
 
-![Police say the victim was allegedly attacked by two knife-wielding men. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795948_1_20250316182832.jpg&q=70)
+![Police say the victim was allegedly attacked by two knife-wielding men. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795948_2_20250316185117.jpg&q=70)
   
 
 A man in his 50s on Sunday died after an apparent chopper attack in Fo Tan.
