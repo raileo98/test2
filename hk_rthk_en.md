@@ -46,12 +46,12 @@ An NGO on Sunday said many parents are still unclear about an incoming law which
 
 ---
 
-# N Macedonia nightclub fire kills 51
+# N Macedonia nightclub fire kills 59
 
 ![A view of a burnt down nightclub inside which a fire broke out and killed 51 people in Kocani. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795938_1_20250316174342.jpg&q=50)
   
 
-A fire that tore through a nightclub in North Macedonia killed 51 revellers attending a hip-hop concert at the venue, with more than 100 wounded, the country's interior minister said on Sunday.
+A fire that tore through a nightclub in North Macedonia killed 59 revellers attending a hip-hop concert at the venue, with more than 100 wounded, the country's interior minister said on Sunday.
 
   
 
