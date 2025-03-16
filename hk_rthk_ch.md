@@ -1,3 +1,74 @@
+# 陳茂波：數碼港聚焦人工智能招聘博覽提供逾2千個職位
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795911_1_20250316105629.jpg&q=90)
+  
+
+財政司司長陳茂波表示，不少已在港落戶或打算擴展業務的科企，也希望增聘人手。科技園公司上月舉辦了主題招聘會，有150多家從事人工智能的園區公司參與，提供超過1000個創科職位，涵蓋軟件開發、數據分析和大模型算法等領域。數碼港亦一連兩日舉行聚焦人工智能的招聘博覽，580多家企業及機構將提供逾2000個職位，當中約六成都跟人工智能相關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm)
+
+---
+
+# 市建局稱聯廈聯管中標物管公司每戶每月費用僅百餘元
+
+  
+
+由市建局與香港房屋經理學會組成的團隊早前在九龍城試行「聯廈聯管」，協調單幢式舊樓聘用同一物業管理公司。團隊本月初已將報告提交政府。市建局行政總監韋志成說，參與試行「聯廈聯管」的樓宇雖然不多，但仍吸引了15間在市場上擁有豐富物管經驗，而且具實力公司入標競投「聯廈聯管」服務合約，最終中標的物管公司，每戶每月的「基本服務」費用大約只需百餘元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795910-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795910-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795910-20250316.htm)
+
+---
+
+# 楊德強：全運會測試賽部分環節可做得更好　將加強照顧落後運動員
+
+![楊德強表示，早前與內地和澳門方面就兩個跨境項目舉行測試賽，整體順利完成。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795909_1_20250316104545.jpg&q=85)
+  
+
+第15屆全運會及殘特奧會將於年底在粵港澳三地舉行，其中香港將承辦8個全運會及4個殘特奧會項目，另外亦會與內地及澳門合辦兩個項目，包括公路單車和馬拉松。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795909-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795909-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795909-20250316.htm)
+
+---
+
 # 特朗普調整特使任命　凱洛格只負責烏克蘭事務
 
 ![80歲的凱洛格原本被提名為烏克蘭和俄羅斯問題特使，現在縮減為烏克蘭事務特使。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795908_1_20250316095715.jpg&q=90)
@@ -1367,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm)
-
----
-
-# 陳茂波稱人工智能做事鍥而不捨　勉勵學生學習時要表現出堅持
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795837_1_20250315131215.jpg&q=90)
-  
-
-財政司司長陳茂波說，香港在人工智能浪潮裡非常有優勢，根據最新的QS大學排名，在人工智能和數據科學上，香港有5間大學躋身全球前50，同時有16間人工智能和機器人實驗室達到世界級水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795837-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795837-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795837-20250315.htm)
-
----
-
-# 陳美寶稱運輸署服務電子化提升效率及質素　各類服務持續升級
-
-![陳美寶表示，位於金鐘及長沙灣的牌照事務處，將各推出一個「國際駕駛許可證自助服務站」。（運輸及物流局網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795835_1_20250315122606.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶上星期到訪運輸署，形容多項服務已電子化，提升效率及質素。她在網誌表示，根據最新數字，各類主要牌證服務的申請數目由2021年約245萬宗增加至去年約280萬宗，3年間多了約35萬宗，升幅約14%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm)
-
----
-
-# 美國把南非駐美大使列為「不受歡迎人物」
-
-![美方指拉蘇爾「煽動種族情緒」，憎恨美國，把他列為不受歡迎人物。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795832_1_20250315112355.jpg&q=90)
-  
-
-美國把南非駐美國大使列為「不受歡迎人物」，指責他憎恨美國及總統特朗普。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm)
 
 ---

@@ -1,3 +1,27 @@
+# US, Russian diplomats discuss next steps on Ukraine
+
+![Ukrainian firefighters work to extinguish a fire following a strike on the outskirts of Odessa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795912_1_20250316105435.jpg&q=90)
+  
+
+US Secretary of State Marco Rubio and Russia's Foreign Minister Sergei Lavrov spoke on Saturday to discuss the next stage in talks on ending Moscow's war against Ukraine.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm)
+
+---
+
 # US launches large-scale strikes against Yemeni Houthis
 
 ![The strikes on Saturday were carried out in part by fighter aircraft from the Harry S. Truman aircraft carrier, which is in the Red Sea. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795905_1_20250316083448.jpg&q=90)
@@ -1411,29 +1435,5 @@ An analyst on Monday agreed with Foreign Minister Wang Yi's statement at the "Tw
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795069-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795069-20250310.htm)
-
----
-
-# Freed scammers still trapped in Myanmar
-
-![China repatriates its citizens freed from scam centres on to a chartered flight at Mae Sot International Airport on February 20, 2025. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795054_1_20250310092617.jpg&q=90)
-  
-
-The first major global effort to crack down on the fast-growing industry of scamming is turning into a growing humanitarian crisis.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795054-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795054-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795054-20250310.htm)
 
 ---

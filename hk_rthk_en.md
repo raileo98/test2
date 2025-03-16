@@ -1,3 +1,27 @@
+# US, Russian diplomats discuss next steps on Ukraine
+
+![Ukrainian firefighters work to extinguish a fire following a strike on the outskirts of Odessa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795912_1_20250316105435.jpg&q=90)
+  
+
+US Secretary of State Marco Rubio and Russia's Foreign Minister Sergei Lavrov spoke on Saturday to discuss the next stage in talks on ending Moscow's war against Ukraine.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm)
+
+---
+
 # US launches large-scale strikes against Yemeni Houthis
 
 ![The strikes on Saturday were carried out in part by fighter aircraft from the Harry S. Truman aircraft carrier, which is in the Red Sea. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795905_1_20250316083448.jpg&q=90)
@@ -1412,29 +1436,5 @@ The government launched on Thursday a consultation on lifting the storage period
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm)
-
----
-
-# Driver dies after crashing van into fire engine
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795576_1_20250313161524.jpg&q=80)
-  
-
-A driver, who was behind the wheel of a light goods vehicle travelling along the West Kowloon Highway on Thursday, died after crashing into a fire engine in Tai Kok Tsui.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795576-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795576-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795576-20250313.htm)
 
 ---

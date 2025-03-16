@@ -1,3 +1,74 @@
+# 陳茂波：數碼港聚焦人工智能招聘博覽提供逾2千個職位
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795911_1_20250316105629.jpg&q=90)
+  
+
+財政司司長陳茂波表示，不少已在港落戶或打算擴展業務的科企，也希望增聘人手。科技園公司上月舉辦了主題招聘會，有150多家從事人工智能的園區公司參與，提供超過1000個創科職位，涵蓋軟件開發、數據分析和大模型算法等領域。數碼港亦一連兩日舉行聚焦人工智能的招聘博覽，580多家企業及機構將提供逾2000個職位，當中約六成都跟人工智能相關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm)
+
+---
+
+# 市建局稱聯廈聯管中標物管公司每戶每月費用僅百餘元
+
+  
+
+由市建局與香港房屋經理學會組成的團隊早前在九龍城試行「聯廈聯管」，協調單幢式舊樓聘用同一物業管理公司。團隊本月初已將報告提交政府。市建局行政總監韋志成說，參與試行「聯廈聯管」的樓宇雖然不多，但仍吸引了15間在市場上擁有豐富物管經驗，而且具實力公司入標競投「聯廈聯管」服務合約，最終中標的物管公司，每戶每月的「基本服務」費用大約只需百餘元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795910-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795910-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795910-20250316.htm)
+
+---
+
+# 楊德強：全運會測試賽部分環節可做得更好　將加強照顧落後運動員
+
+![楊德強表示，早前與內地和澳門方面就兩個跨境項目舉行測試賽，整體順利完成。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795909_1_20250316104545.jpg&q=85)
+  
+
+第15屆全運會及殘特奧會將於年底在粵港澳三地舉行，其中香港將承辦8個全運會及4個殘特奧會項目，另外亦會與內地及澳門合辦兩個項目，包括公路單車和馬拉松。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795909-20250316.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795909-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795909-20250316.htm)
+
+---
+
 # 啟德體育園舉行開幕後首項跑步賽　約3200人參加
 
 ![啟德體育園早上舉行「啟德飛步跑」，約有3200名跑手參加。(陳曉慶攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795907_1_20250316094023.jpg&q=80)
@@ -1367,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795735-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795735-20250314.htm)
-
----
-
-# 消息：港深西部鐵路口岸擬設於內地　運物局稱將公開招標
-
-![運輸及物流局回覆查詢時說，港深西部鐵路作為新的獨立鐵路路線，有空間考慮引入新營運者的可行性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795734_1_20250314161031.jpg&q=80)
-  
-
-上月公布的新一份財政預算案提到，預計於年內展開港深西部鐵路項目的勘查及設計研究。消息指，該條連接香港洪水橋及深圳前海的鐵路，會將口岸設置於內地，並採用「一地兩檢」的通關模式。另外，政府打算就工程公開招標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm)
-
----
-
-# 47歲女子坪洲一個碼頭登船時疑失足墮海　證實不治
-
-![一名47歲女子，今早在坪洲一個碼頭登船期間懷疑失足墮海，其後被救起但證實不治。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795728_1_20250314155153.jpg&q=80)
-  
-
-一名47歲女子，今早在坪洲一個碼頭登船期間懷疑失足墮海，其後被救起但證實不治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795728-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795728-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795728-20250314.htm)
-
----
-
-# 劉國勳贊同港深西部鐵路口岸設內地一地兩檢　可騰出香港土地發展
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795722_1_20250314151018.jpg&q=90)
-  
-
-民建聯立法會議員劉國勳表示，有報道指連接洪水橋/厦村至前海的港深西部鐵路的口岸設於內地，並採用「一地兩檢」模式，他表示贊同，認為與他早前建議一致，因為口岸設於內地，可騰出更多香港土地發展其他用途，而內地建築成本較低，加上香港段的車站較多，口岸設於內地會較方便本地線乘客，亦較符合成本效益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm)
 
 ---
