@@ -1,3 +1,27 @@
+# 秘魯漁民漂流太平洋95日後獲救　曾吃蟑螂及雀鳥並飲雨水維生
+
+![卡斯特羅在派塔接受身體檢查，然後被送返秘魯。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795966_1_20250317005510.jpg&q=90)
+  
+
+秘魯一名漁民在太平洋漂流95日後獲救，與家人團聚。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795966-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795966-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795966-20250317.htm)
+
+---
+
 # 南韓國民力量黨黨鞭稱黨內將接受尹錫悅彈劾案裁決結果
 
 ![首爾日前有民眾集會，要求擺免尹錫悅的總統職務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795965_1_20250317003250.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm)
-
----
-
-# 美國中南部多處龍捲風及沙塵暴　最少16死並損毀幾十座房屋
-
-![密蘇里州有房屋被龍捲風摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795890_1_20250316004501.jpg&q=70)
-  
-
-美國中部及南部多處自當地星期五起，出現龍捲風及沙塵暴等惡劣天氣，截至周六早上，已造成最少16人死亡，多人受傷，幾十座房屋損毀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm)
 
 ---

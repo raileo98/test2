@@ -1,3 +1,27 @@
+# 秘魯漁民漂流太平洋95日後獲救　曾吃蟑螂及雀鳥並飲雨水維生
+
+![卡斯特羅在派塔接受身體檢查，然後被送返秘魯。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795966_1_20250317005510.jpg&q=90)
+  
+
+秘魯一名漁民在太平洋漂流95日後獲救，與家人團聚。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795966-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795966-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795966-20250317.htm)
+
+---
+
 # 南韓國民力量黨黨鞭稱黨內將接受尹錫悅彈劾案裁決結果
 
 ![首爾日前有民眾集會，要求擺免尹錫悅的總統職務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795965_1_20250317003250.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795772-20250314.htm)
-
----
-
-# 中方：冀各方通過對話談判就烏克蘭危機達成公平持久和平協議
-
-![毛寧說，中方願意同國際社會一起，為最終化解危機、實現持久和平繼續發揮建設性的作用。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795771_1_20250314202242.jpg&q=90)
-  
-
-在北京，外交部回應有關俄羅斯總統普京提議與美國總統特朗普就俄烏臨時停火協議舉行會談的提問，發言人毛寧說，在烏克蘭危機問題上，中方始終堅持習近平主席提出的「四個應該」，也就是各國的主權領土完整都應該得到尊重，聯合國的憲章宗旨和原則都應該得到遵守，各國合理的安全關切都應該得到重視，一切有利於和平解決危機的努力都應該得到支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm)
 
 ---
