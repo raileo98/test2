@@ -1,3 +1,27 @@
+# 南韓國民力量黨黨鞭稱黨內將接受尹錫悅彈劾案裁決結果
+
+![首爾日前有民眾集會，要求擺免尹錫悅的總統職務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795965_1_20250317003250.jpg&q=80)
+  
+
+南韓執政國民力量黨黨鞭權性東說，黨內將接受憲法法院對總統尹錫悅彈劾案的裁決結果。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795965-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795965-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795965-20250317.htm)
+
+---
+
 # 埃爾多安與特朗普通電話　稱土耳其與美國加強各領域磋商至關重要
 
 ![埃爾多安說自俄烏衝突爆發以來，土耳其一直致力推動公正及可持續的和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795964_1_20250317002135.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm)
-
----
-
-# 國防部：中方要求日方在軍事安全領域謹言慎行
-
-![張曉剛說，中方要求日方在軍事安全領域謹言慎行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795769_1_20250314193657.jpg&q=90)
-  
-
-在北京，國防部新聞發言人張曉剛說，中方要求日方深刻汲取歷史教訓，在軍事安全領域謹言慎行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795769-20250314.htm)
 
 ---

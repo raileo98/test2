@@ -1,3 +1,27 @@
+# 南韓國民力量黨黨鞭稱黨內將接受尹錫悅彈劾案裁決結果
+
+![首爾日前有民眾集會，要求擺免尹錫悅的總統職務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795965_1_20250317003250.jpg&q=80)
+  
+
+南韓執政國民力量黨黨鞭權性東說，黨內將接受憲法法院對總統尹錫悅彈劾案的裁決結果。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795965-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795965-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795965-20250317.htm)
+
+---
+
 # 埃爾多安與特朗普通電話　稱土耳其與美國加強各領域磋商至關重要
 
 ![埃爾多安說自俄烏衝突爆發以來，土耳其一直致力推動公正及可持續的和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795964_1_20250317002135.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm)
-
----
-
-# 南韓傳媒料總統彈劾案裁決或本周中後期出爐
-
-![法院未就尹錫悅彈劾案通告宣判日期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795889_1_20250316003436.jpg&q=90)
-  
-
-南韓憲法法院未向總統尹錫悅彈劾案的申請方及被申請方，通告宣判日期。當地傳媒推測，裁決結果可能在本周中、後期出爐。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm)
 
 ---
