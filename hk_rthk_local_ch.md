@@ -1,3 +1,26 @@
+# 蔡若蓮感謝李兆基令無數學生受惠　麥美娟感謝捐地建青年宿舍
+
+  
+
+恒基地產創辦人李兆基在離世，享年97歲。特區政府多名司局長表示哀悼，並對他家人致以深切慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm)
+
+---
+
 # 國泰本月30日恢復往返印度海德拉巴直航客運航班
 
 ![劉凱詩（左四）表示，印度具有重要戰略意義。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796137_1_20250317234235.jpg&q=80)
@@ -24,7 +47,7 @@
 
 # 陳茂波：李兆基的仁愛與溫情會繼續照亮社會
 
-![李兆基黃昏在家人陪伴下與世長辭。（恆地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796136_1_20250317232019.jpg&q=90)
+![陳茂波表示，驚悉李兆基博士離世，心裡無比沉重。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796136_2_20250317235316.jpg&q=80)
   
 
 財政司司長陳茂波表示，驚悉李兆基博士離世，心裡無比沉重，向他的家人致以最深切的慰問。
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm)
-
----
-
-# 假冒學校校長及教職員電騙　6人被捕涉款52萬元
-
-![警方相信騙徒假冒學校校長、教職員等致電學校校務處，要求校工接聽，再訛稱急需現金，欺騙他們轉帳。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795956_1_20250316211512.jpg&q=40)
-  
-
-警方搗破一個詐騙集團，涉嫌招聘非華裔人士開設傀儡戶口，及登記電話卡，並發現有騙徒致電學校，訛稱是受害人的同事以騙取金錢。至今有6人被捕，包括3名外傭、2名本地男子及一名非華裔男子，年齡介乎23至44歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm)
 
 ---
