@@ -1,3 +1,26 @@
+# 恒基創辦人李兆基離世享年97歲　歷年捐款數以十億元計
+
+  
+
+恒基兆業地產發出訃告，宣布集團創辦人李兆基於今天黃昏 在家人陪伴下安詳與世長辭，享年97歲。出殯儀式的舉行日期，有待家族安排妥當後，將會另行公布。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm)
+
+---
+
 # 李家超對李兆基辭世表示哀悼　讚揚對經濟發展繁榮穩定貢獻良多
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm)
-
----
-
-# 啟德體育園舉行開幕後首場跑步賽　議員倡跑步賽與旅遊深度結合
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795940_1_20250316182735.jpg&q=85)
-  
-
-啟德體育園舉辦開幕後首個跑步賽事，約3200人參賽。有參與的市民表示，感覺新鮮，好像參加國際賽，亦有參賽的立法會議員希望體育園多舉辦類似賽事，與旅遊業深度結合，吸引旅客。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm)
 
 ---

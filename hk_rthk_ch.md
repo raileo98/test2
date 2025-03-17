@@ -1,3 +1,50 @@
+# 恒基創辦人李兆基離世享年97歲　歷年捐款數以十億元計
+
+  
+
+恒基兆業地產發出訃告，宣布集團創辦人李兆基於今天黃昏 在家人陪伴下安詳與世長辭，享年97歲。出殯儀式的舉行日期，有待家族安排妥當後，將會另行公布。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm)
+
+---
+
+# 北馬其頓夜總會大火導致59死　20人懷疑涉案被捕
+
+![北馬其頓一間夜總會發生大火，導致59死逾150人受傷。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796123_1_20250317211005.jpg&q=75)
+  
+
+歐洲巴爾幹半島國家北馬其頓一間夜總會導致59人死亡的大火，全國今日起為遇難者哀悼7日。當局至今拘捕20名懷疑涉案人士，包括夜總會經理和政府官員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796123-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796123-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796123-20250317.htm)
+
+---
+
 # 美俄領袖將通話　歐盟外交官員質疑莫斯科不真正希望和平
 
   
