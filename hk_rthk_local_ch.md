@@ -1,3 +1,27 @@
+# 國泰本月30日恢復往返印度海德拉巴直航客運航班
+
+![劉凱詩（左四）表示，印度具有重要戰略意義。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796137_1_20250317234235.jpg&q=80)
+  
+
+國泰航空將於本月30日恢復往返印度海德拉巴直航客運航班，亦是國泰宣布今年新增6個新航點中的首個。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796137-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796137-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796137-20250317.htm)
+
+---
+
 # 陳茂波：李兆基的仁愛與溫情會繼續照亮社會
 
 ![李兆基黃昏在家人陪伴下與世長辭。（恆地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796136_1_20250317232019.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm)
-
----
-
-# 52歲男子火炭被斬傷重不治　警方追緝兩名約20歲在逃疑兇
-
-![現場留下大灘血跡，警員事後拉起封鎖線調查。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795955_1_20250316205750.jpg&q=80)
-  
-
-一名52歲男子下午在火炭被斬至重傷昏迷，送往威爾斯醫院搶救後不治，警方列作謀殺案處理，並追緝兩名穿黑衣、年約20歲的男子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm)
 
 ---

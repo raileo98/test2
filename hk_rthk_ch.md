@@ -1,3 +1,27 @@
+# 國泰本月30日恢復往返印度海德拉巴直航客運航班
+
+![劉凱詩（左四）表示，印度具有重要戰略意義。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796137_1_20250317234235.jpg&q=80)
+  
+
+國泰航空將於本月30日恢復往返印度海德拉巴直航客運航班，亦是國泰宣布今年新增6個新航點中的首個。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796137-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796137-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796137-20250317.htm)
+
+---
+
 # 陳茂波：李兆基的仁愛與溫情會繼續照亮社會
 
 ![李兆基黃昏在家人陪伴下與世長辭。（恆地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796136_1_20250317232019.jpg&q=90)
