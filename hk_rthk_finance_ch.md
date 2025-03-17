@@ -1,3 +1,27 @@
+# 中國鐵塔去年盈利升約10%　EBITDA升近5%
+
+![中國鐵塔去年盈利107.3億元人民幣，按年增長約10%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796039_1_20250317123354.jpg&q=90)
+  
+
+中國鐵塔去年盈利107.3億元人民幣，按年增長約10%。派末期息每股30.796分，以股份合併及削減股本後計，按年減少近18%。全年股息合計每股41.696分，按年增長11.5%，派息比率76%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796039-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796039-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796039-20250317.htm)
+
+---
+
 # 國家統計局：新屋銷售基本穩定　但部分地區樓市仍在調整
 
   
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm)
-
----
-
-# 香港與巴林促進和保護投資協定將生效　丘應樺稱增強投資者信心
-
-![丘應樺說，投資協定確保投資者在對方境內的投資享有對等保護，將增強投資者信心和擴大雙邊投資流動，進一步鞏固兩地經貿聯繫。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795719_1_20250314150732.jpg&q=80)
-  
-
-香港與巴林去年3月簽署促進和保護投資協定，雙方完成所需內部程序，協定將於本月21日生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm)
 
 ---

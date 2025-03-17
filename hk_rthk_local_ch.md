@@ -1,3 +1,26 @@
+# 本港研發生成式人工智能大模型今年推出　孫東稱開發亦著重治理
+
+  
+
+世界互聯網大會亞太峰會4月14日至15日在灣仔會展舉行，將舉辦與人工智能、數字金融等有關的論壇，預計吸引逾千名海内外與會者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm)
+
+---
+
 # 消委會每年接百多宗有關床褥投訴　逾四成買一段時間有下陷等問題
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795862-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795862-20250315.htm)
-
----
-
-# 黃色暴雨警告信號取消　大埔有冰雹報告
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795859_2_20250315173626.jpg&q=80)
-  
-
-黃色暴雨警告信號在下午4時35分取消。另外，雷暴警告仍然生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795859-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795859-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795859-20250315.htm)
 
 ---
