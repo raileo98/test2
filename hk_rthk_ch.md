@@ -1,3 +1,27 @@
+# 美股開市後靠穩
+
+![美股開市後靠穩。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796127_1_20250317213843.jpg&q=85)
+  
+
+紐約股市靠穩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm)
+
+---
+
 # 國台辦：台灣資通電軍「倚網謀獨」必遭嚴厲懲治
 
 ![陳斌華表示，台灣資通電軍「倚網謀獨」必遭嚴厲懲治。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796125_1_20250317212052.jpg&q=90)

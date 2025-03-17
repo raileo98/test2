@@ -1,3 +1,27 @@
+# 美股開市後靠穩
+
+![美股開市後靠穩。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796127_1_20250317213843.jpg&q=85)
+  
+
+紐約股市靠穩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm)
+
+---
+
 # 李家超對李兆基辭世表示哀悼　讚揚對經濟發展繁榮穩定貢獻良多
 
 ![李家超對李兆基辭世表示哀悼。（恒地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796120_1_20250317212350.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm)
-
----
-
-# 旅遊及零售業界期望國際七人欖球賽帶動消費及生意
-
-![香港國際七人欖球賽將在啟德體育園舉辦。 （旅發局資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795831_1_20250315105942.jpg&q=90)
-  
-
-本月底舉行的香港國際七人欖球賽首次移師至啟德體育園主場館，旅遊及零售業界均期望帶動消費及旅遊業。旅遊界議員姚柏良表示，門票銷售理想，但啟德體育園的周邊經濟生態圈仍有待觀察及磨合。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795831-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795831-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795831-20250315.htm)
 
 ---
