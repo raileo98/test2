@@ -1,3 +1,27 @@
+# 剛果民主共和國反政府武裝M23決定不參與和談
+
+![M23運動批評，某些國際機構故意破壞和平努力，圖為M23武裝份子。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796146_1_20250318032819.jpg&q=80)
+  
+
+被指獲盧旺達支持的剛果民主共和國反政府武裝M23運動決定，不參加星期二在安哥拉首都羅安達舉行的和平談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796146-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796146-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796146-20250318.htm)
+
+---
+
 # 美國八個州遭遇龍捲風等惡劣天氣　增至最少42死
 
 ![密蘇里州遭到龍捲風吹襲，造成嚴重破壞。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796145_1_20250318031351.jpg&q=75)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm)
-
----
-
-# 中方促日方在台灣問題謹言慎行　以實際行動兌現堅持一中原則承諾
-
-![毛寧強調，一個中國原則是中日關係的政治基礎。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796074_1_20250317164017.jpg&q=90)
-  
-
-在北京，外交部回應有報道指，日本政府聲稱1972年簽署的《中日聯合聲明》不會對日本地方議員赴台活動構成限制。發言人毛寧說，日方企圖在台灣問題上模糊歷史事實，嚴重誤導廣大日本民眾，嚴重違背日本政府堅持一個中國原則的承諾，挑戰中日關係的政治基礎，向「台獨」勢力發出嚴重錯誤信號，中方對此堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm)
 
 ---

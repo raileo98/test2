@@ -1,3 +1,27 @@
+# 剛果民主共和國反政府武裝M23決定不參與和談
+
+![M23運動批評，某些國際機構故意破壞和平努力，圖為M23武裝份子。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796146_1_20250318032819.jpg&q=80)
+  
+
+被指獲盧旺達支持的剛果民主共和國反政府武裝M23運動決定，不參加星期二在安哥拉首都羅安達舉行的和平談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796146-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796146-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796146-20250318.htm)
+
+---
+
 # 美國八個州遭遇龍捲風等惡劣天氣　增至最少42死
 
 ![密蘇里州遭到龍捲風吹襲，造成嚴重破壞。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796145_1_20250318031351.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795882-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795882-20250315.htm)
-
----
-
-# 法國財長稱美歐貿易爭端將升級
-
-![隆巴爾說，美歐間貿易爭端將進入升級階段。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795875_1_20250315202727.jpg&q=90)
-  
-
-針對美國總統特朗普威脅對歐盟酒類產品徵收200%關稅的言論，法國經濟與財政部長隆巴爾表示，美歐間貿易爭端將進入升級階段。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795875-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795875-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795875-20250315.htm)
 
 ---
