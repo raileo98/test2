@@ -1,3 +1,93 @@
+# 觀塘區中學6名學生上周廈門交流時急性腸胃炎　曾食團餐
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm)
+
+---
+
+# 去年3百人被呈報吸食「太空油毒品」　政府暫不考慮舉報獎勵制度
+
+  
+
+保安局表示，去年共有300人被呈報吸食「太空油毒品」，其中75%為21歲以下青少年，其中在北區、元朗及屯門發現的個案較多。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796099-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796099-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796099-20250317.htm)
+
+---
+
+# 消委會測試指部分床褥樣本側臥表現參差　建議最少試睡15分鐘
+
+![消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。（消委會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796098_1_20250317182701.jpg&q=90)
+  
+
+消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796098-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796098-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796098-20250317.htm)
+
+---
+
+# 發改委：部門要落實促進居民「增收減負」及處理「加班文化」問題
+
+  
+
+國家發展和改革委員會副主任李春臨表示，中央印發的《提振消費專項行動方案》，是一份「牽頭管總」的綜合性文件，每個部門都要抓好貫徹落實，包括促進居民「增收減負」，處理「加班文化」盛行的問題等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm)
+
+---
+
 # 公營醫療收費調整　消息：急症室收費分級制　非緊急高過180元
 
 ![消息指，政府最快將於本月底公布公營醫療收費調整方案，急症室收費會採取分級制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796096_1_20250317180951.jpg&q=80)
@@ -48,6 +138,7 @@
 
 # 陳國基稱政府支持娛樂事業發展　林建岳冀製作人發掘利用人工智能
 
+![陳國基表示，新推出的「電影製作融資計劃2.0」和「弘揚中華文化電影製作資助計劃」，將為香港文化創意產業帶來深遠的好處。（麥偉康攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796093_1_20250317181258.jpg&q=80)
   
 
 政務司司長陳國基表示，特區政府一直支持香港娛樂事業發展，包括由文化體育及旅遊局透過電影發展基金和創意智優計劃提供支持。政府同時支持串流媒體、電視綜藝節目和電影製作的內容開發。
@@ -1892,7 +1983,7 @@
 
 # 國安部公開4名台獨網軍身份信息　警告台獨分裂是不歸路
 
-![國安部正告「台獨」網軍頭目分子，「台獨」分裂活動是一條不歸路。（國安部徵信公眾號網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795996_2_20250317100433.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795996_2_20250317100433.jpg&q=90)
   
 
 國家安全部公開4名台獨網軍的身份信息，正告「台獨」網軍頭目分子，「台獨」分裂活動是一條不歸路，國家安全機關堅決捍衛國家主權、安全、發展利益，將對「台獨」分裂勢力採取一切必要的懲治措施，依法終身追責。

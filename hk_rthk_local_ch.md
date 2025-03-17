@@ -1,3 +1,70 @@
+# 觀塘區中學6名學生上周廈門交流時急性腸胃炎　曾食團餐
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm)
+
+---
+
+# 去年3百人被呈報吸食「太空油毒品」　政府暫不考慮舉報獎勵制度
+
+  
+
+保安局表示，去年共有300人被呈報吸食「太空油毒品」，其中75%為21歲以下青少年，其中在北區、元朗及屯門發現的個案較多。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796099-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796099-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796099-20250317.htm)
+
+---
+
+# 消委會測試指部分床褥樣本側臥表現參差　建議最少試睡15分鐘
+
+![消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。（消委會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796098_1_20250317182701.jpg&q=90)
+  
+
+消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796098-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796098-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796098-20250317.htm)
+
+---
+
 # 公營醫療收費調整　消息：急症室收費分級制　非緊急高過180元
 
 ![消息指，政府最快將於本月底公布公營醫療收費調整方案，急症室收費會採取分級制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796096_1_20250317180951.jpg&q=80)
@@ -48,6 +115,7 @@
 
 # 陳國基稱政府支持娛樂事業發展　林建岳冀製作人發掘利用人工智能
 
+![陳國基表示，新推出的「電影製作融資計劃2.0」和「弘揚中華文化電影製作資助計劃」，將為香港文化創意產業帶來深遠的好處。（麥偉康攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796093_1_20250317181258.jpg&q=80)
   
 
 政務司司長陳國基表示，特區政府一直支持香港娛樂事業發展，包括由文化體育及旅遊局透過電影發展基金和創意智優計劃提供支持。政府同時支持串流媒體、電視綜藝節目和電影製作的內容開發。
@@ -1363,77 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm)
-
----
-
-# 聖保羅書院中五生內地交流期間死亡　蔡若蓮重申與交流考察無關
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795921_1_20250316123957.jpg&q=90)
-  
-
-聖保羅書院一名中五學生早前在杭州交流期間死亡，教育局局長蔡若蓮出席活動時，被問到學界仍有不同揣測，局方會否進一步交代；蔡若蓮重申，調查已結束，證明事件與交流及考察無關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm)
-
----
-
-# 10名深圳公務員完成3個月在港交流　指深港有非常大合作潛力
-
-![特區政府與內地多個城市合辦的「公務員交流計劃」，去年12月共有30名內地公務員在港交流。（楊何蓓茵社交網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795920_1_20250316123905.jpg&q=90)
-  
-
-特區政府與內地多個城市合辦的「公務員交流計劃」，去年12月共有30名內地公務員在港交流。公務員事務局局長楊何蓓茵說，當中來自深圳的10人近期完成共3個月交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795920-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795920-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795920-20250316.htm)
-
----
-
-# 調查指近5成受訪SEN兒童家長稱子女曾受不友善對待
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795919_1_20250316122625.jpg&q=90)
-  
-
-有調查發現，近5成受訪育有特殊教育需要（SEN）兒童的家長稱，子女曾受不友善對待。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm)
 
 ---

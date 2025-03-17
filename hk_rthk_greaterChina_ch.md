@@ -1,3 +1,46 @@
+# 觀塘區中學6名學生上周廈門交流時急性腸胃炎　曾食團餐
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm)
+
+---
+
+# 發改委：部門要落實促進居民「增收減負」及處理「加班文化」問題
+
+  
+
+國家發展和改革委員會副主任李春臨表示，中央印發的《提振消費專項行動方案》，是一份「牽頭管總」的綜合性文件，每個部門都要抓好貫徹落實，包括促進居民「增收減負」，處理「加班文化」盛行的問題等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm)
+
+---
+
 # 研究：內地1月手機出貨量按年跌逾14%
 
 ![信息通信研究院公布，1月國產品牌手機出貨量按年下跌近13%，佔總出貨量比例近84%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796090_1_20250317174638.jpg&q=90)
@@ -452,7 +495,7 @@
 
 # 國安部公開4名台獨網軍身份信息　警告台獨分裂是不歸路
 
-![國安部正告「台獨」網軍頭目分子，「台獨」分裂活動是一條不歸路。（國安部徵信公眾號網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795996_2_20250317100433.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795996_2_20250317100433.jpg&q=90)
   
 
 國家安全部公開4名台獨網軍的身份信息，正告「台獨」網軍頭目分子，「台獨」分裂活動是一條不歸路，國家安全機關堅決捍衛國家主權、安全、發展利益，將對「台獨」分裂勢力採取一切必要的懲治措施，依法終身追責。
@@ -1387,53 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm)
-
----
-
-# 日媒稱日本男子在長城拍攝不雅照片遭拘留後遣返
-
-![萬里長城是國家著名景點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795683_1_20250314103707.jpg&q=90)
-  
-
-日本傳媒報道，一名日本男子今年一月，在中國長城景點觀光時，裸露臀部拍照，違反治安管理處罰法被拘留，目前已被遣返。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795683-20250314.htm)
-
----
-
-# 內地男網民涉AI捏造「明星澳門輸掉十億」遭行政拘留
-
-![內地男網民涉AI捏造「明星澳門輸掉十億」遭行政拘留](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795681_1_20250314100447.jpg&q=90)
-  
-
-內地公安機構以嚴重擾亂公共秩序為由，對一名36歲男子作出行政拘留8日處罰。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795681-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795681-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795681-20250314.htm)
 
 ---

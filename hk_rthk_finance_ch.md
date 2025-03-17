@@ -1,3 +1,50 @@
+# 發改委：部門要落實促進居民「增收減負」及處理「加班文化」問題
+
+  
+
+國家發展和改革委員會副主任李春臨表示，中央印發的《提振消費專項行動方案》，是一份「牽頭管總」的綜合性文件，每個部門都要抓好貫徹落實，包括促進居民「增收減負」，處理「加班文化」盛行的問題等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm)
+
+---
+
+# 陳國基稱政府支持娛樂事業發展　林建岳冀製作人發掘利用人工智能
+
+![陳國基表示，新推出的「電影製作融資計劃2.0」和「弘揚中華文化電影製作資助計劃」，將為香港文化創意產業帶來深遠的好處。（麥偉康攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796093_1_20250317181258.jpg&q=80)
+  
+
+政務司司長陳國基表示，特區政府一直支持香港娛樂事業發展，包括由文化體育及旅遊局透過電影發展基金和創意智優計劃提供支持。政府同時支持串流媒體、電視綜藝節目和電影製作的內容開發。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm)
+
+---
+
 # 研究：內地1月手機出貨量按年跌逾14%
 
 ![信息通信研究院公布，1月國產品牌手機出貨量按年下跌近13%，佔總出貨量比例近84%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796090_1_20250317174638.jpg&q=90)
@@ -19,6 +66,54 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm)
+
+---
+
+# 與港鐵就設寵物車廂會面　劉國勳倡寵物須「入袋」及購月票
+
+![劉國勳表示，港鐵表明任何政策要基建於營運安全為首要考慮，盡量減低對其他乘客的影響。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796087_1_20250317173250.jpg&q=90)
+  
+
+民建聯立法會議員劉國勳聯同動物福利聯盟約20多名團體代表與港鐵會面，就港鐵研究推行寵物車廂提出意見和建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm)
+
+---
+
+# 外交部：中方決不接受七國集團甩鍋推責　堅決反對污蔑抹黑中國
+
+![毛寧說，中方決不接受七國集團甩鍋推責。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796086_1_20250317172225.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧說，七國集團外長會聯合聲明及有關宣言罔顧事實，顛倒黑白，污蔑抹黑中國，干涉中國內政。中方強烈不滿、堅決反對，已向有關國家提出嚴正交涉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm)
 
 ---
 
@@ -1336,101 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795811-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795811-20250315.htm)
-
----
-
-# 德股高收約1.9%　受惠於德國財政改革進展
-
-![德國DAX指數收市報22986點，升幅1.86%，創1星期新高，受惠於德國財政改革進展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795809_1_20250315055005.jpg&q=90)
-  
-
-歐洲股市造好，德國股市表現較好，銀行及國防股上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795809-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795809-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795809-20250315.htm)
-
----
-
-# 美股反彈近2%或以上　全星期計跌勢持續
-
-![美股3大指數顯著反彈近2%或以上，但全星期累計跌勢持續，跌逾2%至逾3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795807_1_20250315053531.jpg&q=90)
-  
-
-美股3大指數顯著反彈近2%或以上，但全星期累計仍下跌，市場持續關注美國總統特朗普關稅政策影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795807-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795807-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795807-20250315.htm)
-
----
-
-# 叙福樓料去年度轉蝕最多3600萬元
-
-![叙福樓預計，去年度轉蝕最多3600萬元，前年度錄得8810萬元盈利。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795793_1_20250314232113.jpg&q=85)
-  
-
-叙福樓預計，去年度轉蝕最多3600萬元，前年度錄得8810萬元盈利。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795793-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795793-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795793-20250314.htm)
-
----
-
-# 道指升幅擴大至逾500點
-
-![道瓊斯指數較早時報41337點，升524點，升幅1.28%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795791_1_20250314230457.jpg&q=90)
-  
-
-美股3大指數升逾1%至2%，道瓊斯指數升幅擴大至逾500點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795791-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795791-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795791-20250314.htm)
 
 ---
