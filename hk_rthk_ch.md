@@ -1,3 +1,26 @@
+# 財政部：消費品以舊換新資金將盡快下達
+
+  
+
+在北京，財政部經濟建設司司長符金陵表示，中央財政安排的消費品以舊換新資金規模倍增至3000億元人民幣，在年初已提前下達首批810億元資金，其餘資金將盡快下達，確保以舊換新政策持續實施，讓優惠直達消費者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm)
+
+---
+
 # 中方促日方在台灣問題謹言慎行　以實際行動兌現堅持一中原則承諾
 
 ![毛寧強調，一個中國原則是中日關係的政治基礎。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796074_1_20250317164017.jpg&q=90)
