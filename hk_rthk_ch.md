@@ -1,3 +1,27 @@
+# 特朗普將與普京通話　克宮稱主要話題是調解烏克蘭問題
+
+![佩斯科夫形容，今次通話將會是為了恢復兩國關係定下基調的重要一步。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796142_1_20250318013811.jpg&q=90)
+  
+
+美國總統特朗普今日稍後與俄羅斯總統普京通電話，克里姆林宮發言人佩斯科夫說，正準備會談的議程，主要話題將會是調解烏克蘭問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796142-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796142-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796142-20250318.htm)
+
+---
+
 # 特朗普：胡塞武裝每一槍都會被視為來自伊朗　德黑蘭將承擔責任
 
 ![也門城市薩達日前有建築物遭美國空襲損毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796141_1_20250318003312.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm)
-
----
-
-# 增兩宗退伍軍人病個案　其中一名患者潛伏期曾到內地
-
-![衞生防護中心正展開流行病學調查，以找出可能的感染源頭、高風險接觸因素和是否出現群組個案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796072_1_20250317170823.jpg&q=80)
-  
-
-衞生防護中心在本月9日至15日期間，錄得兩宗退伍軍人病個案，包括一宗社區感染及一宗輸入個案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796072-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796072-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796072-20250317.htm)
 
 ---

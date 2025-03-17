@@ -1,3 +1,27 @@
+# 特朗普將與普京通話　克宮稱主要話題是調解烏克蘭問題
+
+![佩斯科夫形容，今次通話將會是為了恢復兩國關係定下基調的重要一步。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796142_1_20250318013811.jpg&q=90)
+  
+
+美國總統特朗普今日稍後與俄羅斯總統普京通電話，克里姆林宮發言人佩斯科夫說，正準備會談的議程，主要話題將會是調解烏克蘭問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796142-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796142-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796142-20250318.htm)
+
+---
+
 # 特朗普：胡塞武裝每一槍都會被視為來自伊朗　德黑蘭將承擔責任
 
 ![也門城市薩達日前有建築物遭美國空襲損毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796141_1_20250318003312.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795872-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795872-20250315.htm)
-
----
-
-# 多國領導人就俄烏問題舉行視像會議　施紀賢批評普京試圖拖延和談
-
-![施紀賢與多國領導人舉行視像會議，討論烏克蘭問題。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795870_1_20250315192619.jpg&q=90)
-  
-
-英國首相施紀賢與多國領導人舉行視像會議，討論烏克蘭問題。施紀賢在開場發言時，指責俄羅斯總統普京試圖拖延和談，他說，如果普京對和平是認真，就必須停止攻擊烏克蘭，並同意停火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795870-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795870-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795870-20250315.htm)
 
 ---
