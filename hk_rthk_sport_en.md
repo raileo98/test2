@@ -24,7 +24,7 @@ IOC chief Thomas Bach has announced that boxing is set to be among the sports at
 
 # McIlroy wins second Players Championship title
 
-![The win was McIlroy's second in his career at the annual golf tournament on the PGA Tour. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796153_1_20250318053122.jpg&q=90)
+![The win was McIlroy's second in his career at the annual PGA Tour competiton. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796153_1_20250318053122.jpg&q=90)
   
 
 Northern Ireland's Rory McIlroy cruised to a St. Patrick's Day victory at the Players Championship after defeating J.J. Spaun in a playoff at TPC Sawgrass in Florida.

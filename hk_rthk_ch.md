@@ -1,3 +1,51 @@
+# 國際奧委會執委會建議將拳擊納入洛杉磯奧運會正式比賽項目
+
+![國際奧委會執委會召開會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796167_1_20250318070729.jpg&q=90)
+  
+
+國際奧委會執委會建議，將拳擊納入2028年洛杉磯奧運會正式比賽項目，相關提案將在全會上審議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796167-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796167-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796167-20250318.htm)
+
+---
+
+# 國際奧委會全會周三起舉行　將選出新主席接替巴赫
+
+![巴赫向繼任人提出建議，首先始終將運動員置於奧林匹克運動的核心；其次要保持奧林匹克運動的團結。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796165_1_20250318070437.jpg&q=90)
+  
+
+國際奧委會第144次全會將於星期三起一連三天在希臘納瓦里諾海岸舉行，選舉產生第十任主席，接替任期即將結束的現任主席巴赫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796165-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796165-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796165-20250318.htm)
+
+---
+
 # 特朗普撤銷對拜登兒子亨特的特勤局保護
 
 ![特朗普解釋，亨特長期受到特勤局保護，所有費用由美國納稅人支付，是太荒謬。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796164_1_20250318065042.jpg&q=90)
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796094-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796094-20250317.htm)
-
----
-
-# 陳國基稱政府支持娛樂事業發展　林建岳冀製作人發掘利用人工智能
-
-![陳國基表示，新推出的「電影製作融資計劃2.0」和「弘揚中華文化電影製作資助計劃」，將為香港文化創意產業帶來深遠的好處。（麥偉康攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796093_1_20250317181258.jpg&q=80)
-  
-
-政務司司長陳國基表示，特區政府一直支持香港娛樂事業發展，包括由文化體育及旅遊局透過電影發展基金和創意智優計劃提供支持。政府同時支持串流媒體、電視綜藝節目和電影製作的內容開發。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm)
-
----
-
-# 宋皇臺站兩出口解封　警接報發現行李箱搜查後證實無可疑
-
-![警方搜查後將行李箱帶走。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796092_1_20250317180815.jpg&q=80)
-  
-
-港鐵宋皇臺站兩個出口一度封閉搜查可疑物物品，警方搜查後證實並無可疑，B2及B3出口現已解封。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm)
 
 ---
