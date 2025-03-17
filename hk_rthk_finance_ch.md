@@ -1,3 +1,26 @@
+# 財政部：消費品以舊換新資金將盡快下達
+
+  
+
+在北京，財政部經濟建設司司長符金陵表示，中央財政安排的消費品以舊換新資金規模倍增至3000億元人民幣，在年初已提前下達首批810億元資金，其餘資金將盡快下達，確保以舊換新政策持續實施，讓優惠直達消費者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm)
+
+---
+
 # 中央提振消費方案　發改委：每個部門須貫徹落實全方位擴大消費
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795775-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795775-20250314.htm)
-
----
-
-# 港華智慧能源核心利潤升逾三成　末期息連特別息派19仙
-
-![港華智慧能源末期息每股16仙；鑑於可再生能源業務業績令人鼓舞，派發特別息每股3仙。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795758_1_20250314180627.jpg&q=90)
-  
-
-港華智慧能源去年盈利16.06億元，增長約2%，核心利潤上升34.5%，升至16.01億元，若以人民幣計算，升幅37.2%。末期息每股16仙。另外，鑑於可再生能源業務業績令人鼓舞，董事會建議派付一次性特別股息每股3仙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm)
 
 ---
