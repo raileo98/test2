@@ -1,3 +1,26 @@
+# 警員持爆破工具及盾牌到旺角建興大廈搜查　據了解涉及火炭謀殺案
+
+  
+
+大批警員中午到旺角亞皆老街建興大廈調查，部分警員戴頭盔，手持盾牌及爆破工具，調查期間一度將大廈圍封，其後解封。據了解，警員調查涉及昨日下午在火炭發生的謀殺案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796056-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796056-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796056-20250317.htm)
+
+---
+
 # 私人項目建安老院舍計劃申請增　政府冀優化令計劃更有成效
 
 ![莊永桓說，政府在前年推出優化措施，希望令計劃更有成效。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796051_1_20250317142318.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795869-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795869-20250315.htm)
-
----
-
-# 李慧琼：政府可考慮高層次統籌「深化國際交往合作」策略
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795867_1_20250315182615.jpg&q=85)
-  
-
-國務院總理李強發表的政府工作報告，港澳篇幅提出「深化國際交往合作」，全國人大常委李慧琼認為，特區政府可以考慮高層次統籌「深化國際交往合作」策略，推動民間一齊參與。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm)
 
 ---

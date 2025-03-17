@@ -1,7 +1,7 @@
 # An keeps up streak to win All England title
 
-![An Se Young with China's Wang Zhi Yi in Birmingham, England, after their close-fought match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796035_1_20250317122442.jpg&q=80)
-![Shi Yuqi with the All England Open trophy after beating Taiwan's Lee Chia-hao in Birmingham. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796035_2_20250317125238.jpg&q=90)
+![An Se-young, right, with China's Wang Zhiyi in Birmingham, England, after their close-fought match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796035_1_20250317122442.jpg&q=80)
+![China's Shi Yuqi with the All England Open trophy after beating Lee Chia-hao of Chinese Taipei in Birmingham. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796035_2_20250317125238.jpg&q=90)
   
 
 Olympic women's badminton champion An Se-young came from behind to beat China's Wang Zhiyi 13-21, 21-18, 21-18 in a classic All England Open final as top seed Shi Yuqi lifted the men's crown.

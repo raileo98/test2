@@ -1,3 +1,50 @@
+# 警員持爆破工具及盾牌到旺角建興大廈搜查　據了解涉及火炭謀殺案
+
+  
+
+大批警員中午到旺角亞皆老街建興大廈調查，部分警員戴頭盔，手持盾牌及爆破工具，調查期間一度將大廈圍封，其後解封。據了解，警員調查涉及昨日下午在火炭發生的謀殺案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796056-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796056-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796056-20250317.htm)
+
+---
+
+# 俄副外長：為達和平協議需拒絕烏克蘭加入北約
+
+![格魯什科強調，歐洲必須明白要為俄羅斯的安全提供國際法保障，必須拒絕烏克蘭加入北約。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796055_1_20250317145558.jpg&q=90)
+  
+
+俄羅斯副外長格魯什科說，為達成和平協議，俄方需要可靠的安全保障，當中包括拒絕烏克蘭加入北約以及烏克蘭保持中立地位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796055-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796055-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796055-20250317.htm)
+
+---
+
 # 韓股升穿2600點關口　並以全日高位收市
 
 ![首爾綜合指數升穿2600點並以全日高位收市，創逾半個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796054_1_20250317143939.jpg&q=85)
