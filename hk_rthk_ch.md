@@ -1,3 +1,27 @@
+# 美國國防部：只要胡塞武裝停止襲擊　行動就會結束
+
+![美軍上周末向也門胡塞武裝據點發動空襲，包括從艦艇發射導彈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796154_1_20250318053820.jpg&q=90)
+  
+
+也門胡塞武裝控制的電視台報道，美軍星期一晚再對也門西部荷台達省等地發動空襲，主要目標是紅海港口城市荷台達及周邊幾個地點，目前沒有傷亡報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796154-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796154-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796154-20250318.htm)
+
+---
+
 # 英法德股市升近0.6%至逾0.7%
 
 ![德國DAX指數收報23154點，升167點，升幅0.73%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796152_1_20250318052534.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796084-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796084-20250317.htm)
-
----
-
-# 市場監管總局稱引導商戶提供優質服務　嚴格監管執法以保障消費者
-
-![市監總局稱將與各部門密切合作，營造安全可靠、讓人放心的消費環境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796082_1_20250317192615.jpg&q=85)
-  
-
-國家發改委、市場監管總局等六個部委，就《提振消費專項行動方案》舉行記者會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm)
 
 ---

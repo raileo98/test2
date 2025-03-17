@@ -1,3 +1,27 @@
+# 美股連升兩日　道指升353點　Telsa逆市挫近半成
+
+![道瓊斯指數收報41841點，升353點，升幅0.85%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796155_1_20250318054007.jpg&q=90)
+  
+
+美股連升兩個交易日，延續反彈勢頭，投資者評估最新經濟數據。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796155-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796155-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796155-20250318.htm)
+
+---
+
 # 英法德股市升近0.6%至逾0.7%
 
 ![德國DAX指數收報23154點，升167點，升幅0.73%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796152_1_20250318052534.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795987-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795987-20250317.htm)
-
----
-
-# 內地推提振消費專項行動方案　涉增加收入、住房及生育等
-
-![內地公布《提振消費專項行動方案》，以大力提振消費，全方位擴大國內需求等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795984_1_20250317074822.jpg&q=90)
-  
-
-內地公布《提振消費專項行動方案》，涉及8方面30項重點任務，包括住房、汽車、生育、醫療等多方面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm)
 
 ---

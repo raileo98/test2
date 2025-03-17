@@ -1,3 +1,27 @@
+# 美國國防部：只要胡塞武裝停止襲擊　行動就會結束
+
+![美軍上周末向也門胡塞武裝據點發動空襲，包括從艦艇發射導彈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796154_1_20250318053820.jpg&q=90)
+  
+
+也門胡塞武裝控制的電視台報道，美軍星期一晚再對也門西部荷台達省等地發動空襲，主要目標是紅海港口城市荷台達及周邊幾個地點，目前沒有傷亡報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796154-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796154-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796154-20250318.htm)
+
+---
+
 # 特朗普稱將公開8萬頁與約翰甘迺迪遇刺案有關文件
 
 ![特朗普表示，將於星期二上午公開大約80000頁與前總統約翰甘迺迪遇刺案有關的文件。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796151_1_20250318052536.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795893-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795893-20250316.htm)
-
----
-
-# 南非總統府對駐美大使被驅逐表遺憾　籲相關方保持外交禮儀
-
-![南非總統府發表聲明說拉蘇爾被驅逐令人遺憾。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795892_1_20250316013456.jpg&q=90)
-  
-
-南非國際關係與合作部發言人菲里確認，南非駐美國大使拉蘇爾已被要求在72小時內離開美國。南非總統府發表聲明說，拉蘇爾被驅逐令人遺憾，呼籲相關方在處理事件時保持外交禮儀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795892-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795892-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795892-20250316.htm)
 
 ---
