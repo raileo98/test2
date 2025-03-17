@@ -1,3 +1,27 @@
+# 台股高收約0.7%
+
+![台灣加權指數收報22118點，升150點，升幅0.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796052_1_20250317140921.jpg&q=90)
+  
+
+台灣股市高收，加權指數收報22118點，升150點，升幅0.69%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796052-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796052-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796052-20250317.htm)
+
+---
+
 # 分析指內地經濟未全面復蘇　前景仍有隱憂　料續有政策支持
 
 ![楊宇霆認同，經濟未全面復蘇，只是部分行業受惠，前景仍有隱憂，因此中央提出要因地制宜發展新質生產力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796049_1_20250317132853.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795744-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795744-20250314.htm)
-
----
-
-# 啟德智慧綠色集體運輸系統車站擬由5個增至6個　料下半年招標
-
-![運輸及物流局公布啟德智慧綠色集體運輸系統項目的優化方案，包括增設車站及微調走線等。（運輸及物流局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795747_1_20250314173705.jpg&q=90)
-  
-
-政府去年展開啟德智慧綠色集體運輸系統項目的勘查研究工作，運輸及物流局公布項目的優化方案，包括增設車站及微調走線等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795747-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795747-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795747-20250314.htm)
 
 ---
