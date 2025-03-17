@@ -1,3 +1,27 @@
+# 中國鐵塔：公司能在低空經濟發展中發揮更好作用
+
+![張志勇（中）稱密切關注低空經濟相關領域發展，相信能為未來低空經濟增長奠定基礎。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796105_1_20250317190128.jpg&q=90)
+  
+
+全國人大代表、中國鐵塔董事長張志勇在兩會期間，建議加強低空基礎建設，提倡將低空基礎設施納入都市總體規劃，加速制定統一、全面的低空基礎設施標準等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796105-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796105-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796105-20250317.htm)
+
+---
+
 # 融創中國去年虧損急增至255億至260億元人民幣
 
 ![融創中國預料，去年虧損大幅增至255億元至260億元人民幣。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796095_1_20250317180639.jpg&q=90)
