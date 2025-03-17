@@ -1,3 +1,27 @@
+# Draper powers past Rune to claim first ATP 1000 title
+
+![Draper will make his top ten debut at seventh in the world after the victory at Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795988_1_20250317081126.jpg&q=90)
+  
+
+Britain's Jack Draper roared past Denmark's Holger Rune 6-2, 6-2 to win his first ATP Masters 1000 title at Indian Wells.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795988-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795988-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795988-20250317.htm)
+
+---
+
 # Australia's Gout Gout clocks world-leading 200m time
 
 ![Gout Gout poses after winning the men's 200m final during the Queensland State Championships in Brisbane. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795982_1_20250317071956.jpg&q=90)
@@ -1423,29 +1447,5 @@ Manchester City survived a scare to beat giant killers Plymouth 3-1 and progress
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793851-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793851-20250302.htm)
-
----
-
-# O'Sullivan drops out of HK Snooker Grand Prix
-
-![O'Sullivan had been looking forward to playing in front of a home crowd in Hong Kong, after becoming an SAR resident last October. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793832_1_20250301225306.jpg&q=90)
-  
-
-Ronnie O'Sullivan has withdrawn from the World Snooker Grand Prix 2025 scheduled at Kai Tak Arena next week, citing health reasons.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793832-20250301.htm)
 
 ---

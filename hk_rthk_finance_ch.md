@@ -1,3 +1,75 @@
+# 萬科海外料去年業績轉虧約5000萬元　受開發物業撥備影響
+
+![萬科海外預期年度業績虧損約5000萬元。前年同期錄得盈利2800萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795985_1_20250317080700.jpg&q=90)
+  
+
+萬科海外預期，至去年底年度業績虧損約5000萬元。前年同期錄得盈利2800萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795985-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795985-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795985-20250317.htm)
+
+---
+
+# 日股初段升約1%
+
+![日經指數較早時報37447點，升394點，升幅1.06%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795986_1_20250317080919.jpg&q=90)
+  
+
+東京股市初段升近400點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795986-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795986-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795986-20250317.htm)
+
+---
+
+# 韓股初段升逾1%
+
+![首爾綜合指數較早時報2598點，升32點，升幅1.27%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795987_1_20250317081121.jpg&q=90)
+  
+
+南韓股市初段升逾1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795987-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795987-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795987-20250317.htm)
+
+---
+
 # 內地推提振消費專項行動方案　涉增加收入、住房及生育等
 
 ![內地公布《提振消費專項行動方案》，以大力提振消費，全方位擴大國內需求等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795984_1_20250317074822.jpg&q=90)
@@ -1363,77 +1435,5 @@ Microsoft 自去年12月起，觀察到一系列針對酒店業者的網絡釣�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795675-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795675-20250314.htm)
-
----
-
-# 港股競價時段升190點　科指升逾1%
-
-![港股競價時段升190點　科指升逾1%](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795672_1_20250314092204.jpg&q=60)
-  
-
-港股止跌回升，恒生指數競價時段報23653點，升190點，升幅0.81%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795672-20250314.htm)
-
----
-
-# 人民幣兌美元中間價跌10點子　連跌兩日
-
-![人民幣中間價報7.1738兌1美元，較昨日中間價跌10點子，連續兩日下跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795671_1_20250314091927.jpg&q=80)
-  
-
-人民幣中間價報7.1738兌1美元，較昨日中間價跌10點子，連續兩日下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795671-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795671-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795671-20250314.htm)
-
----
-
-# 台股初段窄幅上落
-
-![台灣加權指數較早時報21933點，跌27點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795668_1_20250314090952.jpg&q=90)
-  
-
-台灣股市初段窄幅上落，加權指數較早時報21933點，跌27點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795668-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795668-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795668-20250314.htm)
 
 ---

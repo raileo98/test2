@@ -1,3 +1,27 @@
+# 也門胡塞武裝：美軍空襲已造成53人死亡近百人受傷
+
+![胡塞武裝說，美軍的空襲造成居民財產和公共設施損失。圖為薩達省一名居民在遇襲地點，向傳媒展示一塊導彈碎片。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795989_1_20250317081232.jpg&q=75)
+  
+
+也門胡塞武裝說，美軍自上周六以來對也門的空襲已造成53人死亡，包括婦女和兒童，另有98人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795989-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795989-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795989-20250317.htm)
+
+---
+
 # 也門胡塞武裝領導人揚言會將所有美國航母及軍艦作為襲擊目標
 
 ![胡塞武裝領導人揚言會將所有美國航空母艦及軍艦，作為襲擊目標。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795979_1_20250317065647.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795798-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795798-20250315.htm)
-
----
-
-# 王毅：中東問題已夠多　不應再製造新的緊張甚至危機
-
-![王毅在北京會見俄羅斯副外長里亞布科夫及伊朗副外長加里布阿巴迪。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795797_1_20250315012635.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在北京會見出席伊朗核問題中俄伊北京會晤的俄羅斯副外長里亞布科夫，以及伊朗副外長加里布阿巴迪。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm)
 
 ---

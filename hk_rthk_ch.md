@@ -1,3 +1,99 @@
+# 萬科海外料去年業績轉虧約5000萬元　受開發物業撥備影響
+
+![萬科海外預期年度業績虧損約5000萬元。前年同期錄得盈利2800萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795985_1_20250317080700.jpg&q=90)
+  
+
+萬科海外預期，至去年底年度業績虧損約5000萬元。前年同期錄得盈利2800萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795985-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795985-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795985-20250317.htm)
+
+---
+
+# 日股初段升約1%
+
+![日經指數較早時報37447點，升394點，升幅1.06%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795986_1_20250317080919.jpg&q=90)
+  
+
+東京股市初段升近400點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795986-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795986-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795986-20250317.htm)
+
+---
+
+# 韓股初段升逾1%
+
+![首爾綜合指數較早時報2598點，升32點，升幅1.27%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795987_1_20250317081121.jpg&q=90)
+  
+
+南韓股市初段升逾1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795987-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795987-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795987-20250317.htm)
+
+---
+
+# 也門胡塞武裝：美軍空襲已造成53人死亡近百人受傷
+
+![胡塞武裝說，美軍的空襲造成居民財產和公共設施損失。圖為薩達省一名居民在遇襲地點，向傳媒展示一塊導彈碎片。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795989_1_20250317081232.jpg&q=75)
+  
+
+也門胡塞武裝說，美軍自上周六以來對也門的空襲已造成53人死亡，包括婦女和兒童，另有98人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795989-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795989-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795989-20250317.htm)
+
+---
+
 # 內地推提振消費專項行動方案　涉增加收入、住房及生育等
 
 ![內地公布《提振消費專項行動方案》，以大力提振消費，全方位擴大國內需求等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795984_1_20250317074822.jpg&q=90)
@@ -1342,101 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795913-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795913-20250316.htm)
-
----
-
-# 陳茂波：數碼港聚焦人工智能招聘博覽提供逾2千個職位
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795911_1_20250316105629.jpg&q=90)
-  
-
-財政司司長陳茂波表示，不少已在港落戶或打算擴展業務的科企，也希望增聘人手。科技園公司上月舉辦了主題招聘會，有150多家從事人工智能的園區公司參與，提供超過1000個創科職位，涵蓋軟件開發、數據分析和大模型算法等領域。數碼港亦一連兩日舉行聚焦人工智能的招聘博覽，580多家企業及機構將提供逾2000個職位，當中約六成都跟人工智能相關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm)
-
----
-
-# 市建局稱聯廈聯管中標物管公司每戶每月費用僅百餘元
-
-![有大廈部分公用地方的天花和牆身石屎剝落和鋼筋外露。（韋志成網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795910_1_20250316110958.jpg&q=90)
-  
-
-由市建局與香港房屋經理學會組成的團隊早前在九龍城試行「聯廈聯管」，協調單幢式舊樓聘用同一物業管理公司。團隊本月初已將報告提交政府。市建局行政總監韋志成說，參與試行「聯廈聯管」的樓宇雖然不多，但仍吸引了15間在市場上擁有豐富物管經驗，而且具實力公司入標競投「聯廈聯管」服務合約，最終中標的物管公司，每戶每月的「基本服務」費用大約只需百餘元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795910-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795910-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795910-20250316.htm)
-
----
-
-# 楊德強：全運會測試賽部分環節可做得更好　將加強照顧落後運動員
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795909_1_20250316104545.jpg&q=85)
-  
-
-第15屆全運會及殘特奧會將於年底在粵港澳三地舉行，其中香港將承辦8個全運會及4個殘特奧會項目，另外亦會與內地及澳門合辦兩個項目，包括公路單車和馬拉松。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795909-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795909-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795909-20250316.htm)
-
----
-
-# 特朗普調整特使任命　凱洛格只負責烏克蘭事務
-
-![80歲的凱洛格原本被提名為烏克蘭和俄羅斯問題特使，現在縮減為烏克蘭事務特使。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795908_1_20250316095715.jpg&q=90)
-  
-
-美國總統特朗普調整負責俄烏事務特使的任命，退役美軍將領凱洛格由原本的俄烏問題特使改為烏克蘭事務特使。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795908-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795908-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795908-20250316.htm)
 
 ---
