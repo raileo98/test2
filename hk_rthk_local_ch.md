@@ -1,3 +1,26 @@
+# 私人項目建安老院舍計劃申請增　政府冀優化令計劃更有成效
+
+  
+
+政府在2003年推出計劃，鼓勵發展商在新建私人發展項目中興建安老院舍，包括可獲豁免地價的樓面面積等；而在23年6月政府優化計劃，提供更多誘因，包括放寬每幅用地獲豁免地價的合資格安老院舍數目和總樓面面積上限。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796051-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796051-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796051-20250317.htm)
+
+---
+
 # 病人組織憂共付收費或令經濟能力不足病人延誤病情
 
 ![政府日前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，要市民按項目共付費用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796046_1_20250317133952.jpg&q=80)
@@ -144,7 +167,7 @@
 
 # 支援長者及照顧者計劃下月擴至全港　議員關注如何找出隱蔽長者
 
-![鄧家彪說，關愛隊未必能進入私人屋苑「洗樓」，關注如何能找出「隱蔽長者」。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796032_1_20250317124336.jpg&q=90)
+![關愛隊支援長者及照顧者計劃將擴展至全港，各關愛隊預料在12個月的計劃期內，接觸超過6萬個有需要住戶。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796032_2_20250317140902.jpg&q=85)
   
 
 去年施政報告提出，今年第二季將關愛隊支援長者及照顧者計劃，擴展至全港18區。社署預計下月開始提供服務，各關愛隊預料在12個月的計劃期內，接觸超過6萬個有需要住戶，署方會向關愛隊提供培訓，以掌握基本溝通技巧和相關地區福利服務資訊。
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm)
-
----
-
-# 陳茂波︰邀請大型科企及前沿初創將資源投放教育　培育創科人才
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795866_1_20250315182437.jpg&q=90)
-  
-
-財政司司長陳茂波表示，預算案提出將人工智能作為關鍵產業加強推進，亦邀請大型科技企業及前沿初創，將資源投放到教育，讓學生體驗到技術應用，引起他們對創科的興趣，培育本地創科人才。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795866-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795866-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795866-20250315.htm)
 
 ---

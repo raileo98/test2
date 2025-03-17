@@ -1,3 +1,26 @@
+# 私人項目建安老院舍計劃申請增　政府冀優化令計劃更有成效
+
+  
+
+政府在2003年推出計劃，鼓勵發展商在新建私人發展項目中興建安老院舍，包括可獲豁免地價的樓面面積等；而在23年6月政府優化計劃，提供更多誘因，包括放寬每幅用地獲豁免地價的合資格安老院舍數目和總樓面面積上限。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796051-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796051-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796051-20250317.htm)
+
+---
+
 # 分析指內地經濟未全面復蘇　前景仍有隱憂　料續有政策支持
 
 ![楊宇霆認同，經濟未全面復蘇，只是部分行業受惠，前景仍有隱憂，因此中央提出要因地制宜發展新質生產力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796049_1_20250317132853.jpg&q=85)
@@ -312,7 +335,7 @@
 
 # 支援長者及照顧者計劃下月擴至全港　議員關注如何找出隱蔽長者
 
-![鄧家彪說，關愛隊未必能進入私人屋苑「洗樓」，關注如何能找出「隱蔽長者」。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796032_1_20250317124336.jpg&q=90)
+![關愛隊支援長者及照顧者計劃將擴展至全港，各關愛隊預料在12個月的計劃期內，接觸超過6萬個有需要住戶。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796032_2_20250317140902.jpg&q=85)
   
 
 去年施政報告提出，今年第二季將關愛隊支援長者及照顧者計劃，擴展至全港18區。社署預計下月開始提供服務，各關愛隊預料在12個月的計劃期內，接觸超過6萬個有需要住戶，署方會向關愛隊提供培訓，以掌握基本溝通技巧和相關地區福利服務資訊。
