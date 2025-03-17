@@ -1,3 +1,27 @@
+# 特朗普撤銷對拜登兒子亨特的特勤局保護
+
+![特朗普解釋，亨特長期受到特勤局保護，所有費用由美國納稅人支付，是太荒謬。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796164_1_20250318065042.jpg&q=90)
+  
+
+美國總統特朗普在社交平台貼文，宣布即日起，前總統拜登的兒子亨特及女兒阿什莉，將不再受到特勤局保護。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796164-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796164-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796164-20250318.htm)
+
+---
+
 # 特朗普期待與普京通話　稱烏克蘭問題最終協議很多內容已達成共識
 
 ![特朗普表示，期待今日稍後與俄羅斯總統普京通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796163_1_20250318064615.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm)
-
----
-
-# 特朗普下令攻擊也門胡塞武裝　指不能容忍襲擊美國船隻
-
-![特朗普警告胡塞武裝必須停止攻擊行為。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795894_1_20250316033308.jpg&q=90)
-  
-
-美國總統特朗普宣布，已下令對也門胡塞武裝組織採取果段而有力的軍事行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795894-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795894-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795894-20250316.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 特朗普撤銷對拜登兒子亨特的特勤局保護
+
+![特朗普解釋，亨特長期受到特勤局保護，所有費用由美國納稅人支付，是太荒謬。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796164_1_20250318065042.jpg&q=90)
+  
+
+美國總統特朗普在社交平台貼文，宣布即日起，前總統拜登的兒子亨特及女兒阿什莉，將不再受到特勤局保護。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796164-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796164-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796164-20250318.htm)
+
+---
+
 # 特朗普期待與普京通話　稱烏克蘭問題最終協議很多內容已達成共識
 
 ![特朗普表示，期待今日稍後與俄羅斯總統普京通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796163_1_20250318064615.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm)
-
----
-
-# 研究：內地1月手機出貨量按年跌逾14%
-
-![信息通信研究院公布，1月國產品牌手機出貨量按年下跌近13%，佔總出貨量比例近84%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796090_1_20250317174638.jpg&q=90)
-  
-
-工信部直屬信息通信研究院公布，1月內地手機出貨量逾2724萬部，按年下跌逾14%，其中，5G手機按年下跌近10%，佔同期手機出貨量近87%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm)
 
 ---
