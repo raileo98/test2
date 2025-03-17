@@ -1,3 +1,27 @@
+# 滬股半日升約0.3%　創業板跌0.5%
+
+![內地股市3大指數個別發展，上證指數半日報3429點，升9點，升幅0.28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796024_1_20250317113538.jpg&q=90)
+  
+
+內地股市3大指數個別發展，油氣、乳業、房地產、汽車零部件等股份上升，有色金屬、證券、人工智能相關股份下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796024-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796024-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796024-20250317.htm)
+
+---
+
 # 周雪梅出任香港駐倫敦經貿辦處長　稱與不同界別合作推廣香港優勢
 
   
@@ -265,7 +289,7 @@
 ![20款標榜具防曬效能的妝前底霜樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796010_1_20250317103858.jpg&q=85)
   
 
-消委會就市面上37款妝前底霜進行測試，在當中20款標榜具防曬效能的樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。干擾內分泌的物質或會影響性荷爾蒙，有機會削弱生殖能力、導致新生嬰兒生殖器出現異常。
+消委會就市面上37款妝前底霜進行檢視，在當中20款標榜具防曬效能的樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。干擾內分泌的物質或會影響性荷爾蒙，有機會削弱生殖能力、導致新生嬰兒生殖器出現異常。
 
   
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795947-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795947-20250316.htm)
-
----
-
-# 李慧琼稱可考慮北都成特區中一個特區加快發展
-
-![李慧琼認為，可考慮北部都會區成為「特區中的一個特區」。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795946_1_20250316184330.jpg&q=90)
-  
-
-全國人大常委李慧琼表示，可以考慮北部都會區成為「特區中的一個特區」，賦予它一個特別審批流程或者特別行政措施，以加快發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795946-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795946-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795946-20250316.htm)
 
 ---
