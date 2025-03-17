@@ -1,3 +1,27 @@
+# 分析指內地經濟未全面復蘇　前景仍有隱憂　料續有政策支持
+
+![楊宇霆認同，經濟未全面復蘇，只是部分行業受惠，前景仍有隱憂，因此中央提出要因地制宜發展新質生產力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796049_1_20250317132853.jpg&q=85)
+  
+
+內地今年首兩個月主要經濟數據符合或好於預期，不過2月失業率回升至5.4%，是兩年來最高水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796049-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796049-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796049-20250317.htm)
+
+---
+
 # 恒指下午初段升逾1%
 
 ![恒生指數較早時報24280點，升320點，升幅1.34%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796047_1_20250317130707.jpg&q=45)
