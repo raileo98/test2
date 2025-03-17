@@ -1,3 +1,27 @@
+# Retail sales up four percent in China
+
+![Retail sales of consumer goods, excluding automobiles, amounted to more than 7.68 trillion yuan in the first two months of the year, up 4.8 percent year on year. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796017_1_20250317110913.jpg&q=80)
+  
+
+China's retail sales of consumer goods, a major indicator of the country's consumption strength, climbed four percent year on year in the first two months of 2025, official data showed on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm)
+
+---
+
 # Mass layoffs begin at Voice of America
 
 ![Contractual staff at Voice of America have been told they are terminated as of this end of this month. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796015_1_20250317104956.jpg&q=90)
@@ -1414,29 +1438,5 @@ Tourist arrivals hit 8.4 million in the first two months of the year, a seven pe
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm)
-
----
-
-# US Senate in race to avert government shutdown
-
-![Chuck Schumer is working to avert a government shutdown. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795723_1_20250314154347.jpg&q=90)
-  
-
-The US Senate finds itself on Friday in a familiar position, working to avoid a partial government shutdown with just hours to spare as Democrats confront two painful options: allowing passage of a bill they believe gives President Donald Trump vast discretion on spending decisions or voting no and letting a funding lapse ensue.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm)
 
 ---
