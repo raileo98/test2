@@ -1,3 +1,27 @@
+# 國台辧：解放軍在台島附近開展演習是維護台海和平正當之舉
+
+![國台辦稱，解放軍在台島附近開展演習是維護台海和平的正當之舉、必要之舉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796131_1_20250317225020.jpg&q=90)
+  
+
+在北京，國台辦發言人陳斌華表示，解放軍在台島附近開展演習，是對賴清德不斷宣揚「台獨」分裂謬論、升高兩岸對立對抗的堅決懲戒，是對「台獨」分裂勢力謀獨挑釁的有力震懾，是對外部勢力干涉滋事的嚴正警告，是捍衛國家主權、維護台海和平的正當之舉、必要之舉。正告賴清德當局，膽敢挑釁玩火，只會自取滅亡、粉身碎骨。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796131-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796131-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796131-20250317.htm)
+
+---
+
 # 鄭雁雄：站在政治和全局高度把握好香港角色、香港方向、香港擔當
 
 ![中聯辦主任鄭雁雄傳達全國兩會精神，要求把握主題、抓住重點、因制制宜，學習宣傳貫徹好全國兩會精神。（中聯辦網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796130_1_20250317224420.jpg&q=85)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm)
-
----
-
-# 全國兩會｜李家超提示官員留意總理工作報告首提深化國際交往合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795752_1_20250314182059.jpg&q=90)
-  
-
-行政長官李家超表示，今早舉行政府高層內部學習分享會，和政治委任官員等分享學習全國兩會精神的體會；包括香港如何更好對接國家發展戰略，以及對香港特區政府管治的重要意義等，並要求官員學習領會和貫徹全國兩會精神。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm)
 
 ---
