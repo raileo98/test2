@@ -1,8 +1,32 @@
-# 甯漢豪對李兆基離世表哀悼
+# 香港結算：繼續與相關監管機構合作協助剔除新股重複認購
+
+![港交所旗下香港結算發出通告，表示繼續與相關監管機構合作，審視FINI相關運作流程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796134_1_20250317230629.jpg&q=90)
+  
+
+港交所旗下香港結算發出通告，表示繼續與相關監管機構合作，審視FINI相關運作流程，協助股份過戶登記處剔除重複認購核查工作。
 
   
 
-恒基地產創辦人李兆基在家人陪伴下，今日黃昏與世長辭，享年97歲。發展局局長甯漢豪對李兆基離世表示哀悼，並向他的家人致以深切慰問。
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm)
+
+---
+
+# 甯漢豪和何永賢對李兆基離世表示哀悼
+
+  
+
+恒基地產創辦人李兆基在家人陪伴下，今日黃昏與世長辭，享年97歲。
 
   
 

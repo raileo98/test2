@@ -1,3 +1,27 @@
+# 香港結算：繼續與相關監管機構合作協助剔除新股重複認購
+
+![港交所旗下香港結算發出通告，表示繼續與相關監管機構合作，審視FINI相關運作流程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796134_1_20250317230629.jpg&q=90)
+  
+
+港交所旗下香港結算發出通告，表示繼續與相關監管機構合作，審視FINI相關運作流程，協助股份過戶登記處剔除重複認購核查工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm)
+
+---
+
 # 美股開市後靠穩
 
 ![美股開市後靠穩。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796127_1_20250317213843.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795973-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795973-20250317.htm)
-
----
-
-# 何立峰會見美國前財長保爾森
-
-![何立峰在北京會見美國前財長保爾森。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795963_1_20250316223000.jpg&q=90)
-  
-
-在北京，中共中央政治局委員、中央財辦主任何立峰會見美國前財政部長保爾森，雙方就中美經貿關係、全球經濟等交換看法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm)
 
 ---
