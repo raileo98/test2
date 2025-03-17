@@ -1,3 +1,27 @@
+# US stocks rise ahead of Fed meeting
+
+![Wall Street expects the US central bank is widely expected to keep interest rates unchanged. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796161_1_20250318063244.jpg&q=85)
+  
+
+Wall Street stocks rose for the second straight day on Monday following better US retail sales data as markets awaited a Federal Reserve decision later this week.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm)
+
+---
+
 # IOC set to include boxing on 2028 Olympics programme
 
 ![Germany's Nelvie Tiafack, left, in action against Bakhodir Jalolov of Uzbekistan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796158_1_20250318055329.jpg&q=90)
@@ -1415,29 +1439,5 @@ UK premier Keir Starmer said on Saturday that Russian President Vladimir Putin w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm)
-
----
-
-# Three rescued from gondola platform amid high winds
-
-![A video circulating online shows the platform swaying from side to side during the incident.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795868_1_20250315182730.jpg&q=90)
-  
-
-Nobody was reported injured after three workers became trapped on a gondola platform in Tin Shui Wai on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm)
 
 ---

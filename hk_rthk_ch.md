@@ -1,3 +1,27 @@
+# 港股ADR較本港昨日收市價普遍上升　阿里巴巴升近6%
+
+![港股ADR普遍上升，阿里巴巴升近6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796160_1_20250318061950.jpg&q=80)
+  
+
+港股美國預託證券(ADR)普遍上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796160-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796160-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796160-20250318.htm)
+
+---
+
 # 美元兌歐元處於5個月低位附近
 
 ![歐元兌美元較早時報1.092美元，上升約0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796159_1_20250318060405.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm)
-
----
-
-# 日本靜岡縣將向每名攀登富士山人士收取4千日圓登山費
-
-![富士山2013年入選聯合國教科文組織世界文化遺產名錄。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796089_1_20250317173732.jpg&q=90)
-  
-
-日本靜岡縣議會批准今年夏天開始，向每名攀登富士山的人士，收取4千日圓，即約208港元登山費，同時限制登山入口開放時間。屆時，富士山4條常用登山路線將統一收費標準。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796089-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796089-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796089-20250317.htm)
 
 ---

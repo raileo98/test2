@@ -1,3 +1,27 @@
+# 港股ADR較本港昨日收市價普遍上升　阿里巴巴升近6%
+
+![港股ADR普遍上升，阿里巴巴升近6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796160_1_20250318061950.jpg&q=80)
+  
+
+港股美國預託證券(ADR)普遍上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796160-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796160-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796160-20250318.htm)
+
+---
+
 # 美元兌歐元處於5個月低位附近
 
 ![歐元兌美元較早時報1.092美元，上升約0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796159_1_20250318060405.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795997-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795997-20250317.htm)
-
----
-
-# 台股初段升逾200點
-
-![加權指數較早時報22182點，升214點，升幅0.98%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795993_1_20250317091007.jpg&q=90)
-  
-
-台灣股市初段升逾200點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795993-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795993-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795993-20250317.htm)
 
 ---

@@ -1,3 +1,27 @@
+# US stocks rise ahead of Fed meeting
+
+![Wall Street expects the US central bank is widely expected to keep interest rates unchanged. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796161_1_20250318063244.jpg&q=85)
+  
+
+Wall Street stocks rose for the second straight day on Monday following better US retail sales data as markets awaited a Federal Reserve decision later this week.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm)
+
+---
+
 # Stocks end up on news of China's consumption drive
 
 ![The Hang Seng Index rose 0.77 percent to close at 24,145.57. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796083_1_20250317174259.jpg&q=75)
@@ -1411,29 +1435,5 @@ Shares of China's largest bubble tea and drinks chain Mixue Group jumped nearly 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm)
-
----
-
-# Local stocks up slightly in morning trading
-
-![Hong Kong stocks post small gains after closing down more than three percent on Friday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793946_1_20250303100414.jpg&q=75)
-  
-
-Hong Kong stocks rose 0.84 percent, or 193 points, to 23,135 on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm)
 
 ---
