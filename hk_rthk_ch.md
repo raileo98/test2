@@ -1,3 +1,49 @@
+# 消委會每年接百多宗有關床褥投訴　逾四成買一段時間有下陷等問題
+
+  
+
+消委會過去3年，分別收到117至141宗有關床褥的投訴，內容包括貨品質素以及保用情況等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796037-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796037-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796037-20250317.htm)
+
+---
+
+# 消委會測試巿面雙人床褥樣本　大部分仰臥承托好惟側臥表現參差
+
+  
+
+消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796036-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796036-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796036-20250317.htm)
+
+---
+
 # 國家統計局：新屋銷售基本穩定　但部分地區樓市仍在調整
 
   
@@ -71,7 +117,7 @@
 
   
 
-消委會檢視市面超過30款妝前底霜，在20款標榜具防曬效能的樣本中，發現超過8成都含有可能干擾內分泌，以及引起光過敏反應的成分。
+消委會檢視市面超過30款妝前底霜，在20款標榜具防曬效能的樣本中，發現超過八成都含有可能干擾內分泌，以及引起光過敏反應的成分。
 
   
 
@@ -1380,54 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795959-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795959-20250316.htm)
-
----
-
-# 海關機場檢獲市值220萬元懷疑海洛英　一對男女被捕
-
-![海關檢獲的懷疑海洛英約重3.6公斤、估計市值約220萬元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795958_2_20250316213346.jpg&q=80)
-![海關又在該女旅客隨身袋中檢獲一支懷疑另類吸煙產品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795958_3_20250316213346.jpg&q=85)
-  
-
-​海關在機場破獲一宗行李藏毒案，檢獲約3.6公斤、估計市值約220萬元的懷疑海洛英，以及一支懷疑另類吸煙產品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795958-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795958-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795958-20250316.htm)
-
----
-
-# 環保署：沒限制啟德體藝館活動時間　環評報告噪音不會超標
-
-![環保署表示，啟德體藝館舉行的活動均在有中央空調的室內進行，環境影響評估噪音不會超標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795957_1_20250316211815.jpg&q=90)
-  
-
-世界格蘭披治桌球大獎賽早前在啟德體藝館舉行，部分賽事進行至凌晨。環保署表示，署方和環境影響評估都沒有限制啟德體藝館活動的時間，亦沒有就超過午夜12時的活動施加任何限制，而啟德體藝館舉行的活動，包括體育活動或音樂表演，均在有中央空調的室內進行，所以環境影響評估報告的評估是噪音不會超標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm)
 
 ---

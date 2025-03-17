@@ -24,7 +24,7 @@ A local education concern group on Monday welcomed the government's decision to 
 
 # Healthcare co-payment levels 'should be capped'
 
-![The government has said it hopes to adjust hospital fees to a level where any payment by a patient would be reasonable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796019_1_20250317112442.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796019_1_20250317112442.jpg&q=90)
   
 
 A former senior Hospital Authority official has called for caution in setting co-payment levels for healthcare services after the government said it'll consider charging patients separately for certain check-ups.
@@ -46,7 +46,7 @@ A former senior Hospital Authority official has called for caution in setting co
 
 ---
 
-# Try out beds before purchasing: consumer watchdog
+# Nap on beds before purchasing: consumer watchdog
 
 ![The Consumer Council says a mattress' price does not necessarily reflect its quality. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
   

@@ -1,3 +1,49 @@
+# 消委會每年接百多宗有關床褥投訴　逾四成買一段時間有下陷等問題
+
+  
+
+消委會過去3年，分別收到117至141宗有關床褥的投訴，內容包括貨品質素以及保用情況等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796037-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796037-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796037-20250317.htm)
+
+---
+
+# 消委會測試巿面雙人床褥樣本　大部分仰臥承托好惟側臥表現參差
+
+  
+
+消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796036-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796036-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796036-20250317.htm)
+
+---
+
 # 強積金對沖安排5月取消　鄧家彪籲僱主勿因擔心負擔增加解僱員工
 
   
@@ -44,11 +90,11 @@
 
 ---
 
-# 消委會檢視標榜防曬妝前底霜　逾8成或干擾內分泌及引起光過敏
+# 消委會檢視標榜防曬妝前底霜　逾八成或干擾內分泌及引起光過敏
 
   
 
-消委會檢視市面超過30款妝前底霜，在20款標榜具防曬效能的樣本中，發現超過8成都含有可能干擾內分泌，以及引起光過敏反應的成分。
+消委會檢視市面超過30款妝前底霜，在20款標榜具防曬效能的樣本中，發現超過八成都含有可能干擾內分泌，以及引起光過敏反應的成分。
 
   
 
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795859-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795859-20250315.htm)
-
----
-
-# 天文台稱大埔有冰雹報告
-
-![天文台表示，在下午3時20分左右，大埔有冰雹報告。（天文台網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795856_1_20250315163236.jpg&q=90)
-  
-
-黃色暴雨警告信號和雷暴警告現正生效。天文台表示，在下午3時20分左右，大埔有冰雹報告，預料本港在短期內可能繼續受冰雹影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795856-20250315.htm)
-
----
-
-# 鄧炳強稱定會盡力將餘下被禁錮東南亞港人帶回香港
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795854_2_20250315180325.jpg&q=90)
-  
-
-6名被誘騙到緬甸園區從事非法工作的港人早前回港。當局上星期表示，會繼續積極跟進餘下3宗仍未返港的相關求助個案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm)
 
 ---
