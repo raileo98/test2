@@ -1,3 +1,26 @@
+# 羅淑佩與新加坡文化、社區及青年部長會面　探討兩地合作機會
+
+  
+
+文化體育及旅遊局局長羅淑佩與新加坡文化、社區及青年部長兼律政部第二部長唐振輝會面。羅淑佩向唐振輝介紹香港在文化、旅遊和體育方面的深度融合發展，雙方就政府推動相關政策交流看法，並探討未來兩地在文化、體育及旅遊領域深化國際交流與合作的機會，氣氛親切融洽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796057-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796057-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796057-20250317.htm)
+
+---
+
 # 警員持爆破工具及盾牌到旺角建興大廈搜查　據了解涉及火炭謀殺案
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm)
-
----
-
-# 天水圍有工人吊船上於半空被吹到左搖右擺其後獲救
-
-![一名吊船工人下午3時許在外牆工作期間遇到大風雨，連人帶船於半空被吹到左搖右擺、搖搖欲墜。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795869_1_20250315192438.jpg&q=90)
-  
-
-天水圍天瑞邨有一名吊船工人下午3時許在外牆工作期間遇到大風雨，連人帶船於半空被吹到左搖右擺、搖搖欲墜，工人其後趁吊船被吹回外牆窗邊時，自行爬上窗邊石壆，消防到場後將他救回地面，無人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795869-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795869-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795869-20250315.htm)
 
 ---

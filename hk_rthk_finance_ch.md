@@ -1,3 +1,27 @@
+# 滬股全日升幅收窄至約0.2%　創業板跌逾0.5%
+
+![上證指數全日升幅收窄至0.19%，收報3426點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796058_1_20250317150640.jpg&q=90)
+  
+
+內地股市個別發展，乳業、環保設備股上升，醫療、證券、有色金屬股下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796058-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796058-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796058-20250317.htm)
+
+---
+
 # 韓股升穿2600點關口　並以全日高位收市
 
 ![首爾綜合指數升穿2600點並以全日高位收市，創逾半個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796054_1_20250317143939.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm)
-
----
-
-# 理想上季經調整盈利按年跌逾10%　收入創新高
-
-![理想汽車按照美國公認會計準則，上季普通股股東應佔盈利按年跌約38%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795748_1_20250314170923.jpg&q=85)
-  
-
-理想汽車按照美國公認會計準則，上季普通股股東應佔盈利35.2億元人民幣，按年跌約38%，按季增加25%。經調整盈利40.3億元，按年跌逾10%，按季升約5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795748-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795748-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795748-20250314.htm)
 
 ---
