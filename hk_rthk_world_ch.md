@@ -1,3 +1,27 @@
+# 卡尼就任總理後首訪法英　指加拿大需要加強與可靠盟友關係
+
+![加拿大總理卡尼抵達巴黎，與法國總統馬克龍會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796138_1_20250317235213.jpg&q=90)
+  
+
+加拿大總理卡尼抵達巴黎，與法國總統馬克龍會談，是卡尼就任總理後首次外訪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796138-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796138-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796138-20250318.htm)
+
+---
+
 # 中方：有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的回應
 
 ![外交部稱，中方有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的堅決回應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796128_1_20250317214401.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795858-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795858-20250315.htm)
-
----
-
-# 泰國曼谷在建高速公路橋樑倒塌　據報7人死亡
-
-![泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795851_1_20250315153125.jpg&q=90)
-  
-
-泰國曼谷宗通縣一條興建中的高速公路橋樑倒塌，據報至少7人死亡，27人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795851-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795851-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795851-20250315.htm)
 
 ---

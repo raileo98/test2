@@ -1,5 +1,30 @@
+# 卡尼就任總理後首訪法英　指加拿大需要加強與可靠盟友關係
+
+![加拿大總理卡尼抵達巴黎，與法國總統馬克龍會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796138_1_20250317235213.jpg&q=90)
+  
+
+加拿大總理卡尼抵達巴黎，與法國總統馬克龍會談，是卡尼就任總理後首次外訪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796138-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796138-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796138-20250318.htm)
+
+---
+
 # 蔡若蓮感謝李兆基令無數學生受惠　麥美娟感謝捐地建青年宿舍
 
+![李兆基基金向保良局捐贈元朗地皮，由政府全數資助興建大規模青年宿舍「保良局李兆基青年綠洲」，圖為青年綠洲正式開幕儀式。（恒基圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796139_1_20250318001358.jpg&q=85)
   
 
 恒基地產創辦人李兆基在離世，享年97歲。特區政府多名司局長表示哀悼，並對他家人致以深切慰問。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm)
-
----
-
-# 北京：做相互成就的夥伴　實現「龍象共舞」是中印唯一正確選擇
-
-![毛寧說，中方讚賞印度總理莫迪近日就中印關係作出積極表態。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796069_1_20250317164026.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧說，中方讚賞印度總理莫迪近日就中印關係作出積極表態，毛寧指出，做相互成就的夥伴，實現「龍象共舞」是中印唯一正確的選擇。中方願同印方共同努力，深入落實好兩國領導人的重要共識，以今年中印建交75周年為契機，推進交流合作，推動中印關係沿著健康穩定的軌道向前發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm)
 
 ---
