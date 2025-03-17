@@ -1,3 +1,27 @@
+# Major rallies in Yemen after deadly US strikes
+
+![Yemenis brandish rifles and chant during a demonstration. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796143_1_20250318014607.jpg&q=90)
+  
+
+Tens of thousands of people protested in Houthi-controlled parts of Yemen on Monday, the Iran-backed rebels' Al-Masirah TV showed, two days after US attacks that left dozens dead.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796143-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796143-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796143-20250318.htm)
+
+---
+
 # Rwanda cuts diplomatic relations with Belgium
 
 ![People gather next to some vehicles as they flee the Masisi territory following clashes between M23 rebels and government forces. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796111_1_20250317194926.jpg&q=90)
@@ -1413,29 +1437,5 @@ A bus overturned in an area of Johannesburg near South Africa's main airport ear
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm)
-
----
-
-# Beijing hopes for 'just solution' to Ukraine war
-
-![Foreign Ministry spokeswoman Mao Ning says China supports all efforts that contribute to a peaceful resolution of the Ukraine crisis. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795258_1_20250311160751.jpg&q=90)
-  
-
-China said on Tuesday it hoped a "just and lasting solution" can be found to the three-year war between Ukraine and Russia, ahead of talks that will involve Ukrainian and US officials in Saudi Arabia.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm)
 
 ---
