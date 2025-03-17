@@ -1,3 +1,27 @@
+# 北韓譴責七國集團討論朝核問題　強調將加強自身核力量
+
+![北韓領袖金正恩日前到船廠參觀，視察核潛艇。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796025_1_20250317113936.jpg&q=90)
+  
+
+北韓譴責日前在加拿大召開的七國集團外長會議討論北韓核問題，對此嚴重關切，強調將相應地從數量和質量上，不斷升級並加強自身核武力量，應對外部核威懾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796025-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796025-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796025-20250317.htm)
+
+---
+
 # 也門胡塞武裝：美軍空襲已造成53人死亡近百人受傷
 
 ![胡塞武裝說，美軍的空襲造成居民財產和公共設施損失。圖為薩達省一名居民在遇襲地點，向傳媒展示一塊導彈碎片。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795989_1_20250317081232.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795799-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795799-20250315.htm)
-
----
-
-# 七國集團警告俄羅斯除非接受與烏停火　否則面對新制裁
-
-![七國集團外長一連兩日在加拿大魁北克舉行會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795798_1_20250315013844.jpg&q=85)
-  
-
-七國集團警告俄羅斯，除非接受與烏克蘭的停火協議，否則將面臨新的制裁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795798-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795798-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795798-20250315.htm)
 
 ---

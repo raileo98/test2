@@ -1,3 +1,27 @@
+# 北韓譴責七國集團討論朝核問題　強調將加強自身核力量
+
+![北韓領袖金正恩日前到船廠參觀，視察核潛艇。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796025_1_20250317113936.jpg&q=90)
+  
+
+北韓譴責日前在加拿大召開的七國集團外長會議討論北韓核問題，對此嚴重關切，強調將相應地從數量和質量上，不斷升級並加強自身核武力量，應對外部核威懾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796025-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796025-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796025-20250317.htm)
+
+---
+
 # 67歲男子荃灣失蹤　警籲市民提供消息
 
   
@@ -115,7 +139,7 @@
 
 ---
 
-# 3款床褥樣本壓力不均轉身或擾伴侶　消委會倡選購床褥前親身試睡
+# 床褥樣本壓力分布不均轉身或擾伴侶　消委會倡選購前親身試睡
 
 ![消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。（消委會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796014_1_20250317105536.jpg&q=90)
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795945-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795945-20250316.htm)
-
----
-
-# 陳茂波冀科企助培育青年科技人才　提供優質就業發展機會
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795939_1_20250316183245.jpg&q=90)
-  
-
-財政司司長陳茂波表示，不少已落戶本港或打算擴展業務的科企希望增聘人手，數碼港將在本周五舉行聚焦人工智能的招聘博覽，580多家企業及機構提供逾2000個職位，約6成跟人工智能相關。另外，他鼓勵更多科企參與培育本地青年科技人才，為他們提供更多優質就業和發展機會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm)
 
 ---
