@@ -1,3 +1,23 @@
+# 火炭謀殺案被捕父子有黑幫背景涉策劃案件　警方正追緝刀手
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796108-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796108-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796108-20250317.htm)
+
+---
+
 # 外交部：祖國完全統一勢不可擋　「倚外謀獨」終是絕路
 
 ![外交部稱，祖國完全統一勢不可擋，「倚外謀獨」終是絕路。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796107_1_20250317192325.jpg&q=80)
@@ -214,6 +234,7 @@
 
 # 發改委：部門要落實促進居民「增收減負」及處理「加班文化」問題
 
+![發改委稱《提振消費專項行動方案》是「牽頭管總」文件，每個部門都要抓好貫徹落實。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796097_1_20250317192823.jpg&q=85)
   
 
 國家發展和改革委員會副主任李春臨表示，中央印發的《提振消費專項行動方案》，是一份「牽頭管總」的綜合性文件，每個部門都要抓好貫徹落實，包括促進居民「增收減負」，處理「加班文化」盛行的問題等。
@@ -501,6 +522,7 @@
 
 # 市場監管總局稱引導商戶提供優質服務　嚴格監管執法以保障消費者
 
+![市監總局稱將與各部門密切合作，營造安全可靠、讓人放心的消費環境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796082_1_20250317192615.jpg&q=85)
   
 
 國家發改委、市場監管總局等六個部委，就《提振消費專項行動方案》舉行記者會。

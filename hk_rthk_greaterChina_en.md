@@ -27,7 +27,7 @@ Retail sales in China accelerated slightly in the first two months of the year, 
 ![Central authorities have said arresting the protracted slide in the property market was among its major tasks this year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796002_1_20250317095840.jpg&q=80)
   
 
-Mainland officials on Monday said a special action plan to boost consumption, will for the first time put an emphasis on the need to stabilise both the stock and property markets.
+Mainland officials on Monday said a special action plan to boost consumption,will, for the first time, put an emphasis on the need to stabilise both the stock and property markets.
 
   
 

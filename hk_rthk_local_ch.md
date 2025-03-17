@@ -1,3 +1,23 @@
+# 火炭謀殺案被捕父子有黑幫背景涉策劃案件　警方正追緝刀手
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796108-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796108-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796108-20250317.htm)
+
+---
+
 # 藍田五邑司徒浩中學6名學生上周廈門交流時急性腸胃炎　曾食團餐
 
 ![衞生防護中心正調查一宗中學交流團出現急性腸胃炎徵狀個案群組，涉及6名上星期參加交流團到廈門的學生。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796102_1_20250317184421.jpg&q=80)
@@ -1412,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm)
-
----
-
-# 小西灣邨瑞泰樓有石屎高處墮下擊傷女途人
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795924_2_20250316150903.jpg&q=80)
-  
-
-柴灣小西灣邨瑞泰樓有石屎從高處墮下，擊傷一名26歲女途人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm)
 
 ---
