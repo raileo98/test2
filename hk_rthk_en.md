@@ -1,3 +1,27 @@
+# New transit route needs to 'seamlessly' link Kai Tak
+
+![The proposed mass transit system will connect the Kai Tak MTR Station with the Kai Tak Cruise Terminal with six stations in total. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796048_1_20250317132335.jpg&q=85)
+  
+
+A think tank on Monday urged the government to give full play to undeveloped land along the planned elevated mass transit system in Kai Tak to connect the line "seamlessly" with buildings in the neighbourhood.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796048-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796048-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796048-20250317.htm)
+
+---
+
 # 'Makeup primers may affect hormone levels'
 
 ![The Consumer Council says only three makeup bases that offer protection from the sun do not contain potential endocrine disruptors. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796050_1_20250317133301.jpg&q=90)
@@ -27,7 +51,7 @@ The Consumer Council on Monday warned that some makeup bases can affect hormone 
 ![Sun Dong said the AI summit next month shows Hong Kong is a hub for global IT cooperation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796043_1_20250317125229.jpg&q=80)
   
 
-Hong Kong's innovation and technology sector is already "in the fast lane."
+Innovation and technology secretary Sun Dong said on Monday Hong Kong's I&T development was so rapid that the sector is already "in the fast lane."
 
   
 
@@ -145,7 +169,7 @@ A former senior Hospital Authority official has called for caution in setting co
 
 # Nap on beds before purchasing: consumer watchdog
 
-![The Consumer Council says a mattress' price does not necessarily reflect its quality. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
   
 
 The Consumer Council on Monday encouraged people to nap on mattresses – some of which were found to provide inadequate support – before making a purchase.
@@ -1415,29 +1439,5 @@ A male visitor at Kwong Wah Hospital has been arrested for allegedly assaulting 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795779-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795779-20250314.htm)
-
----
-
-# UK police extend detention of North Sea crash captain
-
-![The MV Stena Immaculate tanker was hit by the MV Solong container vessel on March 10. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795780_1_20250314214139.jpg&q=85)
-  
-
-UK police on Friday again extended the detention of the captain of a cargo ship that struck a tanker in the North Sea, citing the "complexities" of the case.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795780-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795780-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795780-20250314.htm)
 
 ---

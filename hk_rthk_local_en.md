@@ -51,7 +51,7 @@ The Consumer Council on Monday warned that some makeup bases can affect hormone 
 ![Sun Dong said the AI summit next month shows Hong Kong is a hub for global IT cooperation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796043_1_20250317125229.jpg&q=80)
   
 
-Hong Kong's innovation and technology sector is already "in the fast lane."
+Innovation and technology secretary Sun Dong said on Monday Hong Kong's I&T development was so rapid that the sector is already "in the fast lane."
 
   
 
@@ -144,7 +144,7 @@ A former senior Hospital Authority official has called for caution in setting co
 
 # Nap on beds before purchasing: consumer watchdog
 
-![The Consumer Council says a mattress' price does not necessarily reflect its quality. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
   
 
 The Consumer Council on Monday encouraged people to nap on mattresses – some of which were found to provide inadequate support – before making a purchase.
