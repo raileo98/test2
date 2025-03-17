@@ -1,3 +1,27 @@
+# Police raid Mong Kok building 'in murder probe'
+
+![Officers carry out their operation at King Hing Building in Mong Kok. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796085_1_20250317172150.jpg&q=85)
+  
+
+Police on Monday raided a building in Mong Kok, with sources saying the operation was linked to a murder case in Fo Tan the day before.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796085-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796085-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796085-20250317.htm)
+
+---
+
 # Mt Fuji entry fee set for hikers
 
 ![Hikers near the popular Yoshida trail, which will see a doubling of the fee, up Mount Fuji. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796065_1_20250317160637.jpg&q=70)
@@ -335,12 +359,12 @@ Hong Kong's Hang Seng Index gained 266.02 points, or 1.11 percent, to open at 24
 
 ---
 
-# China new home prices fall in February
+# 'Action plan to stabilise stock, property markets'
 
-![A commercial residential complex under construction in Nanning, China. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796002_1_20250317095840.jpg&q=80)
+![Central authorities have said arresting the protracted slide in the property market was among its major tasks this year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796002_1_20250317095840.jpg&q=80)
   
 
-New home prices on the mainland dropped 0.1 percent in February, official data showed on Monday.
+Mainland officials on Monday said a special action plan to boost consumption, will for the first time put an emphasis on the need to stabilise both the stock and property markets.
 
   
 
@@ -1415,29 +1439,5 @@ Mark Carney was formally sworn in as prime minister of Canada on Friday, putting
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795795-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795795-20250315.htm)
-
----
-
-# Duterte attends ICC hearing over drug war by video
-
-![Rodrigo Duterte stands accused of the crime against humanity of murder over his years-long campaign against drug users and dealers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795790_1_20250314223327.jpg&q=90)
-  
-
-Former Philippines president Rodrigo Duterte failed to show in person at the International Criminal Court on Friday at the opening of his crimes against humanity hearing over his deadly crackdown on narcotics.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm)
 
 ---

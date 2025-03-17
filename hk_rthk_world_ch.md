@@ -1,3 +1,27 @@
+# 外交部：中方決不接受七國集團甩鍋推責　堅決反對污蔑抹黑中國
+
+![毛寧說，中方決不接受七國集團甩鍋推責。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796086_1_20250317172225.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧說，七國集團外長會聯合聲明及有關宣言罔顧事實，顛倒黑白，污蔑抹黑中國，干涉中國內政。中方強烈不滿、堅決反對，已向有關國家提出嚴正交涉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm)
+
+---
+
 # 中方促日方在台灣問題謹言慎行　以實際行動兌現堅持一中原則承諾
 
 ![毛寧強調，一個中國原則是中日關係的政治基礎。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796074_1_20250317164017.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795819-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795819-20250315.htm)
-
----
-
-# 美國國會通過短期支出法案避免政府「停擺」
-
-![美國國會參議院在限期前通過短期支出法案，避免政府「停擺」。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795818_1_20250315074643.jpg&q=90)
-  
-
-美國國會參議院通過短期支出法案，為聯邦政府繼續提供資金至9月，趕在限期前，避免政府「停擺」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795818-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795818-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795818-20250315.htm)
 
 ---

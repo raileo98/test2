@@ -1,3 +1,50 @@
+# 外交部：中方決不接受七國集團甩鍋推責　堅決反對污蔑抹黑中國
+
+![毛寧說，中方決不接受七國集團甩鍋推責。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796086_1_20250317172225.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧說，七國集團外長會聯合聲明及有關宣言罔顧事實，顛倒黑白，污蔑抹黑中國，干涉中國內政。中方強烈不滿、堅決反對，已向有關國家提出嚴正交涉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm)
+
+---
+
+# 市場監管總局稱引導商戶提供優質服務　嚴格監管執法以保障消費者
+
+  
+
+國家發改委、市場監管總局等六個部委，就《提振消費專項行動方案》舉行記者會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm)
+
+---
+
 # 中辦印發《通知》在全黨開展深入貫徹中央八項規定精神學習教育
 
 ![中辦印發《通知》在全黨開展深入貫徹中央八項規定精神學習教育](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796077_1_20250317165722.jpg&q=90)
@@ -117,6 +164,7 @@
 
 # 人行：將會同有關部門研究出台金融支持擴大消費專門文件
 
+![人行表示，將會同有關部門研究出台金融支持擴大消費專門文件，引導金融機構積極滿足各類主體多樣化資金需求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796070_1_20250317171515.jpg&q=80)
   
 
 人民銀行表示，下一步將會同有關部門研究出台金融支持擴大消費專門文件，引導金融機構從消費供應及需求，積極滿足各類主體多樣化資金需求。
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795665-20250314.htm)
-
----
-
-# 馬朝旭晤伊朗副外長　指續為推動政治解決伊核問題發揮建設作用
-
-![馬朝旭與伊朗副外長加里布阿巴迪會談。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795640_1_20250314012232.jpg&q=90)
-  
-
-在北京，外交部副部長馬朝旭與出席伊朗核問題中俄伊北京會晤的伊朗副外長加里布阿巴迪會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795640-20250314.htm)
-
----
-
-# 港澳辦轉載評論文章質疑長和出售港口資產交易非普通商業行為
-
-![港澳辦轉載評論文章，質疑長和出售港口資產交易非普通商業行為。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795634_1_20250314000348.jpg&q=90)
-  
-
-國務院港澳辦網站轉載《大公報》有關長和計劃出售巴拿馬運河兩端港口等資產的評論文章。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm)
 
 ---

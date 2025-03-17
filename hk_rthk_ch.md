@@ -1,3 +1,73 @@
+# 外交部：中方決不接受七國集團甩鍋推責　堅決反對污蔑抹黑中國
+
+![毛寧說，中方決不接受七國集團甩鍋推責。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796086_1_20250317172225.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧說，七國集團外長會聯合聲明及有關宣言罔顧事實，顛倒黑白，污蔑抹黑中國，干涉中國內政。中方強烈不滿、堅決反對，已向有關國家提出嚴正交涉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm)
+
+---
+
+# 海關檢3500萬元大麻花　藏於泰國抵港報稱載冷藏豬肉貨櫃
+
+  
+
+海關在葵涌檢獲約138公斤懷疑大麻花，估計市值約3500萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796084-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796084-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796084-20250317.htm)
+
+---
+
+# 市場監管總局稱引導商戶提供優質服務　嚴格監管執法以保障消費者
+
+  
+
+國家發改委、市場監管總局等六個部委，就《提振消費專項行動方案》舉行記者會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm)
+
+---
+
 # 在岸人民幣兌美元低收100點子
 
 ![在岸人民幣收報7.2388兌1美元，較上星期五收市價跌100點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796079_1_20250317170007.jpg&q=75)
@@ -260,6 +330,7 @@
 
 # 人行：將會同有關部門研究出台金融支持擴大消費專門文件
 
+![人行表示，將會同有關部門研究出台金融支持擴大消費專門文件，引導金融機構積極滿足各類主體多樣化資金需求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796070_1_20250317171515.jpg&q=80)
   
 
 人民銀行表示，下一步將會同有關部門研究出台金融支持擴大消費專門文件，引導金融機構從消費供應及需求，積極滿足各類主體多樣化資金需求。
