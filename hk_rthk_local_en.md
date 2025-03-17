@@ -1,9 +1,33 @@
-# HK 'in the fast lane to becoming IT hub'
+# 'Makeup primers may affect hormone levels'
+
+![The Consumer Council says only three makeup bases that offer protection from the sun do not contain potential endocrine disruptors. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796050_1_20250317133301.jpg&q=90)
+  
+
+The Consumer Council on Monday warned that some makeup bases can affect hormone levels, and people who are pregnant or are breastfeeding should avoid such products.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796050-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796050-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796050-20250317.htm)
+
+---
+
+# HK 'in fast lane to becoming innovation and tech hub'
 
 ![Sun Dong said the AI summit next month shows Hong Kong is a hub for global IT cooperation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796043_1_20250317125229.jpg&q=80)
   
 
-Innovation and technology secretary Sun Dong said on Monday Hong Kong's information technology development was so rapid that the sector is already "in the fast lane."
+Hong Kong's innovation and technology sector is already "in the fast lane."
 
   
 
@@ -1412,29 +1436,5 @@ A catering sector representative on Tuesday said he was concerned restaurants wo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795218-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795218-20250311.htm)
-
----
-
-# 'Snooker hiccup not a problem for National Games'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795203_1_20250311090834.jpg&q=90)
-  
-
-A local deputy to the National People's Congress has stressed that Hong Kong is ready to co-host its first National Games in November, despite a recent hiccup at a major snooker tournament in Kai Tak.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm)
 
 ---
