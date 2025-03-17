@@ -572,6 +572,7 @@
 
 # 中央提振消費方案　發改委：每個部門須貫徹落實全方位擴大消費
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796073_1_20250317184832.jpg&q=85)
   
 
 國家發展和改革委員會、財政部、人力資源社會保障部、商務部、人民銀行、國家市場監督管理總局等六個部委，下午舉行記者會，講解中央昨日印發的《提振消費專項行動方案》。
@@ -1147,7 +1148,7 @@
 
 # 特朗普：計劃周二與普京通話　認為很有機會結束俄烏戰爭
 
-![特朗普在「空軍一號」專機上對記者表示，將在周二與普京通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796042_1_20250317125325.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796042_1_20250317125325.jpg&q=90)
   
 
 美國總統特朗普表示，他計劃周二與俄羅斯總統普京通話，討論結束俄烏戰爭。

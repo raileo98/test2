@@ -192,7 +192,7 @@
 
 # 特朗普：計劃周二與普京通話　認為很有機會結束俄烏戰爭
 
-![特朗普在「空軍一號」專機上對記者表示，將在周二與普京通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796042_1_20250317125325.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796042_1_20250317125325.jpg&q=90)
   
 
 美國總統特朗普表示，他計劃周二與俄羅斯總統普京通話，討論結束俄烏戰爭。
