@@ -1,3 +1,27 @@
+# Six students contract gastroenteritis in exchange tour
+
+![The Centre for Health Protection says the latest cluster involves six secondary students who were part of an exchange tour to Xiamen. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796126_1_20250317212915.jpg&q=80)
+  
+
+The Centre for Health Protection (CHP) is investigating a gastroenteritis cluster among secondary students who participated in an exchange tour to Xiamen last week.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796126-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796126-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796126-20250317.htm)
+
+---
+
 # Three proposals received for HK's third medical school
 
 ![The Task Group on New Medical School previously held meetings to discuss the next steps for evaluating proposals on the establishment of the third medical school. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796122_1_20250317205156.jpg&q=85)
@@ -1415,29 +1439,5 @@ Executive Councillor Lam Ching-choi sounded the alarm on youth mental health in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795855-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795855-20250315.htm)
-
----
-
-# 'Rugby Sevens tourists opting for HK Island hotels'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795834_1_20250315121225.jpg&q=70)
-  
-
-The Hong Kong Rugby Sevens, one of the city's most popular and highly anticipated events, will be hosted at a brand new location this year, but the retail and tourism sectors are still expecting a boost in spending.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm)
 
 ---
