@@ -1,3 +1,27 @@
+# 特朗普：習近平不久將來會訪問美國
+
+![特朗普表示，中國國家主席習近平在不久的將來會訪問美國。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796150_1_20250318051823.jpg&q=90)
+  
+
+美國總統特朗普表示，中國國家主席習近平在不久的將來會訪問美國，但沒有透露詳情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm)
+
+---
+
 # 美俄元首稍後通電話　澤連斯基強調俄方須停止提出停火附加條件
 
 ![美國總統特朗普今日稍後將會與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796149_1_20250318044754.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm)
-
----
-
-# 美國中南部多處龍捲風及沙塵暴　最少16死並損毀幾十座房屋
-
-![密蘇里州有房屋被龍捲風摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795890_1_20250316004501.jpg&q=70)
-  
-
-美國中部及南部多處自當地星期五起，出現龍捲風及沙塵暴等惡劣天氣，截至周六早上，已造成最少16人死亡，多人受傷，幾十座房屋損毀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 特朗普：習近平不久將來會訪問美國
+
+![特朗普表示，中國國家主席習近平在不久的將來會訪問美國。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796150_1_20250318051823.jpg&q=90)
+  
+
+美國總統特朗普表示，中國國家主席習近平在不久的將來會訪問美國，但沒有透露詳情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm)
+
+---
+
 # 美俄元首稍後通電話　澤連斯基強調俄方須停止提出停火附加條件
 
 ![美國總統特朗普今日稍後將會與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796149_1_20250318044754.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796081-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796081-20250317.htm)
-
----
-
-# 證監會：新一年度薪酬調整仍待董事局批准　尚未最終確定
-
-![證監會重申，一直以謹慎理財、開源節流、降本增效方式，應對近年香港金融市場的挑戰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796080_1_20250317170250.jpg&q=85)
-  
-
-證監會回應傳媒有關2025/2026年度預算中建議薪酬調整的查詢，重申有關建議有待證監會董事局批准，尚未最終確定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm)
 
 ---
