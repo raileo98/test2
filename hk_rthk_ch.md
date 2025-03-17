@@ -1,3 +1,27 @@
+# 特朗普期待與普京通話　稱烏克蘭問題最終協議很多內容已達成共識
+
+![特朗普表示，期待今日稍後與俄羅斯總統普京通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796163_1_20250318064615.jpg&q=90)
+  
+
+美國總統特朗普表示，期待今日稍後與俄羅斯總統普京通話，指出烏克蘭問題最終協議的很多內容已達成共識，但仍有很多未完成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796163-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796163-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796163-20250318.htm)
+
+---
+
 # 港股ADR較本港昨日收市價普遍上升　阿里巴巴升近6%
 
 ![港股ADR普遍上升，阿里巴巴升近6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796160_1_20250318061950.jpg&q=80)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm)
-
----
-
-# 日本高知市有住宅起火　據報2死1重傷
-
-![日本高知市有住宅起火　據報2死1重傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796091_1_20250317175419.jpg&q=90)
-  
-
-日本高知市一個住宅發生火警，據報造成2人死亡，1人重傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm)
 
 ---

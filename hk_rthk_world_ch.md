@@ -1,3 +1,27 @@
+# 特朗普期待與普京通話　稱烏克蘭問題最終協議很多內容已達成共識
+
+![特朗普表示，期待今日稍後與俄羅斯總統普京通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796163_1_20250318064615.jpg&q=90)
+  
+
+美國總統特朗普表示，期待今日稍後與俄羅斯總統普京通話，指出烏克蘭問題最終協議的很多內容已達成共識，但仍有很多未完成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796163-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796163-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796163-20250318.htm)
+
+---
+
 # 美國國防部：只要胡塞武裝停止襲擊　行動就會結束
 
 ![美軍上周末向也門胡塞武裝據點發動空襲，包括從艦艇發射導彈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796154_1_20250318053820.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795894-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795894-20250316.htm)
-
----
-
-# 伯勒爾被撤回人質事務美國總統特使提名　續以特別僱員身份辦事
-
-![伯勒爾近日就釋放加沙地帶被扣押人員問題，與哈馬斯直接對話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795893_1_20250316031618.jpg&q=90)
-  
-
-美國白宮表示，總統特朗普政府撤回提名伯勒爾擔任人質事務總統特使。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795893-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795893-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795893-20250316.htm)
 
 ---
