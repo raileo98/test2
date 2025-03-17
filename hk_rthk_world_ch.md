@@ -1,3 +1,27 @@
+# 美國八個州遭遇龍捲風等惡劣天氣　增至最少42死
+
+![密蘇里州遭到龍捲風吹襲，造成嚴重破壞。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796145_1_20250318031351.jpg&q=75)
+  
+
+美國中西部和南部八個州近日持續遭受龍捲風和沙塵暴等惡劣天氣侵襲，增至最少42人死亡，多處遭受大範圍破壞。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796145-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796145-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796145-20250318.htm)
+
+---
+
 # 盧旺達宣布與比利時斷交
 
 ![盧旺達被指支持剛果民主共和國的反政府武裝M23。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796144_1_20250318021211.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795875-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795875-20250315.htm)
-
----
-
-# 澤連斯基：庫爾斯克地區烏軍沒被包圍並繼續牽制俄軍
-
-![澤連斯基說，在庫爾斯克地區的烏軍沒有被包圍，烏軍的作戰行動仍在進行。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795874_1_20250315201903.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基說，他聽取了烏克蘭武裝部隊總司令瑟爾斯基關於戰況的報告，在庫爾斯克地區的烏軍沒有被包圍，烏軍的作戰行動仍在進行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795874-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795874-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795874-20250315.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 美國八個州遭遇龍捲風等惡劣天氣　增至最少42死
+
+![密蘇里州遭到龍捲風吹襲，造成嚴重破壞。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796145_1_20250318031351.jpg&q=75)
+  
+
+美國中西部和南部八個州近日持續遭受龍捲風和沙塵暴等惡劣天氣侵襲，增至最少42人死亡，多處遭受大範圍破壞。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796145-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796145-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796145-20250318.htm)
+
+---
+
 # 盧旺達宣布與比利時斷交
 
 ![盧旺達被指支持剛果民主共和國的反政府武裝M23。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796144_1_20250318021211.jpg&q=85)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm)
-
----
-
-# 中央提振消費方案　發改委：每個部門須貫徹落實全方位擴大消費
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796073_1_20250317184832.jpg&q=85)
-  
-
-國家發展和改革委員會、財政部、人力資源社會保障部、商務部、人民銀行、國家市場監督管理總局等六個部委，下午舉行記者會，講解中央昨日印發的《提振消費專項行動方案》。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm)
 
 ---
