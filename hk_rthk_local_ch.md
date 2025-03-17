@@ -1,5 +1,6 @@
 # 一度在荃灣失蹤67歲男子　下午在青衣被尋回
 
+![男事主昨晚在荃灣失蹤，下午在青衣被尋回。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796088_1_20250317173627.jpg&q=75)
   
 
 67歲男子盧家亮昨晚在荃灣失蹤，下午在青衣被尋回。男子沒有受傷，警方稱案件沒有可疑。
@@ -119,7 +120,7 @@
 
 # 宋皇臺站出入口B2及B3暫時關閉　消息：現場報稱發現可疑物品
 
-![宋皇臺站出入口B2及B3暫時關閉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796078_1_20250317170954.jpg&q=80)
+![宋皇臺站出入口B2及B3暫時關閉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796078_2_20250317173719.jpg&q=90)
   
 
 運輸署接獲港鐵公司通知，因應警方要求，宋皇臺站出入口B2及B3暫時關閉，呼籲乘客使用其他出入口。

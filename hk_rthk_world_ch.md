@@ -1,3 +1,27 @@
+# 日本靜岡縣將向每名攀登富士山人士收取4千日圓登山費
+
+![富士山2013年入選聯合國教科文組織世界文化遺產名錄。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796089_1_20250317173732.jpg&q=90)
+  
+
+日本靜岡縣議會批准今年夏天開始，向每名攀登富士山的人士，收取4千日圓，即約208港元登山費，同時限制登山入口開放時間。屆時，富士山4條常用登山路線將統一收費標準。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796089-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796089-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796089-20250317.htm)
+
+---
+
 # 外交部：中方決不接受七國集團甩鍋推責　堅決反對污蔑抹黑中國
 
 ![毛寧說，中方決不接受七國集團甩鍋推責。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796086_1_20250317172225.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795821-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795821-20250315.htm)
-
----
-
-# 《環看天下》：美國部分人憂慮特朗普政府動用稅款儲備虛擬資產
-
-![特朗普與薩克斯在白宮出席首次加密貨幣峰會。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795819_1_20250315080254.jpg&q=90)
-  
-
-美國總統特朗普第二次執政後落實競選承諾，推動虛擬資產市場發展。他近期發布行政命令，設立戰略比特幣儲備，又在白宮舉行第一次加密貨幣峰會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795819-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795819-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795819-20250315.htm)
 
 ---
