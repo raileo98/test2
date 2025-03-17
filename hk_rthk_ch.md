@@ -1,3 +1,27 @@
+# 美股連升兩日　道指升353點　Telsa逆市挫近半成
+
+![道瓊斯指數收報41841點，升353點，升幅0.85%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796155_1_20250318054007.jpg&q=90)
+  
+
+美股連升兩個交易日，延續反彈勢頭，投資者評估最新經濟數據。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796155-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796155-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796155-20250318.htm)
+
+---
+
 # 美國國防部：只要胡塞武裝停止襲擊　行動就會結束
 
 ![美軍上周末向也門胡塞武裝據點發動空襲，包括從艦艇發射導彈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796154_1_20250318053820.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm)
-
----
-
-# 海關檢3500萬元大麻花　藏於泰國抵港報稱載冷藏豬肉貨櫃
-
-![海關檢獲約138公斤懷疑大麻花，估計市值約3500萬元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796084_1_20250317173209.jpg&q=85)
-  
-
-海關在葵涌檢獲約138公斤懷疑大麻花，估計市值約3500萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796084-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796084-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796084-20250317.htm)
 
 ---
