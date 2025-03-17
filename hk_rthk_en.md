@@ -1,3 +1,27 @@
+# IOC recommends boxing be part of 2028 Olympic Games
+
+![Germany's Nelvie Tiafack, left, in action against Bakhodir Jalolov of Uzbekistan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796158_1_20250318055329.jpg&q=90)
+  
+
+IOC chief Thomas Bach has announced that boxing is set to be among the sports at the 2028 Los Angeles Olympics after a new governing body is selected.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm)
+
+---
+
 # Major rallies in Yemen after deadly US strikes
 
 ![Yemenis brandish rifles and chant during a demonstration. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796143_1_20250318014607.jpg&q=90)
@@ -1415,29 +1439,5 @@ Nobody was reported injured after three workers became trapped on a gondola plat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm)
-
----
-
-# HK$2 tweaks can save govt nearly HK$700 million a year
-
-![Chris Sun says changes to the HK$2 scheme will make the beneficiaries choose cheaper transportation. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795864_1_20250315174901.jpg&q=90)
-  
-
-Labour and welfare minister Chris Sun on Saturday said changes to the HK$2 fare scheme could save the government about HK$680 million a year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm)
 
 ---

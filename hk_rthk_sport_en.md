@@ -1,3 +1,27 @@
+# IOC recommends boxing be part of 2028 Olympic Games
+
+![Germany's Nelvie Tiafack, left, in action against Bakhodir Jalolov of Uzbekistan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796158_1_20250318055329.jpg&q=90)
+  
+
+IOC chief Thomas Bach has announced that boxing is set to be among the sports at the 2028 Los Angeles Olympics after a new governing body is selected.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm)
+
+---
+
 # McIlroy wins second Players Championship title
 
 ![The win was McIlroy's second in his career at the annual golf tournament on the PGA Tour. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796153_1_20250318053122.jpg&q=90)
@@ -1422,30 +1446,5 @@ Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm)
-
----
-
-# Cavs beat Blazers in overtime for 10th straight win
-
-![Cavaliers forward De'Andre Hunter (12) drives to the basket against Portland Trail Blazers' Donovan Clingan. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793948_1_20250303100809.jpg&q=90)
-![Jaylen Brown scored 22 points to lead Boston to victory over the Denver Nuggets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793948_2_20250303100809.jpg&q=90)
-  
-
-The Cleveland Cavaliers erased an 18-point deficit to beat the Portland Trail Blazers 133-129 in an NBA overtime thriller, boosting their league-best record with a 10th straight victory as Boston beat Denver in a clash of the past two champions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm)
 
 ---
