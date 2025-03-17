@@ -1,5 +1,53 @@
-# 港鐵稱因應警方要求　宋皇臺站出入口B2及B3暫時關閉
+# 深水埗有私家車著火冒出大量黑煙　司機及時逃離車輛未有受傷
 
+  
+
+深水埗有私家車引擎懷疑冒煙著火，司機逃離車輛報警，未有受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796081-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796081-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796081-20250317.htm)
+
+---
+
+# 證監會：新一年度薪酬調整仍待董事局批准　尚未最終確定
+
+![證監會重申，一直以謹慎理財、開源節流、降本增效方式，應對近年香港金融市場的挑戰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796080_1_20250317170250.jpg&q=85)
+  
+
+證監會回應傳媒有關2025/2026年度預算中建議薪酬調整的查詢，重申有關建議有待證監會董事局批准，尚未最終確定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm)
+
+---
+
+# 宋皇臺站出入口B2及B3暫時關閉　消息：現場報稱發現可疑物品
+
+![宋皇臺站出入口B2及B3暫時關閉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796078_1_20250317170954.jpg&q=80)
   
 
 運輸署接獲港鐵公司通知，因應警方要求，宋皇臺站出入口B2及B3暫時關閉，呼籲乘客使用其他出入口。
@@ -47,6 +95,7 @@
 
 # 增兩宗退伍軍人病個案　其中一名患者潛伏期曾到內地
 
+![衞生防護中心正展開流行病學調查，以找出可能的感染源頭、高風險接觸因素和是否出現群組個案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796072_1_20250317170823.jpg&q=80)
   
 
 衞生防護中心在本月9日至15日期間，錄得兩宗退伍軍人病個案，包括一宗社區感染及一宗輸入個案。
@@ -1386,54 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795907-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795907-20250316.htm)
-
----
-
-# 約4000人參加單車百萬行　九龍和新界多條主幹道封閉
-
-![約4000名單車手參加單車百萬行，「博愛組」由青沙公路出發，沿昂船洲大橋，途經南灣隧道，全長約13公里。 「挑戰組」 在原有路線再延伸至汀九橋，全長約 21 公里。 (鄧鈞尤攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795904_1_20250316093409.jpg&q=75)
-![黃金寶表示，今日溫度適合踩單車。(鄧鈞尤攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795904_2_20250316093409.jpg&q=90)
-  
-
-單車百萬行早上舉行，因應活動，九龍和新界多條主要幹道凌晨起封閉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795904-20250316.htm)
-
----
-
-# 工業傷亡權益會促改善溝通確保重要天氣資訊可有效傳達吊船操作員
-
-![事發時操作員連人帶船於半空被吹到左搖右擺。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795888_1_20250316001759.jpg&q=90)
-  
-
-工業傷亡權益會要求房署及相關公司檢討現時工作指引，包括改善與吊船操作員的溝通，確保重要天氣資訊可有效傳達到操作員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795888-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795888-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795888-20250316.htm)
 
 ---

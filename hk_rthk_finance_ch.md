@@ -1,3 +1,51 @@
+# 在岸人民幣兌美元低收100點子
+
+![在岸人民幣收報7.2388兌1美元，較上星期五收市價跌100點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796079_1_20250317170007.jpg&q=75)
+  
+
+在岸人民幣收報7.2388兌1美元，較上星期五收市價跌100點子，跌幅0.14%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796079-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796079-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796079-20250317.htm)
+
+---
+
+# 證監會：新一年度薪酬調整仍待董事局批准　尚未最終確定
+
+![證監會重申，一直以謹慎理財、開源節流、降本增效方式，應對近年香港金融市場的挑戰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796080_1_20250317170250.jpg&q=85)
+  
+
+證監會回應傳媒有關2025/2026年度預算中建議薪酬調整的查詢，重申有關建議有待證監會董事局批准，尚未最終確定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm)
+
+---
+
 # 財政部：消費品以舊換新資金將盡快下達
 
   
@@ -1384,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795778-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795778-20250314.htm)
-
----
-
-# 兩元優惠調整　孫玉菡：不想老友記搭程車都心掛掛
-
-![財政預算案提出「兩元優惠計劃」調整方案，包括新增每月240程限制，10元以上改為全額車費「兩折」。（勞工及福利局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795776_1_20250314213016.jpg&q=90)
-  
-
-新一份財政預算案提出「兩元優惠計劃」調整方案，包括新增每月240程限制，10元以上改為全額車費「兩折」。勞工及福利局局長孫玉菡表示，在250萬受惠人士中，只有約360人每月優惠車程超出240程，他說假設長者每天兩度出行，即使每程都要轉車，8程車仍足以應付；而且上限以每月計算，偶有乘車超過8程的日子仍可拉上補下。他強調，政府在設定優惠車程上限時採取寬鬆的做法，就是不想老友記「搭程車都心掛掛」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795776-20250314.htm)
-
----
-
-# 碧桂園服務料去年多賺逾4倍
-
-![碧桂園服務預計，去年度歸屬於公司股東的淨利潤介乎約16億至20億元人民幣，按年升約4.5至5.8倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795775_1_20250314212347.jpg&q=90)
-  
-
-碧桂園服務預計，去年度歸屬於公司股東的淨利潤介乎約16億至20億元人民幣，按年升約4.5至5.8倍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795775-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795775-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795775-20250314.htm)
 
 ---
