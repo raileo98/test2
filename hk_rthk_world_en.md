@@ -1,3 +1,27 @@
+# Trump and Putin to discuss Ukraine this week
+
+![US officials have expressed optimism that a Ukraine-Russia ceasefire deal could be reached in weeks. Photo combo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796061_1_20250317152607.jpg&q=90)
+  
+
+US President Donald Trump says he plans to speak to his Russian counterpart Vladimir Putin on Tuesday about ending the war in Ukraine, adding discussions are already ongoing about "dividing up certain assets" between the warring parties.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm)
+
+---
+
 # Philippines Senate to probe Duterte handover
 
 ![Imee Marcos is the one who set the wheels in motion for the senate probe.  Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796060_1_20250317151836.jpg&q=90)
@@ -1413,29 +1437,5 @@ Canada's incoming prime minister Mark Carney has promised a "smooth" and "quick"
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm)
-
----
-
-# Arrest of pro-Palestinian student sparks outrage
-
-![A demonstrator is detained by police officers during a protest following the arrest by US immigration agents of Palestinian student protester Mahmoud Khalil, in New York City. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795219_1_20250311105218.jpg&q=90)
-  
-
-Protesters in New York and rights groups expressed outrage on Monday over the arrest of a leader of pro-Palestinian demonstrations at Columbia University, as President Donald Trump vowed further crackdowns.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm)
 
 ---

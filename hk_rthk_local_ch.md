@@ -1,3 +1,26 @@
+# 議員倡就太空油毒品設舉報獎金制度　禁毒專員稱暫不會加設
+
+  
+
+保安局表示，去年共有300人被呈報吸食「太空油毒品」，其中226人是21歲以下青少年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796062-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796062-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796062-20250317.htm)
+
+---
+
 # 第三輪航空業輸入勞工計劃明起接受申請　涵蓋技工地勤等10工種
 
   
@@ -46,6 +69,7 @@
 
 # 警員持爆破工具及盾牌到旺角建興大廈搜查　據了解涉及火炭謀殺案
 
+![部分警員戴頭盔，手持盾牌及爆破工具，調查期間一度將大廈圍封。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796056_1_20250317152633.jpg&q=85)
   
 
 大批警員中午到旺角亞皆老街建興大廈調查，部分警員戴頭盔，手持盾牌及爆破工具，調查期間一度將大廈圍封，其後解封。據了解，警員調查涉及昨日下午在火炭發生的謀殺案。
@@ -1412,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm)
-
----
-
-# 天水圍體育館在黃雨期間一度漏水　維修期間照常開放
-
-![天水圍體育館的簽場處一度出現漏水情況。（社交網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795878_2_20250315222658.jpg&q=90)
-![康文署表示，天水圍體育館的簽場處下午一度漏水。（康文署圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795878_1_20250315222535.jpg&q=80)
-  
-
-天文台於下午3時發出今年首個黃色暴雨警告信號，到下午4時35分取消。期間多處地區錄得大約20毫米雨量，天水圍體育館期間一度漏水。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm)
 
 ---
