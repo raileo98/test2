@@ -96,10 +96,10 @@ Police said three people have been arrested for their alleged involvement in a m
 
 # Henderson Land founder Lee Shau-kee dies at 97
 
-![Property tycoon Lee Shau-kee has died at the age of 97. Photo courtesy of Henderson Land](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796117_1_20250317202145.jpg&q=90)
+![Property tycoon Lee Shau-kee passed away peacefully on Monday evening. Photo courtesy of Henderson Land](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796117_1_20250317202145.jpg&q=90)
   
 
-One of Hong Kong's richest men, Henderson Land founder Lee Shau-kee, has died at the age of 97.
+One of Hong Kong's richest people, Henderson Land founder Lee Shau-kee, has died at the age of 97.
 
   
 

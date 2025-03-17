@@ -1,3 +1,49 @@
+# 甯漢豪對李兆基離世表哀悼
+
+  
+
+恒基地產創辦人李兆基在家人陪伴下，今日黃昏與世長辭，享年97歲。發展局局長甯漢豪對李兆基離世表示哀悼，並向他的家人致以深切慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm)
+
+---
+
+# 再有參加內地團學生腸胃炎　教育局要求承辦機構停用相關用餐地點
+
+  
+
+再有中學訪問內地交流團的學生患上急性腸胃炎，藍田五邑司徒浩中學36名師生上周參加交流團到廈門，期間6名學生陸續出現急性腸胃炎病徵。衞生防護中心初步調查顯示，6名受影響人士除團餐外，並未有進食其他共同食物。教育局表示，現時所有參加者均已返港，不適的學生回港後已逐漸康復，未有痾嘔，亦未有出現新個案。為安全起見，已要求承辦機構停用相關用餐地點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm)
+
+---
+
 # 鄭雁雄：站在政治和全局高度把握好香港角色、香港方向、香港擔當
 
 ![中聯辦主任鄭雁雄傳達全國兩會精神，要求把握主題、抓住重點、因制制宜，學習宣傳貫徹好全國兩會精神。（中聯辦網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796130_1_20250317224420.jpg&q=85)
@@ -1391,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795947-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795947-20250316.htm)
-
----
-
-# 李慧琼稱可考慮北都成特區中一個特區加快發展
-
-![李慧琼認為，可考慮北部都會區成為「特區中的一個特區」。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795946_1_20250316184330.jpg&q=90)
-  
-
-全國人大常委李慧琼表示，可以考慮北部都會區成為「特區中的一個特區」，賦予它一個特別審批流程或者特別行政措施，以加快發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795946-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795946-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795946-20250316.htm)
-
----
-
-# 陳美寶稱私家汽車出租法例規管年代久遠是時候檢視
-
-![陳美寶表示，現有私家汽車出租法例規管年代久遠，是時候檢視法例。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795945_1_20250316184249.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶表示，現有私家汽車出租法例規管年代久遠，是時候檢視法例，令點對點服務更全面，做到領先而非追落後。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795945-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795945-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795945-20250316.htm)
 
 ---

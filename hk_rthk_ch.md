@@ -1,3 +1,49 @@
+# 甯漢豪對李兆基離世表哀悼
+
+  
+
+恒基地產創辦人李兆基在家人陪伴下，今日黃昏與世長辭，享年97歲。發展局局長甯漢豪對李兆基離世表示哀悼，並向他的家人致以深切慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm)
+
+---
+
+# 再有參加內地團學生腸胃炎　教育局要求承辦機構停用相關用餐地點
+
+  
+
+再有中學訪問內地交流團的學生患上急性腸胃炎，藍田五邑司徒浩中學36名師生上周參加交流團到廈門，期間6名學生陸續出現急性腸胃炎病徵。衞生防護中心初步調查顯示，6名受影響人士除團餐外，並未有進食其他共同食物。教育局表示，現時所有參加者均已返港，不適的學生回港後已逐漸康復，未有痾嘔，亦未有出現新個案。為安全起見，已要求承辦機構停用相關用餐地點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm)
+
+---
+
 # 國台辧：解放軍在台島附近開展演習是維護台海和平正當之舉
 
 ![國台辦稱，解放軍在台島附近開展演習是維護台海和平的正當之舉、必要之舉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796131_1_20250317225020.jpg&q=90)
