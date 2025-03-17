@@ -1,3 +1,27 @@
+# 特朗普：計劃周二與普京通話　認為有很大機會結束俄烏戰爭
+
+![特朗普在「空軍一號」專機上對記者表示，將在周二與普京通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796042_1_20250317125325.jpg&q=90)
+  
+
+美國總統特朗普表示，他計劃周二與俄羅斯總統普京通話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796042-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796042-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796042-20250317.htm)
+
+---
+
 # 周雪梅出任香港駐倫敦經貿辦處長　稱與不同界別合作推廣香港優勢
 
 ![周雪梅今日接替羅莘桉出任香港駐倫敦經濟貿易辦事處處長。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796026_1_20250317124148.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795801-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795801-20250315.htm)
-
----
-
-# 杜特爾特視像出席國際刑事法院聆訊　案件料最快明年初正式開審
-
-![杜特爾特以視像方式出席聆訊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795800_1_20250315021940.jpg&q=90)
-  
-
-荷蘭海牙國際刑事法院就菲律賓前總統杜特爾特，涉嫌違反人類罪舉行首次聆訊，杜特爾特以視像方式出席。法官告知杜特爾特起訴的內容及享有的權利，杜特爾特確認自己的姓名、出生日期和地點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795800-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795800-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795800-20250315.htm)
 
 ---
