@@ -1,3 +1,27 @@
+# HK triathletes race for a spot in National Games
+
+![The Asia Triathlon Sprint Championships will take place on April 5 and 6. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796101_1_20250317182204.jpg&q=85)
+  
+
+Triathletes from the SAR will try to book a spot in this year's National Games by competing in a selection race next month along Victoria Harbour.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm)
+
+---
+
 # An keeps up streak to win All England title
 
 ![An Se-young, right, with China's Wang Zhiyi in Birmingham, England, after their close-fought match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796035_1_20250317122442.jpg&q=80)
@@ -1423,30 +1447,5 @@ Manchester United's dismal season hit a new low as the FA Cup holders crashed ou
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm)
-
----
-
-# Ethiopia dominates Tokyo Marathon
-
-![Ethiopia's Tadese Takele finishes in first place to win the men's category of the Tokyo Marathon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793874_1_20250302145335.jpg&q=90)
-![Ethiopia's Sutume Asefa Kebede finishes in first place to win the women's category of the Tokyo Marathon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793874_2_20250302145335.jpg&q=90)
-  
-
-Ethiopia dominated the competition at the Tokyo Marathon on Sunday, winning both the men's and women's categories.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm)
 
 ---

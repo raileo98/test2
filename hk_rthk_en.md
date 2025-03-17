@@ -1,9 +1,33 @@
-# Animal groups vent concerns on pets aboard trains
+# HK triathletes race for a spot in National Games
 
-![Twenty groups under the Animal Welfare Advocacy Alliance, together with DAB lawmaker Edward Lau, have held talks with MTR officials. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796100_1_20250317182151.jpg&q=90)
+![The Asia Triathlon Sprint Championships will take place on April 5 and 6. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796101_1_20250317182204.jpg&q=85)
   
 
-Animal welfare groups on Monday held talks with MTR Corporation officials now that the railway company is looking into allowing pets on trains.
+Triathletes from the SAR will try to book a spot in this year's National Games by competing in a selection race next month along Victoria Harbour.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm)
+
+---
+
+# Animal groups vent concerns on pets aboard trains
+
+![Twenty groups under the Animal Welfare Advocacy Alliance, together with DAB lawmaker Edward Lau, centre front row, have held talks with MTR officials. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796100_1_20250317182151.jpg&q=90)
+  
+
+Animal welfare groups on Monday held talks with MTR Corporation officials as the railway company looks into allowing pets on trains.
 
   
 
@@ -1415,29 +1439,5 @@ An economist has said that the new law proposed by Beijing to protect and enhanc
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm)
-
----
-
-# Crew launch to ISS to replace stuck astronauts
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795820_1_20250315083347.jpg&q=90)
-  
-
-After more than nine months on the International Space Station, two astronauts are a step closer to returning home following the launch of a crew swap mission on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm)
 
 ---
