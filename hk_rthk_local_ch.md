@@ -1,5 +1,77 @@
+# 公營醫療收費調整　消息：急症室收費分級制　非緊急高過180元
+
+![消息指，政府最快將於本月底公布公營醫療收費調整方案，急症室收費會採取分級制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796096_1_20250317180951.jpg&q=80)
+  
+
+消息指，政府最快將於本月底公布公營醫療收費調整方案，急症室收費會採取分級制，緊急的個案可以免費或獲得減免，至於非緊急的個案，資助會相對減少，亦即收費會高過現時的180元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796096-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796096-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796096-20250317.htm)
+
+---
+
+# 火炭謀殺案警稍後交代案情　消息：兩男一女被捕
+
+![一名52歲男子昨日在火炭被人以刀襲擊，身體多處受傷，昏迷送院後不治。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796094_1_20250317180838.jpg&q=80)
+  
+
+火炭謀殺案，警方拘捕兩男一女，稍後交代案情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796094-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796094-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796094-20250317.htm)
+
+---
+
+# 陳國基稱政府支持娛樂事業發展　林建岳冀製作人發掘利用人工智能
+
+  
+
+政務司司長陳國基表示，特區政府一直支持香港娛樂事業發展，包括由文化體育及旅遊局透過電影發展基金和創意智優計劃提供支持。政府同時支持串流媒體、電視綜藝節目和電影製作的內容開發。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm)
+
+---
+
 # 宋皇臺站兩出口解封　警接報發現行李箱搜查後證實無可疑
 
+![警方搜查後將行李箱帶走。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796092_1_20250317180815.jpg&q=80)
   
 
 港鐵宋皇臺站兩個出口一度封閉搜查可疑物物品，警方搜查後證實並無可疑，B2及B3出口現已解封。
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm)
-
----
-
-# 發展局：今年起以「成熟一項推一項」模式推行減低建造成本措施
-
-![發展局就減低建造成本措施制定了四大具體方向。（發展局社交網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795918_1_20250316121809.jpg&q=90)
-  
-
-發展局表示，政府自2023年第四季開始展開研究，就減低建造成本措施制定了四大具體方向，方向包括優化項目採購模式、善用先進科技及建造技術、精簡審批流程，以及檢視設計標準及要求。政府今年起會以「成熟一項推一項」、先行先試的模式推行相關措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795918-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795918-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795918-20250316.htm)
-
----
-
-# 世界互聯網大會亞太峰會將在港舉行　孫東赴北京明開記者會介紹
-
-![孫東傍晚啓程前往北京，明日與世界互聯網大會秘書長任賢良共同出席新聞發布會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795916_1_20250316120526.jpg&q=75)
-  
-
-創新科技及工業局局長孫東傍晚啓程前往北京，明日與世界互聯網大會秘書長任賢良共同出席新聞發布會，介紹將在香港舉行的世界互聯網大會亞太峰會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm)
-
----
-
-# 李家超與妻子觀看《哪吒2》　稱哪吒精神激勵大家繼續披荊斬棘
-
-![李家超（右）早前與太太到戲院觀賞全國影史票房最高電影《哪吒2之魔童鬧海》。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795913_1_20250316111038.jpg&q=65)
-  
-
-行政長官李家超表示，早前與太太到戲院觀賞全國影史票房最高電影《哪吒2之魔童鬧海》，他說電影充分展示國家動畫製作技術和水平快速發展，讓世界感受中華文化和中國故事的魅力；另一「看點」是配樂由本港青年音樂人操刀，用嗩吶和電結他等樂器為電影添上「港風」，打造中西合璧的視聽盛宴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795913-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795913-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795913-20250316.htm)
 
 ---
