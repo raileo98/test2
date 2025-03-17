@@ -1,3 +1,50 @@
+# 第三輪航空業輸入勞工計劃明起接受申請　涵蓋技工地勤等10工種
+
+  
+
+運輸業輸入勞工計劃當中的航空業計劃將於明日起接受第三輪申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796059-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796059-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796059-20250317.htm)
+
+---
+
+# 滬股全日升幅收窄至約0.2%　創業板跌逾0.5%
+
+![上證指數全日升幅收窄至0.19%，收報3426點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796058_1_20250317150640.jpg&q=90)
+  
+
+內地股市個別發展，乳業、環保設備股上升，醫療、證券、有色金屬股下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796058-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796058-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796058-20250317.htm)
+
+---
+
 # 羅淑佩與新加坡文化、社區及青年部長會面　探討兩地合作機會
 
   

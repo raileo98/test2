@@ -3,7 +3,7 @@
 ![Total retail sales of consumer goods reached over 8.37 trillion yuan, according to official figures. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796017_1_20250317110913.jpg&q=80)
   
 
-Retail sales in China accelerated slightly in the first two months of the year, government data showed on Monday.
+Retail sales in China accelerated in the first two months of the year, government data showed on Monday.
 
   
 

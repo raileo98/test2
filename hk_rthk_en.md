@@ -1,3 +1,27 @@
+# Philippines Senate to probe Duterte handover
+
+![Imee Marcos is the one who set the wheels in motion for the senate probe.  Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796060_1_20250317151836.jpg&q=90)
+  
+
+The Philippine Senate said on Monday it will conduct a formal probe of ex-president Rodrigo Duterte's arrest and swift handover last week to the International Criminal Court, which is to try him for alleged crimes against humanity.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm)
+
+---
+
 # New transit route 'needs to seamlessly link Kai Tak'
 
 ![The proposed mass transit system will connect the Kai Tak MTR Station with the Kai Tak Cruise Terminal with six stations in total. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796048_1_20250317132335.jpg&q=85)
@@ -196,7 +220,7 @@ The Consumer Council on Monday encouraged people to nap on mattresses – some o
 ![Total retail sales of consumer goods reached over 8.37 trillion yuan, according to official figures. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796017_1_20250317110913.jpg&q=80)
   
 
-Retail sales in China accelerated slightly in the first two months of the year, government data showed on Monday.
+Retail sales in China accelerated in the first two months of the year, government data showed on Monday.
 
   
 
@@ -1415,29 +1439,5 @@ Thomas Tuchel said Marcus Rashford and Jordan Henderson are contenders for Engla
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm)
-
----
-
-# Man arrested for allegedly assaulting a nurse
-
-![Kwong Wah Hospital says the male nurse sustained injuries to his arm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795779_1_20250314214019.jpg&q=90)
-  
-
-A male visitor at Kwong Wah Hospital has been arrested for allegedly assaulting a nurse.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795779-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795779-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795779-20250314.htm)
 
 ---

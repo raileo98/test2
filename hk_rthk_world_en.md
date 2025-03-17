@@ -1,3 +1,27 @@
+# Philippines Senate to probe Duterte handover
+
+![Imee Marcos is the one who set the wheels in motion for the senate probe.  Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796060_1_20250317151836.jpg&q=90)
+  
+
+The Philippine Senate said on Monday it will conduct a formal probe of ex-president Rodrigo Duterte's arrest and swift handover last week to the International Criminal Court, which is to try him for alleged crimes against humanity.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm)
+
+---
+
 # Mass layoffs begin at Voice of America
 
 ![Contractual staff at Voice of America have been told they are terminated as of this end of this month. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796015_1_20250317104956.jpg&q=90)
@@ -1413,29 +1437,5 @@ Protesters in New York and rights groups expressed outrage on Monday over the ar
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795219-20250311.htm)
-
----
-
-# Search ends for missing crew after North Sea collision
-
-![Footage shows flames and smoke rising from a collision between an oil tanker and a cargo ship off the northeastern coast of England. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795210_1_20250311093602.jpg&q=90)
-  
-
-The UK coastguard ended the search for a missing crew member after a cargo ship ran into a US-military charted tanker carrying jet fuel in the North Sea on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795210-20250311.htm)
 
 ---

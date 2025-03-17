@@ -1,3 +1,26 @@
+# 第三輪航空業輸入勞工計劃明起接受申請　涵蓋技工地勤等10工種
+
+  
+
+運輸業輸入勞工計劃當中的航空業計劃將於明日起接受第三輪申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796059-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796059-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796059-20250317.htm)
+
+---
+
 # 羅淑佩與新加坡文化、社區及青年部長會面　探討兩地合作機會
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795878-20250315.htm)
-
----
-
-# 甯漢豪：青協將昔日粉嶺裁判法院活化　為歷史建築賦予新生命
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795876_1_20250315203255.jpg&q=90)
-  
-
-發展局局長甯漢豪表示，香港青年協會將昔日的粉嶺裁判法院，活化為培育青年領袖的學院，認為是為歷史建築賦予新生命。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795876-20250315.htm)
 
 ---
