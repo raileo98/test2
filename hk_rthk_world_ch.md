@@ -1,3 +1,28 @@
+# 卡尼訪問法國和英國　強調會盡可能與美國保持積極關係
+
+![卡尼在唐寧街10號與英國首相施紀賢會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796148_1_20250318042915.jpg&q=85)
+![卡尼較早時亦到白金漢宮拜會加拿大國家元首、英王查理斯三世。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796148_2_20250318042915.jpg&q=90)
+  
+
+加拿大新總理卡尼到訪巴黎及倫敦，是他上任後首度外訪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm)
+
+---
+
 # 剛果民主共和國反政府武裝M23決定不參與和談
 
 ![M23運動批評，某些國際機構故意破壞和平努力，圖為M23武裝份子。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796146_1_20250318032819.jpg&q=80)
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm)
-
----
-
-# 施紀賢稱達成停火後西方國家將組「自願聯盟」助確保烏克蘭安全
-
-![施紀賢強調，停火計劃必須與美國共同完成。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795882_1_20250315214928.jpg&q=90)
-  
-
-英國首相施紀賢與來自歐盟、加拿大及北約等大約25位領導人舉行視像會議，討論烏克蘭問題。施紀賢在開場發言時，指責俄羅斯總統普京試圖拖延和談，他說，如果普京對和平是認真，就必須停止攻擊烏克蘭，並同意停火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795882-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795882-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795882-20250315.htm)
 
 ---
