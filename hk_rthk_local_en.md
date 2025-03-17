@@ -1,3 +1,27 @@
+# Healthcare co-payment levels 'should be capped'
+
+![The government has said it hopes to adjust hospital fees to a level where any payment by a patient would be reasonable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796019_1_20250317112442.jpg&q=90)
+  
+
+A former senior Hospital Authority official has called for caution in setting co-payment levels for healthcare services after the government said it'll consider charging patients separately for certain check-ups.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm)
+
+---
+
 # Try out beds before purchasing: consumer watchdog
 
 ![The Consumer Council says that prices do not necessarily reflect the quality of mattresses. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
@@ -1412,29 +1436,5 @@ A deputy director of the Hong Kong and Macau Affairs Office on Monday said he do
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm)
-
----
-
-# Deliveroo to exit HK, sack 200 staff
-
-![Deliveroo says its service platform will operate until April 7. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795116_1_20250310160730.jpg&q=90)
-  
-
-Online food delivery firm Deliveroo said on Monday it is exiting Hong Kong for financial reasons, after operating in the SAR for nine years.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795116-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795116-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795116-20250310.htm)
 
 ---

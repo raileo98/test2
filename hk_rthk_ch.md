@@ -1,3 +1,26 @@
+# 周雪梅出任香港駐倫敦經貿辦處長　稱與不同界別合作推廣香港優勢
+
+  
+
+政府公布，周雪梅今日接替羅莘桉出任香港駐倫敦經濟貿易辦事處處長。作為香港特區政府駐倫敦的代表，周雪梅負責促進香港與英國及其他八個國家的雙邊關係，包括丹麥、愛沙尼亞、芬蘭、拉脫維亞、立陶宛、挪威、俄羅斯和瑞典。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm)
+
+---
+
 # 北韓譴責七國集團討論朝核問題　強調將加強自身核力量
 
 ![北韓領袖金正恩日前到船廠參觀，視察核潛艇。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796025_1_20250317113936.jpg&q=90)
@@ -72,6 +95,7 @@
 
 # 世界互聯網大會亞太峰會下月港舉行　孫東稱體現香港創科合作樞紐
 
+![孫東指現時香港正全力打造國際創新科技中心，形容對未來創科產業的發展已進入快車道，人工智能、數據、機械人等被列入重點發展範疇。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796020_1_20250317115235.jpg&q=80)
   
 
 世界互聯網大會亞太峰會，將於4月14至15日首度在香港舉行，創新科技及工業局局長孫東早上在北京出席新聞發布會。他表示大會選址香港作為2025年亞太峰會的主辦城市，正好體現香港是環球創科合作的樞紐，外界傳統上認為香港是金融中心、貿易中心、航運中心，現時香港正全力打造國際創新科技中心，形容對未來創科產業的發展已進入快車道，人工智能、數據、機械人等被列入重點發展範疇。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795946-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795946-20250316.htm)
-
----
-
-# 陳美寶稱私家汽車出租法例規管年代久遠是時候檢視
-
-![陳美寶表示，現有私家汽車出租法例規管年代久遠，是時候檢視法例。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795945_1_20250316184249.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶表示，現有私家汽車出租法例規管年代久遠，是時候檢視法例，令點對點服務更全面，做到領先而非追落後。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795945-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795945-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795945-20250316.htm)
 
 ---

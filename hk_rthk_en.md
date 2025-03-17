@@ -1,3 +1,27 @@
+# Healthcare co-payment levels 'should be capped'
+
+![The government has said it hopes to adjust hospital fees to a level where any payment by a patient would be reasonable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796019_1_20250317112442.jpg&q=90)
+  
+
+A former senior Hospital Authority official has called for caution in setting co-payment levels for healthcare services after the government said it'll consider charging patients separately for certain check-ups.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm)
+
+---
+
 # Try out beds before purchasing: consumer watchdog
 
 ![The Consumer Council says that prices do not necessarily reflect the quality of mattresses. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
@@ -1414,29 +1438,5 @@ Stargazers across a swathe of the world marvelled at a dramatic red "Blood Moon"
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm)
-
----
-
-# Hospitals may start charging for CT and MRI scans
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795727_1_20250314162533.jpg&q=80)
-  
-
-Secretary for Health Lo Chung-mau said on Friday the government is reviewing fees and charges for public hospital services, including charging for such services as CT scans and MRIs to prevent abuse.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795727-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795727-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795727-20250314.htm)
 
 ---

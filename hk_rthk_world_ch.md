@@ -1,3 +1,26 @@
+# 周雪梅出任香港駐倫敦經貿辦處長　稱與不同界別合作推廣香港優勢
+
+  
+
+政府公布，周雪梅今日接替羅莘桉出任香港駐倫敦經濟貿易辦事處處長。作為香港特區政府駐倫敦的代表，周雪梅負責促進香港與英國及其他八個國家的雙邊關係，包括丹麥、愛沙尼亞、芬蘭、拉脫維亞、立陶宛、挪威、俄羅斯和瑞典。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm)
+
+---
+
 # 北韓譴責七國集團討論朝核問題　強調將加強自身核力量
 
 ![北韓領袖金正恩日前到船廠參觀，視察核潛艇。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796025_1_20250317113936.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795800-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795800-20250315.htm)
-
----
-
-# 伊拉克總理稱擊斃伊斯蘭國在伊拉克和敘利亞的頭目
-
-![蘇達尼說，情報部門成功擊斃伊斯蘭國在伊拉克和敘利亞的頭目拉菲依。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795799_1_20250315021210.jpg&q=90)
-  
-
-伊拉克總理蘇達尼表示，極端組織伊斯蘭國在伊拉克和敘利亞的頭目已被打死。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795799-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795799-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795799-20250315.htm)
 
 ---
