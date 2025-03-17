@@ -1,3 +1,27 @@
+# Animal groups vent concerns on pets aboard trains
+
+![Twenty groups under the Animal Welfare Advocacy Alliance, together with DAB lawmaker Edward Lau, have held talks with MTR officials. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796100_1_20250317182151.jpg&q=90)
+  
+
+Animal welfare groups on Monday held talks with MTR Corporation officials now that the railway company is looking into allowing pets on trains.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796100-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796100-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796100-20250317.htm)
+
+---
+
 # Stocks end up on news of China's consumption drive
 
 ![The Hang Seng Index rose 0.77 percent to close at 24,145.57. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796083_1_20250317174259.jpg&q=75)
@@ -1415,29 +1439,5 @@ After more than nine months on the International Space Station, two astronauts a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm)
-
----
-
-# US share gains cut into week's losses
-
-![On Friday, all 11 sectors of the S&P 500 posted gains, while the Dow index was mostly up. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795808_1_20250315054816.jpg&q=85)
-  
-
-Wall Street stocks finished higher on Friday following bargain hunting that reduced the week's losses amid recession worries over President Trump's shifting tariff policy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm)
 
 ---

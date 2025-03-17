@@ -1,3 +1,27 @@
+# 融創中國去年虧損急增至255億至260億元人民幣
+
+![融創中國預料，去年虧損大幅增至255億元至260億元人民幣。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796095_1_20250317180639.jpg&q=90)
+  
+
+融創中國發盈利警告，預料去年虧損大幅增至255億元至260億元人民幣，虧損遠多於前年的約79.7億元，由於部分境內債務重組收益於前年入帳，撇除這因素，虧損按年減少。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796095-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796095-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796095-20250317.htm)
+
+---
+
 # 發改委：部門要落實促進居民「增收減負」及處理「加班文化」問題
 
   
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795812-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795812-20250315.htm)
-
----
-
-# 油價反彈1%　關注俄烏停火進展
-
-![油價反彈，布蘭特期油收報每桶70.58美元，升1%，本周累計升0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795811_1_20250315055837.jpg&q=90)
-  
-
-油價反彈，全星期計微升。俄羅斯總統普京表示，俄方原則上支持美國提出的停火建議，但補充附加條件，市場關注俄烏戰事能否迅速結束。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795811-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795811-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795811-20250315.htm)
 
 ---

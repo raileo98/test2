@@ -1,3 +1,50 @@
+# 融創中國去年虧損急增至255億至260億元人民幣
+
+![融創中國預料，去年虧損大幅增至255億元至260億元人民幣。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796095_1_20250317180639.jpg&q=90)
+  
+
+融創中國發盈利警告，預料去年虧損大幅增至255億元至260億元人民幣，虧損遠多於前年的約79.7億元，由於部分境內債務重組收益於前年入帳，撇除這因素，虧損按年減少。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796095-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796095-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796095-20250317.htm)
+
+---
+
+# 俄方證實正籌備總統普京與特朗普通話
+
+  
+
+美國總統特朗普表示，他計劃周二與俄羅斯總統普京通話，討論結束俄烏戰爭。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796104-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796104-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796104-20250317.htm)
+
+---
+
 # 就澤連斯基稱重建冀獲中國援助　國合署：願提供力所能及幫助
 
   
