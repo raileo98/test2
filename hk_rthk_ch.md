@@ -1,3 +1,26 @@
+# 外交部：中方反對任何加劇紅海局勢升級的行動
+
+  
+
+也門胡塞武裝說，美軍自上周六以來對也門的空襲已造成53人死亡，包括婦女和兒童，另有98人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm)
+
+---
+
 # 美國多州遭龍捲風等惡劣天氣影響　增至最少40人死亡
 
 ![在阿拉巴馬州，民眾到被龍捲風吹襲的房屋了解受損情況。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796064_1_20250317154024.jpg&q=75)

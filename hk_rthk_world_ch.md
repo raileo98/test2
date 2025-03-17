@@ -1,3 +1,26 @@
+# 外交部：中方反對任何加劇紅海局勢升級的行動
+
+  
+
+也門胡塞武裝說，美軍自上周六以來對也門的空襲已造成53人死亡，包括婦女和兒童，另有98人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm)
+
+---
+
 # 美國多州遭龍捲風等惡劣天氣影響　增至最少40人死亡
 
 ![在阿拉巴馬州，民眾到被龍捲風吹襲的房屋了解受損情況。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796064_1_20250317154024.jpg&q=75)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm)
-
----
-
-# 普京稱俄美關係有進展　若庫爾斯克州烏軍投降會保證安全
-
-![普京以視像方式出席俄羅斯聯邦安全會議常務委員會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795803_1_20250315042230.jpg&q=90)
-  
-
-俄羅斯總統普京表示，俄美關係已經有所進展，俄方注意到由特朗普領導的新一屆美國政府，正在為改善俄美雙邊關係努力，但恢復雙邊關係的過程不簡單，可以說是複雜，俄方對後續進展保持關注。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795803-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795803-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795803-20250315.htm)
 
 ---

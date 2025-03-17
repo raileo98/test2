@@ -1,3 +1,27 @@
+# Mt Fuji entry fee set for hikers
+
+![Hikers near the popular Yoshida trail, which will see a doubling of the fee, up Mount Fuji. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796065_1_20250317160637.jpg&q=70)
+  
+
+Hikers attempting any of Mount Fuji's four main trails will be charged an entry fee of 4,000 from this summer, after local authorities passed a bill on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm)
+
+---
+
 # Trump and Putin to discuss Ukraine this week
 
 ![US officials have expressed optimism that a Ukraine-Russia ceasefire deal could be reached in weeks. Photo combo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796061_1_20250317152607.jpg&q=90)
@@ -1413,29 +1437,5 @@ Former Philippine president Rodrigo Duterte was arrested by police at Manila's i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm)
-
----
-
-# Carney vows 'quick' transition to new government
-
-![Former Bank of Canada and Bank of England governor Mark Carney will succeed Justin Trudeau as Canadian PM later this week. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795221_1_20250311110611.jpg&q=90)
-  
-
-Canada's incoming prime minister Mark Carney has promised a "smooth" and "quick" transition from Justin Trudeau after his convincing win in the ruling Liberal Party's leadership race.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795221-20250311.htm)
 
 ---

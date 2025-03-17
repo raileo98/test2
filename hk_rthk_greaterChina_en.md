@@ -118,9 +118,33 @@ CCTV news says a People's Liberation Army naval fighter jet crashed on Saturday 
 
 ---
 
+# 'Govt can do more to promote internationalisation'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795830_1_20250315105816.jpg&q=85)
+  
+
+Hong Kong’s sole delegate to the nation’s top legislature, Starry Lee, on Saturday called on the government to continue to coordinate with other major cities around the world to further strengthen the SAR's position across fields.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm)
+
+---
+
 # 'New private sector law must be rolled out gradually'
 
-![Last week, the nation’s top legislators tabled the 'private economy promotion law', aimed at creating a fairer business environment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795827_2_20250315105255.jpg&q=85)
+![Last week, legislators tabled the private economy promotion law, which is aimed at creating a fairer business environment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795827_2_20250315105255.jpg&q=85)
   
 
 An economist has said that the new law proposed by Beijing to protect and enhance the country's private sector could help address "grey areas" facing private business, but cautioned that it should be gradually rolled out to avoid stifling opportunities.
@@ -1413,29 +1437,5 @@ Hong Kong and Macau have the full backing of the central government in integrati
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm)
-
----
-
-# 'Mild inflation target still a concern'
-
-![China has lowered its inflation target for the year from 3% to 2%. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794419_1_20250305181546.jpg&q=90)
-  
-
-Economists have struck a cautious note on China's plan to lower the nation's inflation target from three to two percent in the coming year, citing prolonged deflationary pressure.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794419-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794419-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794419-20250305.htm)
 
 ---

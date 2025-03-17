@@ -1,3 +1,26 @@
+# 外交部：中方反對任何加劇紅海局勢升級的行動
+
+  
+
+也門胡塞武裝說，美軍自上周六以來對也門的空襲已造成53人死亡，包括婦女和兒童，另有98人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm)
+
+---
+
 # 首兩月社會消費品零售總額增4%　發改委稱以舊換新政策帶動
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795603-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795603-20250313.htm)
-
----
-
-# 人行：今年將擇機降準降息　研究創設新結構性貨幣政策工具
-
-![人行黨委召開擴大會議，指出今年將擇機降準降息，並研究創設新的結構性貨幣政策工具。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795589_1_20250313175730.jpg&q=75)
-  
-
-人民銀行黨委召開擴大會議，指出今年將根據國內外經濟金融形勢和金融市場運行情況，擇機降準降息，並研究創設新的結構性貨幣政策工具，重點支持科技創新領域投融資、促進消費和穩定外貿。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795589-20250313.htm)
 
 ---
