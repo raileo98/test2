@@ -1,5 +1,55 @@
+# 陳茂波：李兆基的仁愛與溫情會繼續照亮社會
+
+![李兆基黃昏在家人陪伴下與世長辭。（恆地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796136_1_20250317232019.jpg&q=90)
+  
+
+財政司司長陳茂波表示，驚悉李兆基博士離世，心裡無比沉重，向他的家人致以最深切的慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm)
+
+---
+
+# 兩名香港代表獲選第六批國家級非物質文化遺產代表性傳承人
+
+![黃大仙信俗的代表、嗇色園黃大仙祠監院（義覺）道長李耀輝都獲入傳承人名單。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796135_1_20250317232046.jpg&q=90)
+![西貢坑口客家舞麒麟的代表劉錦棠在名單之內。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796135_2_20250317232046.jpg&q=90)
+  
+
+西貢坑口客家舞麒麟傳承人劉錦棠以及黃大仙信俗文化傳承人李耀輝，獲選為第六批「國家級非物質文化遺產代表性傳承人」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm)
+
+---
+
 # 甯漢豪和何永賢對李兆基離世表示哀悼
 
+![甯漢豪（右）及何永賢（左）均對李兆基離世表示哀悼。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796133_1_20250317231924.jpg&q=85)
   
 
 恒基地產創辦人李兆基在家人陪伴下，今日黃昏與世長辭，享年97歲。
@@ -23,6 +73,7 @@
 
 # 再有參加內地團學生腸胃炎　教育局要求承辦機構停用相關用餐地點
 
+![教育局表示，為安全起見，已要求承辦機構停用相關用餐地點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796132_1_20250317231354.jpg&q=90)
   
 
 再有中學訪問內地交流團的學生患上急性腸胃炎，藍田五邑司徒浩中學36名師生上周參加交流團到廈門，期間6名學生陸續出現急性腸胃炎病徵。衞生防護中心初步調查顯示，6名受影響人士除團餐外，並未有進食其他共同食物。教育局表示，現時所有參加者均已返港，不適的學生回港後已逐漸康復，未有痾嘔，亦未有出現新個案。為安全起見，已要求承辦機構停用相關用餐地點。
@@ -1389,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm)
-
----
-
-# 外交部駐港公署：美英等國干涉香港事務和中國內政　注定徒勞無功
-
-![發言人說，公署敦促有關國家立即停止以任何手段干預香港事務和中國內政。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795950_1_20250316191423.jpg&q=90)
-  
-
-外交部駐港公署發言人說，美國、英國、加拿大等國常駐聯合國機構官員公然會見有關反中亂港首惡分子的家屬及所謂「律師團隊」，為反中亂港勢力撐腰，抹黑香港特區法治，干涉香港事務和中國內政，公署表示強烈不滿和堅決反對，有關行徑注定徒勞無功。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm)
-
----
-
-# 團體建議加强公眾認識有特殊教育需要小學生　鼓勵雙向共融
-
-![調查發現，近五成育有SEN兒童的受訪家長說，曾因子女行為受到不友善對待。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795947_1_20250316184414.jpg&q=90)
-  
-
-政府統計處數字顯示，截至上個學年，本港有3萬1千多名SEN、即有特殊教育需要的小學生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795947-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795947-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795947-20250316.htm)
 
 ---

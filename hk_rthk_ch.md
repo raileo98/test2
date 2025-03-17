@@ -1,3 +1,52 @@
+# 陳茂波：李兆基的仁愛與溫情會繼續照亮社會
+
+![李兆基黃昏在家人陪伴下與世長辭。（恆地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796136_1_20250317232019.jpg&q=90)
+  
+
+財政司司長陳茂波表示，驚悉李兆基博士離世，心裡無比沉重，向他的家人致以最深切的慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm)
+
+---
+
+# 兩名香港代表獲選第六批國家級非物質文化遺產代表性傳承人
+
+![黃大仙信俗的代表、嗇色園黃大仙祠監院（義覺）道長李耀輝都獲入傳承人名單。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796135_1_20250317232046.jpg&q=90)
+![西貢坑口客家舞麒麟的代表劉錦棠在名單之內。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796135_2_20250317232046.jpg&q=90)
+  
+
+西貢坑口客家舞麒麟傳承人劉錦棠以及黃大仙信俗文化傳承人李耀輝，獲選為第六批「國家級非物質文化遺產代表性傳承人」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm)
+
+---
+
 # 香港結算：繼續與相關監管機構合作協助剔除新股重複認購
 
 ![港交所旗下香港結算發出通告，表示繼續與相關監管機構合作，審視FINI相關運作流程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796134_1_20250317230629.jpg&q=90)
@@ -24,6 +73,7 @@
 
 # 甯漢豪和何永賢對李兆基離世表示哀悼
 
+![甯漢豪（右）及何永賢（左）均對李兆基離世表示哀悼。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796133_1_20250317231924.jpg&q=85)
   
 
 恒基地產創辦人李兆基在家人陪伴下，今日黃昏與世長辭，享年97歲。
@@ -47,6 +97,7 @@
 
 # 再有參加內地團學生腸胃炎　教育局要求承辦機構停用相關用餐地點
 
+![教育局表示，為安全起見，已要求承辦機構停用相關用餐地點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796132_1_20250317231354.jpg&q=90)
   
 
 再有中學訪問內地交流團的學生患上急性腸胃炎，藍田五邑司徒浩中學36名師生上周參加交流團到廈門，期間6名學生陸續出現急性腸胃炎病徵。衞生防護中心初步調查顯示，6名受影響人士除團餐外，並未有進食其他共同食物。教育局表示，現時所有參加者均已返港，不適的學生回港後已逐漸康復，未有痾嘔，亦未有出現新個案。為安全起見，已要求承辦機構停用相關用餐地點。
