@@ -1,3 +1,27 @@
+# 美元兌歐元處於5個月低位附近
+
+![歐元兌美元較早時報1.092美元，上升約0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796159_1_20250318060405.jpg&q=90)
+  
+
+美元指數偏軟，較早時報103.4，下跌約0.3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796159-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796159-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796159-20250318.htm)
+
+---
+
 # 金價重上3000美元　市場關注聯儲局議息結果
 
 ![金價重上每盎司3000美元，市場關注聯儲局本周議息結果及會後聲明。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796157_1_20250318055313.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795993-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795993-20250317.htm)
-
----
-
-# 萬科海外料去年業績轉虧約5000萬元　受開發物業撥備影響
-
-![萬科海外預期年度業績虧損約5000萬元。前年同期錄得盈利2800萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795985_1_20250317080700.jpg&q=90)
-  
-
-萬科海外預期，至去年底年度業績虧損約5000萬元。前年同期錄得盈利2800萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795985-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795985-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795985-20250317.htm)
 
 ---
