@@ -1,3 +1,27 @@
+# An keeps up streak to win All England title
+
+![An Se Young with China's Wang Zhi Yi in Birmingham, England, after their close-fought match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796035_1_20250317122442.jpg&q=80)
+  
+
+Olympic women's badminton champion An Se-young came from behind to beat China's Wang Zhiyi 13-21, 21-18, 21-18 in a classic All England Open final as top seed Shi Yuqi lifted the men's crown.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796035-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796035-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796035-20250317.htm)
+
+---
+
 # 'Task force on gastro outbreak among students needed'
 
 ![A local education concern group says the task force is needed to ensure the safety of students. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796027_1_20250317115245.jpg&q=85)
@@ -48,10 +72,10 @@ A former senior Hospital Authority official has called for caution in setting co
 
 # Try out beds before purchasing: consumer watchdog
 
-![The Consumer Council says that prices do not necessarily reflect the quality of mattresses. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
+![The Consumer Council says a mattress' price does not necessarily reflect its quality. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
   
 
-The Consumer Council on Monday urged people to try out different sleeping postures on mattresses – some of which were found to provide inadequate support – before making a purchase.
+The Consumer Council on Monday encouraged people to nap on mattresses – some of which were found to provide inadequate support – before making a purchase.
 
   
 
@@ -1414,29 +1438,5 @@ Education minister Christine Choi said on Friday the government was left with li
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm)
-
----
-
-# New AI tool helps SMEs with green transition
-
-![HKGCC chair Agnes Chan says that the AI-empowered tool will support small businesses to develop ESG audit without significant costs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795746_2_20250314170438.jpg&q=90)
-  
-
-Hong Kong businesses, specially small and medium-sized ones, are set to receive a boost to enhance their environmental, social and governance practices with the launch of a new AI tool to help them comply with rules.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm)
 
 ---

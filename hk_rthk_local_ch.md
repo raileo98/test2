@@ -1,3 +1,72 @@
+# 強積金對沖安排5月取消　鄧家彪籲僱主勿因擔心負擔增加解僱員工
+
+  
+
+強積金對沖安排將於5月1日起取消，工聯會立法會議員鄧家彪呼籲僱主不要因為擔心負擔增加而解僱員工，新安排下不設追溯期，如果僱主趕在5月1日前解僱員工，可能要給予的遣散費會更多，同時亦未必可以即時聘請到新人填補空缺。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm)
+
+---
+
+# 支援長者及照顧者計劃下月擴至全港　議員關注如何找出隱蔽長者
+
+  
+
+去年施政報告提出，今年第二季將關愛隊支援長者及照顧者計劃，擴展至全港18區。社署預計下月開始提供服務，各關愛隊預料在12個月的計劃期內，接觸超過6萬個有需要住戶，署方會向關愛隊提供培訓，以掌握基本溝通技巧和相關地區福利服務資訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796032-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796032-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796032-20250317.htm)
+
+---
+
+# 消委會檢視標榜防曬妝前底霜　逾8成或干擾內分泌及引起光過敏
+
+  
+
+消委會檢視市面超過30款妝前底霜，在20款標榜具防曬效能的樣本中，發現超過8成都含有可能干擾內分泌，以及引起光過敏反應的成分。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796031-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796031-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796031-20250317.htm)
+
+---
+
 # 調查指非政府機構僱員男女比例相若　近半享有較僱傭條例優厚福利
 
   
@@ -121,7 +190,7 @@
 ![20款標榜具防曬效能的妝前底霜樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796010_1_20250317103858.jpg&q=85)
   
 
-消委會就市面上37款妝前底霜進行檢視，在當中20款標榜具防曬效能的樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。干擾內分泌的物質或會影響性荷爾蒙，有機會削弱生殖能力、導致新生嬰兒生殖器出現異常。
+消委會檢視市面上37款妝前底霜，當中20款標榜具防曬效能的樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。干擾內分泌的物質或會影響性荷爾蒙，有機會削弱生殖能力、導致新生嬰兒生殖器出現異常。
 
   
 
@@ -1366,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795854-20250315.htm)
-
----
-
-# 暴雨警告生效　勞工處提醒進行電力工作時須確保安全
-
-![勞工處提醒僱主及承建商，當僱員在進行電力工作或處理電力作業裝置時，須採取所需的工作安排及適當安全措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795852_1_20250315152952.jpg&q=80)
-  
-
-勞工處表示，鑑於天文台已發出暴雨警告，提醒僱主及承建商，當僱員在進行電力工作或處理電力作業裝置時，須採取所需的工作安排及適當安全措施，以保障僱員的安全。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795852-20250315.htm)
-
----
-
-# 黃色暴雨警告信號生效　天文台料本港短期內或受冰雹影響
-
-![黃色暴雨警告信號生效　天文台料本港短期內或受冰雹影響](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795850_1_20250315150428.jpg&q=90)
-  
-
-天文台在下午3時發出黃色暴雨警告信號，雷暴警告亦正生效，天文台預料本港在短期內可能受冰雹影響，市民請提高警惕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795850-20250315.htm)
-
----
-
-# 社署嘉許禮20周年　杜永恒稱得獎者展現勇氣及堅毅不屈精神
-
-![44名接受社署署長監護及東華三院住宿照顧服務的兒童及青少年，分別獲頒「最佳成就獎」或「最佳進步獎」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795849_1_20250315150249.jpg&q=80)
-  
-
-截至去年底，共有788名兒童及青少年受社會福利署署長監護，有44名接受社署署長監護及東華三院住宿照顧服務的兒童及青少年，分別獲頒「最佳成就獎」或「最佳進步獎」。社署署長杜永恒在嘉許禮致辭時表示，嘉許禮踏入20周年，得獎者面對挑戰時展現勇氣和堅毅不屈的精神，是其他兒童及青少年的良好榜樣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm)
 
 ---

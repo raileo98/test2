@@ -1,3 +1,142 @@
+# 國家統計局：新屋銷售基本穩定　但部分地區樓市仍在調整
+
+  
+
+內地今年首兩個月新建商品房銷售面積及銷售額按年跌幅，分別大幅收窄至5.1%和2.6%，扭轉去年全年的雙位數跌幅；兩者去年同期的跌幅都超過兩成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm)
+
+---
+
+# 強積金對沖安排5月取消　鄧家彪籲僱主勿因擔心負擔增加解僱員工
+
+  
+
+強積金對沖安排將於5月1日起取消，工聯會立法會議員鄧家彪呼籲僱主不要因為擔心負擔增加而解僱員工，新安排下不設追溯期，如果僱主趕在5月1日前解僱員工，可能要給予的遣散費會更多，同時亦未必可以即時聘請到新人填補空缺。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm)
+
+---
+
+# 支援長者及照顧者計劃下月擴至全港　議員關注如何找出隱蔽長者
+
+  
+
+去年施政報告提出，今年第二季將關愛隊支援長者及照顧者計劃，擴展至全港18區。社署預計下月開始提供服務，各關愛隊預料在12個月的計劃期內，接觸超過6萬個有需要住戶，署方會向關愛隊提供培訓，以掌握基本溝通技巧和相關地區福利服務資訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796032-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796032-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796032-20250317.htm)
+
+---
+
+# 消委會檢視標榜防曬妝前底霜　逾8成或干擾內分泌及引起光過敏
+
+  
+
+消委會檢視市面超過30款妝前底霜，在20款標榜具防曬效能的樣本中，發現超過8成都含有可能干擾內分泌，以及引起光過敏反應的成分。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796031-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796031-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796031-20250317.htm)
+
+---
+
+# 內地首兩個月主要經濟數據符合或好過市場預期
+
+  
+
+內地今年首兩個月主要經濟數據符合或好於市場預期，新建商品房銷售按年跌幅亦顯著收窄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796030-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796030-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796030-20250317.htm)
+
+---
+
+# 恒指半日升316點　成交逾1400億元　港交所升逾4%
+
+![恒指企半日收市報24276點，升316點，升1.32%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796029_1_20250317120836.jpg&q=65)
+  
+
+港股反覆造好，恒指企穩24000點以上，今早高位觸及24352點，升近400點，半日收市報24276點，升316點，升1.32%，半日主板成交額近1418億元
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796029-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796029-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796029-20250317.htm)
+
+---
+
 # 調查指非政府機構僱員男女比例相若　近半享有較僱傭條例優厚福利
 
   
@@ -312,7 +451,7 @@
 ![20款標榜具防曬效能的妝前底霜樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796010_1_20250317103858.jpg&q=85)
   
 
-消委會就市面上37款妝前底霜進行檢視，在當中20款標榜具防曬效能的樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。干擾內分泌的物質或會影響性荷爾蒙，有機會削弱生殖能力、導致新生嬰兒生殖器出現異常。
+消委會檢視市面上37款妝前底霜，當中20款標榜具防曬效能的樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。干擾內分泌的物質或會影響性荷爾蒙，有機會削弱生殖能力、導致新生嬰兒生殖器出現異常。
 
   
 
@@ -1290,149 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm)
-
----
-
-# 假冒學校校長及教職員電騙　6人被捕涉款52萬元
-
-![警方相信騙徒假冒學校校長、教職員等致電學校校務處，要求校工接聽，再訛稱急需現金，欺騙他們轉帳。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795956_1_20250316211512.jpg&q=40)
-  
-
-警方搗破一個詐騙集團，涉嫌招聘非華裔人士開設傀儡戶口，及登記電話卡，並發現有騙徒致電學校，訛稱是受害人的同事以騙取金錢。至今有6人被捕，包括3名外傭、2名本地男子及一名非華裔男子，年齡介乎23至44歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795956-20250316.htm)
-
----
-
-# 52歲男子火炭被斬傷重不治　警方追緝兩名約20歲在逃疑兇
-
-![現場留下大灘血跡，警員事後拉起封鎖線調查。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795955_1_20250316205750.jpg&q=80)
-  
-
-一名52歲男子下午在火炭被斬至重傷昏迷，送往威爾斯醫院搶救後不治，警方列作謀殺案處理，並追緝兩名穿黑衣、年約20歲的男子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795955-20250316.htm)
-
----
-
-# 日本沖繩縣知事反對部署長程導彈
-
-![日本沖繩縣知事玉城丹尼反對部署長程導彈。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795954_1_20250316204834.jpg&q=90)
-  
-
-日本沖繩縣知事玉城丹尼在宜野灣市與內閣官房長官林芳正會面時表示，反對部署將用於反擊能力的長程導彈。他說，今後若計劃將導彈部署在沖繩縣內，可以預見會導致基地負擔增加，並有風險會成為被攻擊對象，得不到縣民的理解。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm)
-
----
-
-# 北馬其頓夜總會大火增至59死　警方向4名懷疑涉案人士發拘捕令
-
-![當局到發生大火的夜總會調查起火原因。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795953_1_20250316201014.jpg&q=90)
-  
-
-歐洲巴爾幹半島國家北馬其頓一間夜總會舉行音樂會期間發生大火，增至59人死亡，超過150人受傷。當局初步懷疑，音樂會煙火裝置產生的火花點燃了天花板，引致火警。警方拘留夜總會東主協助調查，又向4名懷疑涉案人士發出拘捕令。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795953-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795953-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795953-20250316.htm)
-
----
-
-# 澤連斯基：烏俄停火不應與領土問題掛鉤
-
-![澤連斯基在基輔舉行記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795951_1_20250316194009.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基強調，烏俄兩國停火的第一步不應與領土問題掛鉤。他同時表示，烏克蘭不會承認被佔領土屬於俄羅斯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm)
-
----
-
-# 外交部駐港公署：美英等國干涉香港事務和中國內政　注定徒勞無功
-
-![發言人說，公署敦促有關國家立即停止以任何手段干預香港事務和中國內政。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795950_1_20250316191423.jpg&q=90)
-  
-
-外交部駐港公署發言人說，美國、英國、加拿大等國常駐聯合國機構官員公然會見有關反中亂港首惡分子的家屬及所謂「律師團隊」，為反中亂港勢力撐腰，抹黑香港特區法治，干涉香港事務和中國內政，公署表示強烈不滿和堅決反對，有關行徑注定徒勞無功。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm)
 
 ---

@@ -1,3 +1,73 @@
+# 國家統計局：新屋銷售基本穩定　但部分地區樓市仍在調整
+
+  
+
+內地今年首兩個月新建商品房銷售面積及銷售額按年跌幅，分別大幅收窄至5.1%和2.6%，扭轉去年全年的雙位數跌幅；兩者去年同期的跌幅都超過兩成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm)
+
+---
+
+# 內地首兩個月主要經濟數據符合或好過市場預期
+
+  
+
+內地今年首兩個月主要經濟數據符合或好於市場預期，新建商品房銷售按年跌幅亦顯著收窄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796030-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796030-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796030-20250317.htm)
+
+---
+
+# 恒指半日升316點　成交逾1400億元　港交所升逾4%
+
+![恒指企半日收市報24276點，升316點，升1.32%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796029_1_20250317120836.jpg&q=65)
+  
+
+港股反覆造好，恒指企穩24000點以上，今早高位觸及24352點，升近400點，半日收市報24276點，升316點，升1.32%，半日主板成交額近1418億元
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796029-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796029-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796029-20250317.htm)
+
+---
+
 # 滬股半日升約0.3%　創業板跌0.5%
 
 ![內地股市3大指數個別發展，上證指數半日報3429點，升9點，升幅0.28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796024_1_20250317113538.jpg&q=90)
@@ -1362,77 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795719-20250314.htm)
-
----
-
-# 日股本周升逾0.4%　結束3周跌勢
-
-![日經平均指數收市報37053點，升263點，升幅0.72%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795717_1_20250314143736.jpg&q=90)
-  
-
-日本股市上升，日經平均指數收市報37053點，升263點，升幅0.72%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795717-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795717-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795717-20250314.htm)
-
----
-
-# 第三個InnoHK創新香港研發平台開始接受申請
-
-![​創新科技署宣布第三個InnoHK創新香港研發平台名為「SEAM@InnoHK」，開始接受申請。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795718_1_20250314145924.jpg&q=90)
-  
-
-​創新科技署宣布第三個InnoHK創新香港研發平台名為「SEAM@InnoHK」，開始接受申請，聚焦可持續發展、能源、先進製造及材料。歡迎從事相關領域研究的國際頂尖大學及科研機構提交建議書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795718-20250314.htm)
-
----
-
-# 台股收市靠穩
-
-![台股收市升6點；本周累計跌約2.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795713_1_20250314140709.jpg&q=90)
-  
-
-台灣股市靠穩。加權指數收市報21968點，升6點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795713-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795713-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795713-20250314.htm)
 
 ---

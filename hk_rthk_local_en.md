@@ -48,10 +48,10 @@ A former senior Hospital Authority official has called for caution in setting co
 
 # Try out beds before purchasing: consumer watchdog
 
-![The Consumer Council says that prices do not necessarily reflect the quality of mattresses. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
+![The Consumer Council says a mattress' price does not necessarily reflect its quality. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
   
 
-The Consumer Council on Monday urged people to try out different sleeping postures on mattresses – some of which were found to provide inadequate support – before making a purchase.
+The Consumer Council on Monday encouraged people to nap on mattresses – some of which were found to provide inadequate support – before making a purchase.
 
   
 
