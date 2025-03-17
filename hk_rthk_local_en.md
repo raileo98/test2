@@ -1,3 +1,27 @@
+# Experts weigh in on extending cryopreservation storage
+
+![Extending the storage of embryos and gamets could raise new issues for patients according to some fertility doctors. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796041_1_20250317124547.jpg&q=90)
+  
+
+A specialist in obstetrics and gynaecology said it remains uncertain whether patients will return for tailored counselling after storing their embryos or gametes for a certain period of time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm)
+
+---
+
 # 'Task force on gastro outbreak among students needed'
 
 ![A local education concern group says the task force is needed to ensure the safety of students. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796027_1_20250317115245.jpg&q=85)
@@ -1412,29 +1436,5 @@ A local deputy to the National People's Congress has stressed that Hong Kong is 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm)
-
----
-
-# Police arrest driver who 'fled' Shing Mun accident
-
-![Officers arrested the 34-year-old man on suspicion of dangerous driving causing grievous bodily harm and other charges. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795184_1_20250311062017.jpg&q=70)
-  
-
-Police have arrested the driver of a private car, who allegedly fled following a three-vehicle pile-up in the Shing Mun Tunnel on Monday morning.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795184-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795184-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795184-20250311.htm)
 
 ---

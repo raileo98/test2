@@ -1,3 +1,27 @@
+# Experts weigh in on extending cryopreservation storage
+
+![Extending the storage of embryos and gamets could raise new issues for patients according to some fertility doctors. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796041_1_20250317124547.jpg&q=90)
+  
+
+A specialist in obstetrics and gynaecology said it remains uncertain whether patients will return for tailored counselling after storing their embryos or gametes for a certain period of time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm)
+
+---
+
 # An keeps up streak to win All England title
 
 ![An Se Young with China's Wang Zhi Yi in Birmingham, England, after their close-fought match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796035_1_20250317122442.jpg&q=80)
@@ -1414,29 +1438,5 @@ Safe-haven gold surpassed US$3,000 for the first time on Friday, boosted by unce
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795777-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795777-20250314.htm)
-
----
-
-# Drop in pupil numbers 'structural and would worsen'
-
-![Christine Choi says measures are needed to ensure the stable and sustainable development of the education sector. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795759_1_20250314180708.jpg&q=80)
-  
-
-Education minister Christine Choi said on Friday the government was left with little choice but to change rules on how local schools can continue to operate, as Hong Kong faces a dwindling pupil population.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm)
 
 ---
