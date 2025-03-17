@@ -1,3 +1,26 @@
+# 調查指非政府機構僱員男女比例相若　近半享有較僱傭條例優厚福利
+
+  
+
+政府統計處出版《主題性住戶統計調查第81號報告書》，根據2023年12月至去年3月期間，進行的主題性住戶統計調查，非政府機構僱員的男女比例相若，分別為51.1%和48.9%，約八成七在現職有簽訂書面僱傭合約，約四成八享有較《僱傭條例》所規定更優厚的僱傭福利，56.9%享有《僱傭條例》所規定以外的僱傭福利項目。此外，約一成有彈性工作安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm)
+
+---
+
 # 滬股半日升約0.3%　創業板跌0.5%
 
 ![內地股市3大指數個別發展，上證指數半日報3429點，升9點，升幅0.28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796024_1_20250317113538.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm)
-
----
-
-# 團體建議加强公眾認識有特殊教育需要小學生　鼓勵雙向共融
-
-![調查發現，近五成育有SEN兒童的受訪家長說，曾因子女行為受到不友善對待。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795947_1_20250316184414.jpg&q=90)
-  
-
-政府統計處數字顯示，截至上個學年，本港有3萬1千多名SEN、即有特殊教育需要的小學生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795947-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795947-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795947-20250316.htm)
 
 ---

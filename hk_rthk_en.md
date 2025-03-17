@@ -94,6 +94,30 @@ An academic who chairs Baptist University's Department of Sport, Physical Educat
 
 ---
 
+# China retail sales up four percent
+
+![Total retail sales of consumer goods reached over 8.37 trillion yuan, according to official figures. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796017_1_20250317110913.jpg&q=80)
+  
+
+Retail sales in China accelerated slightly in the first two months of the year, government data showed on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm)
+
+---
+
 # Mass layoffs begin at Voice of America
 
 ![Contractual staff at Voice of America have been told they are terminated as of this end of this month. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796015_1_20250317104956.jpg&q=90)
@@ -1414,29 +1438,5 @@ Hong Kong businesses, specially small and medium-sized ones, are set to receive 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm)
-
----
-
-# CK Hutchison shares down after port deal criticism
-
-![CK Hutchison earlier agreed to sell its interests in a key Panama Canal port operator to a consortium led by BlackRock. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795749_1_20250314172048.jpg&q=80)
-  
-
-Shares of CK Hutchison shed more than 6 percent on Friday, after the Beijing office in charge of Hong Kong affairs reposted a newspaper commentary slamming the firm's sale of its Panama Canal ports.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm)
 
 ---

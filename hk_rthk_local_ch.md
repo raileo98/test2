@@ -1,3 +1,26 @@
+# 調查指非政府機構僱員男女比例相若　近半享有較僱傭條例優厚福利
+
+  
+
+政府統計處出版《主題性住戶統計調查第81號報告書》，根據2023年12月至去年3月期間，進行的主題性住戶統計調查，非政府機構僱員的男女比例相若，分別為51.1%和48.9%，約八成七在現職有簽訂書面僱傭合約，約四成八享有較《僱傭條例》所規定更優厚的僱傭福利，56.9%享有《僱傭條例》所規定以外的僱傭福利項目。此外，約一成有彈性工作安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm)
+
+---
+
 # 周雪梅出任香港駐倫敦經貿辦處長　稱與不同界別合作推廣香港優勢
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795849-20250315.htm)
-
----
-
-# 天文台預料本港短期內可能受冰雹影響
-
-![天文台預料本港短期內可能受冰雹影響，提醒市民提高警惕。（天文台網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795848_1_20250315150657.jpg&q=90)
-  
-
-天文台表示，位於珠江口以西的強雷雨區正逐漸移近本港，預料未來兩三小時本港雨勢較大及有強烈狂風雷暴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795848-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795848-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795848-20250315.htm)
 
 ---

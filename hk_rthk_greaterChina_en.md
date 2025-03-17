@@ -1,3 +1,27 @@
+# China retail sales up four percent
+
+![Total retail sales of consumer goods reached over 8.37 trillion yuan, according to official figures. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796017_1_20250317110913.jpg&q=80)
+  
+
+Retail sales in China accelerated slightly in the first two months of the year, government data showed on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm)
+
+---
+
 # China new home prices fall in February
 
 ![A commercial residential complex under construction in Nanning, China. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796002_1_20250317095840.jpg&q=80)
@@ -1413,29 +1437,5 @@ Economists have struck a cautious note on China's plan to lower the nation's inf
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794419-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794419-20250305.htm)
-
----
-
-# CPPCC member slams extra US tariffs on China
-
-![From left, Andy Tsang, Winnie Tam and Ko Wing-man are among the local CPPCC delegates attending the Two Sessions in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794416_1_20250305174046.jpg&q=75)
-  
-
-Chinese People's Political Consultative Conference (CPPCC) member Andy Tsang on Wednesday slammed the US move to slap additional tariffs on Chinese exports because of the fentanyl crisis.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm)
 
 ---

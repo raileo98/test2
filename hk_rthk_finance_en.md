@@ -1,3 +1,27 @@
+# China retail sales up four percent
+
+![Total retail sales of consumer goods reached over 8.37 trillion yuan, according to official figures. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796017_1_20250317110913.jpg&q=80)
+  
+
+Retail sales in China accelerated slightly in the first two months of the year, government data showed on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm)
+
+---
+
 # Hang Seng Index opens up over 1.1 percent
 
 ![Hong Kong stocks open up as investors await key China economic data for the first two months of the year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796006_1_20250317101632.jpg&q=70)
@@ -1411,29 +1435,5 @@ Asian share markets dithered on Monday as the threat of imminent tariffs lurked 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm)
-
----
-
-# Trump orders trade investigation into lumber
-
-![The probe also covers derivative products made from lumber which could include furniture such as kitchen cabinets. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793855_1_20250302091515.jpg&q=60)
-  
-
-US President Donald Trump on Saturday ordered a new trade investigation that could heap more tariffs on imported lumber, adding to existing duties on Canadian softwood lumber and 25 percent tariffs on all Canadian and Mexican goods due next week.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793855-20250302.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793855-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793855-20250302.htm)
 
 ---
