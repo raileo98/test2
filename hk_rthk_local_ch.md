@@ -1,3 +1,49 @@
+# 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
+
+  
+
+新華社報道，中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬，會見巴拿馬主要政黨領導人，同智庫學者等座談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
+
+---
+
+# 航空公司：加飛機離境稅削競爭力　政府：對出行開支影響十分輕微
+
+  
+
+《財政預算案》提出，今年10月1日起，飛機乘客離境稅由每名乘客120元調升至200元，立法會本周三將首讀及二讀辯論相關修例草案。三間本地航空公司分別表示，擔心削弱本港競爭力或增加短途旅客出行成本，促請政府慎重考慮。據悉，香港航空公司代表協會曾向政府反映對於增加機場離境稅的意見。政府則強調建議的增幅影響十分輕微。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm)
+
+---
+
 # 火炭謀殺案被捕父子有黑幫背景涉策劃案件　警方正追緝刀手
 
   
@@ -1384,53 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795933-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795933-20250316.htm)
-
----
-
-# 李慧琼指立法會議員應多「落場踢」　要促成甚至成為參與者
-
-![李慧琼提到，立法會議員可以透過他們的網絡帶企業來港，推薦人才給政府。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795928_1_20250316151601.jpg&q=80)
-  
-
-全國人大常委李慧琼表示，終審法院近日就支聯會拒交資料案的判決，顯示終審法院處理國安法案件的門檻相當高，因此要對法庭有信心。她認為這是一個實施細則的事情，還沒到釋法的層面，國安法在實施的過程中，需要不斷完善。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm)
-
----
-
-# 李慧琼指可考慮北都成為「特區中的一個特區」　賦予特別行政措施
-
-![李慧琼認為，可以考慮北部都會區成為「特區中的一個特區」。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795927_1_20250316140812.jpg&q=90)
-  
-
-全國人大常委李慧琼認為，可以考慮北部都會區成為「特區中的一個特區」，賦予它一個特別審批流程或者特別行政措施。她舉例稱，例如鐵路原本要10年後才建好，或者3年後才招標完成，但北都或河套區是否可一年就可完成招標。她說，以現時香港工作方式太慢，香港要突破自己框框。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm)
 
 ---

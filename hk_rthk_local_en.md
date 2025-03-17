@@ -24,7 +24,7 @@ Triathletes from the SAR will try to book a spot in this year's National Games b
 
 # Animal groups vent concerns on pets aboard trains
 
-![Twenty groups under the Animal Welfare Advocacy Alliance, together with DAB lawmaker Edward Lau, centre front row, have held talks with MTR officials. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796100_1_20250317182151.jpg&q=90)
+![Twenty groups under the Animal Welfare Advocacy Alliance, together with DAB lawmaker Edward Lau, front row centre, have held talks with MTR officials. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796100_1_20250317182151.jpg&q=90)
   
 
 Animal welfare groups on Monday held talks with MTR Corporation officials as the railway company looks into allowing pets on trains.
