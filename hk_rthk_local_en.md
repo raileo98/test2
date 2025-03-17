@@ -1,3 +1,27 @@
+# Henderson Land founder Lee Shau-kee dies at 97
+
+![Property tycoon Lee Shau-kee has died at the age of 97. Photo courtesy of Henderson Land](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796117_1_20250317202145.jpg&q=90)
+  
+
+One of Hong Kong's richest men, Henderson Land founder Lee Shau-kee, has died at the age of 97.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm)
+
+---
+
 # HK triathletes race for a spot in National Games
 
 ![The Asia Triathlon Sprint Championships will take place on April 5 and 6. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796101_1_20250317182204.jpg&q=85)
@@ -1412,29 +1436,5 @@ A senior member of a leading national think tank on Tuesday said the annual "Two
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm)
-
----
-
-# HK's top court to webcast some hearings from April
-
-![The judiciary says people, including the media, must not record the Court of Final Appeal's online webcasts. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795261_1_20250311162436.jpg&q=80)
-  
-
-The judiciary said on Tuesday it will start webcasting some proceedings at Hong Kong's top court from April 1, as part of a pilot scheme.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795261-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795261-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795261-20250311.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Henderson Land founder Lee Shau-kee dies at 97
+
+![Property tycoon Lee Shau-kee has died at the age of 97. Photo courtesy of Henderson Land](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796117_1_20250317202145.jpg&q=90)
+  
+
+One of Hong Kong's richest men, Henderson Land founder Lee Shau-kee, has died at the age of 97.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm)
+
+---
+
 # Rwanda cuts diplomatic relations with Belgium
 
 ![People gather next to some vehicles as they flee the Masisi territory following clashes between M23 rebels and government forces. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796111_1_20250317194926.jpg&q=90)
@@ -1415,29 +1439,5 @@ Cuba suffered a general blackout on Friday caused by a crash of its national ele
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm)
-
----
-
-# 'Govt can do more to promote internationalisation'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795830_1_20250315105816.jpg&q=85)
-  
-
-Hong Kong’s sole delegate to the nation’s top legislature, Starry Lee, on Saturday called on the government to continue to coordinate with other major cities around the world to further strengthen the SAR's position across fields.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm)
 
 ---
