@@ -1,3 +1,27 @@
+# Three proposals received for HK's third medical school
+
+![The Task Group on New Medical School previously held meetings to discuss the next steps for evaluating proposals on the establishment of the third medical school. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796122_1_20250317205156.jpg&q=85)
+  
+
+The government said on Monday it received three proposals for establishing the city’s third medical institution.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm)
+
+---
+
 # Police arrest three over Fo Tan murder case
 
 ![Superintendent Li Muk-yik says the victim and the suspected masterminds had money disputes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796114_1_20250317200724.jpg&q=80)
@@ -1412,29 +1436,5 @@ The Hospital Authority said on Wednesday it was working on reducing the amount o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795358-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795358-20250312.htm)
-
----
-
-# 52 students, teachers contract gastroenteritis
-
-![The Centre for Health Protection has said the affected teachers and students participated in exchange tours in Shaoguan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795311_1_20250311213838.jpg&q=90)
-  
-
-The Centre for Health Protection (CHP) on Tuesday said it is investigating a cluster of gastroenteritis involving 52 teachers and students who participated in exchange tours to Shaoguan in Guangdong province earlier this month.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795311-20250311.htm)
 
 ---

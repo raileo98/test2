@@ -1,3 +1,27 @@
+# Three proposals received for HK's third medical school
+
+![The Task Group on New Medical School previously held meetings to discuss the next steps for evaluating proposals on the establishment of the third medical school. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796122_1_20250317205156.jpg&q=85)
+  
+
+The government said on Monday it received three proposals for establishing the city’s third medical institution.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm)
+
+---
+
 # Police arrest three over Fo Tan murder case
 
 ![Superintendent Li Muk-yik says the victim and the suspected masterminds had money disputes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796114_1_20250317200724.jpg&q=80)
@@ -1415,29 +1439,5 @@ The Hong Kong Rugby Sevens, one of the city's most popular and highly anticipate
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm)
-
----
-
-# Sabalenka books Indian Wells title clash with Andreeva
-
-![Belarus's Aryna Sabalenka shakes hands with USA's Madison Keys after winning their semi-final match at the Indian Wells Tennis. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795836_1_20250315123114.jpg&q=85)
-  
-
-Aryna Sabalenka avenged her Australian Open loss to Madison Keys on Friday, thrashing the American 6-0, 6-1 to book an Indian Wells title showdown with teen sensation Mirra Andreeva.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795836-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795836-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795836-20250315.htm)
 
 ---
