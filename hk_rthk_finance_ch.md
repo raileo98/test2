@@ -1,3 +1,51 @@
+# 恒指下午初段升逾1%
+
+![恒生指數較早時報24280點，升320點，升幅1.34%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796047_1_20250317130707.jpg&q=45)
+  
+
+港股下午初段升逾1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796047-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796047-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796047-20250317.htm)
+
+---
+
+# 丘鈦科技去年盈利升2.4倍　恢復派息
+
+![丘鈦科技去年盈利2.79億元人民幣，按年增長2.4倍。公司恢復派息，派末期息10港仙。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796045_1_20250317130507.jpg&q=80)
+  
+
+丘鈦科技去年盈利2.79億元人民幣，按年增長2.4倍。公司恢復派息，派末期息10港仙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796045-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796045-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796045-20250317.htm)
+
+---
+
 # 統計局：CPI溫和上升趨勢不變
 
 ![付凌暉表示，CPI溫和上升趨勢不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796044_1_20250317125318.jpg&q=90)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm)
-
----
-
-# 滬指升近2%　企穩3400點以上　創逾3個月收市新高
-
-![上證綜合指數重上3400點，收市報3419點，升幅1.81%，創逾3個月收市新高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795726_1_20250314151257.jpg&q=90)
-  
-
-內地股市3大指數高收近2%至近3%，乳業、保險、飲品製造相關股份升幅較大；軍工電子板塊則跌幅較多。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795726-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795726-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795726-20250314.htm)
-
----
-
-# 劉國勳贊同港深西部鐵路口岸設內地一地兩檢　可騰出香港土地發展
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795722_1_20250314151018.jpg&q=90)
-  
-
-民建聯立法會議員劉國勳表示，有報道指連接洪水橋/厦村至前海的港深西部鐵路的口岸設於內地，並採用「一地兩檢」模式，他表示贊同，認為與他早前建議一致，因為口岸設於內地，可騰出更多香港土地發展其他用途，而內地建築成本較低，加上香港段的車站較多，口岸設於內地會較方便本地線乘客，亦較符合成本效益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm)
 
 ---

@@ -1,3 +1,74 @@
+# 恒指下午初段升逾1%
+
+![恒生指數較早時報24280點，升320點，升幅1.34%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796047_1_20250317130707.jpg&q=45)
+  
+
+港股下午初段升逾1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796047-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796047-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796047-20250317.htm)
+
+---
+
+# 病人組織憂共付收費或令經濟能力不足病人延誤病情
+
+  
+
+政府日前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，要市民按項目共付費用，急症室及住院病人接受有關服務仍維持免費。有醫管局前高層表示，醫生有時會因應臨床需要建議病人做影像檢查，同收費與否無關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm)
+
+---
+
+# 丘鈦科技去年盈利升2.4倍　恢復派息
+
+![丘鈦科技去年盈利2.79億元人民幣，按年增長2.4倍。公司恢復派息，派末期息10港仙。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796045_1_20250317130507.jpg&q=80)
+  
+
+丘鈦科技去年盈利2.79億元人民幣，按年增長2.4倍。公司恢復派息，派末期息10港仙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796045-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796045-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796045-20250317.htm)
+
+---
+
 # 統計局：CPI溫和上升趨勢不變
 
 ![付凌暉表示，CPI溫和上升趨勢不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796044_1_20250317125318.jpg&q=90)
@@ -622,7 +693,7 @@
 
 # 防曬妝前底霜八成半樣本成分或干擾內分泌　研究指或影響性荷爾蒙
 
-![20款標榜具防曬效能的妝前底霜樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796010_1_20250317103858.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796010_1_20250317103858.jpg&q=85)
   
 
 消委會檢視市面上37款妝前底霜，當中20款標榜具防曬效能的樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。干擾內分泌的物質或會影響性荷爾蒙，有機會削弱生殖能力、導致新生嬰兒生殖器出現異常。
