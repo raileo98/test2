@@ -1,5 +1,52 @@
+# 人力資源社會保障部稱企業招聘活躍　將實施中小微企就業支持計劃
+
+  
+
+在北京，人力資源社會保障部就業促進司負責人陳勇嘉表示，從春節前後開展的行動來看，企業招聘活躍，勞動者求職積極性高，就業市場總體平穩，為全年工作奠定良好基礎，有信心繼續保持就業局勢總體穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm)
+
+---
+
+# 人行：將會同有關部門研究出台金融支持擴大消費專門文件
+
+  
+
+人民銀行表示，下一步將會同有關部門研究出台金融支持擴大消費專門文件，引導金融機構從消費供應及需求，積極滿足各類主體多樣化資金需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm)
+
+---
+
 # 首兩月社會消費品零售總額增4%　發改委稱以舊換新政策帶動
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796063_1_20250317162105.jpg&q=90)
   
 
 內地發布《提振消費專項行動方案》，在北京，國家發改委副主任李春臨表示，今年首兩個月的社會消費品零售總額按年增長4%，較去年全年加快0.5個百分點，消費品以舊換新政策帶動了相應品類商品零售額較快增長，不過消費者信心和預期偏弱、部分消費需求未充分滿足、消費環境有待優化等問題仍客觀存在，以提振消費擴內需、更好滿足群眾美好生活需要，還有不少工作要做。
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795765-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795765-20250314.htm)
-
----
-
-# 和記電訊香港去年轉賺600萬元
-
-![和記電訊香港去年轉賺600萬元，前一年虧損5200萬元，維持派末期息每股5.21港仙。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795756_1_20250314175407.jpg&q=90)
-  
-
-和記電訊香港去年業績由虧轉盈，轉賺600萬元，而前一年虧損5200萬元。維持派末期息每股5.21港仙，連同中期息，全年派7.49港仙，與前年相同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795756-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795756-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795756-20250314.htm)
-
----
-
-# 發改委經濟研究所所長：現時仍有空間適時降準和減息
-
-![郭春麗表示，今年要實施積極有為的宏觀政策，要打好政策組合拳。(羅煒皓攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795755_1_20250314182205.jpg&q=90)
-  
-
-在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，今年要實施積極有為的宏觀政策，要打好政策組合拳，特別要強調宏觀政策取向一致性，加強財政、貨幣政策等各類政策的協同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm)
 
 ---

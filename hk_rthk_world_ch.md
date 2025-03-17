@@ -1,3 +1,26 @@
+# 北京：做相互成就的夥伴　實現「龍象共舞」是中印唯一正確選擇
+
+  
+
+在北京，外交部發言人毛寧說，中方讚賞印度總理莫迪近日就中印關係作出積極表態，毛寧指出，做相互成就的夥伴，實現「龍象共舞」是中印唯一正確的選擇。中方願同印方共同努力，深入落實好兩國領導人的重要共識，以今年中印建交75周年為契機，推進交流合作，推動中印關係沿著健康穩定的軌道向前發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm)
+
+---
+
 # 外交部：中方反對任何加劇紅海局勢升級的行動
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795817-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795817-20250315.htm)
-
----
-
-# 北海撞船事故　涉事貨船船長被控重大過失殺人
-
-![涉事運油輪嚴重損毀。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795814_1_20250315065710.jpg&q=85)
-  
-
-英格蘭東北部附近海域日前發生撞船意外，涉事的貨船船長被檢察部門控以重大過失殺人罪。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795814-20250315.htm)
 
 ---

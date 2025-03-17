@@ -1,3 +1,72 @@
+# 人力資源社會保障部稱企業招聘活躍　將實施中小微企就業支持計劃
+
+  
+
+在北京，人力資源社會保障部就業促進司負責人陳勇嘉表示，從春節前後開展的行動來看，企業招聘活躍，勞動者求職積極性高，就業市場總體平穩，為全年工作奠定良好基礎，有信心繼續保持就業局勢總體穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm)
+
+---
+
+# 人行：將會同有關部門研究出台金融支持擴大消費專門文件
+
+  
+
+人民銀行表示，下一步將會同有關部門研究出台金融支持擴大消費專門文件，引導金融機構從消費供應及需求，積極滿足各類主體多樣化資金需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm)
+
+---
+
+# 北京：做相互成就的夥伴　實現「龍象共舞」是中印唯一正確選擇
+
+  
+
+在北京，外交部發言人毛寧說，中方讚賞印度總理莫迪近日就中印關係作出積極表態，毛寧指出，做相互成就的夥伴，實現「龍象共舞」是中印唯一正確的選擇。中方願同印方共同努力，深入落實好兩國領導人的重要共識，以今年中印建交75周年為契機，推進交流合作，推動中印關係沿著健康穩定的軌道向前發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm)
+
+---
+
 # 外交部：中方反對任何加劇紅海局勢升級的行動
 
   
@@ -23,6 +92,7 @@
 
 # 首兩月社會消費品零售總額增4%　發改委稱以舊換新政策帶動
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796063_1_20250317162105.jpg&q=90)
   
 
 內地發布《提振消費專項行動方案》，在北京，國家發改委副主任李春臨表示，今年首兩個月的社會消費品零售總額按年增長4%，較去年全年加快0.5個百分點，消費品以舊換新政策帶動了相應品類商品零售額較快增長，不過消費者信心和預期偏弱、部分消費需求未充分滿足、消費環境有待優化等問題仍客觀存在，以提振消費擴內需、更好滿足群眾美好生活需要，還有不少工作要做。
@@ -1365,78 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm)
-
----
-
-# 金管總局：今年加快制定與房地產發展新模式相適應融資制度出台
-
-![國家金融監管總局表示，今年將加快制定出台與房地產發展新模式相適應的融資制度，堅決做好保交房工作。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795618_1_20250313212344.jpg&q=80)
-  
-
-國家金融監管總局表示，今年將加快制定出台與房地產發展新模式相適應的融資制度，持續推進城市房地產融資協調機制擴圍增效，堅決做好保交房工作；並推出有針對性的金融支持措施，助力實施提振消費專項行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795618-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795618-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795618-20250313.htm)
-
----
-
-# 何厚鏵：愛國力量要堅定支持行政長官和特區依法施政
-
-![何厚鏵在全國兩會精神傳達會上表示，作為澳門愛團力量，政治站位要高一點。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795611_1_20250313202151.jpg&q=90)
-![澳門中聯辦下午舉行全國兩會精神傳達會，約240人出席。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795611_2_20250313202151.jpg&q=85)
-  
-
-全國政協副主席何厚鏵引用總書記習近平在《求是》雜誌發表的署名文章，希望包括澳區全國人大代表和政協委員在內的愛國力量，與新一屆特區政府必須統籌好有效市場和有為政府的關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795611-20250313.htm)
-
----
-
-# 楊銘宇黃燜雞米飯厨房亂象事件　國務院食安辦核查處置工作
-
-![楊銘宇黃燜雞米飯厨房亂象事件　國務院食安辦核查處置工作](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795603_1_20250313192514.jpg&q=90)
-  
-
-國務院食安辦就「楊銘宇黃燜雞米飯厨房亂象」事件，今日向山東省食安辦、河南省食安辦發出掛牌督辦通知書，對兩地核查處置工作實行掛牌督辦。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795603-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795603-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795603-20250313.htm)
 
 ---

@@ -1,27 +1,3 @@
-# Mt Fuji entry fee set for hikers
-
-![Hikers near the popular Yoshida trail, which will see a doubling of the fee, up Mount Fuji. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796065_1_20250317160637.jpg&q=70)
-  
-
-Hikers attempting any of Mount Fuji's four main trails will be charged an entry fee of 4,000 from this summer, after local authorities passed a bill on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm)
-
----
-
 # New transit route 'needs to seamlessly link Kai Tak'
 
 ![The proposed mass transit system will connect the Kai Tak MTR Station with the Kai Tak Cruise Terminal with six stations in total. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796048_1_20250317132335.jpg&q=85)
@@ -1436,5 +1412,29 @@ Financial Secretary Paul Chan on Tuesday said the government does not plan to co
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm)
+
+---
+
+# Man jailed for three months over fake qualifications
+
+![The Shatin Court says the defendant was being unrealistic in seeking a community service order for his crime. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795242_1_20250311143749.jpg&q=90)
+  
+
+A mainland man was jailed for three months on Tuesday, after pleading guilty to using fake academic qualifications to gain a spot in a Chinese University (CUHK) postgraduate programme.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795242-20250311.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795242-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795242-20250311.htm)
 
 ---

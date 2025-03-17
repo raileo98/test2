@@ -3,7 +3,7 @@
 ![Hikers near the popular Yoshida trail, which will see a doubling of the fee, up Mount Fuji. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796065_1_20250317160637.jpg&q=70)
   
 
-Hikers attempting any of Mount Fuji's four main trails will be charged an entry fee of 4,000 from this summer, after local authorities passed a bill on Monday.
+Hikers attempting any of Mount Fuji's four main trails will be charged an entry fee of 4,000 yen from this summer, after local authorities passed a bill on Monday.
 
   
 
