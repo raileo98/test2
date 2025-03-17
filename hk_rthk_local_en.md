@@ -1,4 +1,4 @@
-# New transit route needs to 'seamlessly' link Kai Tak
+# New transit route 'needs to seamlessly link Kai Tak'
 
 ![The proposed mass transit system will connect the Kai Tak MTR Station with the Kai Tak Cruise Terminal with six stations in total. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796048_1_20250317132335.jpg&q=85)
   
