@@ -1,3 +1,49 @@
+# 一度在荃灣失蹤67歲男子　下午在青衣被尋回
+
+  
+
+67歲男子盧家亮昨晚在荃灣失蹤，下午在青衣被尋回。男子沒有受傷，警方稱案件沒有可疑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796088-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796088-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796088-20250317.htm)
+
+---
+
+# 與港鐵就設寵物車廂會面　劉國勳倡寵物須「入袋」及購月票
+
+  
+
+民建聯立法會議員劉國勳聯同動物福利聯盟約20多名團體代表與港鐵會面，就港鐵研究推行寵物車廂提出意見和建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm)
+
+---
+
 # 海關檢3500萬元大麻花　藏於泰國抵港報稱載冷藏豬肉貨櫃
 
   
@@ -23,6 +69,7 @@
 
 # 深水埗有私家車著火冒出大量黑煙　司機及時逃離車輛未有受傷
 
+![深水埗有私家車引擎懷疑冒煙著火。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796081_1_20250317172601.jpg&q=90)
   
 
 深水埗有私家車引擎懷疑冒煙著火，司機逃離車輛報警，未有受傷。
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm)
-
----
-
-# 市建局稱聯廈聯管中標物管公司每戶每月費用僅百餘元
-
-![有大廈部分公用地方的天花和牆身石屎剝落和鋼筋外露。（韋志成網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795910_1_20250316110958.jpg&q=90)
-  
-
-由市建局與香港房屋經理學會組成的團隊早前在九龍城試行「聯廈聯管」，協調單幢式舊樓聘用同一物業管理公司。團隊本月初已將報告提交政府。市建局行政總監韋志成說，參與試行「聯廈聯管」的樓宇雖然不多，但仍吸引了15間在市場上擁有豐富物管經驗，而且具實力公司入標競投「聯廈聯管」服務合約，最終中標的物管公司，每戶每月的「基本服務」費用大約只需百餘元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795910-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795910-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795910-20250316.htm)
-
----
-
-# 楊德強：全運會測試賽部分環節可做得更好　將加強照顧落後運動員
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795909_1_20250316104545.jpg&q=85)
-  
-
-第15屆全運會及殘特奧會將於年底在粵港澳三地舉行，其中香港將承辦8個全運會及4個殘特奧會項目，另外亦會與內地及澳門合辦兩個項目，包括公路單車和馬拉松。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795909-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795909-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795909-20250316.htm)
 
 ---

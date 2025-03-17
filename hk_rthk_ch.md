@@ -1,3 +1,49 @@
+# 一度在荃灣失蹤67歲男子　下午在青衣被尋回
+
+  
+
+67歲男子盧家亮昨晚在荃灣失蹤，下午在青衣被尋回。男子沒有受傷，警方稱案件沒有可疑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796088-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796088-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796088-20250317.htm)
+
+---
+
+# 與港鐵就設寵物車廂會面　劉國勳倡寵物須「入袋」及購月票
+
+  
+
+民建聯立法會議員劉國勳聯同動物福利聯盟約20多名團體代表與港鐵會面，就港鐵研究推行寵物車廂提出意見和建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm)
+
+---
+
 # 外交部：中方決不接受七國集團甩鍋推責　堅決反對污蔑抹黑中國
 
 ![毛寧說，中方決不接受七國集團甩鍋推責。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796086_1_20250317172225.jpg&q=90)
@@ -94,6 +140,7 @@
 
 # 深水埗有私家車著火冒出大量黑煙　司機及時逃離車輛未有受傷
 
+![深水埗有私家車引擎懷疑冒煙著火。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796081_1_20250317172601.jpg&q=90)
   
 
 深水埗有私家車引擎懷疑冒煙著火，司機逃離車輛報警，未有受傷。
