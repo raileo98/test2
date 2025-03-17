@@ -1,3 +1,51 @@
+# 英法德股市升近0.6%至逾0.7%
+
+![德國DAX指數收報23154點，升167點，升幅0.73%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796152_1_20250318052534.jpg&q=90)
+  
+
+歐洲3大指數向上，能源和醫療保健股上升，市場焦點集中在德國債務改革計劃和俄烏衝突。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796152-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796152-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796152-20250318.htm)
+
+---
+
+# 特朗普稱將公開8萬頁與約翰甘迺迪遇刺案有關文件
+
+![特朗普表示，將於星期二上午公開大約80000頁與前總統約翰甘迺迪遇刺案有關的文件。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796151_1_20250318052536.jpg&q=85)
+  
+
+美國總統特朗普表示，將於星期二上午公開大約80000頁與前總統約翰甘迺迪遇刺案有關的文件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796151-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796151-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796151-20250318.htm)
+
+---
+
 # 特朗普：習近平不久將來會訪問美國
 
 ![特朗普表示，中國國家主席習近平在不久的將來會訪問美國。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796150_1_20250318051823.jpg&q=90)
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm)
-
----
-
-# 在岸人民幣兌美元低收100點子
-
-![在岸人民幣收報7.2388兌1美元，較上星期五收市價跌100點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796079_1_20250317170007.jpg&q=75)
-  
-
-在岸人民幣收報7.2388兌1美元，較上星期五收市價跌100點子，跌幅0.14%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796079-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796079-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796079-20250317.htm)
-
----
-
-# 深水埗有私家車著火冒出大量黑煙　司機及時逃離車輛未有受傷
-
-![深水埗有私家車引擎懷疑冒煙著火。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796081_1_20250317172601.jpg&q=90)
-  
-
-深水埗有私家車引擎懷疑冒煙著火，司機逃離車輛報警，未有受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796081-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796081-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796081-20250317.htm)
 
 ---

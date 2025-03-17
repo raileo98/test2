@@ -1,3 +1,27 @@
+# 英法德股市升近0.6%至逾0.7%
+
+![德國DAX指數收報23154點，升167點，升幅0.73%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796152_1_20250318052534.jpg&q=90)
+  
+
+歐洲3大指數向上，能源和醫療保健股上升，市場焦點集中在德國債務改革計劃和俄烏衝突。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796152-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796152-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796152-20250318.htm)
+
+---
+
 # 香港結算：繼續與相關監管機構合作協助剔除新股重複認購
 
 ![港交所旗下香港結算發出通告，表示繼續與相關監管機構合作，審視FINI相關運作流程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796134_1_20250317230629.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm)
-
----
-
-# 美股本周聚焦聯儲局議息結果
-
-![美股3大指數上周下跌，本周市場聚焦聯儲局議息結果，市場普遍預期維持利率不變。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795973_1_20250317053101.jpg&q=90)
-  
-
-美股3大指數上周下跌，道瓊斯指數累計跌3.1%，連跌兩星期；標普500指數及納斯達克指數跌逾2%，兩者是連跌4星期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795973-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795973-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795973-20250317.htm)
 
 ---

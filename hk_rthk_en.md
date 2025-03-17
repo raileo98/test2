@@ -1,3 +1,27 @@
+# McIlroy wins second Players Championship title
+
+![The win was McIlroy's second in his career at the annual golf tournament on the PGA Tour. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796153_1_20250318053122.jpg&q=90)
+  
+
+Northern Ireland's Rory McIlroy cruised to a St. Patrick's Day victory at the Players Championship after defeating J.J. Spaun in a playoff at TPC Sawgrass in Florida.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm)
+
+---
+
 # RTHK to show giant panda documentary
 
 ![RTHK is set to premiere the documentary "The Panda Adventure" in April.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796118_1_20250317202335.jpg&q=85)
@@ -1415,29 +1439,5 @@ Lando Norris clinched pole position on Saturday for the season-opening Australia
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795861-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795861-20250315.htm)
-
----
-
-# Deliveroo urged to spell out arrangements to consumers
-
-![The consumer watchdog is calling on the delivery platform to inform its customers about the handling of their personal data. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795857_1_20250315160814.jpg&q=80)
-  
-
-The Consumer Council has so far received 12 complaints involving around HK$5,000 in relation to the shutdown of the online food delivery platform, Deliveroo, in Hong Kong.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm)
 
 ---

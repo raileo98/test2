@@ -1,3 +1,27 @@
+# 特朗普稱將公開8萬頁與約翰甘迺迪遇刺案有關文件
+
+![特朗普表示，將於星期二上午公開大約80000頁與前總統約翰甘迺迪遇刺案有關的文件。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796151_1_20250318052536.jpg&q=85)
+  
+
+美國總統特朗普表示，將於星期二上午公開大約80000頁與前總統約翰甘迺迪遇刺案有關的文件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796151-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796151-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796151-20250318.htm)
+
+---
+
 # 特朗普：習近平不久將來會訪問美國
 
 ![特朗普表示，中國國家主席習近平在不久的將來會訪問美國。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796150_1_20250318051823.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795892-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795892-20250316.htm)
-
----
-
-# 澤連斯基據報組團　將代表烏克蘭參與任何可能出現和談
-
-![澤連斯基強調安全是建立可靠、持久和平的關鍵。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795891_1_20250316012257.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基據報已決定組建一個代表團，就結束烏俄衝突與合作伙伴磋商，成員包括總統辦公室主任葉爾馬克、外長瑟比加、國防部長烏梅羅夫等人，他們將代表烏方參與任何可能出現的和平談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795891-20250316.htm)
 
 ---

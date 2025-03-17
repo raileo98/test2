@@ -1,3 +1,27 @@
+# McIlroy wins second Players Championship title
+
+![The win was McIlroy's second in his career at the annual golf tournament on the PGA Tour. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796153_1_20250318053122.jpg&q=90)
+  
+
+Northern Ireland's Rory McIlroy cruised to a St. Patrick's Day victory at the Players Championship after defeating J.J. Spaun in a playoff at TPC Sawgrass in Florida.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm)
+
+---
+
 # HK triathletes race for a spot in National Games
 
 ![The Asia Triathlon Sprint Championships will take place on April 5 and 6. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796101_1_20250317182204.jpg&q=85)
@@ -1423,29 +1447,5 @@ The Cleveland Cavaliers erased an 18-point deficit to beat the Portland Trail Bl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793948-20250303.htm)
-
----
-
-# Man Utd crash out of FA Cup as Fulham win shoot-out
-
-![Manchester United's Joshua Zirkzee reacts after a penalty kick. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793920_1_20250303053151.jpg&q=90)
-  
-
-Manchester United's dismal season hit a new low as the FA Cup holders crashed out after a 4-3 penalty shoot-out defeat against Fulham in the fifth round.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm)
 
 ---
