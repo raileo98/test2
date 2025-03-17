@@ -23,30 +23,6 @@ Olympic women's badminton champion An Se-young came from behind to beat China's 
 
 ---
 
-# 'Improve ID checks for cross-boundary sports events'
-
-![A local academic suggests ways the city could improve its hosting of cross-boundary sports events. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796018_2_20250317125618.jpg&q=90)
-  
-
-An academic who chairs Baptist University's Department of Sport, Physical Education, and Health on Monday said authorities could improve the efficiency and ease of ID checks on athletes who participate in cross-boundary sports events.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm)
-
----
-
 # Draper powers past Rune to claim first ATP 1000 title
 
 ![Draper will make his top ten debut at seventh in the world after the victory at Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795988_1_20250317081126.jpg&q=90)
@@ -1447,5 +1423,30 @@ Manchester United's dismal season hit a new low as the FA Cup holders crashed ou
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793920-20250303.htm)
+
+---
+
+# Ethiopia dominates Tokyo Marathon
+
+![Ethiopia's Tadese Takele finishes in first place to win the men's category of the Tokyo Marathon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793874_1_20250302145335.jpg&q=90)
+![Ethiopia's Sutume Asefa Kebede finishes in first place to win the women's category of the Tokyo Marathon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793874_2_20250302145335.jpg&q=90)
+  
+
+Ethiopia dominated the competition at the Tokyo Marathon on Sunday, winning both the men's and women's categories.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm)
 
 ---

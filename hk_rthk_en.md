@@ -1,3 +1,27 @@
+# HK 'in the fast lane to becoming IT hub'
+
+![Sun Dong said the AI summit next month shows Hong Kong is a hub for global IT cooperation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796043_1_20250317125229.jpg&q=80)
+  
+
+Innovation and technology secretary Sun Dong said on Monday Hong Kong's information technology development was so rapid that the sector is already "in the fast lane."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796043-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796043-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796043-20250317.htm)
+
+---
+
 # Experts weigh in on extending cryopreservation storage
 
 ![Extending the storage of embryos and gamets could raise new issues for patients according to some fertility doctors. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796041_1_20250317124547.jpg&q=90)
@@ -116,30 +140,6 @@ The Consumer Council on Monday encouraged people to nap on mattresses – some o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm)
-
----
-
-# 'Improve ID checks for cross-boundary sports events'
-
-![A local academic suggests ways the city could improve its hosting of cross-boundary sports events. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796018_2_20250317125618.jpg&q=90)
-  
-
-An academic who chairs Baptist University's Department of Sport, Physical Education, and Health on Monday said authorities could improve the efficiency and ease of ID checks on athletes who participate in cross-boundary sports events.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm)
 
 ---
 

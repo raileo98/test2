@@ -22,6 +22,29 @@
 
 ---
 
+# 病人組織憂共付收費或令經濟能力不足病人延誤病情
+
+  
+
+政府日前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，要市民按項目共付費用，急症室及住院病人接受有關服務仍維持免費。有醫管局前高層表示，醫生有時會因應臨床需要建議病人做影像檢查，同收費與否無關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm)
+
+---
+
 # 丘鈦科技去年盈利升2.4倍　恢復派息
 
 ![丘鈦科技去年盈利2.79億元人民幣，按年增長2.4倍。公司恢復派息，派末期息10港仙。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796045_1_20250317130507.jpg&q=80)
@@ -70,6 +93,30 @@
 
 ---
 
+# 消委會稱未有專屬條例監管化妝品　冀消費者明白風險或用替代方法
+
+![黃鳳嫺表示，消委會今次檢視的主要目的，是希望為消費者提供整合資訊，令他們明白這些產品的潛在風險。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796040_1_20250317125312.jpg&q=90)
+  
+
+消委會檢視市面超過30款妝前底霜，在20款標榜具防曬效能的樣本中，發現超過八成都含有可能干擾內分泌，以及引起光過敏反應的成分。消委會總幹事黃鳳嫺表示，本港現時未有專屬條例監管化妝品，這類產品是受一般消費者安全條例監管。至於今次檢視的產品有無違反商品說明條例，因消委會今次無對產品進行測試，所以無法得知有關成分的含量多與少，難以作出相關判斷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm)
+
+---
+
 # 中國鐵塔去年盈利升約10%　EBITDA升近5%
 
 ![中國鐵塔去年盈利107.3億元人民幣，按年增長約10%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796039_1_20250317123354.jpg&q=90)
@@ -94,6 +141,29 @@
 
 ---
 
+# 本港研發生成式人工智能大模型今年推出　孫東稱開發亦著重治理
+
+  
+
+世界互聯網大會亞太峰會4月14日至15日在灣仔會展舉行，將舉辦與人工智能、數字金融等有關的論壇，預計吸引逾千名海内外與會者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm)
+
+---
+
 # 國家統計局：新屋銷售基本穩定　但部分地區樓市仍在調整
 
 ![國家統計局表示，新屋銷售基本穩定，一線城市樓價有所回穩，但部分地區樓市仍處於調整，市場回穩仍存在壓力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796034_1_20250317123519.jpg&q=90)
@@ -115,6 +185,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm)
+
+---
+
+# 強積金對沖5月取消　鄧家彪籲僱主勿因擔心增加負擔而解僱員工
+
+![鄧家彪（右）建議僱主僱員有疑慮，可以先向勞工處了解詳情，否則可能計錯數。（鍾浩程攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796033_1_20250317125239.jpg&q=90)
+  
+
+強積金對沖安排將於5月1日起取消，工聯會立法會議員鄧家彪呼籲僱主不要因為擔心負擔增加而解僱員工，新安排下不設追溯期，如果僱主趕在5月1日前解僱員工，可能要給予的遣散費會更多，同時亦未必可以即時聘請到新人填補空缺。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm)
 
 ---
 
@@ -163,6 +257,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796029-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796029-20250317.htm)
+
+---
+
+# 調查指非政府機構僱員男女比例相若　近半享有較僱傭條例優厚福利
+
+![非政府機構僱員的男女比例相若，分別為51.1%和48.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796028_1_20250317124211.jpg&q=80)
+  
+
+政府統計處出版《主題性住戶統計調查第81號報告書》，根據2023年12月至去年3月期間，進行的主題性住戶統計調查，非政府機構僱員的男女比例相若，分別為51.1%和48.9%，約八成七在現職有簽訂書面僱傭合約，約四成八享有較《僱傭條例》所規定更優厚的僱傭福利，56.9%享有《僱傭條例》所規定以外的僱傭福利項目。此外，約一成有彈性工作安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm)
 
 ---
 
@@ -1314,125 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795741-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795741-20250314.htm)
-
----
-
-# 恒指高收497點　未能企穩24000點　長和跌逾6%
-
-![恒生指數高見24113點，一度升逾650點，收市報23959點，升497點，升幅2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795737_1_20250314162135.jpg&q=80)
-  
-
-港股結束連續5日跌勢，恒生指數高見24113點，一度升逾650點，收市升幅收窄，報23959點，升497點，升幅2.1%，全日主板成交額2906億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795737-20250314.htm)
-
----
-
-# 消息：港深西部鐵路口岸擬設於內地　運物局稱將公開招標
-
-![運輸及物流局回覆查詢時說，港深西部鐵路作為新的獨立鐵路路線，有空間考慮引入新營運者的可行性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795734_1_20250314161031.jpg&q=80)
-  
-
-上月公布的新一份財政預算案提到，預計於年內展開港深西部鐵路項目的勘查及設計研究。消息指，該條連接香港洪水橋及深圳前海的鐵路，會將口岸設置於內地，並採用「一地兩檢」的通關模式。另外，政府打算就工程公開招標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795734-20250314.htm)
-
----
-
-# 金管總局：鼓勵加大個人消費貸款投放力度
-
-![金管總局發文鼓勵銀行業金融機構在風險可控前提下，加大個人消費貸款投放力度，優化資源配置。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795732_1_20250314163540.jpg&q=90)
-  
-
-中國金融監管總局發文，鼓勵銀行業金融機構在風險可控前提下，加大個人消費貸款投放力度，合理設置消費貸款額度、期限、利率，優化資源配置；針對長期、大額消費需求，從消費貸款額度、期限等方面給予支持；針對暫時遇到困難的借款人，合理商定貸款償還期限及頻次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm)
-
----
-
-# 發改委經濟研究所所長稱美國加關稅對中國經濟影響不大
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795731_1_20250314165950.jpg&q=90)
-  
-
-在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，美國對華產品加徵關稅調高至20%，中國亦已推出反制措施，對中國經濟的影響不大，強調中國的財政政策留有空間和餘地，可以應對外部環境的衝擊的和打壓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795731-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795731-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795731-20250314.htm)
-
----
-
-# 市場料內地首兩月工業增加值增速或放緩　投資及消費增長加快
-
-![受春節導致工作日數按年減少及高基數影響，市場料首兩月內地工業增加值增速放緩至去年10月以來最低。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795729_1_20250314153344.jpg&q=85)
-  
-
-內地下周一公布1-2月宏觀經濟數據。外電綜合約26家機構預測中值顯示，市場預期今年首兩月規模以上工業增加值按年增長回落至約5.3%，創去年10月以來最低，受春節導致工作日數按年減少及高基數影響。不過，1-2月固定資產投資預計增長約3.6%，增速較去年12月加快0.4個百分點；「兩新」政策加力擴圍及春節旅遊、觀看電影等消費較活躍，預計可推動1-2月社會消費品零售總額按年增速加快至約4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm)
 
 ---
