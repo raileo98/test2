@@ -1,9 +1,9 @@
 # 恒基：創辦人李兆基今天黃昏離世　享壽97歲
 
-![李兆基黃昏在家人陪伴下與世長辭。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796112_1_20250317195354.jpg&q=90)
+![李兆基黃昏在家人陪伴下與世長辭。（恆地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796112_2_20250317200524.jpg&q=90)
   
 
-恒基地產公布，集團創辦人李兆基今日黃昏在家人陪伴下與世長辭，積潤享壽97歲。
+恒基地產公布，集團創辦人李兆基今日黃昏在家人陪伴下與世長辭，積閏享壽97歲。
 
   
 
@@ -24,7 +24,7 @@
 
 # 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
 
-![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_1_20250317194727.jpg&q=90)
+![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_2_20250317200046.jpg&q=90)
   
 
 新華社報道，中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬，會見巴拿馬主要政黨領導人，同智庫學者等座談。

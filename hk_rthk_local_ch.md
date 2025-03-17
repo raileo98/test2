@@ -1,9 +1,32 @@
-# 恒基：創辦人李兆基今天黃昏離世　享壽97歲
+# 丘應樺冀「香港研發+東莞轉化」領域會有更多合作項目
 
-![李兆基黃昏在家人陪伴下與世長辭。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796112_1_20250317195354.jpg&q=90)
   
 
-恒基地產公布，集團創辦人李兆基今日黃昏在家人陪伴下與世長辭，積潤享壽97歲。
+商務及經濟發展局局長丘應樺出席莞港產業合作交流會致辭時表示，香港與東莞兩地同處粵港澳大灣區的核心地帶，地緣相近、人文相親，港莞兩地一直合作無間，成果非常顯著。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm)
+
+---
+
+# 恒基：創辦人李兆基今天黃昏離世　享壽97歲
+
+![李兆基黃昏在家人陪伴下與世長辭。（恆地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796112_2_20250317200524.jpg&q=90)
+  
+
+恒基地產公布，集團創辦人李兆基今日黃昏在家人陪伴下與世長辭，積閏享壽97歲。
 
   
 
@@ -24,7 +47,7 @@
 
 # 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
 
-![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_1_20250317194727.jpg&q=90)
+![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_2_20250317200046.jpg&q=90)
   
 
 新華社報道，中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬，會見巴拿馬主要政黨領導人，同智庫學者等座談。
@@ -69,9 +92,13 @@
 
 ---
 
-# 火炭謀殺案被捕父子有黑幫背景涉策劃案件　警方正追緝刀手
+# 火炭謀殺案被捕父子有黑幫背景涉策劃案件　警方追緝刀手
 
+![李木易表示，被捕的父子有黑幫背景，涉嫌策劃案件，而刀手就仍然在逃。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796108_1_20250317201503.jpg&q=80)
   
+
+警方拘捕2男1女涉及火炭昨日的謀殺案，包括一對涉嫌策劃謀殺、有黑社會背景的父子，警方正追緝刀手。
+
   
 
 
@@ -1407,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm)
-
----
-
-# 葵涌道有私家車起火無人傷　初步懷疑引擎過熱所致
-
-![葵涌道有私家車起火，3人及時離開車廂，無人受傷。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795937_1_20250316173642.jpg&q=75)
-  
-
-葵涌道有私家車起火，3人及時離開車廂，無人受傷。警方初步懷疑車輛引擎過熱導致起火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795937-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795937-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795937-20250316.htm)
 
 ---

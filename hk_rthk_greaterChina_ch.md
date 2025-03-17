@@ -1,6 +1,29 @@
+# 丘應樺冀「香港研發+東莞轉化」領域會有更多合作項目
+
+  
+
+商務及經濟發展局局長丘應樺出席莞港產業合作交流會致辭時表示，香港與東莞兩地同處粵港澳大灣區的核心地帶，地緣相近、人文相親，港莞兩地一直合作無間，成果非常顯著。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm)
+
+---
+
 # 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
 
-![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_1_20250317194727.jpg&q=90)
+![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_2_20250317200046.jpg&q=90)
   
 
 新華社報道，中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬，會見巴拿馬主要政黨領導人，同智庫學者等座談。
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm)
-
----
-
-# 外交部︰中俄伊北京會晤是推動伊朗核問題政治解決有益嘗試
-
-![外交部強調，制裁施壓、武力威脅沒有出路，對話協商才是正確的解決之道。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795733_1_20250314155735.jpg&q=80)
-  
-
-中國、俄羅斯和伊朗副外長在北京會晤，討論伊朗核問題。外交部發言人毛寧表示，北京會晤是中、俄、伊為推動伊朗核問題政治解決的有益嘗試，強調制裁施壓、武力威脅沒有出路，對話協商才是正確的解決之道，呼籲各方加強溝通對話，為早日恢復對話談判累積有利條件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm)
 
 ---
