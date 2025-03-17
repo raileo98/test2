@@ -1,3 +1,73 @@
+# 67歲男子荃灣失蹤　警籲市民提供消息
+
+  
+
+警方呼籲市民提供一名在荃灣失蹤男子的消息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796022-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796022-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796022-20250317.htm)
+
+---
+
+# 最高檢依法對譚瑞松決定逮捕
+
+![最高檢依法對譚瑞松決定逮捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796021_1_20250317112512.jpg&q=90)
+  
+
+新華社報道，中國航空工業集團有限公司原黨組書記、董事長譚瑞松涉嫌貪污、受賄一案，由國家監察委員會調查終結，移送檢察機關審查起訴。最高人民檢察院依法以涉嫌貪污罪、受賄罪對譚瑞松作出逮捕決定。該案正在進一步辦理中。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796021-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796021-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796021-20250317.htm)
+
+---
+
+# 世界互聯網大會亞太峰會下月港舉行　孫東稱體現香港創科合作樞紐
+
+  
+
+世界互聯網大會亞太峰會，將於4月14至15日首度在香港舉行，創新科技及工業局局長孫東早上在北京出席新聞發布會。他表示大會選址香港作為2025年亞太峰會的主辦城市，正好體現香港是環球創科合作的樞紐，外界傳統上認為香港是金融中心、貿易中心、航運中心，現時香港正全力打造國際創新科技中心，形容對未來創科產業的發展已進入快車道，人工智能、數據、機械人等被列入重點發展範疇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm)
+
+---
+
 # 國家統計局：實現5%左右經濟增長目標絕非輕而易舉
 
   
@@ -287,7 +357,7 @@
 
 # 病人組織指共付費用市民支付金額偏高　病人或選擇不進行某些檢查
 
-![林志釉諗為經濟能力不足的病人來說，可能真的會因此而不進行某些檢查，以致延誤病情。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796001_1_20250317103836.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796001_2_20250317112115.jpg&q=90)
   
 
 政府早前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，由市民按項目共付費用。香港病人政策連線主席林志釉擔心，在共付原則下，市民要支付的金額比例仍然偏高，例如磁力共振，可能病人最終都要負擔過千元才能做到檢查，對一些未符合豁免收費資格、但經濟能力不足的病人來說，可能真的會因此而不進行某些檢查，以致延誤病情，又或者有病人寧願轉去急症室求診，以減少收費支出。
@@ -1364,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm)
-
----
-
-# 楊德強指全運跨境項目測試賽銜接可改善
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795942_1_20250316182944.jpg&q=85)
-  
-
-第15屆全運會及殘特奧會將於年底在粵港澳三地舉行，其中香港將承辦8個全運會及4個殘特奧會項目，另外亦會與內地及澳門合辦兩個項目，包括公路單車和馬拉松。全運會統籌辦公室主任楊德強說，這兩個跨境項目早前舉行測試賽，經檢討認為部分環節銜接可以改善。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm)
-
----
-
-# 啟德體育園舉行開幕後首場跑步賽　議員倡跑步賽與旅遊深度結合
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795940_1_20250316182735.jpg&q=85)
-  
-
-啟德體育園舉辦開幕後首個跑步賽事，約3200人參賽。有參與的市民表示，感覺新鮮，好像參加國際賽，亦有參賽的立法會議員希望體育園多舉辦類似賽事，與旅遊業深度結合，吸引旅客。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm)
-
----
-
-# 男子火炭捱斬傷重死亡　兩疑兇在逃
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795944_2_20250316185947.jpg&q=90)
-  
-
-火炭發生斬人案，一名年約50歲的男子被斬傷，送往威爾斯醫院搶救，延至傍晚約6時不治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm)
 
 ---

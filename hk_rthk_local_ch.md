@@ -1,3 +1,49 @@
+# 67歲男子荃灣失蹤　警籲市民提供消息
+
+  
+
+警方呼籲市民提供一名在荃灣失蹤男子的消息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796022-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796022-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796022-20250317.htm)
+
+---
+
+# 世界互聯網大會亞太峰會下月港舉行　孫東稱體現香港創科合作樞紐
+
+  
+
+世界互聯網大會亞太峰會，將於4月14至15日首度在香港舉行，創新科技及工業局局長孫東早上在北京出席新聞發布會。他表示大會選址香港作為2025年亞太峰會的主辦城市，正好體現香港是環球創科合作的樞紐，外界傳統上認為香港是金融中心、貿易中心、航運中心，現時香港正全力打造國際創新科技中心，形容對未來創科產業的發展已進入快車道，人工智能、數據、機械人等被列入重點發展範疇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm)
+
+---
+
 # 3款床褥樣本壓力不均轉身或擾伴侶　消委會倡選購床褥前親身試睡
 
 ![消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。（消委會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796014_1_20250317105536.jpg&q=90)
@@ -96,7 +142,7 @@
 
 # 病人組織指共付費用市民支付金額偏高　病人或選擇不進行某些檢查
 
-![林志釉諗為經濟能力不足的病人來說，可能真的會因此而不進行某些檢查，以致延誤病情。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796001_1_20250317103836.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796001_2_20250317112115.jpg&q=90)
   
 
 政府早前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，由市民按項目共付費用。香港病人政策連線主席林志釉擔心，在共付原則下，市民要支付的金額比例仍然偏高，例如磁力共振，可能病人最終都要負擔過千元才能做到檢查，對一些未符合豁免收費資格、但經濟能力不足的病人來說，可能真的會因此而不進行某些檢查，以致延誤病情，又或者有病人寧願轉去急症室求診，以減少收費支出。
@@ -1392,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795847-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795847-20250315.htm)
-
----
-
-# 天文台：未來兩三小時局部地區會有狂風雷暴
-
-![天文台：未來兩三小時局部地區會有狂風雷暴](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795845_1_20250315142448.jpg&q=90)
-  
-
-天文台表示，一個強雷雨區正影響廣東西部沿岸，並在未來兩三小時可能影響珠江口一帶，局部地區會有狂風雷暴。市民請留意天氣變化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795845-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795845-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795845-20250315.htm)
-
----
-
-# 控煙酒辦打擊非法吸食水煙巡查中區酒吧　發出兩張罰款通知書
-
-![控煙酒辦人員在酒吧進行執法工作。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795843_1_20250315141913.jpg&q=90)
-  
-
-衞生署控煙酒辦昨晚派員到中區一間酒吧採取行動，向非法吸食水煙的人士，發出兩張定額罰款通知書。調查仍在進行，控煙酒辦會考慮向涉嫌協助及教唆吸煙罪行的酒吧經營者提出檢控，亦會將個案轉介酒牌局跟進。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795843-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795843-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795843-20250315.htm)
 
 ---

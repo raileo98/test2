@@ -1,3 +1,27 @@
+# 'Improve ID checks for cross-boundary sports events'
+
+![A local academic suggests ways the city could improve its hosting of cross-boundary sports events. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796018_1_20250317112424.jpg&q=65)
+  
+
+An academic who chairs Baptist University's Department of Sport, Physical Education, and Health on Monday said authorities could improve the efficiency and ease of ID checks on athletes who participate in cross-boundary sports events.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm)
+
+---
+
 # Draper powers past Rune to claim first ATP 1000 title
 
 ![Draper will make his top ten debut at seventh in the world after the victory at Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795988_1_20250317081126.jpg&q=90)
@@ -1423,29 +1447,5 @@ Ethiopia dominated the competition at the Tokyo Marathon on Sunday, winning both
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793874-20250302.htm)
-
----
-
-# Man City beat giant killers Plymouth in FA Cup
-
-![Manchester City's English midfielder Nico O'Reilly celebrates scoring the team's second goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793851_1_20250302075410.jpg&q=90)
-  
-
-Manchester City survived a scare to beat giant killers Plymouth 3-1 and progress to the FA Cup quarter-finals on Saturday, after Crystal Palace striker Jean Philippe-Mateta was hospitalised in the Eagles' 3-1 win over Millwall.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793851-20250302.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793851-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793851-20250302.htm)
 
 ---

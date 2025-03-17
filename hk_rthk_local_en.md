@@ -1,3 +1,27 @@
+# 'Improve ID checks for cross-boundary sports events'
+
+![A local academic suggests ways the city could improve its hosting of cross-boundary sports events. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796018_1_20250317112424.jpg&q=65)
+  
+
+An academic who chairs Baptist University's Department of Sport, Physical Education, and Health on Monday said authorities could improve the efficiency and ease of ID checks on athletes who participate in cross-boundary sports events.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm)
+
+---
+
 # Man dies after alleged chopper attack in Fo Tan
 
 ![Police say the victim was allegedly attacked by two knife-wielding men. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795948_2_20250316185117.jpg&q=70)
@@ -1412,29 +1436,5 @@ Hong Kong will improve as long as everyone works together to tackle the fiscal d
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm)
-
----
-
-# Govt welcomes HK$200m donation to support AI
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795099_1_20250310143309.jpg&q=90)
-  
-
-Hong Kong's finance and technology ministers on Monday welcomed a HK$200 million donation by property developers to support the city’s generative artificial intelligence development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795099-20250310.htm)
 
 ---

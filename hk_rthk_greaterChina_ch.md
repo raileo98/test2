@@ -1,3 +1,27 @@
+# 最高檢依法對譚瑞松決定逮捕
+
+![最高檢依法對譚瑞松決定逮捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796021_1_20250317112512.jpg&q=90)
+  
+
+新華社報道，中國航空工業集團有限公司原黨組書記、董事長譚瑞松涉嫌貪污、受賄一案，由國家監察委員會調查終結，移送檢察機關審查起訴。最高人民檢察院依法以涉嫌貪污罪、受賄罪對譚瑞松作出逮捕決定。該案正在進一步辦理中。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796021-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796021-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796021-20250317.htm)
+
+---
+
 # 國家統計局：實現5%左右經濟增長目標絕非輕而易舉
 
   
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795567-20250313.htm)
-
----
-
-# 西藏自治區原黨委書記吳英杰涉受賄將於北京第三中級人民法院審理
-
-![西藏自治區原黨委書記吳英杰涉嫌受賄案，將於北京市第三中級人民法院審理。（微博圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795566_1_20250313160015.jpg&q=90)
-  
-
-西藏自治區原黨委書記吳英杰涉嫌受賄案，將於北京市第三中級人民法院審理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795566-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795566-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795566-20250313.htm)
 
 ---

@@ -1,9 +1,9 @@
-# Retail sales up four percent in China
+# 'Improve ID checks for cross-boundary sports events'
 
-![Retail sales of consumer goods, excluding automobiles, amounted to more than 7.68 trillion yuan in the first two months of the year, up 4.8 percent year on year. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796017_1_20250317110913.jpg&q=80)
+![A local academic suggests ways the city could improve its hosting of cross-boundary sports events. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796018_1_20250317112424.jpg&q=65)
   
 
-China's retail sales of consumer goods, a major indicator of the country's consumption strength, climbed four percent year on year in the first two months of 2025, official data showed on Monday.
+An academic who chairs Baptist University's Department of Sport, Physical Education, and Health on Monday said authorities could improve the efficiency and ease of ID checks on athletes who participate in cross-boundary sports events.
 
   
 
@@ -11,14 +11,14 @@ China's retail sales of consumer goods, a major indicator of the country's consu
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm>
+<https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm)
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796018-20250317.htm)
 
 ---
 
