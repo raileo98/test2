@@ -1,3 +1,27 @@
+# Brand fallout for South Korean hearthrob
+
+![Kim Soo-hyun hit stardom with 'My Love from the Star' and 'Queen of Tears.' File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796076_4_20250317173144.jpg&q=90)
+  
+
+Brands including Prada have cut ties with South Korean actor Kim Soo-hyun amid controversy over his relationship with actress Kim Sae-ron, who was found dead in February.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796076-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796076-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796076-20250317.htm)
+
+---
+
 # Mt Fuji entry fee set for hikers
 
 ![Hikers near the popular Yoshida trail, which will see a doubling of the fee, up Mount Fuji. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796065_1_20250317160637.jpg&q=70)
@@ -1413,29 +1437,5 @@ Saudi Arabia, Qatar and Jordan on Tuesday condemned Israel's decision to cut ele
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795253-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795253-20250311.htm)
-
----
-
-# Ex-Philippine president Duterte arrested in Manila
-
-![Former Philippine president Rodrigo Duterte was arrested after landing in Manila from Hong Kong. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795225_1_20250311113948.jpg&q=90)
-  
-
-Former Philippine president Rodrigo Duterte was arrested by police at Manila's international airport on Tuesday on the order of the International Criminal Court (ICC) in connection with a case of crime against humanity filed against him, the Philippine government said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795225-20250311.htm)
 
 ---

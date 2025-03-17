@@ -1,3 +1,27 @@
+# Brand fallout for South Korean hearthrob
+
+![Kim Soo-hyun hit stardom with 'My Love from the Star' and 'Queen of Tears.' File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796076_4_20250317173144.jpg&q=90)
+  
+
+Brands including Prada have cut ties with South Korean actor Kim Soo-hyun amid controversy over his relationship with actress Kim Sae-ron, who was found dead in February.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796076-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796076-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796076-20250317.htm)
+
+---
+
 # Police raid Mong Kok building 'in murder probe'
 
 ![Officers carry out their operation at King Hing Building in Mong Kok. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796085_1_20250317172150.jpg&q=85)
@@ -1415,29 +1439,5 @@ President Vladimir Putin on Friday called on beleaguered Ukrainian troops in the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795805-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795805-20250315.htm)
-
----
-
-# Mark Carney sworn in as Canada's PM
-
-![Carney, a former head of both the Bank of Canada and the Bank of England, successfully argued his position with a history of tackling crises meant he was the best person to take on Trump. File Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795795_1_20250315001953.jpg&q=90)
-  
-
-Mark Carney was formally sworn in as prime minister of Canada on Friday, putting him in a position to fight tariffs from US President Donald Trump that could devastate the trade-dependent Canadian economy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795795-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795795-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795795-20250315.htm)
 
 ---
