@@ -1,3 +1,27 @@
+# 'Task force on gastro outbreak among students needed'
+
+![A local education concern group says the task force is needed to ensure the safety of students. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796027_1_20250317115245.jpg&q=85)
+  
+
+A local education concern group on Monday welcomed the government's decision to form a task force to look into a recent gastroenteritis outbreak among students who went on a mainland study tour in Guangdong.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm)
+
+---
+
 # Healthcare co-payment levels 'should be capped'
 
 ![The government has said it hopes to adjust hospital fees to a level where any payment by a patient would be reasonable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796019_1_20250317112442.jpg&q=90)
@@ -1412,29 +1436,5 @@ Police have arrested the driver of a private car, who allegedly fled following a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795184-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795184-20250311.htm)
-
----
-
-# Deficit not a big problem for HK: Wang Linggui
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795110_1_20250310154314.jpg&q=90)
-  
-
-A deputy director of the Hong Kong and Macau Affairs Office on Monday said he does not believe the SAR's fiscal deficit is a major concern, citing the size of the city's economy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm)
 
 ---

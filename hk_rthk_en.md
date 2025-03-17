@@ -1,3 +1,27 @@
+# 'Task force on gastro outbreak among students needed'
+
+![A local education concern group says the task force is needed to ensure the safety of students. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796027_1_20250317115245.jpg&q=85)
+  
+
+A local education concern group on Monday welcomed the government's decision to form a task force to look into a recent gastroenteritis outbreak among students who went on a mainland study tour in Guangdong.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm)
+
+---
+
 # Healthcare co-payment levels 'should be capped'
 
 ![The government has said it hopes to adjust hospital fees to a level where any payment by a patient would be reasonable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796019_1_20250317112442.jpg&q=90)
@@ -1414,29 +1438,5 @@ Shares of CK Hutchison shed more than 6 percent on Friday, after the Beijing off
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm)
-
----
-
-# Lunar eclipse brings 'bloody' marvellous spectacle
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795743_1_20250314164944.jpg&q=90)
-  
-
-Stargazers across a swathe of the world marvelled at a dramatic red "Blood Moon" during a rare total lunar eclipse in the early hours of Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm)
 
 ---
