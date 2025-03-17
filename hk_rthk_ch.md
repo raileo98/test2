@@ -1,3 +1,27 @@
+# 美俄元首稍後通電話　澤連斯基強調俄方須停止提出停火附加條件
+
+![美國總統特朗普今日稍後將會與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796149_1_20250318044754.jpg&q=90)
+  
+
+美國總統特朗普今日稍後將會與俄羅斯總統普京通電話，克里姆林宮說，主要話題會是調解烏克蘭問題，今次通話亦是為了恢復兩國關係定下基調的重要一步。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796149-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796149-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796149-20250318.htm)
+
+---
+
 # 卡尼訪問法國和英國　強調會盡可能與美國保持積極關係
 
 ![卡尼在唐寧街10號與英國首相施紀賢會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796148_1_20250318042915.jpg&q=85)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm)
-
----
-
-# 宋皇臺站出入口B2及B3暫時關閉　消息：現場報稱發現可疑物品
-
-![宋皇臺站出入口B2及B3暫時關閉。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796078_2_20250317173719.jpg&q=90)
-  
-
-運輸署接獲港鐵公司通知，因應警方要求，宋皇臺站出入口B2及B3暫時關閉，呼籲乘客使用其他出入口。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796078-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796078-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796078-20250317.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 美俄元首稍後通電話　澤連斯基強調俄方須停止提出停火附加條件
+
+![美國總統特朗普今日稍後將會與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796149_1_20250318044754.jpg&q=90)
+  
+
+美國總統特朗普今日稍後將會與俄羅斯總統普京通電話，克里姆林宮說，主要話題會是調解烏克蘭問題，今次通話亦是為了恢復兩國關係定下基調的重要一步。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796149-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796149-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796149-20250318.htm)
+
+---
+
 # 卡尼訪問法國和英國　強調會盡可能與美國保持積極關係
 
 ![卡尼在唐寧街10號與英國首相施紀賢會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796148_1_20250318042915.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795890-20250316.htm)
-
----
-
-# 南韓傳媒料總統彈劾案裁決或本周中後期出爐
-
-![法院未就尹錫悅彈劾案通告宣判日期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795889_1_20250316003436.jpg&q=90)
-  
-
-南韓憲法法院未向總統尹錫悅彈劾案的申請方及被申請方，通告宣判日期。當地傳媒推測，裁決結果可能在本周中、後期出爐。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795889-20250316.htm)
 
 ---
