@@ -1,3 +1,27 @@
+# 特朗普提名鮑曼為聯儲局副主席　負責金融監管
+
+![特朗普提名聯儲局理事鮑曼擔任負責監管的副主席。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796166_1_20250318070933.jpg&q=90)
+  
+
+美國總統特朗普在社交媒體上發文表示，提名聯儲局理事鮑曼擔任負責監管的副主席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796166-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796166-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796166-20250318.htm)
+
+---
+
 # 港股ADR較本港昨日收市價普遍上升　阿里巴巴升近6%
 
 ![港股ADR普遍上升，阿里巴巴升近6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796160_1_20250318061950.jpg&q=80)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795998-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795998-20250317.htm)
-
----
-
-# 人民幣中間價上調50點子　創逾4個月新高
-
-![人民幣中間價報7.1688兌1美元，上調50點子，創逾4個月新高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795997_1_20250317091745.jpg&q=80)
-  
-
-人民幣中間價報7.1688兌1美元，較上星期五中間價上調50點子，創逾4個月新高，與市場預測偏離逾500點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795997-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795997-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795997-20250317.htm)
 
 ---

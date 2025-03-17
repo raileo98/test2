@@ -1,3 +1,27 @@
+# 特朗普提名鮑曼為聯儲局副主席　負責金融監管
+
+![特朗普提名聯儲局理事鮑曼擔任負責監管的副主席。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796166_1_20250318070933.jpg&q=90)
+  
+
+美國總統特朗普在社交媒體上發文表示，提名聯儲局理事鮑曼擔任負責監管的副主席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796166-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796166-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796166-20250318.htm)
+
+---
+
 # 國際奧委會執委會建議將拳擊納入洛杉磯奧運會正式比賽項目
 
 ![國際奧委會執委會召開會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796167_1_20250318070729.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796096-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796096-20250317.htm)
-
----
-
-# 火炭謀殺案警稍後交代案情　消息：兩男一女被捕
-
-![一名52歲男子昨日在火炭被人以刀襲擊，身體多處受傷，昏迷送院後不治。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796094_1_20250317180838.jpg&q=80)
-  
-
-火炭謀殺案，警方拘捕兩男一女，稍後交代案情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796094-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796094-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796094-20250317.htm)
 
 ---
