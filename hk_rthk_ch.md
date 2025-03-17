@@ -1,3 +1,23 @@
+# 日本高知市有住宅起火　據報2死1重傷
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm)
+
+---
+
 # 日本靜岡縣將向每名攀登富士山人士收取4千日圓登山費
 
 ![富士山2013年入選聯合國教科文組織世界文化遺產名錄。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796089_1_20250317173732.jpg&q=90)

@@ -1,3 +1,27 @@
+# 研究：內地1月手機出貨量按年跌逾14%
+
+![信息通信研究院公布，1月國產品牌手機出貨量按年下跌近13%，佔總出貨量比例近84%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796090_1_20250317174638.jpg&q=90)
+  
+
+工信部直屬信息通信研究院公布，1月內地手機出貨量逾2724萬部，按年下跌逾14%，其中，5G手機按年下跌近10%，佔同期手機出貨量近87%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm)
+
+---
+
 # 市場監管總局稱引導商戶提供優質服務　嚴格監管執法以保障消費者
 
   
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795791-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795791-20250314.htm)
-
----
-
-# 美國3月消費者信心跌至近兩年半最低　通脹預期上升
-
-![美國密歇根大學3月美國消費者信心指數初值為57.9，創近兩年半以來最低，低過市場預期的63.1。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795786_1_20250314220845.jpg&q=65)
-  
-
-美國3月消費者信心驟降，通脹預期上升，因擔心美國總統特朗普關稅政策會刺激物價並削弱經濟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795786-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795786-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795786-20250314.htm)
 
 ---

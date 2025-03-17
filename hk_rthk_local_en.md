@@ -1,27 +1,3 @@
-# Stocks end up on news of China's consumption drive
-
-![The Hang Seng Index rose 0.77 percent to close at 24,145.57. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796083_1_20250317174259.jpg&q=75)
-  
-
-Markets rose on Monday as investors welcomed China's plans to kickstart consumption in the world's number two economy, though worries about US President Donald Trump's tariffs war continue to cast a shadow over trading floors.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm)
-
----
-
 # Police raid Mong Kok building 'in murder probe'
 
 ![Officers carry out their operation at King Hing Building in Mong Kok. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796085_1_20250317172150.jpg&q=85)
@@ -1436,5 +1412,29 @@ Social worker Jackie Chen was on Tuesday convicted of rioting in Wan Chai during
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795265-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795265-20250311.htm)
+
+---
+
+# 'No plans for a comprehensive tax-regime review'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795259_1_20250311161557.jpg&q=80)
+  
+
+Financial Secretary Paul Chan on Tuesday said the government does not plan to conduct a comprehensive review on the SAR's tax regime in the near term, despite calls to introduce new sources of revenue to tackle the city’s deficit.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795259-20250311.htm)
 
 ---

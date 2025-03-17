@@ -1,3 +1,23 @@
+# 日本高知市有住宅起火　據報2死1重傷
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm)
+
+---
+
 # 日本靜岡縣將向每名攀登富士山人士收取4千日圓登山費
 
 ![富士山2013年入選聯合國教科文組織世界文化遺產名錄。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796089_1_20250317173732.jpg&q=90)
@@ -1411,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795822-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795822-20250315.htm)
-
----
-
-# 格陵蘭政黨領袖發表聯合聲明譴責特朗普控制格陵蘭島言論
-
-![格陵蘭島所有政黨領袖發表聯合聲明，表明拒絕接受關於吞併和控制格陵蘭島的反覆言論。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795821_1_20250315085333.jpg&q=85)
-  
-
-丹麥自治領地格陵蘭所有政黨領袖，譴責美國總統特朗普關於控制格陵蘭島的言論。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795821-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795821-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795821-20250315.htm)
 
 ---
