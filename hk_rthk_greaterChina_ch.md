@@ -1,3 +1,27 @@
+# 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
+
+![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_1_20250317194727.jpg&q=90)
+  
+
+新華社報道，中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬，會見巴拿馬主要政黨領導人，同智庫學者等座談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
+
+---
+
 # 外交部：祖國完全統一勢不可擋　「倚外謀獨」終是絕路
 
 ![外交部稱，祖國完全統一勢不可擋，「倚外謀獨」終是絕路。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796107_1_20250317192325.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795733-20250314.htm)
-
----
-
-# 金管總局：鼓勵加大個人消費貸款投放力度
-
-![金管總局發文鼓勵銀行業金融機構在風險可控前提下，加大個人消費貸款投放力度，優化資源配置。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795732_1_20250314163540.jpg&q=90)
-  
-
-中國金融監管總局發文，鼓勵銀行業金融機構在風險可控前提下，加大個人消費貸款投放力度，合理設置消費貸款額度、期限、利率，優化資源配置；針對長期、大額消費需求，從消費貸款額度、期限等方面給予支持；針對暫時遇到困難的借款人，合理商定貸款償還期限及頻次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795732-20250314.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 恒基：創辦人李兆基今天黃昏離世　享壽97歲
+
+![李兆基黃昏在家人陪伴下與世長辭。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796112_1_20250317195354.jpg&q=90)
+  
+
+恒基地產公布，集團創辦人李兆基今日黃昏在家人陪伴下與世長辭，積潤享壽97歲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm)
+
+---
+
+# 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
+
+![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_1_20250317194727.jpg&q=90)
+  
+
+新華社報道，中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬，會見巴拿馬主要政黨領導人，同智庫學者等座談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
+
+---
+
 # 航空公司：加飛機離境稅削競爭力　政府：對出行開支影響十分輕微
 
   
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795825-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795825-20250315.htm)
-
----
-
-# 李慧琼稱香港應與國際深化交流擴大網絡　引進更多人才資金
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795823_1_20250315093033.jpg&q=85)
-  
-
-全國兩會日前閉幕，人大常委李慧琼出席本台節目《星期六問責》時表示，國家非常關心及支持港澳，今年的總理工作報告提及要求深化國際交往合作，她認為可以進一步發揮香港制度的獨有優勢及固有特點，除了經濟，亦涉及政治、文化、體育、科技及教育等方面，與國際深化交流和擴大網絡，引進更多人才資金，提升國家的軟實力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm)
-
----
-
-# 歐元兌美元曾升穿1.09　美元指數於104得而復失
-
-![德國財政改革有進展，歐元兌美元一度升穿1.09水平，高見1.0911。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795815_1_20250315070837.jpg&q=85)
-  
-
-德國財政改革有進展，國會下星期將會表決債務協議，協議包括設立5000億歐元基金，用於國防及基礎設施投資。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm)
 
 ---

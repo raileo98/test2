@@ -1,3 +1,27 @@
+# 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
+
+![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_1_20250317194727.jpg&q=90)
+  
+
+新華社報道，中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬，會見巴拿馬主要政黨領導人，同智庫學者等座談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
+
+---
+
 # 外交部：祖國完全統一勢不可擋　「倚外謀獨」終是絕路
 
 ![外交部稱，祖國完全統一勢不可擋，「倚外謀獨」終是絕路。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796107_1_20250317192325.jpg&q=80)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm)
-
----
-
-# 萬斯料下月限期前可就TikTok所有權問題達成協議
-
-![特朗普早前表示，政府正與4間對TikTok交易感興趣的集團接觸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795829_1_20250315103020.jpg&q=90)
-  
-
-路透社引述兩名美國白宮官員報道，副總統萬斯預計，可以在下月5日限期前，就短片分享平台TikTok所有權的一般條款達成協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795829-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795829-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795829-20250315.htm)
 
 ---
