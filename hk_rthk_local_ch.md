@@ -144,7 +144,7 @@
 
 # 強積金對沖5月取消　鄧家彪籲僱主勿因擔心增加負擔而解僱員工
 
-![鄧家彪（右）建議僱主僱員有疑慮，可以先向勞工處了解詳情，否則可能計錯數。（鍾浩程攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796033_1_20250317125239.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796033_1_20250317125239.jpg&q=90)
   
 
 強積金對沖安排將於5月1日起取消，工聯會立法會議員鄧家彪呼籲僱主不要因為擔心負擔增加而解僱員工，新安排下不設追溯期，如果僱主趕在5月1日前解僱員工，可能要給予的遣散費會更多，同時亦未必可以即時聘請到新人填補空缺。

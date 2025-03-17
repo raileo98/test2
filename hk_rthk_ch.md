@@ -192,6 +192,7 @@
 
 # 統計局：CPI溫和上升趨勢不變
 
+![付凌暉說，最新公布的《提振消費專項行動方案》，加力擴圍實施消費品以舊換新，有望帶動消費穩定增長。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796044_2_20250317145539.jpg&q=90)
 ![付凌暉表示，CPI溫和上升趨勢不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796044_1_20250317125318.jpg&q=90)
   
 
@@ -384,7 +385,7 @@
 
 # 強積金對沖5月取消　鄧家彪籲僱主勿因擔心增加負擔而解僱員工
 
-![鄧家彪（右）建議僱主僱員有疑慮，可以先向勞工處了解詳情，否則可能計錯數。（鍾浩程攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796033_1_20250317125239.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796033_1_20250317125239.jpg&q=90)
   
 
 強積金對沖安排將於5月1日起取消，工聯會立法會議員鄧家彪呼籲僱主不要因為擔心負擔增加而解僱員工，新安排下不設追溯期，如果僱主趕在5月1日前解僱員工，可能要給予的遣散費會更多，同時亦未必可以即時聘請到新人填補空缺。
@@ -672,6 +673,7 @@
 
 # 國家統計局：實現5%左右經濟增長目標絕非輕而易舉
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796016_1_20250317145323.jpg&q=90)
   
 
 國家統計局新聞發言人、國民經濟綜合統計司司長付凌暉表示，隨著更加積極的財政政策和適度寬鬆的貨幣政策逐步落地，政策協同效應不斷增強。首兩個月生產供應穩定增長，市場需求逐步擴大，就業形勢保持總體穩定，發展新動能逐步壯大。他形容，今年經濟運行起步平穩，發展趨勢「向新向好」。

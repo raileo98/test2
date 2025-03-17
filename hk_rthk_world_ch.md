@@ -1,3 +1,27 @@
+# 俄副外長：為達和平協議需拒絕烏克蘭加入北約
+
+![格魯什科強調，歐洲必須明白要為俄羅斯的安全提供國際法保障，必須拒絕烏克蘭加入北約。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796055_1_20250317145558.jpg&q=90)
+  
+
+俄羅斯副外長格魯什科說，為達成和平協議，俄方需要可靠的安全保障，當中包括拒絕烏克蘭加入北約以及烏克蘭保持中立地位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796055-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796055-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796055-20250317.htm)
+
+---
+
 # 特朗普：計劃周二與普京通話　認為很有機會結束俄烏戰爭
 
 ![特朗普在「空軍一號」專機上對記者表示，將在周二與普京通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796042_1_20250317125325.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795802-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795802-20250315.htm)
-
----
-
-# 卡尼：未有計劃晤特朗普　加拿大永遠不會成為美國一部分
-
-![卡尼上任後召開記者會，一眾內閣成員在他身後。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795801_1_20250315023444.jpg&q=90)
-  
-
-加拿大新任總理卡尼表示，面對外國不合理的貿易行動，保護加拿大工人和家庭是新政府重點關注的事項之一，指出消極的態度不會贏得貿易戰，亦不會降低食品價格。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795801-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795801-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795801-20250315.htm)
 
 ---
