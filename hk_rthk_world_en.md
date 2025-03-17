@@ -1,3 +1,27 @@
+# Carney says Canada must reduce reliance on US
+
+![Canada's Prime Minister Mark Carney speaks during a bilateral meeting with Britain's Prime Minister. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796162_1_20250318063858.jpg&q=90)
+  
+
+Canadian Prime Minister Mark Carney on Monday warned his country must reduce its reliance on the United States and would turn towards its "reliable" European allies instead on his first trip abroad.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm)
+
+---
+
 # Major rallies in Yemen after deadly US strikes
 
 ![Yemenis brandish rifles and chant during a demonstration. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796143_1_20250318014607.jpg&q=90)
@@ -1413,29 +1437,5 @@ Ukraine said talks with the United States in Saudi Arabia began "very constructi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm)
-
----
-
-# South Africa bus crash toll climbs to 16
-
-![The bus crashed on a busy road near Johannesburg's OR Tambo Airport. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795306_1_20250311203523.jpg&q=75)
-  
-
-A bus overturned in an area of Johannesburg near South Africa's main airport early on Tuesday, killing at least 16 people, city officials said, with dozens more injured.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795306-20250311.htm)
 
 ---

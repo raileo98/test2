@@ -1,3 +1,27 @@
+# Carney says Canada must reduce reliance on US
+
+![Canada's Prime Minister Mark Carney speaks during a bilateral meeting with Britain's Prime Minister. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796162_1_20250318063858.jpg&q=90)
+  
+
+Canadian Prime Minister Mark Carney on Monday warned his country must reduce its reliance on the United States and would turn towards its "reliable" European allies instead on his first trip abroad.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm)
+
+---
+
 # US stocks rise ahead of Fed meeting
 
 ![Wall Street expects the US central bank is widely expected to keep interest rates unchanged. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796161_1_20250318063244.jpg&q=85)
@@ -1415,29 +1439,5 @@ Shohei Ohtani fever in Tokyo reached boiling point on Saturday as the Japanese b
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795879-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795879-20250315.htm)
-
----
-
-# Putin will have to 'come to table,' UK PM tells summit
-
-![Keir Starmer and French President Emmanuel Macron have been leading efforts to assemble a so-called "coalition of the willing."  Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795873_1_20250315201758.jpg&q=90)
-  
-
-UK premier Keir Starmer said on Saturday that Russian President Vladimir Putin would "sooner or later" have to "come to the table" as he opened a virtual summit to drum up support for a coalition willing to protect any eventual ceasefire in Ukraine.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm)
 
 ---
