@@ -1,5 +1,29 @@
+# 就澤連斯基稱重建冀獲中國援助　國合署：願提供力所能及幫助
+
+  
+
+中國國家國際發展合作署新聞發言人李明表示，烏克蘭危機爆發以來，中國共向烏克蘭提供四批人道主義援助。中方將繼續做維護世界和平穩定的積極力量，捍衛全球公平正義的進步力量。願繼續根據當事方的意願，提供力所能及的幫助。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796103-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796103-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796103-20250317.htm)
+
+---
+
 # 藍田五邑司徒浩中學6名學生上周廈門交流時急性腸胃炎　曾食團餐
 
+![衞生防護中心正調查一宗中學交流團出現急性腸胃炎徵狀個案群組，涉及6名上星期參加交流團到廈門的學生。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796102_1_20250317184421.jpg&q=80)
   
 
 再有中學訪內地交流團的學生急性腸胃炎，最新的個案涉及藍田五邑司徒浩中學，36名師生在上周四至周六日參加交流團到廈門，期間6名學生在上周五晚9時至翌日早上約7時，陸續出現急性腸胃炎病徵，包括嘔吐、腹瀉和發燒。其中5人在當地求醫，全部無需留院。
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm)
-
----
-
-# 伊朗核問題中俄伊北京會晤聲明重申應摒棄制裁施壓、武力威脅
-
-![會晤由外交部副部長馬朝旭主持，俄羅斯和伊朗外交部副部長與會。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795714_1_20250314141811.jpg&q=90)
-  
-
-伊朗核問題中俄伊北京會晤舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795714-20250314.htm)
 
 ---
