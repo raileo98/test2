@@ -1,3 +1,27 @@
+# Messi ruled out as Argentina aim for World Cup spot
+
+![The Argentina superstar will reportedly be sidelined over a muscle strain injury. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796168_1_20250318073733.jpg&q=90)
+  
+
+Lionel Messi will miss two World Cup qualifiers after he was left out of the Argentina squad for games against Uruguay and Brazil because he reportedly suffered an injury in a club game.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm)
+
+---
+
 # IOC set to include boxing on 2028 Olympics programme
 
 ![Germany's Nelvie Tiafack, left, in action against Bakhodir Jalolov of Uzbekistan at the Paris Olympics. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796158_1_20250318055329.jpg&q=90)
@@ -1422,29 +1446,5 @@ Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Ko
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm)
-
----
-
-# Forest sink Ipswich on pens to reach FA Cup quarters
-
-![Forest goalkeeper Matz Sels celebrates with teammates after saving a penalty. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794085_1_20250304073840.jpg&q=90)
-  
-
-Nottingham Forest needed penalties to beat Ipswich and book a place in the FA Cup quarter-finals after a 1-1 draw at the City Ground.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794085-20250304.htm)
 
 ---

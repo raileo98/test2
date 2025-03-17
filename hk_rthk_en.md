@@ -1,3 +1,27 @@
+# Messi ruled out as Argentina aim for World Cup spot
+
+![The Argentina superstar will reportedly be sidelined over a muscle strain injury. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796168_1_20250318073733.jpg&q=90)
+  
+
+Lionel Messi will miss two World Cup qualifiers after he was left out of the Argentina squad for games against Uruguay and Brazil because he reportedly suffered an injury in a club game.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm)
+
+---
+
 # Carney says Canada must reduce reliance on US
 
 ![Canada's Prime Minister Mark Carney speaks during a bilateral meeting with Britain's Prime Minister. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796162_1_20250318063858.jpg&q=90)
@@ -1415,29 +1439,5 @@ The Russian captain of a cargo ship which struck a tanker in the North Sea off t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795877-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795877-20250315.htm)
-
----
-
-# Ohtani hits home run in Dodgers' Tokyo exhibition game
-
-![Superstar Shohei Ohtani sends the crowd wild with a two-run homer in the third inning. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795879_1_20250315205024.jpg&q=85)
-  
-
-Shohei Ohtani fever in Tokyo reached boiling point on Saturday as the Japanese baseball superstar hit a home run in his first game in a Los Angeles Dodgers uniform in his home country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795879-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795879-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795879-20250315.htm)
 
 ---
