@@ -1,6 +1,34 @@
-# 日本高知市有住宅起火　據報2死1重傷
+# 研究：內地1月手機出貨量按年跌逾14%
+
+![信息通信研究院公布，1月國產品牌手機出貨量按年下跌近13%，佔總出貨量比例近84%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796090_1_20250317174638.jpg&q=90)
+  
+
+工信部直屬信息通信研究院公布，1月內地手機出貨量逾2724萬部，按年下跌逾14%，其中，5G手機按年下跌近10%，佔同期手機出貨量近87%。
 
   
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm)
+
+---
+
+# 日本高知市有住宅起火　據報2死1重傷
+
+![日本高知市有住宅起火　據報2死1重傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796091_1_20250317175419.jpg&q=90)
+  
+
+日本高知市一個住宅發生火警，據報造成2人死亡，1人重傷。
+
   
 
 

@@ -1,6 +1,10 @@
 # 日本高知市有住宅起火　據報2死1重傷
 
+![日本高知市有住宅起火　據報2死1重傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796091_1_20250317175419.jpg&q=90)
   
+
+日本高知市一個住宅發生火警，據報造成2人死亡，1人重傷。
+
   
 
 

@@ -1,3 +1,26 @@
+# 宋皇臺站兩出口解封　警接報發現行李箱搜查後證實無可疑
+
+  
+
+港鐵宋皇臺站兩個出口一度封閉搜查可疑物物品，警方搜查後證實並無可疑，B2及B3出口現已解封。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm)
+
+---
+
 # 一度在荃灣失蹤67歲男子　下午在青衣被尋回
 
 ![男事主昨晚在荃灣失蹤，下午在青衣被尋回。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796088_1_20250317173627.jpg&q=75)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795913-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795913-20250316.htm)
-
----
-
-# 陳茂波：數碼港聚焦人工智能招聘博覽提供逾2千個職位
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795911_1_20250316105629.jpg&q=90)
-  
-
-財政司司長陳茂波表示，不少已在港落戶或打算擴展業務的科企，也希望增聘人手。科技園公司上月舉辦了主題招聘會，有150多家從事人工智能的園區公司參與，提供超過1000個創科職位，涵蓋軟件開發、數據分析和大模型算法等領域。數碼港亦一連兩日舉行聚焦人工智能的招聘博覽，580多家企業及機構將提供逾2000個職位，當中約六成都跟人工智能相關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795911-20250316.htm)
 
 ---
