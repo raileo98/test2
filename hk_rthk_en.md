@@ -1,3 +1,27 @@
+# Try out beds before purchasing: consumer watchdog
+
+![The Consumer Council says that prices do not necessarily reflect the quality of mattresses. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
+  
+
+The Consumer Council on Monday urged people to try out different sleeping postures on mattresses – some of which were found to provide inadequate support – before making a purchase.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm)
+
+---
+
 # 'Improve ID checks for cross-boundary sports events'
 
 ![A local academic suggests ways the city could improve its hosting of cross-boundary sports events. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796018_1_20250317112424.jpg&q=65)
@@ -1414,29 +1438,5 @@ Secretary for Health Lo Chung-mau said on Friday the government is reviewing fee
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795727-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795727-20250314.htm)
-
----
-
-# Tourist figures up 7pc in Jan-Feb
-
-![Locals and visitors alike enjoy the fireworks extravaganza on January 30, day two of the Year of the Snake. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795725_2_20250314160255.jpg&q=75)
-  
-
-Tourist arrivals hit 8.4 million in the first two months of the year, a seven percent increase year on year, the Hong Kong Tourism Board said on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm)
 
 ---
