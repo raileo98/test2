@@ -1,3 +1,26 @@
+# 港鐵稱因應警方要求　宋皇臺站出入口B2及B3暫時關閉
+
+  
+
+運輸署接獲港鐵公司通知，因應警方要求，宋皇臺站出入口B2及B3暫時關閉，呼籲乘客使用其他出入口。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796078-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796078-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796078-20250317.htm)
+
+---
+
 # 港股高收185點　重上24000點關口　連升兩日
 
 ![港股連升兩日，恒生指數重上24000點收市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796067_1_20250317161631.jpg&q=45)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795888-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795888-20250316.htm)
-
----
-
-# 警方檢約40粒含太空油毒品電子煙彈　男子涉販毒落網
-
-![警方在新蒲崗一個住宅單位外截查涉案男子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795887_1_20250315234840.jpg&q=60)
-  
-
-警方在新蒲崗檢獲大約40粒含有「太空油毒品」的電子煙彈，市值約1.4萬元，拘捕一名24歲男子，指他涉嫌販運危險藥物。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795887-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795887-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795887-20250315.htm)
 
 ---

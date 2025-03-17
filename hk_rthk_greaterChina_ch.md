@@ -1,3 +1,27 @@
+# 中辦印發《通知》在全黨開展深入貫徹中央八項規定精神學習教育
+
+![中辦印發《通知》在全黨開展深入貫徹中央八項規定精神學習教育](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796077_1_20250317165722.jpg&q=90)
+  
+
+中共中央辦公廳近日印發《關於在全黨開展深入貫徹中央八項規定精神學習教育的通知》，指出為貫徹落實黨的二十屆三中全會部署，鞏固拓展學習貫徹習近平新時代中國特色社會主義思想主題教育成果，鞏固深化黨紀學習教育成果，鍥而不捨落實中央八項規定精神，推進作風建設常態化長效化，經黨中央同意，在全黨開展深入貫徹中央八項規定精神學習教育。學習教育在2025年全國兩會後啟動、7月底前基本結束。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796077-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796077-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796077-20250317.htm)
+
+---
+
 # 財政部：消費品以舊換新資金將盡快下達
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795634-20250314.htm)
-
----
-
-# 鄭新聰冀澳門做好經濟適度多元發展等四項工作
-
-![澳門舉行全國兩會精神傳達會。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795636_1_20250314001727.jpg&q=80)
-  
-
-澳門中聯辦主任鄭新聰希望，澳門未來做好包括經濟適度多元發展、堅定維護國家安全和穩定澳門大局，著力提升政府治理能力和水平，以及更好服務國家發展大局的四項工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795636-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795636-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795636-20250314.htm)
 
 ---
