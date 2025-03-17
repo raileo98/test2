@@ -1,3 +1,27 @@
+# 《環看天下》：特朗普下令大規模空襲也門　胡塞武裝誓言報復
+
+![美軍據報包括透過部署在紅海的軍艦，向也門胡塞武裝目標發動空襲。( 路透社 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796169_1_20250318074628.jpg&q=90)
+  
+
+美國向也門胡塞武裝發動一系列空襲，警告直至對方停止襲擊紅海一帶西方國家商船後，才會停止。胡塞武裝批評美軍連日來襲擊目標包括平民區，造成大量死傷，揚言會將報復升級。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796169-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796169-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796169-20250318.htm)
+
+---
+
 # 特朗普提名鮑曼為聯儲局副主席　負責金融監管
 
 ![特朗普提名聯儲局理事鮑曼擔任負責監管的副主席。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796166_1_20250318070933.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm)
-
----
-
-# 公營醫療收費調整　消息：急症室收費分級制　非緊急高過180元
-
-![消息指，政府最快將於本月底公布公營醫療收費調整方案，急症室收費會採取分級制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796096_1_20250317180951.jpg&q=80)
-  
-
-消息指，政府最快將於本月底公布公營醫療收費調整方案，急症室收費會採取分級制，緊急的個案可以免費或獲得減免，至於非緊急的個案，資助會相對減少，亦即收費會高過現時的180元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796096-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796096-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796096-20250317.htm)
 
 ---

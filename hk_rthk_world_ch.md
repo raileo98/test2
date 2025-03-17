@@ -1,3 +1,27 @@
+# 《環看天下》：特朗普下令大規模空襲也門　胡塞武裝誓言報復
+
+![美軍據報包括透過部署在紅海的軍艦，向也門胡塞武裝目標發動空襲。( 路透社 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796169_1_20250318074628.jpg&q=90)
+  
+
+美國向也門胡塞武裝發動一系列空襲，警告直至對方停止襲擊紅海一帶西方國家商船後，才會停止。胡塞武裝批評美軍連日來襲擊目標包括平民區，造成大量死傷，揚言會將報復升級。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796169-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796169-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796169-20250318.htm)
+
+---
+
 # 特朗普撤銷對拜登兒子亨特的特勤局保護
 
 ![特朗普解釋，亨特長期受到特勤局保護，所有費用由美國納稅人支付，是太荒謬。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796164_1_20250318065042.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795899-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795899-20250316.htm)
-
----
-
-# 美國惡劣天氣增至最少20死　多州面臨嚴重龍捲風威脅
-
-![龍捲風導致密蘇里州大批房屋受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795896_1_20250316062240.jpg&q=80)
-  
-
-美國中部及南部廣泛地區受惡劣天氣影響，增至最少20人死亡，多人受傷，多座建築物損毀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795896-20250316.htm)
 
 ---
