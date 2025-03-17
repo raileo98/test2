@@ -1,3 +1,27 @@
+# 內地首兩個月消費增長4%符合預期　投資及工業增速勝預期
+
+![內地首兩個月社會消費品零售總額按年升4%，符合預期；工業及投資增速都高於預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796008_1_20250317102117.jpg&q=75)
+  
+
+內地今年首兩個月主要經濟數據符合或好於市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796008-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796008-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796008-20250317.htm)
+
+---
+
 # 國安部公開4名台獨網軍身份信息　警告台獨分裂是不歸路
 
 ![國安部正告「台獨」網軍頭目分子，「台獨」分裂活動是一條不歸路。（國安部徵信公眾號網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795996_2_20250317100433.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795565-20250313.htm)
-
----
-
-# 中國駐泰大使：中方全力協調查找解救電詐網賭失聯被困人員
-
-![韓志強稱，中方全力協調查找解救電詐網賭失聯被困人員。（中國駐泰國大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795564_1_20250313152754.jpg&q=90)
-  
-
-中國駐泰國大使韓志強表示，中方對泰方採取強而有力措施摧毀電詐團夥、維護中國及各國公民生命財產安全表示讚賞。中方將繼續深化同包括泰國在內的相關國家之間的執法合作，加大力度打擊電詐網賭、人口販賣等跨境違法犯罪活動，全力協調查找解救失聯、被困人員，切實維護人民群眾生命財產安全和合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 8.7萬元廣告營商課程　市民指須購大量額外工具要求退款遭拒
+
+  
+
+消委會去年接獲688宗教育服務投訴，當中部分個案與進修課程有關，投訴涉及課程顧問承諾提供「100%退款保證」，但當投訴人覺得課程內容不符，要求退款時，商戶多次引用各種理由拒絕；亦有課程標榜為學員度身訂造一套「資產增值策略」，實際上為推銷投資海外物業代辦服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796007-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796007-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796007-20250317.htm)
+
+---
+
 # 網上電腦「砌機」服務　消委會指部分商戶未清晰顯示零件庫存量
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm)
-
----
-
-# 孫玉菡：兩元乘車優惠調整方案可省7億元　亦有助處理長車短搭
-
-![孫玉菡表示，「兩元兩折」乘車優惠調整方案，可以在一個年度節省近7億元開支。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795839_1_20250315144124.jpg&q=80)
-  
-
-勞工及福利局局長孫玉菡表示，「兩元兩折」乘車優惠調整方案，可以在一個年度節省近7億元開支，仍未計及受惠人士可能的乘車習慣改變，方案亦有助處理「長車短搭」問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm)
 
 ---

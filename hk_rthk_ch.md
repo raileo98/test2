@@ -1,3 +1,50 @@
+# 內地首兩個月消費增長4%符合預期　投資及工業增速勝預期
+
+![內地首兩個月社會消費品零售總額按年升4%，符合預期；工業及投資增速都高於預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796008_1_20250317102117.jpg&q=75)
+  
+
+內地今年首兩個月主要經濟數據符合或好於市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796008-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796008-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796008-20250317.htm)
+
+---
+
+# 8.7萬元廣告營商課程　市民指須購大量額外工具要求退款遭拒
+
+  
+
+消委會去年接獲688宗教育服務投訴，當中部分個案與進修課程有關，投訴涉及課程顧問承諾提供「100%退款保證」，但當投訴人覺得課程內容不符，要求退款時，商戶多次引用各種理由拒絕；亦有課程標榜為學員度身訂造一套「資產增值策略」，實際上為推銷投資海外物業代辦服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796007-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796007-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796007-20250317.htm)
+
+---
+
 # 內地2月70個大中城市房價按年跌幅收窄至4.8%　按月轉跌
 
 ![內地2月70個大中城市新建商品住宅售價指數按年跌幅收窄至4.8%，按月轉跌0.1%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796005_1_20250317100938.jpg&q=50)
@@ -1387,55 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm)
-
----
-
-# 北馬其頓一間夜總會發生大火　據報至少50人死亡
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795931_2_20250316170228.jpg&q=90)
-  
-
-歐洲巴爾幹半島國家北馬其頓一間夜總會發生大火，當地傳媒報道，至少50人死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm)
-
----
-
-# 澳門動物保護團體舉行活動　讓公眾領養澳門賽馬會場內流浪貓
-
-![澳門賽馬會早上與愛護動物協會合辦領養活動，解決馬會用地交還政府前，場內的流浪貓去向。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795929_1_20250316151723.jpg&q=80)
-![早上的領養活動有動保人士在場評估領養者是否適合。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795929_2_20250316151723.jpg&q=90)
-![早上到場領養的陳先生說，希望盡一分力為這批原本要送到珠海的流浪貓提供一個家。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795929_3_20250316151909.jpg&q=85)
-  
-
-結業近一年的澳門賽馬會，將在下月1日交還用地給政府。澳門動物保護協會上午在場內舉行流浪貓領養活動，希望為之前已經捕捉及圈養登記的流浪貓覓得新主人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795929-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795929-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795929-20250316.htm)
 
 ---

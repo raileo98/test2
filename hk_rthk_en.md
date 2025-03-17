@@ -1,3 +1,27 @@
+# Hang Seng Index opens up over 1.1 percent
+
+![Hong Kong stocks open up as investors await key China economic data for the first two months of the year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796006_1_20250317101632.jpg&q=70)
+  
+
+Hong Kong's Hang Seng Index gained 266.02 points, or 1.11 percent, to open at 24,226 points on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796006-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796006-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796006-20250317.htm)
+
+---
+
 # China new home prices fall in February
 
 ![A commercial residential complex under construction in Nanning, China. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796002_1_20250317095840.jpg&q=80)
@@ -1414,29 +1438,5 @@ Two-time defending champion Carlos Alcaraz fought off determined challenger Fran
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795712-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795712-20250314.htm)
-
----
-
-# China hosts trilateral nuclear talks with Iran, Russia
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795709_1_20250314131953.jpg&q=90)
-  
-
-China urged an end to "illegal" sanctions on Iran as it hosted diplomats from that country and Russia on Friday for talks Beijing hopes will restart long-stalled negotiations on Tehran's nuclear programme.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm)
 
 ---
