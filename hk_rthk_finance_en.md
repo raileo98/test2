@@ -1,3 +1,27 @@
+# Stocks end up on news of China's consumption drive
+
+![The Hang Seng Index rose 0.77 percent to close at 24,145.57. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796083_1_20250317174259.jpg&q=75)
+  
+
+Markets rose on Monday as investors welcomed China's plans to kickstart consumption in the world's number two economy, though worries about US President Donald Trump's tariffs war continue to cast a shadow over trading floors.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm)
+
+---
+
 # China retail sales up four percent
 
 ![Total retail sales of consumer goods reached over 8.37 trillion yuan, according to official figures. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796017_1_20250317110913.jpg&q=80)
@@ -1411,29 +1435,5 @@ Hong Kong stocks rose 0.84 percent, or 193 points, to 23,135 on Monday.
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793946-20250303.htm)
-
----
-
-# Bitcoin surges as Trump talks of crypto reserve
-
-![US President Donald Trump has announced which of the five digital assets he expects to include in a new strategic reserve of cryptocurrencies, spiking the market value of each. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793933_1_20250303084127.jpg&q=90)
-  
-
-Asian share markets dithered on Monday as the threat of imminent tariffs lurked in the background, while bitcoin surged on news it would be included in a new US strategic reserve of cryptocurrencies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793933-20250303.htm)
 
 ---

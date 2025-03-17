@@ -1,3 +1,27 @@
+# Stocks end up on news of China's consumption drive
+
+![The Hang Seng Index rose 0.77 percent to close at 24,145.57. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796083_1_20250317174259.jpg&q=75)
+  
+
+Markets rose on Monday as investors welcomed China's plans to kickstart consumption in the world's number two economy, though worries about US President Donald Trump's tariffs war continue to cast a shadow over trading floors.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm)
+
+---
+
 # Brand fallout for South Korean hearthrob
 
 ![Kim Soo-hyun hit stardom with 'My Love from the Star' and 'Queen of Tears.' File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796076_4_20250317173144.jpg&q=90)
@@ -1415,29 +1439,5 @@ Wall Street stocks finished higher on Friday following bargain hunting that redu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm)
-
----
-
-# Putin tells Ukraine troops in Kursk to 'surrender'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795805_1_20250315050817.jpg&q=90)
-  
-
-President Vladimir Putin on Friday called on beleaguered Ukrainian troops in the Russian region of Kursk to "surrender" as Ukraine's President Volodymyr Zelensky accused the Russian leader of seeking to sabotage a ceasefire initiative.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795805-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795805-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795805-20250315.htm)
 
 ---
