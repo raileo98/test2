@@ -1,3 +1,51 @@
+# 金價重上3000美元　市場關注聯儲局議息結果
+
+![金價重上每盎司3000美元，市場關注聯儲局本周議息結果及會後聲明。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796157_1_20250318055313.jpg&q=90)
+  
+
+金價重上每盎司3000美元。市場關注聯儲局本周議息結果及會後聲明。市場預計聯儲局今次會議維持利率不變，並將在6月減息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796157-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796157-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796157-20250318.htm)
+
+---
+
+# 英美期油高收0.6%至0.7%
+
+![倫敦布蘭特期油收報每桶71.07美元，上升49美仙，升幅0.69%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796156_1_20250318054743.jpg&q=90)
+  
+
+原油期貨價格靠穩。美國表示會繼續攻擊也門胡塞武裝，加上中國上月主要經濟數據符合或好過預期，增加市場對原油需求上升的預期，都利好油價表現。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796156-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796156-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796156-20250318.htm)
+
+---
+
 # 美股連升兩日　道指升353點　Telsa逆市挫近半成
 
 ![道瓊斯指數收報41841點，升353點，升幅0.85%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796155_1_20250318054007.jpg&q=90)
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796088-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796088-20250317.htm)
-
----
-
-# 與港鐵就設寵物車廂會面　劉國勳倡寵物須「入袋」及購月票
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796087_1_20250317173250.jpg&q=90)
-  
-
-民建聯立法會議員劉國勳聯同動物福利聯盟約20多名團體代表與港鐵會面，就港鐵研究推行寵物車廂提出意見和建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm)
-
----
-
-# 外交部：中方決不接受七國集團甩鍋推責　堅決反對污蔑抹黑中國
-
-![毛寧說，中方決不接受七國集團甩鍋推責。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796086_1_20250317172225.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧說，七國集團外長會聯合聲明及有關宣言罔顧事實，顛倒黑白，污蔑抹黑中國，干涉中國內政。中方強烈不滿、堅決反對，已向有關國家提出嚴正交涉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm)
 
 ---
