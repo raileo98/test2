@@ -1,3 +1,27 @@
+# 國台辦：台灣資通電軍「倚網謀獨」必遭嚴厲懲治
+
+![陳斌華表示，台灣資通電軍「倚網謀獨」必遭嚴厲懲治。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796125_1_20250317212052.jpg&q=90)
+  
+
+在北京，國台辦發言人陳斌華表示，台灣資通電軍「倚網謀獨」、挑釁滋事，純屬不自量力，必遭嚴厲懲治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796125-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796125-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796125-20250317.htm)
+
+---
+
 # 丘應樺冀「香港研發+東莞轉化」領域會有更多合作項目
 
   
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795741-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795741-20250314.htm)
-
----
-
-# 回應歐盟官員涉華言論　外交部：中方反對拿中國說事
-
-![毛寧說，美歐有責任維護以世貿組織為核心的多邊貿易體制，而不是轉嫁矛盾。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795736_1_20250314161952.jpg&q=90)
-  
-
-在北京，外交部回應歐盟外交與安全政策高級代表卡拉斯的涉華言論，發言人毛寧說，中方多次強調關稅戰、貿易戰沒有贏家，美歐之間如何相處，中方不做評論，但中方反對拿中國說事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795736-20250314.htm)
 
 ---
