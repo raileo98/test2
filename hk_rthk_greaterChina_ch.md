@@ -1,3 +1,27 @@
+# 丁薛祥晤英國能源大臣　願深化金融、貿易、綠色等領域合作
+
+![丁薛祥在北京與文立彬會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796140_1_20250318001047.jpg&q=90)
+  
+
+中共中央政治局常委、國務院副總理丁薛祥在北京與英國能源安全和淨零排放大臣文立彬會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm)
+
+---
+
 # 國台辧：解放軍在台島附近開展演習是維護台海和平正當之舉
 
 ![國台辦稱，解放軍在台島附近開展演習是維護台海和平的正當之舉、必要之舉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796131_1_20250317225020.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm)
-
----
-
-# 反分裂國家法座談會舉行　趙樂際稱要打擊台獨分裂遏制外部干涉
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795751_1_20250314173134.jpg&q=90)
-  
-
-《反分裂國家法》實施20周年座談會在北京舉行，中共中央政治局常委、全國人大常委會委員長趙樂際出席並發表講話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795751-20250314.htm)
 
 ---

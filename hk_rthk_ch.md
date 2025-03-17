@@ -1,3 +1,27 @@
+# 丁薛祥晤英國能源大臣　願深化金融、貿易、綠色等領域合作
+
+![丁薛祥在北京與文立彬會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796140_1_20250318001047.jpg&q=90)
+  
+
+中共中央政治局常委、國務院副總理丁薛祥在北京與英國能源安全和淨零排放大臣文立彬會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm)
+
+---
+
 # 卡尼就任總理後首訪法英　指加拿大需要加強與可靠盟友關係
 
 ![加拿大總理卡尼抵達巴黎，與法國總統馬克龍會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796138_1_20250317235213.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm)
-
----
-
-# 人行：將會同有關部門研究出台金融支持擴大消費專門文件
-
-![人行表示，將會同有關部門研究出台金融支持擴大消費專門文件，引導金融機構積極滿足各類主體多樣化資金需求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796070_1_20250317171515.jpg&q=80)
-  
-
-人民銀行表示，下一步將會同有關部門研究出台金融支持擴大消費專門文件，引導金融機構從消費供應及需求，積極滿足各類主體多樣化資金需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm)
 
 ---
