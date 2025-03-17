@@ -1,3 +1,27 @@
+# 美國多州遭龍捲風等惡劣天氣影響　增至最少40人死亡
+
+![在阿拉巴馬州，民眾到被龍捲風吹襲的房屋了解受損情況。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796064_1_20250317154024.jpg&q=75)
+  
+
+美國多個州遭受龍捲風等惡劣天氣影響，增至最少40人死亡。總統特朗普表示，白宮正在監測一系列龍捲風和風暴天氣，國民警衛隊已部署到阿肯色州，政府亦已準備好協助州和地方官員應對災情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796064-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796064-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796064-20250317.htm)
+
+---
+
 # 俄副外長：為達和平協議需拒絕烏克蘭加入北約
 
 ![格魯什科強調，歐洲必須明白要為俄羅斯的安全提供國際法保障，必須拒絕烏克蘭加入北約。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796055_1_20250317145558.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795803-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795803-20250315.htm)
-
----
-
-# Tesla警告美國政府的高額關稅政策會損害美國企業
-
-![馬斯克與總統特朗普關係密切，目前不清楚馬斯克是否知道信件內容。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795802_1_20250315031149.jpg&q=85)
-  
-
-富商馬斯克擁有的美國電動汽車生產商Tesla，去信美國貿易代表辦公室，警告美國政府的高額關稅政策，將會損害美國企業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795802-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795802-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795802-20250315.htm)
 
 ---

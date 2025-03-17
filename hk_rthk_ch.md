@@ -1,3 +1,50 @@
+# 美國多州遭龍捲風等惡劣天氣影響　增至最少40人死亡
+
+![在阿拉巴馬州，民眾到被龍捲風吹襲的房屋了解受損情況。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796064_1_20250317154024.jpg&q=75)
+  
+
+美國多個州遭受龍捲風等惡劣天氣影響，增至最少40人死亡。總統特朗普表示，白宮正在監測一系列龍捲風和風暴天氣，國民警衛隊已部署到阿肯色州，政府亦已準備好協助州和地方官員應對災情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796064-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796064-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796064-20250317.htm)
+
+---
+
+# 首兩月社會消費品零售總額增4%　發改委稱以舊換新政策帶動
+
+  
+
+內地發布《提振消費專項行動方案》，在北京，國家發改委副主任李春臨表示，今年首兩個月的社會消費品零售總額按年增長4%，較去年全年加快0.5個百分點，消費品以舊換新政策帶動了相應品類商品零售額較快增長，不過消費者信心和預期偏弱、部門消費需求未充分滿足、消費環境有待優化等問題仍客觀存在，以提振消費擴內需、更好滿足群眾美好生活需要，還有不少工作要做。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm)
+
+---
+
 # 議員倡就太空油毒品設舉報獎金制度　禁毒專員稱暫不會加設
 
 ![李基舜強調，政府是「見一個、拉一個」，加上戒毒康復治療，以及社會對青年的關懷，相信一定可以最終遏止「太空油毒品」的禍害。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796062_1_20250317153320.jpg&q=90)

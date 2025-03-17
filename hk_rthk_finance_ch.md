@@ -1,3 +1,26 @@
+# 首兩月社會消費品零售總額增4%　發改委稱以舊換新政策帶動
+
+  
+
+內地發布《提振消費專項行動方案》，在北京，國家發改委副主任李春臨表示，今年首兩個月的社會消費品零售總額按年增長4%，較去年全年加快0.5個百分點，消費品以舊換新政策帶動了相應品類商品零售額較快增長，不過消費者信心和預期偏弱、部門消費需求未充分滿足、消費環境有待優化等問題仍客觀存在，以提振消費擴內需、更好滿足群眾美好生活需要，還有不少工作要做。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm)
+
+---
+
 # 滬股全日升幅收窄至約0.2%　創業板跌逾0.5%
 
 ![上證指數全日升幅收窄至0.19%，收報3426點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796058_1_20250317150640.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795753-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795753-20250314.htm)
-
----
-
-# 內地2月新增人民幣貸款1.01萬億元遜預期
-
-![外電測算內地2月新增人民幣貸款1.01萬億元，低過市場預期中值的1.28萬億元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795754_1_20250314174206.jpg&q=90)
-  
-
-人民銀行公布，今年首兩個月人民幣貸款增加6.14萬億元。外電計算，內地2月新增人民幣貸款1.01萬億元，低過市場預期中值的1.28萬億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm)
 
 ---

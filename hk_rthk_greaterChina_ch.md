@@ -1,3 +1,26 @@
+# 首兩月社會消費品零售總額增4%　發改委稱以舊換新政策帶動
+
+  
+
+內地發布《提振消費專項行動方案》，在北京，國家發改委副主任李春臨表示，今年首兩個月的社會消費品零售總額按年增長4%，較去年全年加快0.5個百分點，消費品以舊換新政策帶動了相應品類商品零售額較快增長，不過消費者信心和預期偏弱、部門消費需求未充分滿足、消費環境有待優化等問題仍客觀存在，以提振消費擴內需、更好滿足群眾美好生活需要，還有不少工作要做。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm)
+
+---
+
 # 本港研發生成式人工智能大模型今年推出　孫東稱開發亦著重治理
 
 ![孫東表示，香港的人工智能生態圈正快速發展中。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796038_1_20250317134025.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795587-20250313.htm)
-
----
-
-# 美國對進口鋼鋁徵收25%關稅　中方堅決反對並促取消措施
-
-![商務部表示，中方敦促美方盡快取消鋼鋁232措施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795581_1_20250313171321.jpg&q=75)
-  
-
-美國對進口鋼鋁徵收25%的關稅政策按計劃正式生效。在北京，商務部新聞發言人何詠前說，此前中方已經就美國宣布調整鋼鋁232措施表態，中方一貫認為美國232措施是以國家安全為名實施的單邊主義和保護主義行為，中方與其他很多國家一起，對此措施表示堅決反對，敦促美方盡快取消鋼鋁232措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795581-20250313.htm)
 
 ---
