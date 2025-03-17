@@ -1,3 +1,27 @@
+# 特朗普：胡塞武裝每一槍都會被視為來自伊朗　德黑蘭將承擔責任
+
+![也門城市薩達日前有建築物遭美國空襲損毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796141_1_20250318003312.jpg&q=80)
+  
+
+美國總統特朗普警告，也門胡塞武裝的任何進一步攻擊或報復，都會遭到巨大的武力打擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796141-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796141-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796141-20250318.htm)
+
+---
+
 # 丁薛祥晤英國能源大臣　願深化金融、貿易、綠色等領域合作
 
 ![丁薛祥在北京與文立彬會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796140_1_20250318001047.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796072-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796072-20250317.htm)
-
----
-
-# 人力資源社會保障部稱企業招聘活躍　將實施中小微企就業支持計劃
-
-![人社部稱企業招聘活躍，勞動者求職積極性高，有信心繼續保持就業局勢總體穩定。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796071_1_20250317192223.jpg&q=85)
-  
-
-在北京，人力資源社會保障部就業促進司負責人陳勇嘉表示，從春節前後開展的行動來看，企業招聘活躍，勞動者求職積極性高，就業市場總體平穩，為全年工作奠定良好基礎，有信心繼續保持就業局勢總體穩定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm)
 
 ---

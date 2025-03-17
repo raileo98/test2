@@ -1,3 +1,27 @@
+# 特朗普：胡塞武裝每一槍都會被視為來自伊朗　德黑蘭將承擔責任
+
+![也門城市薩達日前有建築物遭美國空襲損毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796141_1_20250318003312.jpg&q=80)
+  
+
+美國總統特朗普警告，也門胡塞武裝的任何進一步攻擊或報復，都會遭到巨大的武力打擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796141-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796141-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796141-20250318.htm)
+
+---
+
 # 丁薛祥晤英國能源大臣　願深化金融、貿易、綠色等領域合作
 
 ![丁薛祥在北京與文立彬會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796140_1_20250318001047.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795870-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795870-20250315.htm)
-
----
-
-# G7外長會後聲明沒再提奉行「一中」政策　中方不滿並嚴正交涉
-
-![中國駐加拿大使館發言人說，七國集團外長的聲明字裡行間充斥著傲慢、偏見和遏華反華的險惡用心。（中國駐加拿大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795863_1_20250315173417.jpg&q=90)
-  
-
-七國集團（G7）外長結束一連兩日在加拿大魁北克舉行的會議，相對於去年11月的會後聲明，七國集團外長今次的聯合聲明並無再提及奉行「一個中國」政策，聲明中又表示，鼓勵涉及台海兩岸的事項，應以和平方式處理，反對任何單方面使用武力，企圖改變現狀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm)
 
 ---
