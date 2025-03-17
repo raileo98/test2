@@ -1,3 +1,27 @@
+# RTHK to show giant panda documentary
+
+![RTHK is set to premiere the documentary "The Panda Adventure" in April.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796118_1_20250317202335.jpg&q=85)
+  
+
+RTHK has been granted free broadcasting rights for a documentary that explores the world of giant pandas and the nation's dedicated conservation efforts to protect these beloved creatures.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796118-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796118-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796118-20250317.htm)
+
+---
+
 # Six students contract gastroenteritis in exchange tour
 
 ![The Centre for Health Protection says the latest cluster involves six secondary students who were part of an exchange tour to Xiamen. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796126_1_20250317212915.jpg&q=80)
@@ -1415,29 +1439,5 @@ The Consumer Council has so far received 12 complaints involving around HK$5,000
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm)
-
----
-
-# 'Provide mental health support to students early'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795855_1_20250315154300.jpg&q=90)
-  
-
-Executive Councillor Lam Ching-choi sounded the alarm on youth mental health in Hong Kong on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795855-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795855-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795855-20250315.htm)
 
 ---

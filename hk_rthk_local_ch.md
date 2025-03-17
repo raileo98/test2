@@ -1,3 +1,27 @@
+# 鄭雁雄：站在政治和全局高度把握好香港角色、香港方向、香港擔當
+
+![中聯辦主任鄭雁雄傳達全國兩會精神，要求把握主題、抓住重點、因制制宜，學習宣傳貫徹好全國兩會精神。（中聯辦網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796130_1_20250317224420.jpg&q=85)
+  
+
+中聯辦舉辦學習講堂，中聯辦主任鄭雁雄傳達全國兩會精神，要求把握主題、抓住重點、因制制宜，學習宣傳貫徹好全國兩會精神。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm)
+
+---
+
 # 香港電台獲贈播國寶紀錄片《熊貓奇遇記》　4月播出
 
 ![四川省廣電局局長李曉駿（中）及廣播處長關婉儀（右）出席《熊貓奇遇記》在港發布儀式。（香港電台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796129_1_20250317223526.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795945-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795945-20250316.htm)
-
----
-
-# 陳茂波冀科企助培育青年科技人才　提供優質就業發展機會
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795939_1_20250316183245.jpg&q=90)
-  
-
-財政司司長陳茂波表示，不少已落戶本港或打算擴展業務的科企希望增聘人手，數碼港將在本周五舉行聚焦人工智能的招聘博覽，580多家企業及機構提供逾2000個職位，約6成跟人工智能相關。另外，他鼓勵更多科企參與培育本地青年科技人才，為他們提供更多優質就業和發展機會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm)
 
 ---

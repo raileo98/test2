@@ -1,3 +1,27 @@
+# 鄭雁雄：站在政治和全局高度把握好香港角色、香港方向、香港擔當
+
+![中聯辦主任鄭雁雄傳達全國兩會精神，要求把握主題、抓住重點、因制制宜，學習宣傳貫徹好全國兩會精神。（中聯辦網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796130_1_20250317224420.jpg&q=85)
+  
+
+中聯辦舉辦學習講堂，中聯辦主任鄭雁雄傳達全國兩會精神，要求把握主題、抓住重點、因制制宜，學習宣傳貫徹好全國兩會精神。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm)
+
+---
+
 # 中方：有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的回應
 
 ![外交部稱，中方有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的堅決回應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796128_1_20250317214401.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795752-20250314.htm)
-
----
-
-# 發改委經濟研究所所長稱今年中國經濟政策著力點轉向惠民生促消費
-
-![郭春麗表示，隨著中國擴大消費的政策加碼，相信今年居民消費將明顯回升。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795750_1_20250314182331.jpg&q=90)
-  
-
-在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，今年中國的經濟政策著力點，會轉向「惠民生、促消費」，以消費升級引領產業轉型升級，而且固定投資保持良好增長等，相信今年中國經濟增長可達5%左右的目標，其他目標可在增長支撐下實現。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm)
 
 ---

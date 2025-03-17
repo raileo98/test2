@@ -1,3 +1,27 @@
+# 鄭雁雄：站在政治和全局高度把握好香港角色、香港方向、香港擔當
+
+![中聯辦主任鄭雁雄傳達全國兩會精神，要求把握主題、抓住重點、因制制宜，學習宣傳貫徹好全國兩會精神。（中聯辦網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796130_1_20250317224420.jpg&q=85)
+  
+
+中聯辦舉辦學習講堂，中聯辦主任鄭雁雄傳達全國兩會精神，要求把握主題、抓住重點、因制制宜，學習宣傳貫徹好全國兩會精神。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm)
+
+---
+
 # 香港電台獲贈播國寶紀錄片《熊貓奇遇記》　4月播出
 
 ![四川省廣電局局長李曉駿（中）及廣播處長關婉儀（右）出席《熊貓奇遇記》在港發布儀式。（香港電台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796129_1_20250317223526.jpg&q=90)
