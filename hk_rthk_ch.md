@@ -1,3 +1,27 @@
+# 盧旺達宣布與比利時斷交
+
+![盧旺達被指支持剛果民主共和國的反政府武裝M23。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796144_1_20250318021211.jpg&q=85)
+  
+
+非洲國家盧旺達宣布，與曾經管治當地的比利時斷交，要求所有比利時外交官在48小時內離境。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796144-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796144-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796144-20250318.htm)
+
+---
+
 # 特朗普將與普京通話　克宮稱主要話題是調解烏克蘭問題
 
 ![佩斯科夫形容，今次通話將會是為了恢復兩國關係定下基調的重要一步。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796142_1_20250318013811.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm)
-
----
-
-# 港股高收185點　重上24000點關口　連升兩日
-
-![港股連升兩日，恒生指數重上24000點收市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796067_1_20250317161631.jpg&q=45)
-  
-
-港股連升兩日，恒生指數早段最多升近400點，觸及24352點，創逾1星期新高，下午升幅收窄，但仍升穿24000點收市，報24145點，升185點，升幅0.77%，全日主板成交額約2448億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm)
 
 ---
