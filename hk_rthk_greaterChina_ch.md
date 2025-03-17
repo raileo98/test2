@@ -1,3 +1,27 @@
+# 外交部：中泰合作打擊跨境違法犯罪　美方無權干涉
+
+![外交部說，中方強烈譴責任何針對中泰兩國的惡意詆毀和非法制裁。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796106_1_20250317191316.jpg&q=80)
+  
+
+在北京，外交部發言人毛寧說，中泰兩個主權國家開展打擊偷渡等跨境違法犯罪合作，符合中泰兩國法律、國際法和國際慣例，美方無權干涉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm)
+
+---
+
 # 就澤連斯基稱重建冀獲中國援助　國合署：願提供力所能及幫助
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795731-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795731-20250314.htm)
-
----
-
-# 市場料內地首兩月工業增加值增速或放緩　投資及消費增長加快
-
-![受春節導致工作日數按年減少及高基數影響，市場料首兩月內地工業增加值增速放緩至去年10月以來最低。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795729_1_20250314153344.jpg&q=85)
-  
-
-內地下周一公布1-2月宏觀經濟數據。外電綜合約26家機構預測中值顯示，市場預期今年首兩月規模以上工業增加值按年增長回落至約5.3%，創去年10月以來最低，受春節導致工作日數按年減少及高基數影響。不過，1-2月固定資產投資預計增長約3.6%，增速較去年12月加快0.4個百分點；「兩新」政策加力擴圍及春節旅遊、觀看電影等消費較活躍，預計可推動1-2月社會消費品零售總額按年增速加快至約4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795729-20250314.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 外交部：中泰合作打擊跨境違法犯罪　美方無權干涉
+
+![外交部說，中方強烈譴責任何針對中泰兩國的惡意詆毀和非法制裁。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796106_1_20250317191316.jpg&q=80)
+  
+
+在北京，外交部發言人毛寧說，中泰兩個主權國家開展打擊偷渡等跨境違法犯罪合作，符合中泰兩國法律、國際法和國際慣例，美方無權干涉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm)
+
+---
+
 # 中國鐵塔：公司能在低空經濟發展中發揮更好作用
 
 ![張志勇（中）稱密切關注低空經濟相關領域發展，相信能為未來低空經濟增長奠定基礎。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796105_1_20250317190128.jpg&q=90)
