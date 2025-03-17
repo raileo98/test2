@@ -1,3 +1,49 @@
+# 廉署控海關前高級關員涉虛假陳述申請外間工作獲取逾十萬元
+
+  
+
+廉政公署落案起訴一名海關時任高級關員，控告她涉嫌於申請從事有薪外間工作時，以載有虛假陳述的申請表格誤導海關，聲稱自己過往一年沒有從事任何外間工作。她獲廉署准予保釋，星期三在東區裁判法院答辯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796116-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796116-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796116-20250317.htm)
+
+---
+
+# 政府：接獲浸大、理大及科大建設第三所醫學院建議書
+
+  
+
+政府公布，籌備新醫學院工作組在截止前共接獲三份建設第三所醫學院建議書，分別來自浸會大學、理工大學和科技大學。 工作組計劃今年第二季內與提交建議書的大學進行會面，進一步了解各間大學提出的建議，以作出綜合考量。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796115-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796115-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796115-20250317.htm)
+
+---
+
 # 丘應樺冀「香港研發+東莞轉化」領域會有更多合作項目
 
   
@@ -26,7 +72,7 @@
 ![李兆基黃昏在家人陪伴下與世長辭。（恆地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796112_2_20250317200524.jpg&q=90)
   
 
-恒基地產公布，集團創辦人李兆基今日黃昏在家人陪伴下與世長辭，積閏享壽97歲。
+恒基地產公布，集團創辦人李兆基今日黃昏在家人陪伴下安詳與世長辭，積閏享壽97歲。
 
   
 
@@ -71,6 +117,7 @@
 
 # 航空公司：加飛機離境稅削競爭力　政府：對出行開支影響十分輕微
 
+![香港航空（左）、國泰航空（中）和大灣區航空（右）分別表示，擔心調高飛機乘客離境稅會削弱本港競爭力或增加短途旅客出行成本。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796109_1_20250317202740.jpg&q=90)
   
 
 《財政預算案》提出，今年10月1日起，飛機乘客離境稅由每名乘客120元調升至200元，立法會本周三將首讀及二讀辯論相關修例草案。三間本地航空公司分別表示，擔心削弱本港競爭力或增加短途旅客出行成本，促請政府慎重考慮。據悉，香港航空公司代表協會曾向政府反映對於增加機場離境稅的意見。政府則強調建議的增幅影響十分輕微。
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm)
-
----
-
-# 五旬男子火炭遭斬傷昏迷　兩疑兇乘的士逃去
-
-![火炭發生斬人案，一名年約50歲的男子被人斬至重傷昏迷。 （張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795943_1_20250316185224.jpg&q=80)
-  
-
-火炭發生斬人案，一名年約50歲的男子被人斬至重傷昏迷，送往威爾斯醫院治理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795943-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795943-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795943-20250316.htm)
-
----
-
-# 海關落馬洲檢獲懷疑「太空油毒品」等毒品　拘捕一名男子
-
-![海關檢獲的懷疑「太空油毒品」煙彈。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795941_1_20250316175529.jpg&q=85)
-  
-
-海關在落馬洲管制站檢獲5粒懷疑「太空油毒品」煙彈、16粒懷疑第1部毒藥「他達拉非」，以及一支電子煙裝置，拘捕一名35歲男子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm)
 
 ---

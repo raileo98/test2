@@ -72,6 +72,7 @@
 
 # 俄方證實正籌備總統普京與特朗普通話
 
+![俄方證實正籌備總統普京與特朗普通話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796104_1_20250317203320.jpg&q=90)
   
 
 美國總統特朗普表示，他計劃周二與俄羅斯總統普京通話，討論結束俄烏戰爭。
