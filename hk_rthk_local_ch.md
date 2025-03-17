@@ -1,3 +1,26 @@
+# 李家超對李兆基辭世表示哀悼　讚揚對經濟發展繁榮穩定貢獻良多
+
+  
+
+恒基地產宣布，集團創辦人李兆基今日黃昏在家人陪伴下安詳與世長辭，享年97歲。行政長官李家超對李兆基辭世表示哀悼。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm)
+
+---
+
 # 廉署控海關前高級關員涉虛假陳述申請外間工作獲取逾十萬元
 
 ![廉署控海關前高級關員涉虛假陳述申請外間工作獲取逾十萬元](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796116_1_20250317203746.jpg&q=80)
@@ -68,12 +91,12 @@
 
 ---
 
-# 恒基：創辦人李兆基今天黃昏離世　享壽97歲
+# 恒基：創辦人李兆基今天黃昏離世　享年97歲
 
 ![李兆基黃昏在家人陪伴下與世長辭。（恆地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796112_2_20250317200524.jpg&q=90)
   
 
-恒基地產公布，集團創辦人李兆基今日黃昏在家人陪伴下安詳與世長辭，積閏享壽97歲。
+恒基地產公布，集團創辦人李兆基今日黃昏在家人陪伴下安詳與世長辭，享年97歲。
 
   
 
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795940-20250316.htm)
-
----
-
-# 男子火炭捱斬傷重死亡　兩疑兇在逃
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795944_2_20250316185947.jpg&q=90)
-  
-
-火炭發生斬人案，一名年約50歲的男子被斬傷，送往威爾斯醫院搶救，延至傍晚約6時不治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm)
 
 ---

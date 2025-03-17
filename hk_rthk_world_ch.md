@@ -1,3 +1,26 @@
+# 美俄領袖將通話　歐盟外交官員質疑莫斯科不真正希望和平
+
+  
+
+美國總統特朗普表示，他計劃周二與俄羅斯總統普京通話，討論結束俄烏戰爭。俄羅斯亦說，通話會談正在籌備中。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796121-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796121-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796121-20250317.htm)
+
+---
+
 # 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
 
 ![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_2_20250317200046.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795844-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795844-20250315.htm)
-
----
-
-# 美國把南非駐美大使列為「不受歡迎人物」
-
-![美方指拉蘇爾「煽動種族情緒」，憎恨美國，把他列為不受歡迎人物。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795832_1_20250315112355.jpg&q=90)
-  
-
-美國把南非駐美國大使列為「不受歡迎人物」，指責他憎恨美國及總統特朗普。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795832-20250315.htm)
 
 ---
