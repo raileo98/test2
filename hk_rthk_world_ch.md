@@ -1,5 +1,30 @@
+# 中方促日方在台灣問題謹言慎行　以實際行動兌現堅持一中原則承諾
+
+![毛寧強調，一個中國原則是中日關係的政治基礎。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796074_1_20250317164017.jpg&q=90)
+  
+
+在北京，外交部回應有報道指，日本政府聲稱1972年簽署的《中日聯合聲明》不會對日本地方議員赴台活動構成限制。發言人毛寧說，日方企圖在台灣問題上模糊歷史事實，嚴重誤導廣大日本民眾，嚴重違背日本政府堅持一個中國原則的承諾，挑戰中日關係的政治基礎，向「台獨」勢力發出嚴重錯誤信號，中方對此堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm)
+
+---
+
 # 北京：做相互成就的夥伴　實現「龍象共舞」是中印唯一正確選擇
 
+![毛寧說，中方讚賞印度總理莫迪近日就中印關係作出積極表態。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796069_1_20250317164026.jpg&q=90)
   
 
 在北京，外交部發言人毛寧說，中方讚賞印度總理莫迪近日就中印關係作出積極表態，毛寧指出，做相互成就的夥伴，實現「龍象共舞」是中印唯一正確的選擇。中方願同印方共同努力，深入落實好兩國領導人的重要共識，以今年中印建交75周年為契機，推進交流合作，推動中印關係沿著健康穩定的軌道向前發展。
@@ -23,6 +48,7 @@
 
 # 外交部：中方反對任何加劇紅海局勢升級的行動
 
+![毛寧：中方反對任何加劇紅海局勢升級的行動。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796066_1_20250317164104.jpg&q=90)
   
 
 也門胡塞武裝說，美軍自上周六以來對也門的空襲已造成53人死亡，包括婦女和兒童，另有98人受傷。
@@ -1409,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795818-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795818-20250315.htm)
-
----
-
-# 美國「龍」飛船升空前往國際太空站　將接回兩名滯留太空人
-
-![「龍」飛船由獵鷹9號運載火箭搭戴，從佛羅里達州甘迺迪太空中心發射升空。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795817_1_20250315073751.jpg&q=90)
-  
-
-美國太空探索技術公司SpaceX的「龍」飛船從佛羅里達州發射升空，搭載4名太空人飛往國際太空站，並會接回滯留太空站9個月的兩名美國太空人返回地球。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795817-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795817-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795817-20250315.htm)
 
 ---
