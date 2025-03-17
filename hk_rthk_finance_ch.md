@@ -1,3 +1,27 @@
+# 統計局：CPI溫和上升趨勢不變
+
+![付凌暉表示，CPI溫和上升趨勢不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796044_1_20250317125318.jpg&q=90)
+  
+
+內地上月居民消費價格指數(CPI)按年下降0.7%，扣除春節錯月影響，CPI按年上升0.1%。1月CPI按年升0.5%。今年首兩個月CPI回落0.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796044-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796044-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796044-20250317.htm)
+
+---
+
 # 中國鐵塔去年盈利升約10%　EBITDA升近5%
 
 ![中國鐵塔去年盈利107.3億元人民幣，按年增長約10%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796039_1_20250317123354.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795722-20250314.htm)
-
----
-
-# 韓股低收近0.3%　本周微升0.1%
-
-![首爾綜合指數收市報2566點，跌7點，跌幅0.28%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795721_1_20250314144605.jpg&q=85)
-  
-
-南韓股市偏軟，首爾綜合指數收市報2566點，跌7點，跌幅0.28%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795721-20250314.htm)
 
 ---

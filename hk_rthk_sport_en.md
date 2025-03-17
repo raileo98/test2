@@ -25,7 +25,7 @@ Olympic women's badminton champion An Se-young came from behind to beat China's 
 
 # 'Improve ID checks for cross-boundary sports events'
 
-![A local academic suggests ways the city could improve its hosting of cross-boundary sports events. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796018_1_20250317112424.jpg&q=65)
+![A local academic suggests ways the city could improve its hosting of cross-boundary sports events. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796018_2_20250317125618.jpg&q=90)
   
 
 An academic who chairs Baptist University's Department of Sport, Physical Education, and Health on Monday said authorities could improve the efficiency and ease of ID checks on athletes who participate in cross-boundary sports events.

@@ -1,9 +1,33 @@
-# 特朗普：計劃周二與普京通話　認為有很大機會結束俄烏戰爭
+# 統計局：CPI溫和上升趨勢不變
+
+![付凌暉表示，CPI溫和上升趨勢不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796044_1_20250317125318.jpg&q=90)
+  
+
+內地上月居民消費價格指數(CPI)按年下降0.7%，扣除春節錯月影響，CPI按年上升0.1%。1月CPI按年升0.5%。今年首兩個月CPI回落0.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796044-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796044-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796044-20250317.htm)
+
+---
+
+# 特朗普：計劃周二與普京通話　認為很有機會結束俄烏戰爭
 
 ![特朗普在「空軍一號」專機上對記者表示，將在周二與普京通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796042_1_20250317125325.jpg&q=90)
   
 
-美國總統特朗普表示，他計劃周二與俄羅斯總統普京通話。
+美國總統特朗普表示，他計劃周二與俄羅斯總統普京通話，討論結束俄烏戰爭。
 
   
 
