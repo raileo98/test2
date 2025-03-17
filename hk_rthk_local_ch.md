@@ -1,3 +1,26 @@
+# 香港電台獲贈播國寶紀錄片《熊貓奇遇記》　4月播出
+
+  
+
+香港電台今日參與由國家廣播電視總局國際合作司主辦的國際傳播論壇，在論壇期間舉行的合作項目發布儀式上，港台獲四川廣播電視台及北京廣播電視台贈播《熊貓奇遇記》。四川省委宣傳部副部長、省廣電局局長李曉駿、廣播處長關婉儀以及北京廣播電視台導演郭洪瀧出席發布儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796129-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796129-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796129-20250317.htm)
+
+---
+
 # 恒基創辦人李兆基離世享年97歲　歷年捐款數以十億元計
 
 ![恒基兆業地產發出訃告，宣佈集團創辦人李兆基於今天黃昏 ，在家人陪伴下安詳與世長辭，享年97歲。（恒地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796124_2_20250317213019.jpg&q=90)
@@ -25,6 +48,7 @@
 # 李家超對李兆基辭世表示哀悼　讚揚對經濟發展繁榮穩定貢獻良多
 
 ![李家超對李兆基辭世表示哀悼。（恒地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796120_1_20250317212350.jpg&q=90)
+![李兆基於2007年獲頒授大紫荊勳章。(恒地提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796120_2_20250317221456.jpg&q=90)
   
 
 恒基地產宣布，集團創辦人李兆基今日黃昏在家人陪伴下安詳與世長辭，享年97歲。行政長官李家超對李兆基辭世表示哀悼。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795939-20250316.htm)
-
----
-
-# 楊德強指全運跨境項目測試賽銜接可改善
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795942_1_20250316182944.jpg&q=85)
-  
-
-第15屆全運會及殘特奧會將於年底在粵港澳三地舉行，其中香港將承辦8個全運會及4個殘特奧會項目，另外亦會與內地及澳門合辦兩個項目，包括公路單車和馬拉松。全運會統籌辦公室主任楊德強說，這兩個跨境項目早前舉行測試賽，經檢討認為部分環節銜接可以改善。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795942-20250316.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 香港電台獲贈播國寶紀錄片《熊貓奇遇記》　4月播出
+
+  
+
+香港電台今日參與由國家廣播電視總局國際合作司主辦的國際傳播論壇，在論壇期間舉行的合作項目發布儀式上，港台獲四川廣播電視台及北京廣播電視台贈播《熊貓奇遇記》。四川省委宣傳部副部長、省廣電局局長李曉駿、廣播處長關婉儀以及北京廣播電視台導演郭洪瀧出席發布儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796129-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796129-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796129-20250317.htm)
+
+---
+
 # 中方：有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的回應
 
 ![外交部稱，中方有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的堅決回應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796128_1_20250317214401.jpg&q=80)
@@ -145,6 +168,7 @@
 # 李家超對李兆基辭世表示哀悼　讚揚對經濟發展繁榮穩定貢獻良多
 
 ![李家超對李兆基辭世表示哀悼。（恒地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796120_1_20250317212350.jpg&q=90)
+![李兆基於2007年獲頒授大紫荊勳章。(恒地提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796120_2_20250317221456.jpg&q=90)
   
 
 恒基地產宣布，集團創辦人李兆基今日黃昏在家人陪伴下安詳與世長辭，享年97歲。行政長官李家超對李兆基辭世表示哀悼。
