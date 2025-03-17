@@ -1,3 +1,122 @@
+# 國家統計局：實現5%左右經濟增長目標絕非輕而易舉
+
+  
+
+國家統計局新聞發言人、國民經濟綜合統計司司長付凌暉表示，隨著更加積極的財政政策和適度寬鬆的貨幣政策逐步落地，政策協同效應不斷增強。首兩個月生產供應穩定增長，市場需求逐步擴大，就業形勢保持總體穩定，發展新動能逐步壯大。他形容，今年經濟運行起步平穩，發展趨勢「向新向好」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm)
+
+---
+
+# 新加坡2月出口按年增長7.6%遜預期
+
+![新加坡2月非石油的國內出口按年增長7.6%，差過市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796013_1_20250317104140.jpg&q=85)
+  
+
+新加坡2月非石油的國內出口按年增長7.6%，差過市場預期的增長8.7%，1月則下跌2.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796013-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796013-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796013-20250317.htm)
+
+---
+
+# 日股半日升逾400點
+
+![日經指數報37475點，升422點，升1.14%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796012_1_20250317103756.jpg&q=90)
+  
+
+東京股市半日升逾400點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796012-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796012-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796012-20250317.htm)
+
+---
+
+# 內地首兩個月新建商品房銷售面積及金額改善　跌幅收窄至單位數
+
+![內地今年首兩個月全國房地產開發投資按年跌9.8%，較去年全年跌10.6%有所改善。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796009_1_20250317102539.jpg&q=75)
+  
+
+國家統計局公布，今年首兩個月全國房地產開發投資按年跌9.8%，較去年全年跌10.6%有所改善，但跌幅較去年同期擴大0.8個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796009-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796009-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796009-20250317.htm)
+
+---
+
+# 內地2月全國城鎮調查失業率升至5.4%　創兩年來最高水平
+
+![內地首兩個月全國城鎮調查失業率平均值5.3%。單計2月升至5.4%，是兩年來最高水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796011_1_20250317103300.jpg&q=90)
+  
+
+國家統計局公布，首兩個月全國城鎮調查失業率平均值5.3%。單計2月升至5.4%，是兩年來最高水平，按年上升0.2個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796011-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796011-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796011-20250317.htm)
+
+---
+
 # 內地首兩個月消費增長4%符合預期　投資及工業增速勝預期
 
 ![內地首兩個月社會消費品零售總額按年升4%，符合預期；工業及投資增速都高於預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796008_1_20250317102117.jpg&q=75)
@@ -1315,125 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795711-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795711-20250314.htm)
-
----
-
-# 港股下午初段在24000點關口爭持
-
-![恒生指數在24000點關口爭持，較早時報23994點，升532點，升幅2.27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795708_1_20250314130613.jpg&q=65)
-  
-
-港股下午初段造好，恒生指數在24000點關口爭持，較早時報23994點，升532點，升幅2.27%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795708-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795708-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795708-20250314.htm)
-
----
-
-# 友邦：增加派息及進一步股份回購反映對業務發展充滿信心
-
-![鍾家富稱友邦具有審慎、可持續及循序漸進的股息政策，疫情期間亦持續增加股息。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795707_1_20250314125740.jpg&q=90)
-  
-
-友邦首席財務總監鍾家富（Garth Jones）在分析員會議上指出，集團具有審慎、可持續及循序漸進的股息政策，疫情期間亦持續增加股息。他說，增加派息和進一步股份回購反映集團對未來業務發展充滿信心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795707-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795707-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795707-20250314.htm)
-
----
-
-# 劉麥嘉軒：下年度總開支預算減2%　人工智能應付新工作量
-
-![劉麥嘉軒：下年度總開支預算減2%　人工智能應付新工作量](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795706_1_20250314130458.jpg&q=90)
-  
-
-積金局主席劉麥嘉軒表示，積金局認同及會積極響應政府提出加大力度控制經營開支，2025/26年度的總開支預算會減2%，同時會以人工智能及精簡程序應付新增的工作量。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795706-20250314.htm)
-
----
-
-# 今年首兩月訪港旅客840萬人次　東南亞日韓旅客按年增逾三成
-
-![內地遊客有650萬人次，上升4%；菲律賓、印尼、日本和南韓的旅客均錄得超過30%的按年增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795703_1_20250314123947.jpg&q=85)
-  
-
-旅發局公布今年首兩個月合共有840萬訪港旅客人次，按年增加7%，其中77%為內地旅客。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795703-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795703-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795703-20250314.htm)
-
----
-
-# 港鐵本月22日起重鐵網絡各車站均接受「全國交通一卡通」付費
-
-![乘客只需在貼有「交通聯合」標誌閘機上的八達通讀寫器拍卡，便可出入閘。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795701_1_20250314145538.jpg&q=90)
-  
-
-港鐵宣布，本月22日，即下星期六起，除機場快綫車站外，重鐵網絡各車站均接受「全國交通一卡通」付費乘車，為訪港旅客提供新選擇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795701-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795701-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795701-20250314.htm)
 
 ---

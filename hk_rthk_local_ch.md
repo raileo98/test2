@@ -1,5 +1,54 @@
+# 3款床褥樣本壓力不均轉身或擾伴侶　消委會倡選購床褥前親身試睡
+
+![消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。（消委會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796014_1_20250317105536.jpg&q=90)
+  
+
+消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。結果又發現，不同品牌保養服務條款參差，價錢與質素亦未必成正比。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796014-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796014-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796014-20250317.htm)
+
+---
+
+# 防曬妝前底霜八成半樣本成分或干擾內分泌　研究指或影響性荷爾蒙
+
+![20款標榜具防曬效能的妝前底霜樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796010_1_20250317103858.jpg&q=85)
+  
+
+消委會就市面上37款妝前底霜進行測試，在當中20款標榜具防曬效能的樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。干擾內分泌的物質或會影響性荷爾蒙，有機會削弱生殖能力、導致新生嬰兒生殖器出現異常。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796010-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796010-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796010-20250317.htm)
+
+---
+
 # 8.7萬元廣告營商課程　市民指須購大量額外工具要求退款遭拒
 
+![消委會敦促業界，銷售時必須向消費者清晰講解課程內容及所有潛在或附加費用，明確列明推廣承諾。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796007_1_20250317103308.jpg&q=90)
   
 
 消委會去年接獲688宗教育服務投訴，當中部分個案與進修課程有關，投訴涉及課程顧問承諾提供「100%退款保證」，但當投訴人覺得課程內容不符，要求退款時，商戶多次引用各種理由拒絕；亦有課程標榜為學員度身訂造一套「資產增值策略」，實際上為推銷投資海外物業代辦服務。
@@ -23,6 +72,7 @@
 
 # 網上電腦「砌機」服務　消委會指部分商戶未清晰顯示零件庫存量
 
+![消委會發現所有商戶均能在專屬「砌機」頁面，向消費者提供足夠的零件資訊，但在使用網頁的體驗及方便程度各有差異，有改善空間。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796003_1_20250317103244.jpg&q=90)
   
 
 消委會選取10間有提供網上自行組裝電腦，即「砌機」服務的商戶做市場調查，了解零件選購與組裝、送貨、退貨等安排，結果發現所有商戶均能在專屬「砌機」頁面，向消費者提供足夠的零件資訊，但在使用網頁的體驗及方便程度各有差異，有改善空間。
@@ -46,6 +96,7 @@
 
 # 病人組織指共付費用市民支付金額偏高　病人或選擇不進行某些檢查
 
+![林志釉諗為經濟能力不足的病人來說，可能真的會因此而不進行某些檢查，以致延誤病情。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796001_1_20250317103836.jpg&q=90)
   
 
 政府早前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，由市民按項目共付費用。香港病人政策連線主席林志釉擔心，在共付原則下，市民要支付的金額比例仍然偏高，例如磁力共振，可能病人最終都要負擔過千元才能做到檢查，對一些未符合豁免收費資格、但經濟能力不足的病人來說，可能真的會因此而不進行某些檢查，以致延誤病情，又或者有病人寧願轉去急症室求診，以減少收費支出。
@@ -1389,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795843-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795843-20250315.htm)
-
----
-
-# 林正財稱公共醫療收費改革冀更精準減少浪費　並非為解決公共財困
-
-![林正財相信當局會按不同需要訂立收費模式，盡量做到共付概念。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795841_1_20250315141949.jpg&q=80)
-  
-
-消息指，政府將於數星期內，交代公營醫療收費調整方案。行政會議成員林正財表示，以他理解，公共醫療收費改革並非為解決公共財政困難，而是希望更精準減少浪費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795841-20250315.htm)
-
----
-
-# 孫玉菡料「兩元兩折」優惠有更大誘因選乘車費較便宜車程
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795840_1_20250315125757.jpg&q=90)
-  
-
-新一份《財政預算案》提出調整「兩元優惠計劃」。勞工及福利局局長孫玉菡表示，假設受惠人士乘車習慣不變，估計一個年度可節省6億8千萬，數目不少，佔估算開支超過一成。他認為修訂可維持計劃原意，同時增加財政可持續性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795840-20250315.htm)
 
 ---

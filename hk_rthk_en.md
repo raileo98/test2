@@ -1,3 +1,27 @@
+# Mass layoffs begin at Voice of America
+
+![Contractual staff at Voice of America have been told they are terminated as of this end of this month. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796015_1_20250317104956.jpg&q=90)
+  
+
+US President Donald Trump's administration began mass layoffs at Voice of America and other US-funded media, making clear its intent to gut outlets long seen as critical for US influence.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796015-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796015-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796015-20250317.htm)
+
+---
+
 # Hang Seng Index opens up over 1.1 percent
 
 ![Hong Kong stocks open up as investors await key China economic data for the first two months of the year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796006_1_20250317101632.jpg&q=70)
@@ -1414,29 +1438,5 @@ The US Senate finds itself on Friday in a familiar position, working to avoid a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm)
-
----
-
-# Alcaraz stays on track for third Indian Wells title
-
-![Carlos Alcaraz reacts after winning his quarter-final match against Argentina’s Francisco Cerundolo in Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795712_1_20250314142648.jpg&q=90)
-  
-
-Two-time defending champion Carlos Alcaraz fought off determined challenger Francisco Cerundolo 6-3, 7-6 (7/4) to reach the semi-finals of the Indian Wells ATP Masters.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795712-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795712-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795712-20250314.htm)
 
 ---

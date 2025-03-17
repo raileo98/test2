@@ -1,3 +1,170 @@
+# 國家統計局：實現5%左右經濟增長目標絕非輕而易舉
+
+  
+
+國家統計局新聞發言人、國民經濟綜合統計司司長付凌暉表示，隨著更加積極的財政政策和適度寬鬆的貨幣政策逐步落地，政策協同效應不斷增強。首兩個月生產供應穩定增長，市場需求逐步擴大，就業形勢保持總體穩定，發展新動能逐步壯大。他形容，今年經濟運行起步平穩，發展趨勢「向新向好」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm)
+
+---
+
+# 新加坡2月出口按年增長7.6%遜預期
+
+![新加坡2月非石油的國內出口按年增長7.6%，差過市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796013_1_20250317104140.jpg&q=85)
+  
+
+新加坡2月非石油的國內出口按年增長7.6%，差過市場預期的增長8.7%，1月則下跌2.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796013-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796013-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796013-20250317.htm)
+
+---
+
+# 3款床褥樣本壓力不均轉身或擾伴侶　消委會倡選購床褥前親身試睡
+
+![消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。（消委會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796014_1_20250317105536.jpg&q=90)
+  
+
+消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。結果又發現，不同品牌保養服務條款參差，價錢與質素亦未必成正比。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796014-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796014-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796014-20250317.htm)
+
+---
+
+# 日股半日升逾400點
+
+![日經指數報37475點，升422點，升1.14%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796012_1_20250317103756.jpg&q=90)
+  
+
+東京股市半日升逾400點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796012-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796012-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796012-20250317.htm)
+
+---
+
+# 內地首兩個月新建商品房銷售面積及金額改善　跌幅收窄至單位數
+
+![內地今年首兩個月全國房地產開發投資按年跌9.8%，較去年全年跌10.6%有所改善。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796009_1_20250317102539.jpg&q=75)
+  
+
+國家統計局公布，今年首兩個月全國房地產開發投資按年跌9.8%，較去年全年跌10.6%有所改善，但跌幅較去年同期擴大0.8個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796009-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796009-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796009-20250317.htm)
+
+---
+
+# 內地2月全國城鎮調查失業率升至5.4%　創兩年來最高水平
+
+![內地首兩個月全國城鎮調查失業率平均值5.3%。單計2月升至5.4%，是兩年來最高水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796011_1_20250317103300.jpg&q=90)
+  
+
+國家統計局公布，首兩個月全國城鎮調查失業率平均值5.3%。單計2月升至5.4%，是兩年來最高水平，按年上升0.2個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796011-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796011-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796011-20250317.htm)
+
+---
+
+# 防曬妝前底霜八成半樣本成分或干擾內分泌　研究指或影響性荷爾蒙
+
+![20款標榜具防曬效能的妝前底霜樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796010_1_20250317103858.jpg&q=85)
+  
+
+消委會就市面上37款妝前底霜進行測試，在當中20款標榜具防曬效能的樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。干擾內分泌的物質或會影響性荷爾蒙，有機會削弱生殖能力、導致新生嬰兒生殖器出現異常。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796010-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796010-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796010-20250317.htm)
+
+---
+
 # 內地首兩個月消費增長4%符合預期　投資及工業增速勝預期
 
 ![內地首兩個月社會消費品零售總額按年升4%，符合預期；工業及投資增速都高於預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796008_1_20250317102117.jpg&q=75)
@@ -24,6 +191,7 @@
 
 # 8.7萬元廣告營商課程　市民指須購大量額外工具要求退款遭拒
 
+![消委會敦促業界，銷售時必須向消費者清晰講解課程內容及所有潛在或附加費用，明確列明推廣承諾。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796007_1_20250317103308.jpg&q=90)
   
 
 消委會去年接獲688宗教育服務投訴，當中部分個案與進修課程有關，投訴涉及課程顧問承諾提供「100%退款保證」，但當投訴人覺得課程內容不符，要求退款時，商戶多次引用各種理由拒絕；亦有課程標榜為學員度身訂造一套「資產增值策略」，實際上為推銷投資海外物業代辦服務。
@@ -95,6 +263,7 @@
 
 # 網上電腦「砌機」服務　消委會指部分商戶未清晰顯示零件庫存量
 
+![消委會發現所有商戶均能在專屬「砌機」頁面，向消費者提供足夠的零件資訊，但在使用網頁的體驗及方便程度各有差異，有改善空間。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796003_1_20250317103244.jpg&q=90)
   
 
 消委會選取10間有提供網上自行組裝電腦，即「砌機」服務的商戶做市場調查，了解零件選購與組裝、送貨、退貨等安排，結果發現所有商戶均能在專屬「砌機」頁面，向消費者提供足夠的零件資訊，但在使用網頁的體驗及方便程度各有差異，有改善空間。
@@ -118,6 +287,7 @@
 
 # 病人組織指共付費用市民支付金額偏高　病人或選擇不進行某些檢查
 
+![林志釉諗為經濟能力不足的病人來說，可能真的會因此而不進行某些檢查，以致延誤病情。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796001_1_20250317103836.jpg&q=90)
   
 
 政府早前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，由市民按項目共付費用。香港病人政策連線主席林志釉擔心，在共付原則下，市民要支付的金額比例仍然偏高，例如磁力共振，可能病人最終都要負擔過千元才能做到檢查，對一些未符合豁免收費資格、但經濟能力不足的病人來說，可能真的會因此而不進行某些檢查，以致延誤病情，又或者有病人寧願轉去急症室求診，以減少收費支出。
@@ -1266,173 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795944-20250316.htm)
-
----
-
-# 五旬男子火炭遭斬傷昏迷　兩疑兇乘的士逃去
-
-![火炭發生斬人案，一名年約50歲的男子被人斬至重傷昏迷。 （張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795943_1_20250316185224.jpg&q=80)
-  
-
-火炭發生斬人案，一名年約50歲的男子被人斬至重傷昏迷，送往威爾斯醫院治理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795943-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795943-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795943-20250316.htm)
-
----
-
-# 海關落馬洲檢獲懷疑「太空油毒品」等毒品　拘捕一名男子
-
-![海關檢獲的懷疑「太空油毒品」煙彈。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795941_1_20250316175529.jpg&q=85)
-  
-
-海關在落馬洲管制站檢獲5粒懷疑「太空油毒品」煙彈、16粒懷疑第1部毒藥「他達拉非」，以及一支電子煙裝置，拘捕一名35歲男子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795941-20250316.htm)
-
----
-
-# 葵涌道有私家車起火無人傷　初步懷疑引擎過熱所致
-
-![葵涌道有私家車起火，3人及時離開車廂，無人受傷。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795937_1_20250316173642.jpg&q=75)
-  
-
-葵涌道有私家車起火，3人及時離開車廂，無人受傷。警方初步懷疑車輛引擎過熱導致起火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795937-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795937-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795937-20250316.htm)
-
----
-
-# 北馬其頓一間夜總會發生大火　51死逾百人傷
-
-![北馬其頓一間夜總會發生大火後，救援人員到場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795936_1_20250316171255.jpg&q=90)
-  
-
-歐洲巴爾幹半島國家北馬其頓一間夜總會發生大火，內政部長表示，大火已造成51人死亡，超過100人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795936-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795936-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795936-20250316.htm)
-
----
-
-# 美國多州遭龍捲風等惡劣天氣影響至少34死　7個州25萬戶停電
-
-![美國密蘇里州遭受龍捲風吹襲，有房屋損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795935_1_20250316165438.jpg&q=60)
-  
-
-美國中部和南部廣泛地區受惡劣天氣影響，包括遭受多股龍捲風和猛烈暴風雨吹襲，增至最少34人死亡，數十人受傷，多個州進入緊急狀態。7個州總共超過25萬個用戶無電力供應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795935-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795935-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795935-20250316.htm)
-
----
-
-# 陳美寶冀本港點對點運輸更全面　領先國際而非追落後
-
-![陳美寶表示，目前本港已成立的士車隊，當局願景是點對點運輸與網約平台雙結合。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795933_1_20250316163510.jpg&q=85)
-  
-
-政府目標今年內就規管網約車平台提出法律框架建議，運輸及物流局局長陳美寶表示，目前本港已成立的士車隊，當局願景是點對點運輸與網約平台雙結合，兩者發展並存，不存在你我之爭，強調有競爭才有進步。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795933-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795933-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795933-20250316.htm)
-
----
-
-# 美國將南韓列入「敏感國家」名單　韓方稱將與美方積極磋商
-
-![美國將南韓列入「敏感國家」名單　韓方稱將與美方積極磋商](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795932_1_20250316161836.jpg&q=90)
-  
-
-美國能源部證實，美國今年1月初已將南韓列入「敏感國家」名單，但未對南韓施加新的限制措施，美國能源部願同南韓推進互利合作。韓聯社引述南韓外交部表示，韓方將會就事件與美方積極磋商。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm)
 
 ---
