@@ -1,3 +1,27 @@
+# 中方：有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的回應
+
+![外交部稱，中方有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的堅決回應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796128_1_20250317214401.jpg&q=80)
+  
+
+在北京，外交部回應有關解放軍今日在台海附近開展軍事演習的提問，發言人毛寧說，中方有關軍事行動是捍衛國家主權、安全和領土完整的必要、合法、正當之舉，是對外部勢力執意縱容支持「台獨」行徑的堅決回應，是對「台獨」分裂勢力倒行逆施的嚴正警告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm)
+
+---
+
 # 國台辦：台灣資通電軍「倚網謀獨」必遭嚴厲懲治
 
 ![陳斌華表示，台灣資通電軍「倚網謀獨」必遭嚴厲懲治。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796125_1_20250317212052.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm)
-
----
-
-# 人行：精準支持科技中小企　加大消費領域金融支持
-
-![人行召開會議，要求精準支持國家重大科技任務和科技型中小企；加大對養老產業和重點消費領域金融支持。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795741_1_20250314163851.jpg&q=75)
-  
-
-人民銀行近日召開2025年信貸市場工作會議，要求培育支持科技創新金融生態，精準支持國家重大科技任務和科技型中小企業；加大對養老產業和重點消費領域金融支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795741-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795741-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795741-20250314.htm)
 
 ---

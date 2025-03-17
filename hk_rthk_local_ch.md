@@ -407,7 +407,7 @@
 
 # 與港鐵就設寵物車廂會面　劉國勳倡寵物須「入袋」及購月票
 
-![劉國勳表示，港鐵表明任何政策要基建於營運安全為首要考慮，盡量減低對其他乘客的影響。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796087_1_20250317173250.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796087_1_20250317173250.jpg&q=90)
   
 
 民建聯立法會議員劉國勳聯同動物福利聯盟約20多名團體代表與港鐵會面，就港鐵研究推行寵物車廂提出意見和建議。

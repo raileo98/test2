@@ -1,3 +1,27 @@
+# 中方：有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的回應
+
+![外交部稱，中方有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的堅決回應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796128_1_20250317214401.jpg&q=80)
+  
+
+在北京，外交部回應有關解放軍今日在台海附近開展軍事演習的提問，發言人毛寧說，中方有關軍事行動是捍衛國家主權、安全和領土完整的必要、合法、正當之舉，是對外部勢力執意縱容支持「台獨」行徑的堅決回應，是對「台獨」分裂勢力倒行逆施的嚴正警告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm)
+
+---
+
 # 美股開市後靠穩
 
 ![美股開市後靠穩。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796127_1_20250317213843.jpg&q=85)
@@ -767,7 +791,7 @@
 
 # 與港鐵就設寵物車廂會面　劉國勳倡寵物須「入袋」及購月票
 
-![劉國勳表示，港鐵表明任何政策要基建於營運安全為首要考慮，盡量減低對其他乘客的影響。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796087_1_20250317173250.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796087_1_20250317173250.jpg&q=90)
   
 
 民建聯立法會議員劉國勳聯同動物福利聯盟約20多名團體代表與港鐵會面，就港鐵研究推行寵物車廂提出意見和建議。

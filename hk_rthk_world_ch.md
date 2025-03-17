@@ -1,3 +1,27 @@
+# 中方：有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的回應
+
+![外交部稱，中方有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的堅決回應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796128_1_20250317214401.jpg&q=80)
+  
+
+在北京，外交部回應有關解放軍今日在台海附近開展軍事演習的提問，發言人毛寧說，中方有關軍事行動是捍衛國家主權、安全和領土完整的必要、合法、正當之舉，是對外部勢力執意縱容支持「台獨」行徑的堅決回應，是對「台獨」分裂勢力倒行逆施的嚴正警告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm)
+
+---
+
 # 北馬其頓夜總會大火導致59死　20人懷疑涉案被捕
 
 ![北馬其頓一間夜總會發生大火，導致59死逾150人受傷。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796123_1_20250317211005.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795851-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795851-20250315.htm)
-
----
-
-# 朝中社：俄羅斯副外長訪問北韓
-
-![朝中社：俄羅斯副外長訪問北韓](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795846_1_20250315143249.jpg&q=90)
-  
-
-朝中社報道，俄羅斯副外長魯登科正在北韓訪問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795846-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795846-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795846-20250315.htm)
 
 ---
