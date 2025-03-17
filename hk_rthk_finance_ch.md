@@ -1,3 +1,51 @@
+# 韓股升逾1.7%收市　升穿2600點
+
+![首爾綜合指數升穿2600點並以全日高位收市，報2610點，升44點，升幅1.73%，創逾半個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796054_1_20250317143939.jpg&q=85)
+  
+
+南韓股市造好，升穿2600點水平，創逾半個月新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796054-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796054-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796054-20250317.htm)
+
+---
+
+# 日股高收0.93%
+
+![日經指數收報37396點，升343點，升幅0.93%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796053_1_20250317143624.jpg&q=85)
+  
+
+日股造好，日經指數收報37396點，升343點，升幅0.93%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796053-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796053-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796053-20250317.htm)
+
+---
+
 # 台股高收約0.7%
 
 ![台灣加權指數收報22118點，升150點，升幅0.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796052_1_20250317140921.jpg&q=90)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795748-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795748-20250314.htm)
-
----
-
-# 發改委經濟研究所所長稱今年中國經濟政策著力點轉向惠民生促消費
-
-![郭春麗表示，隨著中國擴大消費的政策加碼，相信今年居民消費將明顯回升。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795750_1_20250314182331.jpg&q=90)
-  
-
-在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，今年中國的經濟政策著力點，會轉向「惠民生、促消費」，以消費升級引領產業轉型升級，而且固定投資保持良好增長等，相信今年中國經濟增長可達5%左右的目標，其他目標可在增長支撐下實現。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795750-20250314.htm)
-
----
-
-# 本港二手樓價按周跌近1%　創21周新低
-
-![代理：本港二手樓價按周跌逾0.7%，但九龍區樓價按周升近2%，結束3周連跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795744_1_20250314170102.jpg&q=80)
-  
-
-反映本港二手樓價走勢的中原城市領先指數（CCL）最新報136.48，按周跌逾0.7%，創21周新低，繼續處於逾8年半低位。樓價今年暫時累計跌逾0.8%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795744-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795744-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795744-20250314.htm)
 
 ---

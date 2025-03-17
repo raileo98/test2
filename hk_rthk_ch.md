@@ -1,3 +1,51 @@
+# 韓股升逾1.7%收市　升穿2600點
+
+![首爾綜合指數升穿2600點並以全日高位收市，報2610點，升44點，升幅1.73%，創逾半個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796054_1_20250317143939.jpg&q=85)
+  
+
+南韓股市造好，升穿2600點水平，創逾半個月新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796054-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796054-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796054-20250317.htm)
+
+---
+
+# 日股高收0.93%
+
+![日經指數收報37396點，升343點，升幅0.93%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796053_1_20250317143624.jpg&q=85)
+  
+
+日股造好，日經指數收報37396點，升343點，升幅0.93%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796053-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796053-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796053-20250317.htm)
+
+---
+
 # 台股高收約0.7%
 
 ![台灣加權指數收報22118點，升150點，升幅0.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796052_1_20250317140921.jpg&q=90)
