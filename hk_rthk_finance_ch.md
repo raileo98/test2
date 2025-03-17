@@ -1,3 +1,50 @@
+# 中央提振消費方案　發改委：每個部門須貫徹落實全方位擴大消費
+
+  
+
+國家發展和改革委員會、財政部、人力資源社會保障部、商務部、人民銀行、國家市場監督管理總局等六個部委，下午舉行記者會，講解中央昨日印發的《提振消費專項行動方案》。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm)
+
+---
+
+# 港股高收185點　重上24000點關口　連升兩日
+
+![港股連升兩日，恒生指數重上24000點收市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796067_1_20250317161631.jpg&q=45)
+  
+
+港股連升兩日，恒生指數早段最多升近400點，觸及24352點，創逾1星期新高，下午升幅收窄，但仍升穿24000點收市，報24145點，升185點，升幅0.77%，半日主板成交額約2448億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm)
+
+---
+
 # 人力資源社會保障部稱企業招聘活躍　將實施中小微企就業支持計劃
 
   
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795758-20250314.htm)
-
----
-
-# 證監會下月恢復向中介人徵收牌照費　業界稱極度失望及深切憂慮
-
-![證監會下月起恢復向所有中介人及持牌人士徵收牌照年費。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795767_1_20250314184714.jpg&q=90)
-  
-
-證監會發出通函，下月1日起恢復向所有中介人及持牌人士徵收牌照年費，並表示按《證券及期貨條例》有關規定，所有中介人及持牌人士須於牌照或註冊證明書每年周年日期後一個月內繳付年費，否則須繳付附加費，牌照或註冊可能會被暫時吊銷或撤銷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795767-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795767-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795767-20250314.htm)
-
----
-
-# 現貨金升穿3000美元創新高
-
-![避險資金支撐金價創新高，現貨金較早時報每盎士3004美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795765_1_20250314182123.jpg&q=90)
-  
-
-避險資金支撐金價創新高，紐約期金突破每盎士3000美元關口後持續向上，較早時在3012美元以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795765-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795765-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795765-20250314.htm)
 
 ---

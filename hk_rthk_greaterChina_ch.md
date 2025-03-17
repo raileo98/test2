@@ -1,3 +1,26 @@
+# 中央提振消費方案　發改委：每個部門須貫徹落實全方位擴大消費
+
+  
+
+國家發展和改革委員會、財政部、人力資源社會保障部、商務部、人民銀行、國家市場監督管理總局等六個部委，下午舉行記者會，講解中央昨日印發的《提振消費專項行動方案》。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm)
+
+---
+
 # 人力資源社會保障部稱企業招聘活躍　將實施中小微企就業支持計劃
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795620-20250313.htm)
-
----
-
-# 外管局：加強外匯市場逆周期調節　保持人民幣匯率基本穩定
-
-![外匯管理局表示，加強外匯市場逆周期調節和預期管理，保持人民幣匯率在合理均衡水平上基本穩定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795619_1_20250313212922.jpg&q=85)
-  
-
-國家外匯管理局召開黨組擴大會議指出，今年要防範外部風險衝擊，完善跨境資金流動監測預警體系，加強外匯市場逆周期調節和預期管理，保持人民幣匯率在合理均衡水平上基本穩定，維護國際收支基本平衡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795619-20250313.htm)
 
 ---

@@ -1,3 +1,73 @@
+# 中央提振消費方案　發改委：每個部門須貫徹落實全方位擴大消費
+
+  
+
+國家發展和改革委員會、財政部、人力資源社會保障部、商務部、人民銀行、國家市場監督管理總局等六個部委，下午舉行記者會，講解中央昨日印發的《提振消費專項行動方案》。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm)
+
+---
+
+# 港股高收185點　重上24000點關口　連升兩日
+
+![港股連升兩日，恒生指數重上24000點收市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796067_1_20250317161631.jpg&q=45)
+  
+
+港股連升兩日，恒生指數早段最多升近400點，觸及24352點，創逾1星期新高，下午升幅收窄，但仍升穿24000點收市，報24145點，升185點，升幅0.77%，半日主板成交額約2448億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm)
+
+---
+
+# 增兩宗退伍軍人病個案　其中一名患者潛伏期曾到內地
+
+  
+
+衞生防護中心在本月9日至15日期間，錄得兩宗退伍軍人病個案，包括一宗社區感染及一宗輸入個案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796072-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796072-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796072-20250317.htm)
+
+---
+
 # 人力資源社會保障部稱企業招聘活躍　將實施中小微企就業支持計劃
 
   
@@ -140,7 +210,7 @@
 
 # 議員倡就太空油毒品設舉報獎金制度　禁毒專員稱暫不會加設
 
-![李基舜強調，政府是「見一個、拉一個」，加上戒毒康復治療，以及社會對青年的關懷，相信一定可以最終遏止「太空油毒品」的禍害。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796062_1_20250317153320.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796062_1_20250317153320.jpg&q=90)
   
 
 保安局表示，去年共有300人被呈報吸食「太空油毒品」，其中226人是21歲以下青少年。
