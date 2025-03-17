@@ -1,5 +1,76 @@
-# 消委會每年接百多宗有關床褥投訴　逾四成買一段時間有下陷等問題
+# 消委會稱未有專屬條例監管化妝品　冀消費者明白風險或用替代方法
 
+  
+
+消委會檢視市面超過30款妝前底霜，在20款標榜具防曬效能的樣本中，發現超過八成都含有可能干擾內分泌，以及引起光過敏反應的成分。消委會總幹事黃鳳嫺表示，本港現時未有專屬條例監管化妝品，這類產品是受一般消費者安全條例監管。至於今次檢視的產品有無違反商品說明條例，因消委會今次無對產品進行測試，所以無法得知有關成分的含量多與少，難以作出相關判斷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm)
+
+---
+
+# 中國鐵塔去年盈利升約10%　EBITDA升近5%
+
+![中國鐵塔去年盈利107.3億元人民幣，按年增長約10%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796039_1_20250317123354.jpg&q=90)
+  
+
+中國鐵塔去年盈利107.3億元人民幣，按年增長約10%。派末期息每股30.796分，以股份合併及削減股本後計，按年減少近18%。全年股息合計每股41.696分，按年增長11.5%，派息比率76%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796039-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796039-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796039-20250317.htm)
+
+---
+
+# 本港研發生成式人工智能大模型今年推出　孫東稱開發亦著重治理
+
+  
+
+世界互聯網大會亞太峰會4月14日至15日在灣仔會展舉行，將舉辦與人工智能、數字金融等有關的論壇，預計吸引逾千名海内外與會者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm)
+
+---
+
+# 每年百多宗有關床褥投訴　消委會稱逾四成買一段時間有下陷等問題
+
+![消委會表示，過去3年的投訴當中，超過四成在購買床褥一段時間就出現下陷以至承托力不足等質量問題，其他投訴就涉及包括送貨以至保用問題等。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796037_1_20250317124308.jpg&q=85)
   
 
 消委會過去3年，分別收到117至141宗有關床褥的投訴，內容包括貨品質素以及保用情況等。
@@ -23,6 +94,7 @@
 
 # 消委會測試巿面雙人床褥樣本　大部分仰臥承托好惟側臥表現參差
 
+![消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796036_1_20250317123918.jpg&q=85)
   
 
 消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。
@@ -46,6 +118,7 @@
 
 # 國家統計局：新屋銷售基本穩定　但部分地區樓市仍在調整
 
+![國家統計局表示，新屋銷售基本穩定，一線城市樓價有所回穩，但部分地區樓市仍處於調整，市場回穩仍存在壓力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796034_1_20250317123519.jpg&q=90)
   
 
 內地今年首兩個月新建商品房銷售面積及銷售額按年跌幅，分別大幅收窄至5.1%和2.6%，扭轉去年全年的雙位數跌幅；兩者去年同期的跌幅都超過兩成。
@@ -92,6 +165,7 @@
 
 # 支援長者及照顧者計劃下月擴至全港　議員關注如何找出隱蔽長者
 
+![鄧家彪說，關愛隊未必能進入私人屋苑「洗樓」，關注如何能找出「隱蔽長者」。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796032_1_20250317124336.jpg&q=90)
   
 
 去年施政報告提出，今年第二季將關愛隊支援長者及照顧者計劃，擴展至全港18區。社署預計下月開始提供服務，各關愛隊預料在12個月的計劃期內，接觸超過6萬個有需要住戶，署方會向關愛隊提供培訓，以掌握基本溝通技巧和相關地區福利服務資訊。
@@ -115,6 +189,7 @@
 
 # 消委會檢視標榜防曬妝前底霜　逾八成或干擾內分泌及引起光過敏
 
+![消委會在20款標榜具防曬效能的樣本中，發現超過八成都含有可能干擾內分泌，以及引起光過敏反應的成分。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796031_1_20250317123953.jpg&q=90)
   
 
 消委會檢視市面超過30款妝前底霜，在20款標榜具防曬效能的樣本中，發現超過八成都含有可能干擾內分泌，以及引起光過敏反應的成分。
@@ -138,6 +213,7 @@
 
 # 內地首兩個月主要經濟數據符合或好過市場預期
 
+![內地今年首兩個月主要經濟數據符合或好於市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796030_2_20250317123810.jpg&q=90)
   
 
 內地今年首兩個月主要經濟數據符合或好於市場預期，新建商品房銷售按年跌幅亦顯著收窄。
@@ -185,6 +261,7 @@
 
 # 調查指非政府機構僱員男女比例相若　近半享有較僱傭條例優厚福利
 
+![非政府機構僱員的男女比例相若，分別為51.1%和48.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796028_1_20250317124211.jpg&q=80)
   
 
 政府統計處出版《主題性住戶統計調查第81號報告書》，根據2023年12月至去年3月期間，進行的主題性住戶統計調查，非政府機構僱員的男女比例相若，分別為51.1%和48.9%，約八成七在現職有簽訂書面僱傭合約，約四成八享有較《僱傭條例》所規定更優厚的僱傭福利，56.9%享有《僱傭條例》所規定以外的僱傭福利項目。此外，約一成有彈性工作安排。
@@ -232,6 +309,7 @@
 
 # 周雪梅出任香港駐倫敦經貿辦處長　稱與不同界別合作推廣香港優勢
 
+![周雪梅今日接替羅莘桉出任香港駐倫敦經濟貿易辦事處處長。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796026_1_20250317124148.jpg&q=90)
   
 
 政府公布，周雪梅今日接替羅莘桉出任香港駐倫敦經濟貿易辦事處處長。作為香港特區政府駐倫敦的代表，周雪梅負責促進香港與英國及其他八個國家的雙邊關係，包括丹麥、愛沙尼亞、芬蘭、拉脫維亞、立陶宛、挪威、俄羅斯和瑞典。
@@ -1354,77 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm)
-
----
-
-# 何立峰會見美國前財長保爾森
-
-![何立峰在北京會見美國前財長保爾森。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795963_1_20250316223000.jpg&q=90)
-  
-
-在北京，中共中央政治局委員、中央財辦主任何立峰會見美國前財政部長保爾森，雙方就中美經貿關係、全球經濟等交換看法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm)
-
----
-
-# 元朗攸壆路簡約公屋項目本月28日起分批入伙
-
-![何永賢今日與幾戶即將入住攸壆路項目的家庭，到場進行壁畫創作，在公共空間的兩幅大牆畫上自己喜愛的食物。（何永賢社交專頁影片截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795961_1_20250316221946.jpg&q=90)
-  
-
-房屋局局長何永賢表示，元朗攸壆路簡約公屋項目的住戶，將於3月28日獲派鎖匙，分批入伙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795961-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795961-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795961-20250316.htm)
-
----
-
-# 新界南反黑組接手調查火炭斬人案　將安排為死者驗屍
-
-![警方接報指火炭麗禾里3A號對開有一名男子懷疑被另外兩名男子以刀襲擊，施襲者其後登上一輛的士逃去。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795959_1_20250316220304.jpg&q=55)
-  
-
-一名52歲男子在火炭被人以刀襲擊，身體多處受傷，昏迷被送往威爾斯親王醫院，其後傷重不治。警方列作謀殺案，並追緝2名身穿黑衣、年約20歲的男子。新界南總區反三合會行動組正調查案件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795959-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795959-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795959-20250316.htm)
 
 ---
