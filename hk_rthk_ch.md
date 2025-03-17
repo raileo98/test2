@@ -1,3 +1,26 @@
+# 宋皇臺站兩出口解封　警接報發現行李箱搜查後證實無可疑
+
+  
+
+港鐵宋皇臺站兩個出口一度封閉搜查可疑物物品，警方搜查後證實並無可疑，B2及B3出口現已解封。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm)
+
+---
+
 # 研究：內地1月手機出貨量按年跌逾14%
 
 ![信息通信研究院公布，1月國產品牌手機出貨量按年下跌近13%，佔總出貨量比例近84%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796090_1_20250317174638.jpg&q=90)
