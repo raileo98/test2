@@ -454,6 +454,30 @@
 
 ---
 
+# 世界互聯網大會亞太峰會下月港舉行　孫東稱體現香港創科合作樞紐
+
+![孫東指現時香港正全力打造國際創新科技中心，形容對未來創科產業的發展已進入快車道，人工智能、數據、機械人等被列入重點發展範疇。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796020_2_20250317142226.jpg&q=90)
+  
+
+世界互聯網大會亞太峰會，將於4月14至15日首度在香港舉行，創新科技及工業局局長孫東早上在北京出席新聞發布會。他表示大會選址香港作為2025年亞太峰會的主辦城市，正好體現香港是環球創科合作的樞紐，外界傳統上認為香港是金融中心、貿易中心、航運中心，現時香港正全力打造國際創新科技中心，形容對未來創科產業的發展已進入快車道，人工智能、數據、機械人等被列入重點發展範疇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm)
+
+---
+
 # 國家統計局：實現5%左右經濟增長目標絕非輕而易舉
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796016_1_20250317145323.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm)
-
----
-
-# 人民幣兌美元收市創逾4個月新高
-
-![人民幣收市報7.2288兌1美元，較上日收市升139點子，創逾4個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795753_1_20250314173620.jpg&q=90)
-  
-
-人民幣兌美元收市創逾4個月新高，報7.2288兌1美元，較上日收市升139點子。中間價則微跌至7.1738兌1美元，與市場預測偏離仍逾700點子，反映監管層延續過濾舉措，繼續穩定市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795753-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795753-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795753-20250314.htm)
 
 ---
