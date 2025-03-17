@@ -1,3 +1,101 @@
+# China new home prices fall in February
+
+![A commercial residential complex under construction in Nanning, China. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796002_1_20250317095840.jpg&q=80)
+  
+
+New home prices on the mainland dropped 0.1 percent in February, official data showed on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm)
+
+---
+
+# At least 37 dead from wild weather across the US
+
+![A man sits in front of his home a day after a tornado destroyed it in Tylertown, Mississippi, US. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795992_1_20250317090515.jpg&q=75)
+![At least 37 dead from wild weather across the US](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795992_3_20250317092942.jpg&q=80)
+![At least 37 dead from wild weather across the US](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795992_2_20250317092717.jpg&q=60)
+  
+
+Unusually vicious and damaging weather across multiple US states spawned violent tornadoes, blinding dust storms and fast-moving wildfires this weekend, leaving at least 37 people dead.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795992-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795992-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795992-20250317.htm)
+
+---
+
+# Stranded astronauts to return to Earth next Tuesday
+
+![A Nasa livestream shows the SpaceX Dragon crew spacecraft approaching the International Space Station on Saturday, before docking a day later. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795995_1_20250317091414.jpg&q=90)
+  
+
+A pair of US astronauts stuck for more than nine months on the International Space Station will be returned to Earth on Tuesday evening, Nasa said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm)
+
+---
+
+# UK finance minister to unveil plan to cut red tape
+
+![Regulators will be summoned to Downing Street to hear Rachel Reeves' action plan to cut the administrative cost of regulation on business. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795990_1_20250317085014.jpg&q=90)
+  
+
+The UK's Labour government will on Monday set out details of how it plans to slash red tape to boost business, as it struggles to deliver growth nine months after winning power.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm)
+
+---
+
 # Draper powers past Rune to claim first ATP 1000 title
 
 ![Draper will make his top ten debut at seventh in the world after the victory at Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795988_1_20250317081126.jpg&q=90)
@@ -1340,101 +1438,5 @@ China urged an end to "illegal" sanctions on Iran as it hosted diplomats from th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm)
-
----
-
-# Parents express concern over possible school closures
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795696_1_20250314120146.jpg&q=85)
-  
-
-Some parents at a primary school that won't get public funding to operate first-year classes in the next academic year said on Friday they're shocked by the development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm)
-
----
-
-# 12 injured in Denver B737 engine fire
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795700_1_20250314123046.jpg&q=90)
-  
-
-An American Airlines plane caught fire after landing at Denver International Airport, prompting slides to be deployed so passengers could evacuate quickly.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm)
-
----
-
-# Sleep vital for a healthy body and mind: expert
-
-![Children learn about correct sleep postures during class in China. Experts say good sleeping patterns are essential to health and mental well-being. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795692_1_20250314113237.jpg&q=85)
-  
-
-People around the globe marked World Sleep Day on Friday, an annual event that serves as a reminder of the importance of sleep to one's well-being and health.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795692-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795692-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795692-20250314.htm)
-
----
-
-# Japanese duo pay for Great Wall buttocks 'prank'
-
-![The two Japanese were caught soon after their stunt at the Great Wall. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795690_1_20250314111711.jpg&q=90)
-  
-
-Two Japanese tourists in their 20s were detained for two weeks in China then deported for taking photos showing exposed buttocks at the Great Wall, local media reported.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm)
 
 ---

@@ -1,9 +1,58 @@
+# 國安部公開4名台獨網軍身份信息　警告台獨分裂是不歸路
+
+![國安部正告「台獨」網軍頭目分子，「台獨」分裂活動是一條不歸路。（國安部徵信公眾號網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795996_2_20250317100433.jpg&q=90)
+  
+
+國家安全部公開4名台獨網軍的身份信息，正告「台獨」網軍頭目分子，「台獨」分裂活動是一條不歸路，國家安全機關堅決捍衛國家主權、安全、發展利益，將對「台獨」分裂勢力採取一切必要的懲治措施，依法終身追責。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795996-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795996-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795996-20250317.htm)
+
+---
+
+# 澳門區人大及政協相信澳門政策吻合國家策略可發揮貢獻
+
+![崔世平認為，只要澳門做好自身接待能力，再爭取聯通軌道網絡，未來在深化國際交往合作上可以發揮更大作用。 （鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795991_1_20250317085236.jpg&q=75)
+![高錦輝認為，港澳在現代教育實踐的經驗，可為內地教育改革做貢獻。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795991_2_20250317085236.jpg&q=85)
+  
+
+在上星期出席完今年全國兩會的澳區人大代表和政協委員，回澳後正忙於向社會各界展開傳達今年兩會精神。澳門區全國人大代表團副團長崔世平說，在國務院總理李強的政府工作報告中，除了顯示國家繼續大力支持港澳發展，也表明要深化國際交往合作，他形容如為澳門度身訂造，吻合澳門一直定位的國際旅遊休閒城市，以及成為中國與葡語國家經貿合作平台等的角色。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795991-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795991-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795991-20250317.htm)
+
+---
+
 # 內地推提振消費專項行動方案　涉增加收入、住房及生育等
 
 ![內地公布《提振消費專項行動方案》，以大力提振消費，全方位擴大國內需求等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795984_1_20250317074822.jpg&q=90)
   
 
-內地公布《提振消費專項行動方案》，涉及8方面30項重點任務，涉及住房、汽車、生育等多方面，以大力提振消費，全方位擴大國內需求等。
+內地公布《提振消費專項行動方案》，涉及8方面30項重點任務，包括住房、汽車、生育、醫療等多方面。
 
   
 
@@ -1391,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795564-20250313.htm)
-
----
-
-# 全國兩會｜李慧琼料民營經濟愈來愈旺盛　陳勇籲時刻警惕維護國安
-
-![民建聯舉辦「全國兩會精神分享會」。（民建聯提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795554_1_20250313154612.jpg&q=90)
-  
-
-民建聯舉辦「全國兩會精神分享會」，由全國人大常委李慧琼、港區全國人大代表召集人陳勇、全國人大代表黃英豪、朱立威、黃冰芬，及全國政協委員呂堅主講。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795554-20250313.htm)
-
----
-
-# 香港承辦全運會保齡球項目甄選賽下月展開
-
-![粵港澳三地聯合承辦的全國運動會，香港除了承辦8個競賽項目外，亦負責舉辦保齡球群眾項目。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795542_1_20250313154353.jpg&q=65)
-  
-
-粵港澳三地聯合承辦的全國運動會，香港除了承辦8個競賽項目外，亦負責舉辦保齡球群眾項目。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm)
 
 ---

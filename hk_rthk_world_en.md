@@ -1,3 +1,77 @@
+# At least 37 dead from wild weather across the US
+
+![A man sits in front of his home a day after a tornado destroyed it in Tylertown, Mississippi, US. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795992_1_20250317090515.jpg&q=75)
+![At least 37 dead from wild weather across the US](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795992_3_20250317092942.jpg&q=80)
+![At least 37 dead from wild weather across the US](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795992_2_20250317092717.jpg&q=60)
+  
+
+Unusually vicious and damaging weather across multiple US states spawned violent tornadoes, blinding dust storms and fast-moving wildfires this weekend, leaving at least 37 people dead.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795992-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795992-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795992-20250317.htm)
+
+---
+
+# Stranded astronauts to return to Earth next Tuesday
+
+![A Nasa livestream shows the SpaceX Dragon crew spacecraft approaching the International Space Station on Saturday, before docking a day later. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795995_1_20250317091414.jpg&q=90)
+  
+
+A pair of US astronauts stuck for more than nine months on the International Space Station will be returned to Earth on Tuesday evening, Nasa said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm)
+
+---
+
+# UK finance minister to unveil plan to cut red tape
+
+![Regulators will be summoned to Downing Street to hear Rachel Reeves' action plan to cut the administrative cost of regulation on business. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795990_1_20250317085014.jpg&q=90)
+  
+
+The UK's Labour government will on Monday set out details of how it plans to slash red tape to boost business, as it struggles to deliver growth nine months after winning power.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm)
+
+---
+
 # Hospitalised Pope Francis addresses frailty
 
 ![Children holding balloons gather by the statue of John Paul II outside the Gemelli University Hospital where Pope Francis is hospitalised, in Rome. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795960_1_20250316215620.jpg&q=85)
@@ -1363,77 +1437,5 @@ At least 25 people were killed in two separate bus crashes in Mexico on Monday, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795195-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795195-20250311.htm)
-
----
-
-# Musk claims X targeted in 'massive cyberattack'
-
-![More than 40,000 users reported having no access to the platform, according to the tracking website Downdetector.com. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795191_1_20250311082846.jpg&q=90)
-  
-
-Elon Musk said his social media platform, X, has been targeted in a “massive cyberattack", hours after a series of outages on Monday left it unavailable to thousands of users.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795191-20250311.htm)
-
----
-
-# EU says US not engaging to make deal to avoid tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795161_1_20250310214901.jpg&q=90)
-  
-
-The United States does not appear to want to make a deal with Brussels to avoid hefty tariffs against the EU, the bloc's trade chief said on Monday, days before US steel and aluminium levies kick in.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795161-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795161-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795161-20250310.htm)
-
----
-
-# Israeli team due in Qatar for Gaza truce talks
-
-![A man walks outside at the Southern Gaza Desalination plant, which stopped working earlier after Israel cut off electricity supply to the Gaza Strip. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795152_1_20250310203138.jpg&q=85)
-  
-
-Israel is due to send a delegation to Qatar on Monday for a fresh round of talks on extending a fragile ceasefire in Gaza, after cutting off the electricity supply to the besieged enclave.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795152-20250310.htm)
 
 ---

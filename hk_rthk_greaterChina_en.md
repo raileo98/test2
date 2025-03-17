@@ -1,3 +1,27 @@
+# China new home prices fall in February
+
+![A commercial residential complex under construction in Nanning, China. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796002_1_20250317095840.jpg&q=80)
+  
+
+New home prices on the mainland dropped 0.1 percent in February, official data showed on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm)
+
+---
+
 # CK Hutchison ports deal questioned again
 
 ![View of Port of Balboa, managed by CK Hutchison Holdings at the entrance of the Panama Canal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795930_1_20250316152201.jpg&q=90)
@@ -1413,29 +1437,5 @@ Chinese People's Political Consultative Conference (CPPCC) member Andy Tsang on 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794416-20250305.htm)
-
----
-
-# 'HK has key role to play in national development'
-
-![The current Party Secretary of Nanjing University, Tan Tieniu, said he visited Hong Kong in January and the city has special meaning for him. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794415_1_20250305173731.jpg&q=75)
-  
-
-Hong Kong and Macau will always have the central government's backing in terms of developing the economy and improving people's livelihood, a senior official in charge of the SARs' affairs pledged on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794415-20250305.htm)
 
 ---

@@ -1,3 +1,73 @@
+# 網上電腦「砌機」服務　消委會指部分商戶未清晰顯示零件庫存量
+
+  
+
+消委會選取10間有提供網上自行組裝電腦，即「砌機」服務的商戶做市場調查，了解零件選購與組裝、送貨、退貨等安排，結果發現所有商戶均能在專屬「砌機」頁面，向消費者提供足夠的零件資訊，但在使用網頁的體驗及方便程度各有差異，有改善空間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796003-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796003-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796003-20250317.htm)
+
+---
+
+# 病人組織指共付費用市民支付金額偏高　病人或選擇不進行某些檢查
+
+  
+
+政府早前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，由市民按項目共付費用。香港病人政策連線主席林志釉擔心，在共付原則下，市民要支付的金額比例仍然偏高，例如磁力共振，可能病人最終都要負擔過千元才能做到檢查，對一些未符合豁免收費資格、但經濟能力不足的病人來說，可能真的會因此而不進行某些檢查，以致延誤病情，又或者有病人寧願轉去急症室求診，以減少收費支出。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796001-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796001-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796001-20250317.htm)
+
+---
+
+# 陸志聰贊成急症病例維持影像檢查免費　整體考慮醫療服務可持續性
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795994_2_20250317095708.jpg&q=80)
+  
+
+消息指，政府最快於本月內交代公營醫療收費調整方案。政府日前表示，正考慮電腦掃描及磁力共振等複雜的影像檢查，要市民按項目共付費用，急症室及住院病人接受有關服務仍維持免費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795994-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795994-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795994-20250317.htm)
+
+---
+
 # 亞洲電影大獎劉青雲獲最佳男主角獎　九龍城寨之圍城獲最佳美指獎
 
 ![劉青雲憑《爸爸》收獲最佳男主角獎。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795970_1_20250317020721.jpg&q=90)
@@ -1368,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795839-20250315.htm)
-
----
-
-# 黃鳳嫺：消委會正與接手戶戶送外賣平台溝通　跟進後續安排
-
-![外賣平台「戶戶送」Deliveroo撤出香港市場，黃鳳嫺表示，消委會正與接手的外賣平台溝通，跟進後續安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795838_1_20250315134518.jpg&q=85)
-  
-
-外賣平台「戶戶送」Deliveroo撤出香港市場。消委會總幹事黃鳳嫺說，暫接獲12宗投訴，共涉款5000多元，金額最高的一宗個案達600多元，正與接手的外賣平台溝通，跟進後續安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795838-20250315.htm)
-
----
-
-# 陳茂波稱人工智能做事鍥而不捨　勉勵學生學習時要表現出堅持
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795837_1_20250315131215.jpg&q=90)
-  
-
-財政司司長陳茂波說，香港在人工智能浪潮裡非常有優勢，根據最新的QS大學排名，在人工智能和數據科學上，香港有5間大學躋身全球前50，同時有16間人工智能和機器人實驗室達到世界級水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795837-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795837-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795837-20250315.htm)
-
----
-
-# 陳美寶稱運輸署服務電子化提升效率及質素　各類服務持續升級
-
-![陳美寶表示，位於金鐘及長沙灣的牌照事務處，將各推出一個「國際駕駛許可證自助服務站」。（運輸及物流局網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795835_1_20250315122606.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶上星期到訪運輸署，形容多項服務已電子化，提升效率及質素。她在網誌表示，根據最新數字，各類主要牌證服務的申請數目由2021年約245萬宗增加至去年約280萬宗，3年間多了約35萬宗，升幅約14%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795835-20250315.htm)
 
 ---

@@ -1,3 +1,27 @@
+# China new home prices fall in February
+
+![A commercial residential complex under construction in Nanning, China. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796002_1_20250317095840.jpg&q=80)
+  
+
+New home prices on the mainland dropped 0.1 percent in February, official data showed on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm)
+
+---
+
 # CK Hutchison ports deal questioned again
 
 ![View of Port of Balboa, managed by CK Hutchison Holdings at the entrance of the Panama Canal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795930_1_20250316152201.jpg&q=90)
@@ -1411,29 +1435,5 @@ CK Infrastructure Holdings is considering a bid for KKR-backed British waste man
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793853-20250302.htm](https://news.rthk.hk/rthk/en/component/k2/1793853-20250302.htm)
-
----
-
-# China's factory activity grows in February
-
-![Analysts expect there will be more details on how to shield the economy from tariffs and trade threats from the Trump administration at the upcoming "Two Sessions" meetings in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793770_1_20250301114246.jpg&q=65)
-  
-
-China's manufacturing activity grew in February after a dip the previous month, official figures showed on Saturday, as the United States targets the country's exports with increased tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm](https://news.rthk.hk/rthk/en/component/k2/1793770-20250301.htm)
 
 ---

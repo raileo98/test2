@@ -1,3 +1,290 @@
+# 內地2月70個大中城市房價按年跌幅收窄至4.8%　按月轉跌
+
+![內地2月70個大中城市新建商品住宅售價指數按年跌幅收窄至4.8%，按月轉跌0.1%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796005_1_20250317100938.jpg&q=50)
+  
+
+路透根據國家統計局數據測算，內地2月70個大中城市新建商品住宅售價指數按年跌4.8%，跌幅較前月收窄0.2個百分點，連跌20個月，但連續4個月收窄跌幅；按月轉跌0.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796005-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796005-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796005-20250317.htm)
+
+---
+
+# 港股升幅收窄至百多點　科指轉跌　消費及重磅金融股造好
+
+![恒生指數最多升逾340點，觸及24303點，較早時升幅收窄至149點，報24109點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796004_1_20250317100034.jpg&q=90)
+  
+
+港股連續兩日造好，恒生指數重上24000點，最多升逾340點，觸及24303點，較早時升幅收窄至149點，報24109點，升幅0.62%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796004-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796004-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796004-20250317.htm)
+
+---
+
+# 網上電腦「砌機」服務　消委會指部分商戶未清晰顯示零件庫存量
+
+  
+
+消委會選取10間有提供網上自行組裝電腦，即「砌機」服務的商戶做市場調查，了解零件選購與組裝、送貨、退貨等安排，結果發現所有商戶均能在專屬「砌機」頁面，向消費者提供足夠的零件資訊，但在使用網頁的體驗及方便程度各有差異，有改善空間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796003-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796003-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796003-20250317.htm)
+
+---
+
+# 病人組織指共付費用市民支付金額偏高　病人或選擇不進行某些檢查
+
+  
+
+政府早前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，由市民按項目共付費用。香港病人政策連線主席林志釉擔心，在共付原則下，市民要支付的金額比例仍然偏高，例如磁力共振，可能病人最終都要負擔過千元才能做到檢查，對一些未符合豁免收費資格、但經濟能力不足的病人來說，可能真的會因此而不進行某些檢查，以致延誤病情，又或者有病人寧願轉去急症室求診，以減少收費支出。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796001-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796001-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796001-20250317.htm)
+
+---
+
+# 人行逆回購4810億元人民幣　單日轉為淨投放3845億元
+
+![人行公開市場開展4810億元人民幣7天期逆回購操作，單日轉為淨投放3845億元，結束10日淨回籠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796000_1_20250317094154.jpg&q=75)
+  
+
+人民銀行公開市場開展4810億元人民幣7天期逆回購操作，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796000-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796000-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796000-20250317.htm)
+
+---
+
+# 內地股市個別發展　滬股初段升約0.4%
+
+![內地股市初段個別發展，上證指數較早時報3431點，升12點，升幅0.36%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795999_1_20250317093718.jpg&q=85)
+  
+
+內地股市初段個別發展，上證指數較早時報3431點，升12點，升幅0.36%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795999-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795999-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795999-20250317.htm)
+
+---
+
+# 恒指高開逾200點　重上24000點
+
+![恒指競價時段報24226點，升266點，升幅1.11%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795998_1_20250317092406.jpg&q=65)
+  
+
+港股高開，恒生指數重上24000點，競價時段報24226點，升266點，升幅1.11%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795998-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795998-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795998-20250317.htm)
+
+---
+
+# 人民幣中間價上調50點子　創逾4個月新高
+
+![人民幣中間價報7.1688兌1美元，上調50點子，創逾4個月新高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795997_1_20250317091745.jpg&q=80)
+  
+
+人民幣中間價報7.1688兌1美元，較上星期五中間價上調50點子，創逾4個月新高，與市場預測偏離逾500點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795997-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795997-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795997-20250317.htm)
+
+---
+
+# 國安部公開4名台獨網軍身份信息　警告台獨分裂是不歸路
+
+![國安部正告「台獨」網軍頭目分子，「台獨」分裂活動是一條不歸路。（國安部徵信公眾號網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795996_2_20250317100433.jpg&q=90)
+  
+
+國家安全部公開4名台獨網軍的身份信息，正告「台獨」網軍頭目分子，「台獨」分裂活動是一條不歸路，國家安全機關堅決捍衛國家主權、安全、發展利益，將對「台獨」分裂勢力採取一切必要的懲治措施，依法終身追責。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795996-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795996-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795996-20250317.htm)
+
+---
+
+# 陸志聰贊成急症病例維持影像檢查免費　整體考慮醫療服務可持續性
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795994_2_20250317095708.jpg&q=80)
+  
+
+消息指，政府最快於本月內交代公營醫療收費調整方案。政府日前表示，正考慮電腦掃描及磁力共振等複雜的影像檢查，要市民按項目共付費用，急症室及住院病人接受有關服務仍維持免費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795994-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795994-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795994-20250317.htm)
+
+---
+
+# 台股初段升逾200點
+
+![加權指數較早時報22182點，升214點，升幅0.98%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795993_1_20250317091007.jpg&q=90)
+  
+
+台灣股市初段升逾200點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795993-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795993-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795993-20250317.htm)
+
+---
+
+# 澳門區人大及政協相信澳門政策吻合國家策略可發揮貢獻
+
+![崔世平認為，只要澳門做好自身接待能力，再爭取聯通軌道網絡，未來在深化國際交往合作上可以發揮更大作用。 （鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795991_1_20250317085236.jpg&q=75)
+![高錦輝認為，港澳在現代教育實踐的經驗，可為內地教育改革做貢獻。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795991_2_20250317085236.jpg&q=85)
+  
+
+在上星期出席完今年全國兩會的澳區人大代表和政協委員，回澳後正忙於向社會各界展開傳達今年兩會精神。澳門區全國人大代表團副團長崔世平說，在國務院總理李強的政府工作報告中，除了顯示國家繼續大力支持港澳發展，也表明要深化國際交往合作，他形容如為澳門度身訂造，吻合澳門一直定位的國際旅遊休閒城市，以及成為中國與葡語國家經貿合作平台等的角色。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795991-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795991-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795991-20250317.htm)
+
+---
+
 # 萬科海外料去年業績轉虧約5000萬元　受開發物業撥備影響
 
 ![萬科海外預期年度業績虧損約5000萬元。前年同期錄得盈利2800萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795985_1_20250317080700.jpg&q=90)
@@ -99,7 +386,7 @@
 ![內地公布《提振消費專項行動方案》，以大力提振消費，全方位擴大國內需求等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795984_1_20250317074822.jpg&q=90)
   
 
-內地公布《提振消費專項行動方案》，涉及8方面30項重點任務，涉及住房、汽車、生育等多方面，以大力提振消費，全方位擴大國內需求等。
+內地公布《提振消費專項行動方案》，涉及8方面30項重點任務，包括住房、汽車、生育、醫療等多方面。
 
   
 
@@ -1150,293 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795929-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795929-20250316.htm)
-
----
-
-# 李慧琼指立法會議員應多「落場踢」　要促成甚至成為參與者
-
-![李慧琼提到，立法會議員可以透過他們的網絡帶企業來港，推薦人才給政府。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795928_1_20250316151601.jpg&q=80)
-  
-
-全國人大常委李慧琼表示，終審法院近日就支聯會拒交資料案的判決，顯示終審法院處理國安法案件的門檻相當高，因此要對法庭有信心。她認為這是一個實施細則的事情，還沒到釋法的層面，國安法在實施的過程中，需要不斷完善。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm)
-
----
-
-# 李慧琼指可考慮北都成為「特區中的一個特區」　賦予特別行政措施
-
-![李慧琼認為，可以考慮北部都會區成為「特區中的一個特區」。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795927_1_20250316140812.jpg&q=90)
-  
-
-全國人大常委李慧琼認為，可以考慮北部都會區成為「特區中的一個特區」，賦予它一個特別審批流程或者特別行政措施。她舉例稱，例如鐵路原本要10年後才建好，或者3年後才招標完成，但北都或河套區是否可一年就可完成招標。她說，以現時香港工作方式太慢，香港要突破自己框框。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm)
-
----
-
-# 特朗普政府凍結美國之音等傳媒機構資助　員工被通知休假
-
-![特朗普政府凍結美國之音等多個傳媒機構的資助。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795926_1_20250316140900.jpg&q=90)
-  
-
-美國特朗普政府凍結美國之音等多個傳媒機構的資助，機構員工被通知休假。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm)
-
----
-
-# 也門胡塞武裝：美軍空襲造成逾30人死　揚言以升級回應升級
-
-![特朗普下令對也門胡塞武裝採取大規模軍事行動後，美軍船艦向不明地點開火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795925_1_20250316131959.jpg&q=90)
-  
-
-美國總統特朗普下令對也門胡塞武裝採取大規模軍事行動，胡塞武裝說，首都薩那、北部薩達省等地遭到空襲，造成至少31人死亡，主要是婦女和兒童，另有超過100人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795925-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795925-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795925-20250316.htm)
-
----
-
-# 小西灣邨瑞泰樓有石屎高處墮下擊傷女途人
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795924_2_20250316150903.jpg&q=80)
-  
-
-柴灣小西灣邨瑞泰樓有石屎從高處墮下，擊傷一名26歲女途人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795924-20250316.htm)
-
----
-
-# 聖保羅書院中五生內地交流期間死亡　蔡若蓮重申與交流考察無關
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795921_1_20250316123957.jpg&q=90)
-  
-
-聖保羅書院一名中五學生早前在杭州交流期間死亡，教育局局長蔡若蓮出席活動時，被問到學界仍有不同揣測，局方會否進一步交代；蔡若蓮重申，調查已結束，證明事件與交流及考察無關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm)
-
----
-
-# 10名深圳公務員完成3個月在港交流　指深港有非常大合作潛力
-
-![特區政府與內地多個城市合辦的「公務員交流計劃」，去年12月共有30名內地公務員在港交流。（楊何蓓茵社交網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795920_1_20250316123905.jpg&q=90)
-  
-
-特區政府與內地多個城市合辦的「公務員交流計劃」，去年12月共有30名內地公務員在港交流。公務員事務局局長楊何蓓茵說，當中來自深圳的10人近期完成共3個月交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795920-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795920-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795920-20250316.htm)
-
----
-
-# 調查指近5成受訪SEN兒童家長稱子女曾受不友善對待
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795919_1_20250316122625.jpg&q=90)
-  
-
-有調查發現，近5成受訪育有特殊教育需要（SEN）兒童的家長稱，子女曾受不友善對待。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795919-20250316.htm)
-
----
-
-# 發展局：今年起以「成熟一項推一項」模式推行減低建造成本措施
-
-![發展局就減低建造成本措施制定了四大具體方向。（發展局社交網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795918_1_20250316121809.jpg&q=90)
-  
-
-發展局表示，政府自2023年第四季開始展開研究，就減低建造成本措施制定了四大具體方向，方向包括優化項目採購模式、善用先進科技及建造技術、精簡審批流程，以及檢視設計標準及要求。政府今年起會以「成熟一項推一項」、先行先試的模式推行相關措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795918-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795918-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795918-20250316.htm)
-
----
-
-# 世界互聯網大會亞太峰會將在港舉行　孫東赴北京明開記者會介紹
-
-![孫東傍晚啓程前往北京，明日與世界互聯網大會秘書長任賢良共同出席新聞發布會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795916_1_20250316120526.jpg&q=75)
-  
-
-創新科技及工業局局長孫東傍晚啓程前往北京，明日與世界互聯網大會秘書長任賢良共同出席新聞發布會，介紹將在香港舉行的世界互聯網大會亞太峰會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm)
-
----
-
-# 美國廣泛地區遭受龍捲風等惡劣天氣影響　逾30人喪生
-
-![美國多個州遭受多股龍捲風和猛烈暴風雨吹襲，造成多人傷亡，圖為密蘇里州一間房屋受龍捲風破壞的情況。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795915_1_20250316114534.jpg&q=55)
-  
-
-美國中部和南部廣泛地區受惡劣天氣影響，包括遭受多股龍捲風和猛烈暴風雨吹襲，造成超過30人死亡，數十人受傷。密西西比、佐治亞等多個州進入緊急狀態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm)
-
----
-
-# 李家超與妻子觀看《哪吒2》　稱哪吒精神激勵大家繼續披荊斬棘
-
-![李家超（右）早前與太太到戲院觀賞全國影史票房最高電影《哪吒2之魔童鬧海》。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795913_1_20250316111038.jpg&q=65)
-  
-
-行政長官李家超表示，早前與太太到戲院觀賞全國影史票房最高電影《哪吒2之魔童鬧海》，他說電影充分展示國家動畫製作技術和水平快速發展，讓世界感受中華文化和中國故事的魅力；另一「看點」是配樂由本港青年音樂人操刀，用嗩吶和電結他等樂器為電影添上「港風」，打造中西合璧的視聽盛宴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795913-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795913-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795913-20250316.htm)
 
 ---
