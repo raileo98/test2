@@ -1,26 +1,3 @@
-# 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
-
-  
-
-新華社報道，中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬，會見巴拿馬主要政黨領導人，同智庫學者等座談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
-
----
-
 # 航空公司：加飛機離境稅削競爭力　政府：對出行開支影響十分輕微
 
   
@@ -1434,5 +1411,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm)
+
+---
+
+# 歐元兌美元曾升穿1.09　美元指數於104得而復失
+
+![德國財政改革有進展，歐元兌美元一度升穿1.09水平，高見1.0911。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795815_1_20250315070837.jpg&q=85)
+  
+
+德國財政改革有進展，國會下星期將會表決債務協議，協議包括設立5000億歐元基金，用於國防及基礎設施投資。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795815-20250315.htm)
 
 ---

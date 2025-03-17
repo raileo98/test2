@@ -1,3 +1,27 @@
+# Rwanda cuts diplomatic relations with Belgium
+
+![People gather next to some vehicles as they flee the Masisi territory following clashes between M23 rebels and government forces. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796111_1_20250317194926.jpg&q=90)
+  
+
+Belgium and Rwanda have announced the expulsion of each other's diplomats, as relations deteriorated over allegations about their respective roles in the conflict in eastern Democratic Republic of Congo.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796111-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796111-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796111-20250317.htm)
+
+---
+
 # HK triathletes race for a spot in National Games
 
 ![The Asia Triathlon Sprint Championships will take place on April 5 and 6. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796101_1_20250317182204.jpg&q=85)
@@ -1415,29 +1439,5 @@ Hong Kong’s sole delegate to the nation’s top legislature, Starry Lee, on Sa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm)
-
----
-
-# 'New private sector law must be rolled out gradually'
-
-![Last week, legislators tabled the private economy promotion law, which is aimed at creating a fairer business environment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795827_2_20250315105255.jpg&q=85)
-  
-
-An economist has said that the new law proposed by Beijing to protect and enhance the country's private sector could help address "grey areas" facing private business, but cautioned that it should be gradually rolled out to avoid stifling opportunities.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm)
 
 ---
