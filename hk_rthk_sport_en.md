@@ -1,4 +1,4 @@
-# IOC recommends boxing be part of 2028 Olympic Games
+# IOC set to include boxing on 2028 Olympics programme
 
 ![Germany's Nelvie Tiafack, left, in action against Bakhodir Jalolov of Uzbekistan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796158_1_20250318055329.jpg&q=90)
   
