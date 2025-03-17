@@ -1,3 +1,27 @@
+# 美斯因傷未被列入阿根廷大軍名單
+
+![美斯在對亞特蘭大的賽事中攻入一球。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796147_1_20250318041525.jpg&q=90)
+  
+
+阿根廷前鋒美斯因傷，未有入選未來兩場世界盃外圍賽對烏拉圭及巴西的大軍名單。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796147-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796147-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796147-20250318.htm)
+
+---
+
 # 剛果民主共和國反政府武裝M23決定不參與和談
 
 ![M23運動批評，某些國際機構故意破壞和平努力，圖為M23武裝份子。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796146_1_20250318032819.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796077-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796077-20250317.htm)
-
----
-
-# 財政部：消費品以舊換新資金將盡快下達
-
-![財政部稱消費品以舊換新資金3000億元人民幣，年初已提前下達首批810億元資金。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796075_1_20250317192434.jpg&q=75)
-  
-
-在北京，財政部經濟建設司司長符金陵表示，中央財政安排的消費品以舊換新資金規模倍增至3000億元人民幣，在年初已提前下達首批810億元資金，其餘資金將盡快下達，確保以舊換新政策持續實施，讓優惠直達消費者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm)
 
 ---
