@@ -1,3 +1,27 @@
+# Trump and Putin to discuss Ukraine this week
+
+![US officials have expressed optimism that a Ukraine-Russia ceasefire deal could be reached in weeks. Photo combo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796061_1_20250317152607.jpg&q=90)
+  
+
+US President Donald Trump says he plans to speak to his Russian counterpart Vladimir Putin on Tuesday about ending the war in Ukraine, adding discussions are already ongoing about "dividing up certain assets" between the warring parties.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm)
+
+---
+
 # Philippines Senate to probe Duterte handover
 
 ![Imee Marcos is the one who set the wheels in motion for the senate probe.  Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796060_1_20250317151836.jpg&q=90)
@@ -220,7 +244,7 @@ The Consumer Council on Monday encouraged people to nap on mattresses – some o
 ![Total retail sales of consumer goods reached over 8.37 trillion yuan, according to official figures. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796017_1_20250317110913.jpg&q=80)
   
 
-Retail sales in China accelerated in the first two months of the year, government data showed on Monday.
+Retail sales in China accelerated slightly in the first two months of the year, government data showed on Monday.
 
   
 
@@ -337,7 +361,7 @@ Unusually vicious and damaging weather across multiple US states spawned violent
 
 ---
 
-# Stranded astronauts to return to Earth next Tuesday
+# Stranded astronauts to return to Earth on Tuesday
 
 ![A Nasa livestream shows the SpaceX Dragon crew spacecraft approaching the International Space Station on Saturday, before docking a day later. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795995_1_20250317091414.jpg&q=90)
   
@@ -1415,29 +1439,5 @@ The Centre for Health Protection (CHP) on Friday called on members of the public
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795787-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795787-20250314.htm)
-
----
-
-# Rashford recalled in Tuchel's first England squad
-
-![Marcus Rashford has looked more like his old self since his loan move to Aston Villa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795783_1_20250314215113.jpg&q=90)
-  
-
-Thomas Tuchel said Marcus Rashford and Jordan Henderson are contenders for England's 2026 World Cup squad after earning recalls in his first squad on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm)
 
 ---

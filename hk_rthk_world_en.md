@@ -96,7 +96,7 @@ Unusually vicious and damaging weather across multiple US states spawned violent
 
 ---
 
-# Stranded astronauts to return to Earth next Tuesday
+# Stranded astronauts to return to Earth on Tuesday
 
 ![A Nasa livestream shows the SpaceX Dragon crew spacecraft approaching the International Space Station on Saturday, before docking a day later. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795995_1_20250317091414.jpg&q=90)
   
