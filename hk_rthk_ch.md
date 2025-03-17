@@ -212,7 +212,7 @@
 
 # 火炭謀殺案被捕父子有黑幫背景涉策劃案件　警方追緝刀手
 
-![李木易表示，被捕的父子有黑幫背景，涉嫌策劃案件，而刀手就仍然在逃。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796108_1_20250317201503.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796108_1_20250317201503.jpg&q=80)
   
 
 警方拘捕2男1女涉及火炭昨日的謀殺案，包括一對涉嫌策劃謀殺、有黑社會背景的父子，警方正追緝刀手。

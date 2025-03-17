@@ -1,3 +1,27 @@
+# Police arrest three over Fo Tan murder case
+
+![Superintendent Li Muk-yik says the victim and the suspected masterminds had money disputes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796114_1_20250317200724.jpg&q=80)
+  
+
+Police said three people have been arrested for their alleged involvement in a murder case in Fo Tan on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796114-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796114-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796114-20250317.htm)
+
+---
+
 # Henderson Land founder Lee Shau-kee dies at 97
 
 ![Property tycoon Lee Shau-kee has died at the age of 97. Photo courtesy of Henderson Land](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796117_1_20250317202145.jpg&q=90)
@@ -1415,29 +1439,5 @@ Aryna Sabalenka avenged her Australian Open loss to Madison Keys on Friday, thra
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795836-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795836-20250315.htm)
-
----
-
-# Cuba suffers fourth nationwide blackout in five months
-
-![People gather in a neighbourhood during a national electrical grid collapse in Havana, Cuba. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795833_1_20250315115602.jpg&q=90)
-  
-
-Cuba suffered a general blackout on Friday caused by a crash of its national electricity grid, officials said, the fourth major power outage on the cash-strapped communist island in five months.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm)
 
 ---
