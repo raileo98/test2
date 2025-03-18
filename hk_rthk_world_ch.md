@@ -1,3 +1,27 @@
+# 滯留太空9個月　美國兩名太空人啟程返回地球
+
+![威爾莫爾和威廉姆斯在去年6月5日乘坐「星際客機」前往太空站，怎料滯留9個月。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796236_1_20250318150818.jpg&q=90)
+  
+
+美國太空探索技術公司SpaceX的「龍」飛船搭載包括因「星際客機」飛船故障滯留國際太空站的4名美國太空人，已經離開國際太空站，啟程返回地球。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796236-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796236-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796236-20250318.htm)
+
+---
+
 # 洪都拉斯小型飛機墜毀至少7人喪生
 
 ![搜救人員在墜毀現場救援。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796223_1_20250318125456.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm)
-
----
-
-# 北馬其頓一間夜總會發生大火　據報至少50人死亡
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795931_2_20250316170228.jpg&q=90)
-  
-
-歐洲巴爾幹半島國家北馬其頓一間夜總會發生大火，當地傳媒報道，至少50人死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm)
 
 ---
