@@ -1,3 +1,27 @@
+# Nasa astronauts Wilmore and Williams splash down
+
+![They arrived back on Earth nine months after their faulty Boeing Starliner craft upended what was to be a week-long stay on the ISS. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796336_1_20250319060901.jpg&q=90)
+  
+
+Nasa astronauts Butch Wilmore and Suni Williams returned to Earth in a SpaceX capsule on Tuesday with a soft splashdown off Florida's coast, nine months after their faulty Boeing Starliner craft upended what was to be a week-long stay on the International Space Station.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm)
+
+---
+
 # Tennis players' union launch legal blitz against tours
 
 ![The Djokovic-backed players union takes aim at the sport's governing bodies, the ATP and WTA. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796331_1_20250319053811.jpg&q=90)
@@ -238,7 +262,7 @@ Hong Kong's jobless rate has increased slightly as authorities warned about the 
 
 ---
 
-# Hotter weather expected this year: observatory
+# Hotter weather expected this year: Observatory
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796261_1_20250318171329.jpg&q=60)
   
@@ -1412,29 +1436,5 @@ Retail sales in China accelerated slightly in the first two months of the year, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm)
-
----
-
-# Mass layoffs begin at Voice of America
-
-![Contractual staff at Voice of America have been told they are terminated as of this end of this month. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796015_1_20250317104956.jpg&q=90)
-  
-
-US President Donald Trump's administration began mass layoffs at Voice of America and other US-funded media, making clear its intent to gut outlets long seen as critical for US influence.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796015-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796015-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796015-20250317.htm)
 
 ---

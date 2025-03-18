@@ -70,7 +70,7 @@ Hong Kong's jobless rate has increased slightly as authorities warned about the 
 
 ---
 
-# Hotter weather expected this year: observatory
+# Hotter weather expected this year: Observatory
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796261_1_20250318171329.jpg&q=60)
   

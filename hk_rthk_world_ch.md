@@ -1,3 +1,50 @@
+# 美最高法院首席大法官反駁特朗普提出彈劾法官的言論
+
+![羅伯茨說，當對於司法裁決有分歧時，彈劾法官不是應對分歧的合適方式。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796339_1_20250319062252.jpg&q=90)
+  
+
+美國聯邦最高法院首席大法官羅伯茨罕有地發表聲明，反駁總統特朗普關於應該彈劾哥倫比亞特區聯邦法院法官博斯伯格的言論，指出彈劾法官不是解決司法裁決分歧的合適方式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796339-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796339-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796339-20250319.htm)
+
+---
+
+# 滯留國際太空站9個月的兩名美國太空人返抵地球
+
+  
+
+美國太空探索技術公司SpaceX的龍飛船，搭載包括因波音星際客機飛船故障滯留國際太空站的4名太空人，在美國東岸時間星期二傍晚返抵地球，在佛羅里達州附近海域濺落。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796337-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796337-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796337-20250319.htm)
+
+---
+
 # 比利時起訴5人涉與華為疑透過說客賄賂歐洲議會議員案件有關
 
 ![報道指，華為的說客涉嫌賄賂現任或前任歐洲議會議員，推廣公司在歐洲的商業政策。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796333_1_20250319054420.jpg&q=90)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm)
-
----
-
-# 北京：做相互成就的夥伴　實現「龍象共舞」是中印唯一正確選擇
-
-![毛寧說，中方讚賞印度總理莫迪近日就中印關係作出積極表態。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796069_1_20250317164026.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧說，中方讚賞印度總理莫迪近日就中印關係作出積極表態，毛寧指出，做相互成就的夥伴，實現「龍象共舞」是中印唯一正確的選擇。中方願同印方共同努力，深入落實好兩國領導人的重要共識，以今年中印建交75周年為契機，推進交流合作，推動中印關係沿著健康穩定的軌道向前發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm)
-
----
-
-# 外交部：中方反對任何加劇紅海局勢升級的行動
-
-![毛寧：中方反對任何加劇紅海局勢升級的行動。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796066_1_20250317164104.jpg&q=90)
-  
-
-也門胡塞武裝說，美軍自上周六以來對也門的空襲已造成53人死亡，包括婦女和兒童，另有98人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Nasa astronauts Wilmore and Williams splash down
+
+![They arrived back on Earth nine months after their faulty Boeing Starliner craft upended what was to be a week-long stay on the ISS. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796336_1_20250319060901.jpg&q=90)
+  
+
+Nasa astronauts Butch Wilmore and Suni Williams returned to Earth in a SpaceX capsule on Tuesday with a soft splashdown off Florida's coast, nine months after their faulty Boeing Starliner craft upended what was to be a week-long stay on the International Space Station.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm)
+
+---
+
 # Germany votes for big defence spending package
 
 ![Germany's chancellor-in-waiting Friedrich Merz says dramatic steps are needed at a time of geopolitical turmoil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796326_1_20250319033004.jpg&q=90)
@@ -1413,29 +1437,5 @@ China will host Russia and Iran for trilateral talks on Tehran's nuclear program
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm)
-
----
-
-# Pro-independence party wins Greenland election
-
-![The leader of the Democrats, Jens-Frederik Nielsen, celebrates their win at an election party in Nuuk. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795416_1_20250312150651.jpg&q=90)
-  
-
-Greenland's centre-right opposition Democrats have won a surprise victory in legislative elections, more than tripling their support to 29.9 percent of votes, official results showed on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm)
 
 ---

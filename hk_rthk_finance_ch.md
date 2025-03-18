@@ -1,3 +1,75 @@
+# 金價創新高　中東局勢緊張及美國關稅計劃推動避險需求
+
+![金價創新高，中東局勢及美國的關稅計劃，資金流入黃金避險。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796334_1_20250319054926.jpg&q=90)
+  
+
+金價創新高，中東局勢緊張，加上美國的關稅計劃導致不確定性上升，資金流入黃金避險，推動需求增加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796334-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796334-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796334-20250319.htm)
+
+---
+
+# 歐元曾創逾5個月新高　大幅增加支出計劃獲批
+
+![歐元一度升至1.0954美元，創去年10月10日以來最高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796335_1_20250319055615.jpg&q=80)
+  
+
+歐元兌美元上升，德國議會批准大幅增加支出的計劃，加上數據顯示德國投資者信心改善幅度超出預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796335-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796335-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796335-20250319.htm)
+
+---
+
+# 油價跌約1%　美俄元首討論結束俄烏衝突
+
+![油價下跌，美俄元首討論結束俄烏衝突，不過市場亦關注中東局勢緊張。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796332_1_20250319054219.jpg&q=90)
+  
+
+原油期貨價格下跌。美國總統特朗普和俄羅斯總統普京討論結束俄烏衝突，市場認為可能會放鬆針對俄羅斯燃料出口制裁。不過市場亦關注中東局勢緊張。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796332-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796332-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796332-20250319.htm)
+
+---
+
 # 美股向下　道指低收260點　納指挫1.7%
 
 ![美股3大指數跌逾0.6%至近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796330_1_20250319053229.jpg&q=90)
@@ -1366,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796160-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796160-20250318.htm)
-
----
-
-# 美元兌歐元處於5個月低位附近
-
-![歐元兌美元較早時報1.092美元，上升約0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796159_1_20250318060405.jpg&q=90)
-  
-
-美元指數偏軟，較早時報103.4，下跌約0.3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796159-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796159-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796159-20250318.htm)
-
----
-
-# 金價重上3000美元　市場關注聯儲局議息結果
-
-![金價重上每盎司3000美元，市場關注聯儲局本周議息結果及會後聲明。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796157_1_20250318055313.jpg&q=90)
-  
-
-金價重上每盎司3000美元。市場關注聯儲局本周議息結果及會後聲明。市場預計聯儲局今次會議維持利率不變，並將在6月減息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796157-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796157-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796157-20250318.htm)
-
----
-
-# 英美期油高收0.6%至0.7%
-
-![倫敦布蘭特期油收報每桶71.07美元，上升49美仙，升幅0.69%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796156_1_20250318054743.jpg&q=90)
-  
-
-原油期貨價格靠穩。美國表示會繼續攻擊也門胡塞武裝，加上中國上月主要經濟數據符合或好過預期，增加市場對原油需求上升的預期，都利好油價表現。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796156-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796156-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796156-20250318.htm)
 
 ---

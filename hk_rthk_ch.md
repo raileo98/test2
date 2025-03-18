@@ -1,3 +1,122 @@
+# 美最高法院首席大法官反駁特朗普提出彈劾法官的言論
+
+![羅伯茨說，當對於司法裁決有分歧時，彈劾法官不是應對分歧的合適方式。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796339_1_20250319062252.jpg&q=90)
+  
+
+美國聯邦最高法院首席大法官羅伯茨罕有地發表聲明，反駁總統特朗普關於應該彈劾哥倫比亞特區聯邦法院法官博斯伯格的言論，指出彈劾法官不是解決司法裁決分歧的合適方式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796339-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796339-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796339-20250319.htm)
+
+---
+
+# 金價創新高　中東局勢緊張及美國關稅計劃推動避險需求
+
+![金價創新高，中東局勢及美國的關稅計劃，資金流入黃金避險。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796334_1_20250319054926.jpg&q=90)
+  
+
+金價創新高，中東局勢緊張，加上美國的關稅計劃導致不確定性上升，資金流入黃金避險，推動需求增加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796334-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796334-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796334-20250319.htm)
+
+---
+
+# 歐元曾創逾5個月新高　大幅增加支出計劃獲批
+
+![歐元一度升至1.0954美元，創去年10月10日以來最高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796335_1_20250319055615.jpg&q=80)
+  
+
+歐元兌美元上升，德國議會批准大幅增加支出的計劃，加上數據顯示德國投資者信心改善幅度超出預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796335-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796335-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796335-20250319.htm)
+
+---
+
+# 油價跌約1%　美俄元首討論結束俄烏衝突
+
+![油價下跌，美俄元首討論結束俄烏衝突，不過市場亦關注中東局勢緊張。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796332_1_20250319054219.jpg&q=90)
+  
+
+原油期貨價格下跌。美國總統特朗普和俄羅斯總統普京討論結束俄烏衝突，市場認為可能會放鬆針對俄羅斯燃料出口制裁。不過市場亦關注中東局勢緊張。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796332-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796332-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796332-20250319.htm)
+
+---
+
+# 滯留國際太空站9個月的兩名美國太空人返抵地球
+
+  
+
+美國太空探索技術公司SpaceX的龍飛船，搭載包括因波音星際客機飛船故障滯留國際太空站的4名太空人，在美國東岸時間星期二傍晚返抵地球，在佛羅里達州附近海域濺落。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796337-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796337-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796337-20250319.htm)
+
+---
+
 # 比利時起訴5人涉與華為疑透過說客賄賂歐洲議會議員案件有關
 
 ![報道指，華為的說客涉嫌賄賂現任或前任歐洲議會議員，推廣公司在歐洲的商業政策。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796333_1_20250319054420.jpg&q=90)
@@ -1315,125 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm)
-
----
-
-# 天文台料今年約5至8個熱帶氣旋影響本港　風季或較遲完結
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796272_1_20250318183904.jpg&q=90)
-  
-
-天文台預計，本港今年有機會在6月或之前踏入風季，有約5至8個熱帶氣旋進入本港500公里範圍內，屬於正常至偏多，風季可能較遲才完結。至於全年雨量預測介乎2100至2700毫米，接近正常，但仍有機會受暴雨和局部地區大雨影響，天文台提醒市民為風雨季做好準備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796272-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796272-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796272-20250318.htm)
-
----
-
-# 譚德塞稱美國削全球衛生資金或會威脅數百萬人生命
-
-![譚德塞敦促美國與受影響國家對話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796266_1_20250318173113.jpg&q=90)
-  
-
-世界衛生組織總幹事譚德塞表示，美國削減全球衛生資金或會威脅數百萬人生命。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796266-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796266-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796266-20250318.htm)
-
----
-
-# 在岸人民幣兌美元高收172點子　創逾4個月新高
-
-![在岸人民幣收市報7.2216兌1美元，較昨日收市價升172點子，創逾4個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796264_1_20250318172613.jpg&q=80)
-  
-
-在岸人民幣收市報7.2216兌1美元，較昨日收市價升172點子，升幅0.24%，創逾4個月新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796264-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796264-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796264-20250318.htm)
-
----
-
-# 工貿署料調整基金對中小企資助比例及首期撥款可減少問題個案
-
-![廖廣翔表示，基金秘書處審核申請和確保符合要求後，會再將申請交由跨部門小組審閱，而獲批企業亦須定期繳交報告。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796265_2_20250318175213.jpg&q=90)
-  
-
-為支援中小企發展，《財政預算案》宣布向「發展品牌、升級轉型及拓展內銷市場的專項基金」，即「BUD專項基金」以及「市場推廣及工商機構支援基金」合共注資15億元，但兩個基金向中小企的資助比例，由以往政府和企業1比1調整至1比3；首期撥款亦由以往先批出資助額的75%，調整至20%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm)
-
----
-
-# 港燈去年盈利跌逾1%　售電量升1.1%
-
-![港燈去年盈利31.1億元，按年跌逾1%，可供分派收入跌約4%至23.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796263_1_20250318171420.jpg&q=90)
-  
-
-港燈去年盈利31.1億元，按年跌逾1%。每股份合訂單位末期分派16.09港仙，全年分派32.03港仙，兩者都與前年相同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm)
 
 ---
