@@ -1,3 +1,51 @@
+# 韓股全日升1點
+
+![首爾綜合指數收報2612點，升1點，升幅0.06%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796231_1_20250318143448.jpg&q=90)
+  
+
+南韓股市收市變動不大，首爾綜合指數收報2612點，升1點，升幅0.06%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796231-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796231-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796231-20250318.htm)
+
+---
+
+# 日股高收1.2%　創近3星期新高
+
+![日經指數收市報37845點，升幅1.2%，創近3星期新高。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796230_1_20250318143329.jpg&q=75)
+  
+
+日股一度升穿38000點關口但未能企穩收市，日經指數收市報37845點，升448點，升幅1.2%，創近3星期新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796230-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796230-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796230-20250318.htm)
+
+---
+
 # 台股高收約0.7%
 
 ![加權指數收報22271點，升153點，升幅0.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796229_1_20250318142803.jpg&q=90)
