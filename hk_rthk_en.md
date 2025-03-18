@@ -1,3 +1,27 @@
+# Hotter weather expected this year: observatory
+
+![The observatory noted that Hong Kong recorded 11 months that were warmer than usual in 2024. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796261_1_20250318171329.jpg&q=60)
+  
+
+The Hong Kong Observatory on Tuesday said residents can expect hotter weather this year due to the continuing impact of climate change.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796261-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796261-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796261-20250318.htm)
+
+---
+
 # Stocks jump as mainland tech spree continues
 
 ![Local stocks jumped up 2.46 percent to 24,740.57. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796240_1_20250318161915.jpg&q=75)
@@ -1414,30 +1438,5 @@ Newcastle ended their 56-year trophy drought in stunning style as Dan Burn and A
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm)
-
----
-
-# Arsenal edge out Chelsea; Man Utd beat Leicester
-
-![Arsenal and Chelsea players clashed during the match at the Emirates Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795974_1_20250317053437.jpg&q=90)
-![Manchester United midfielder Bruno Fernandes celebrates his side's third goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795974_2_20250317053437.jpg&q=90)
-  
-
-Chelsea's challenge for a place in next season's Champions League faltered in a toothless 1-0 defeat at Arsenal, as Manchester United continued their upward trend with a 3-0 win at Leicester.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm)
 
 ---

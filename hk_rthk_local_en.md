@@ -1,3 +1,27 @@
+# Hotter weather expected this year: observatory
+
+![The observatory noted that Hong Kong recorded 11 months that were warmer than usual in 2024. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796261_1_20250318171329.jpg&q=60)
+  
+
+The Hong Kong Observatory on Tuesday said residents can expect hotter weather this year due to the continuing impact of climate change.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796261-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796261-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796261-20250318.htm)
+
+---
+
 # ERB to offer new courses to highly educated trainees
 
 ![The Employees Retraining Board says it has been actively promoting skills-based training. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796244_1_20250318161327.jpg&q=85)
@@ -1412,29 +1436,5 @@ Police on Wednesday said they arrested five people on suspicion of stealing more
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm)
-
----
-
-# 'Companies Registry didn't breach privacy rules'
-
-![The privacy watchdog says a total of 109,002 people may have been affected by a Companies Registry data leak in April. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795447_1_20250312193702.jpg&q=80)
-  
-
-The privacy watchdog said on Wednesday it completed an investigation on last April's Companies Registry data leak, which affected nearly 110,000 people.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm)
 
 ---
