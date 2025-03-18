@@ -1,3 +1,27 @@
+# Speedy admission begins for VIPs as Lee woos Asean
+
+![John Lee says the move aims to strengthen Hong Kong's ties with Asean countries. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796205_1_20250318110846.jpg&q=85)
+  
+
+A special admission scheme that makes it easier for guests from 10 Asean nations to visit Hong Kong will start on Tuesday, Chief Executive John Lee has announced.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm)
+
+---
+
 # RTHK to show giant panda documentary
 
 ![RTHK is set to premiere the documentary "The Panda Adventure" in April.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796118_1_20250317202335.jpg&q=85)
@@ -1412,29 +1436,5 @@ Cathay Pacific Airways on Wednesday reported marginal full-year profit growth as
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm)
-
----
-
-# 'Measures to cut construction costs to come this year'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795404_1_20250312134220.jpg&q=90)
-  
-
-Development secretary Bernadette Linn said reviewing construction standards and centralising procurement of materials are among concrete measures that the government will take to lower costs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795404-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795404-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795404-20250312.htm)
 
 ---

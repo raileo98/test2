@@ -1,3 +1,27 @@
+# Speedy admission begins for VIPs as Lee woos Asean
+
+![John Lee says the move aims to strengthen Hong Kong's ties with Asean countries. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796205_1_20250318110846.jpg&q=85)
+  
+
+A special admission scheme that makes it easier for guests from 10 Asean nations to visit Hong Kong will start on Tuesday, Chief Executive John Lee has announced.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm)
+
+---
+
 # Tech stocks boost Hong Kong stocks in early trading
 
 ![The Hang Seng Tech Index climbed over 3 percent shortly after the opening. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796191_1_20250318102346.jpg&q=65)
@@ -1415,29 +1439,5 @@ The local official who heads the National Games Coordination Office on Sunday sa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm)
-
----
-
-# US, Russian diplomats discuss next steps on Ukraine
-
-![Ukrainian firefighters work to extinguish a fire following a strike on the outskirts of Odessa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795912_1_20250316105435.jpg&q=90)
-  
-
-US Secretary of State Marco Rubio and Russia's Foreign Minister Sergei Lavrov spoke on Saturday to discuss the next stage in talks on ending Moscow's war against Ukraine.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm)
 
 ---

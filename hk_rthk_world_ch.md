@@ -1,3 +1,27 @@
+# 加沙衛生部門稱以軍大規模空襲造成至少200人死亡
+
+![以軍空襲造成大量傷亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796208_1_20250318114327.jpg&q=85)
+  
+
+以色列軍方當地星期二凌晨，向加沙地帶發動自1月19日停火生效以來最大規模的空襲，加沙衛生部門說，空襲已造成至少200人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796208-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796208-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796208-20250318.htm)
+
+---
+
 # 以軍大規模空襲加沙據報至少100人死亡　哈馬斯譴責
 
 ![空襲中的傷者送去醫院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796197_1_20250318103104.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm)
-
----
-
-# 也門胡塞武裝：美軍空襲造成逾30人死　揚言以升級回應升級
-
-![特朗普下令對也門胡塞武裝採取大規模軍事行動後，美軍船艦向不明地點開火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795925_1_20250316131959.jpg&q=90)
-  
-
-美國總統特朗普下令對也門胡塞武裝採取大規模軍事行動，胡塞武裝說，首都薩那、北部薩達省等地遭到空襲，造成至少31人死亡，主要是婦女和兒童，另有超過100人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795925-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795925-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795925-20250316.htm)
 
 ---
