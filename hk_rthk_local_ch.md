@@ -1,3 +1,49 @@
+# 羅淑佩：啟德體育園啟用有助增強香港體育事業競爭力
+
+  
+
+文化體育及旅遊局局長羅淑佩表示，特區政府會持續投放資源，與社會各界攜手建立熱愛體育的文化，隨著啟德體育園啟用，相信將會進一步提升相關人才的場地管理、裁判、訓練和盛事統籌能力，有助增強香港體育事業的競爭力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm)
+
+---
+
+# 監警會主席王沛詩與委員視察旺角警署並與衝鋒隊前線人員交流
+
+  
+
+監警會主席王沛詩日前聯同一眾委員和秘書處職員前往旺角警署視察「特別臨時羈留室」的最新配備及設施，並與西九龍衝鋒隊的前線人員交流。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm)
+
+---
+
 # 地產建設商會對李兆基辭世深感惋惜
 
   
@@ -1385,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm)
-
----
-
-# 恒基：創辦人李兆基今天黃昏離世　享年97歲
-
-![李兆基黃昏在家人陪伴下與世長辭。（恆地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796112_2_20250317200524.jpg&q=90)
-  
-
-恒基地產公布，集團創辦人李兆基今日黃昏在家人陪伴下安詳與世長辭，享年97歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm)
-
----
-
-# 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
-
-![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_2_20250317200046.jpg&q=90)
-  
-
-新華社報道，中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬，會見巴拿馬主要政黨領導人，同智庫學者等座談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 監警會主席王沛詩與委員視察旺角警署並與衝鋒隊前線人員交流
+
+  
+
+監警會主席王沛詩日前聯同一眾委員和秘書處職員前往旺角警署視察「特別臨時羈留室」的最新配備及設施，並與西九龍衝鋒隊的前線人員交流。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm)
+
+---
+
 # 地產建設商會對李兆基辭世深感惋惜
 
   
