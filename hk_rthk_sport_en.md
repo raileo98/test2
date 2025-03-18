@@ -27,7 +27,7 @@ Lionel Messi will miss two World Cup qualifiers after he was left out of the Arg
 ![Germany's Nelvie Tiafack, left, in action against Bakhodir Jalolov of Uzbekistan at the Paris Olympics. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796158_1_20250318055329.jpg&q=90)
   
 
-IOC chief Thomas Bach has announced that boxing is set to be among the sports at the 2028 Los Angeles Olympics after a new governing body is selected.
+International Olympic Committee (IOC) chief Thomas Bach has announced that boxing is set to be among the sports at the 2028 Los Angeles Olympics after a new governing body is selected.
 
   
 

@@ -1,3 +1,27 @@
+# 市場料3大央行維持利率不變　未來英倫銀行或更有逼切減息
+
+![吳卓殷料英倫銀行可能更加有逼切減息，預計今年餘下時間有0.75厘的減息空間。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796224_1_20250318125541.jpg&q=90)
+  
+
+今個星期被喻為「超級央行周」，美、英、日等多國央行都會議息。當中，美國聯儲局將於本港時間星期四公布議息結果，市場普遍預期將維持利率於4.25厘至4.5厘不變，會後聲明、反映聯儲局官員對未來利率走勢預測的點陣圖、以及主席鮑威爾記者會上息率及經濟前景的看法將成為焦點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796224-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796224-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796224-20250318.htm)
+
+---
+
 # 洪都拉斯小型飛機墜毀至少7人喪生
 
 ![搜救人員在墜毀現場救援。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796223_1_20250318125456.jpg&q=90)
@@ -168,6 +192,7 @@
 
 # 港隊於殘疾人劍擊世界盃奪2銀4銅
 
+![香港輪椅劍擊隊在意大利舉行的殘疾人劍擊世界盃，奪得2銀4銅。（香港傷殘人士體育協會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796216_1_20250318125651.jpg&q=90)
   
 
 香港輪椅劍擊隊在意大利舉行的殘疾人劍擊世界盃，奪得2銀4銅。
