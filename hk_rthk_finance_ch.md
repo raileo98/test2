@@ -72,7 +72,7 @@
 
 # 最新失業率3.2%微升0.1個百分點
 
-![政府表示，一些企業或會受到美國貿易保護措施帶來的不確定性所影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796250_1_20250318165946.jpg&q=90)
+![政府表示，一些企業或會受到美國貿易保護措施帶來的不確定性所影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796250_2_20250318170303.jpg&q=85)
   
 
 統計處公布，去年12月至今年2月的失業率是3.2%，較上次微升0.1個百分點，有11萬1700人失業，增加約1600人。就業不足率不變，維持於1.1%，就業不足人數有40700人，減少約2300人。
@@ -91,6 +91,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm)
+
+---
+
+# 美商務部據報禁DeepSeek　外交部：反對泛化國家安全概念
+
+![毛寧回應，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796249_1_20250318164617.jpg&q=90)
+  
+
+對於有報道指，美國商務部各部門最近通知工作人員，中國人工智能模型深度求索(DeepSeek)已被禁止在政府設備上使用，在北京，外交部發言人毛寧回應，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化，中方也將堅定維護中國企業的合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm)
 
 ---
 
@@ -114,6 +138,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm)
+
+---
+
+# 黃英豪稱結合中醫實力與生物科技優勢　浸大申辦醫學院具競爭力
+
+![黃英豪（左）表示，浸大有自己的特色，作為全港第一間中醫院的營辦機構，過去培育了很多中醫人才。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796239_1_20250318153111.jpg&q=90)
+  
+
+已就本港興建第三所醫學院提交建議書的浸會大學，校長衞炳江出席一個活動後表示，將努力為與籌備工作組會面作出準備。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm)
 
 ---
 
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm)
-
----
-
-# 研究：內地1月手機出貨量按年跌逾14%
-
-![信息通信研究院公布，1月國產品牌手機出貨量按年下跌近13%，佔總出貨量比例近84%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796090_1_20250317174638.jpg&q=90)
-  
-
-工信部直屬信息通信研究院公布，1月內地手機出貨量逾2724萬部，按年下跌逾14%，其中，5G手機按年下跌近10%，佔同期手機出貨量近87%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm)
-
----
-
-# 與港鐵就設寵物車廂會面　劉國勳倡寵物須「入袋」及購月票
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796087_1_20250317173250.jpg&q=90)
-  
-
-民建聯立法會議員劉國勳聯同動物福利聯盟約20多名團體代表與港鐵會面，就港鐵研究推行寵物車廂提出意見和建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm)
 
 ---
