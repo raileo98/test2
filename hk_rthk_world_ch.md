@@ -1,3 +1,27 @@
+# 也門胡塞武裝向以色列發射導彈　以軍稱成功攔截
+
+![胡塞武裝發言人強調，如果以色列不停止對加沙的侵略，組織將擴大對以色列的打擊範圍。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796321_1_20250319023204.jpg&q=90)
+  
+
+以色列南部內蓋夫等地星期二晚響起防空警報，以軍指，成功攔截一枚來自也門境內的導彈。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796321-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796321-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796321-20250319.htm)
+
+---
+
 # 白宮：美俄元首認為實現和平將從能源和基礎設施停火開始
 
 ![白宮發表聲明說，兩國元首同意俄烏衝突需要以持久和平結束。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796320_1_20250319022112.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795989-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795989-20250317.htm)
-
----
-
-# 也門胡塞武裝領導人揚言會將所有美國航母及軍艦作為襲擊目標
-
-![胡塞武裝領導人揚言會將所有美國航空母艦及軍艦，作為襲擊目標。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795979_1_20250317065647.jpg&q=90)
-  
-
-也門胡塞武裝領導人發表講話，揚言會將所有美國航空母艦及軍艦，作為襲擊目標，又指責美國的所作所為是將海洋變為戰場，影響國際航道的航行。他又說如果美國繼續進行針對胡塞武裝的軍事行動，胡塞武裝會升級報復手段。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795979-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795979-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795979-20250317.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 也門胡塞武裝向以色列發射導彈　以軍稱成功攔截
+
+![胡塞武裝發言人強調，如果以色列不停止對加沙的侵略，組織將擴大對以色列的打擊範圍。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796321_1_20250319023204.jpg&q=90)
+  
+
+以色列南部內蓋夫等地星期二晚響起防空警報，以軍指，成功攔截一枚來自也門境內的導彈。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796321-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796321-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796321-20250319.htm)
+
+---
+
 # 白宮：美俄元首認為實現和平將從能源和基礎設施停火開始
 
 ![白宮發表聲明說，兩國元首同意俄烏衝突需要以持久和平結束。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796320_1_20250319022112.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm)
-
----
-
-# 最新失業率3.2%微升0.1個百分點
-
-![政府表示，一些企業或會受到美國貿易保護措施帶來的不確定性所影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796250_2_20250318170303.jpg&q=85)
-  
-
-統計處公布，去年12月至今年2月的失業率是3.2%，較上次微升0.1個百分點，有11萬1700人失業，增加約1600人。就業不足率不變，維持於1.1%，就業不足人數有40700人，減少約2300人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm)
 
 ---
