@@ -1,3 +1,26 @@
+# 工業傷亡權益會歡迎公共建築工程逐步採用金屬棚架提升安全
+
+  
+
+有竹棚業界人士表示，接獲發展局通知，政府當局將會以試行方式，在興建新大樓的公務工程招標項目中使用金屬棚架，並逐步將比例擴展至50%的工程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796228-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796228-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796228-20250318.htm)
+
+---
+
 # 何炳德透露接獲當局通知使用金屬棚架比例將逐步擴展至五成工程
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796036-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796036-20250317.htm)
-
----
-
-# 強積金對沖5月取消　鄧家彪籲僱主勿因擔心增加負擔而解僱員工
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796033_1_20250317125239.jpg&q=90)
-  
-
-強積金對沖安排將於5月1日起取消，工聯會立法會議員鄧家彪呼籲僱主不要因為擔心負擔增加而解僱員工，新安排下不設追溯期，如果僱主趕在5月1日前解僱員工，可能要給予的遣散費會更多，同時亦未必可以即時聘請到新人填補空缺。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm)
 
 ---

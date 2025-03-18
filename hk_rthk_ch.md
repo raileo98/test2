@@ -1,3 +1,26 @@
+# 工業傷亡權益會歡迎公共建築工程逐步採用金屬棚架提升安全
+
+  
+
+有竹棚業界人士表示，接獲發展局通知，政府當局將會以試行方式，在興建新大樓的公務工程招標項目中使用金屬棚架，並逐步將比例擴展至50%的工程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796228-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796228-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796228-20250318.htm)
+
+---
+
 # 何炳德透露接獲當局通知使用金屬棚架比例將逐步擴展至五成工程
 
   
