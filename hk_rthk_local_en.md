@@ -1,3 +1,27 @@
+# City's jobless numbers edge up
+
+![The jobless rate rises were mostly seen in food and beverage, transport, construction and professional and business services, excluding cleaning. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796260_2_20250318175643.jpg&q=85)
+  
+
+Hong Kong's jobless rate has increased slightly as authorities warned about the "uncertainties" caused by US trade protection measures going forward.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm)
+
+---
+
 # Hotter weather expected this year: observatory
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796261_1_20250318171329.jpg&q=60)
@@ -1412,29 +1436,5 @@ The Education Bureau on Wednesday said it has ordered tour group service provide
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795473-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795473-20250312.htm)
-
----
-
-# Five arrested on suspicion of stealing copper pipes
-
-![Police say the suspects allegedly took the pipes from parks and back alleys and sold them for money.  Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795464_1_20250312213643.jpg&q=90)
-  
-
-Police on Wednesday said they arrested five people on suspicion of stealing more than HK$1 million worth of copper pipes across Hong Kong since January.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795464-20250312.htm)
 
 ---

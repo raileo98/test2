@@ -1,3 +1,26 @@
+# 陳栢緯料西太平洋颱風總數或不變　出現較強颱風機率或增加
+
+  
+
+天文台預測，今年約有5至8個熱帶氣旋進入本港500公里範圍內，可能6月或之前踏入風季。至於如何評估出現「超級颱風」的機會，天文台台長陳栢緯表示，受海水變暖及大氣環流改變影響，在本港西太平洋上空，颱風總數可能不變，出現較強颱風機率會增加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796275-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796275-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796275-20250318.htm)
+
+---
+
 # 李家超有信心香港與東莞優勢互補為建設國際一流灣區作貢獻
 
   
@@ -257,7 +280,7 @@
 
 ---
 
-# 港股高收595點　連升3日累計近1280點
+# 港股收市升595點　連升3日累計近1280點
 
 ![港股創逾3年新高，恒生指數收市報24740點，升595點，升幅約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796245_1_20250318162011.jpg&q=10)
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm)
-
----
-
-# 宋皇臺站兩出口解封　警接報發現行李箱搜查後證實無可疑
-
-![警方搜查後將行李箱帶走。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796092_1_20250317180815.jpg&q=80)
-  
-
-港鐵宋皇臺站兩個出口一度封閉搜查可疑物物品，警方搜查後證實並無可疑，B2及B3出口現已解封。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm)
 
 ---
