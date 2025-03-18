@@ -1,3 +1,27 @@
+# 台股高收約0.7%
+
+![加權指數收報22271點，升153點，升幅0.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796229_1_20250318142803.jpg&q=90)
+  
+
+台股連續3日上升，受重磅股台積電主導，後市關注Nvidia大會及聯儲局本周政策會議對利率及經濟展望。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796229-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796229-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796229-20250318.htm)
+
+---
+
 # 工業傷亡權益會歡迎公共建築工程逐步採用金屬棚架提升安全
 
   

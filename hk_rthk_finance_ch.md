@@ -1,3 +1,27 @@
+# 台股高收約0.7%
+
+![加權指數收報22271點，升153點，升幅0.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796229_1_20250318142803.jpg&q=90)
+  
+
+台股連續3日上升，受重磅股台積電主導，後市關注Nvidia大會及聯儲局本周政策會議對利率及經濟展望。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796229-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796229-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796229-20250318.htm)
+
+---
+
 # 特步去年多賺約20%
 
 ![特步去年盈利12.4億元人民幣，按年升20.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796226_1_20250318132451.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm)
-
----
-
-# 首兩月社會消費品零售總額增4%　發改委稱以舊換新政策帶動
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796063_1_20250317162105.jpg&q=90)
-  
-
-內地發布《提振消費專項行動方案》，在北京，國家發改委副主任李春臨表示，今年首兩個月的社會消費品零售總額按年增長4%，較去年全年加快0.5個百分點，消費品以舊換新政策帶動了相應品類商品零售額較快增長，不過消費者信心和預期偏弱、部分消費需求未充分滿足、消費環境有待優化等問題仍客觀存在，以提振消費擴內需、更好滿足群眾美好生活需要，還有不少工作要做。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm)
 
 ---
