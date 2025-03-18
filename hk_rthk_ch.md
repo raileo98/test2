@@ -1,3 +1,27 @@
+# 聯通：AI是集團從通信運營公司轉型升級科技服務公司重要引擎
+
+![聯通稱將持之以恒做好提質增效，堅持開源節流並重。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796283_1_20250318190721.jpg&q=90)
+  
+
+中國聯通預計今年固定資產投資約550億元人民幣，並為人工智能（AI）重點基礎設施和重大工程專項作特別預算安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796283-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796283-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796283-20250318.htm)
+
+---
+
 # 孫東稱冀與業界促進新來港上市企業與本地大學開展創科合作
 
   
