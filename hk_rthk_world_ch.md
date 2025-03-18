@@ -1,3 +1,26 @@
+# 加沙衛生部指以軍空襲增至逾400人死亡
+
+  
+
+在以色列與哈馬斯就第二階段停火談判停滯之際，以色列軍方當地星期二凌晨，向加沙地帶發動自1月19日停火生效以來最大規模的空襲，加沙衛生部門說，空襲已造成超過4百人死亡，5百多人傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796286-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796286-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796286-20250318.htm)
+
+---
+
 # 俄媒稱普京與特朗普本港時間晚上9時至11時會談
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795953-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795953-20250316.htm)
-
----
-
-# 澤連斯基：烏俄停火不應與領土問題掛鉤
-
-![澤連斯基在基輔舉行記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795951_1_20250316194009.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基強調，烏俄兩國停火的第一步不應與領土問題掛鉤。他同時表示，烏克蘭不會承認被佔領土屬於俄羅斯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm)
 
 ---
