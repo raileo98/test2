@@ -1,6 +1,6 @@
 # City's jobless numbers edge up
 
-![Hong Kong's jobless rate rose slightly to 3.2 percent last month, with the most notable changes seen in industries such as food and beverage services. File photo: Shutterstock](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796260_1_20250318170934.jpg&q=80)
+![The jobless rate rises were mostly seen in food and beverage, transport, construction and professional and business services, excluding cleaning. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796260_2_20250318175643.jpg&q=85)
   
 
 Hong Kong's jobless rate has increased slightly as authorities warned about the "uncertainties" caused by US trade protection measures going forward.
@@ -24,7 +24,7 @@ Hong Kong's jobless rate has increased slightly as authorities warned about the 
 
 # Hotter weather expected this year: observatory
 
-![The observatory noted that Hong Kong recorded 11 months that were warmer than usual in 2024. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796261_1_20250318171329.jpg&q=60)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796261_1_20250318171329.jpg&q=60)
   
 
 The Hong Kong Observatory on Tuesday said residents can expect hotter weather this year due to the continuing impact of climate change.

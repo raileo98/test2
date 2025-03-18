@@ -1,3 +1,118 @@
+# 李家超有信心香港與東莞優勢互補為建設國際一流灣區作貢獻
+
+  
+
+行政長官李家超與東莞市委書記韋皓會面，就深化香港和東莞市合作及推動粵港澳大灣區高質量發展交流意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm)
+
+---
+
+# 廉署拘22人包括銀行職員涉詐騙貸款轉介費
+
+  
+
+廉署拘捕22人，包括18名銀行前線職員，涉嫌詐騙銀行貸款轉介費，觸犯行賄受賄、串謀詐騙等罪名，案件涉及超過200宗樓宇按揭貸款申請，牽涉賄款合共約200萬元，約100個客戶受影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796257-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796257-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796257-20250318.htm)
+
+---
+
+# 李家超：啟德體育園部分安排不理想　要求設恆常會議機制
+
+  
+
+行政長官李家超指，啟德體育園自開園至今的一些安排不理想，他要求在多方面強化機制建設，包括要設立恆常會議機制，文化體育及旅遊局和體育園定期有工作會議；體育園有應急或突發事件機制；有發言人機制，第一時間發放訊息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796256-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796256-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796256-20250318.htm)
+
+---
+
+# 林定國稱推動新型工業化是融入國家發展重要一環
+
+  
+
+去年《施政報告》所提出推動的「香港新型工業發展聯盟」正式成立，希望促進「政、產、學、研、投」緊密協作，構建香港新型工業合作平台。律政司司長林定國表示，推動本地新型工業化是融入國家發展重要一環，過程中，法律的作用不可忽視。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm)
+
+---
+
+# 新鴻基地產悼念李兆基　讚揚李兆基與郭得勝開創地產業輝煌一頁
+
+  
+
+新鴻基地產悼念前副主席李兆基昨日辭世。新地表示，李兆基與新地淵源深厚，不僅是新地創辦人兼前主席郭得勝的摯友，更是共同創立新鴻基地產的緊密夥伴，他們攜手奠定新地的穩固基石，開創香港地產業輝煌的新一頁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm)
+
+---
+
 # 天文台料今年約5至8個熱帶氣旋影響本港　風季或較遲完結
 
   
@@ -1319,125 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796092-20250317.htm)
-
----
-
-# 一度在荃灣失蹤67歲男子　下午在青衣被尋回
-
-![男事主昨晚在荃灣失蹤，下午在青衣被尋回。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796088_1_20250317173627.jpg&q=75)
-  
-
-67歲男子盧家亮昨晚在荃灣失蹤，下午在青衣被尋回。男子沒有受傷，警方稱案件沒有可疑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796088-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796088-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796088-20250317.htm)
-
----
-
-# 與港鐵就設寵物車廂會面　劉國勳倡寵物須「入袋」及購月票
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796087_1_20250317173250.jpg&q=90)
-  
-
-民建聯立法會議員劉國勳聯同動物福利聯盟約20多名團體代表與港鐵會面，就港鐵研究推行寵物車廂提出意見和建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm)
-
----
-
-# 海關檢3500萬元大麻花　藏於泰國抵港報稱載冷藏豬肉貨櫃
-
-![海關檢獲約138公斤懷疑大麻花，估計市值約3500萬元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796084_1_20250317173209.jpg&q=85)
-  
-
-海關在葵涌檢獲約138公斤懷疑大麻花，估計市值約3500萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796084-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796084-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796084-20250317.htm)
-
----
-
-# 深水埗有私家車著火冒出大量黑煙　司機及時逃離車輛未有受傷
-
-![深水埗有私家車引擎懷疑冒煙著火。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796081_1_20250317172601.jpg&q=90)
-  
-
-深水埗有私家車引擎懷疑冒煙著火，司機逃離車輛報警，未有受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796081-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796081-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796081-20250317.htm)
-
----
-
-# 證監會：新一年度薪酬調整仍待董事局批准　尚未最終確定
-
-![證監會重申，一直以謹慎理財、開源節流、降本增效方式，應對近年香港金融市場的挑戰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796080_1_20250317170250.jpg&q=85)
-  
-
-證監會回應傳媒有關2025/2026年度預算中建議薪酬調整的查詢，重申有關建議有待證監會董事局批准，尚未最終確定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm)
 
 ---

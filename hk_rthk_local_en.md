@@ -1,6 +1,6 @@
 # Hotter weather expected this year: observatory
 
-![The observatory noted that Hong Kong recorded 11 months that were warmer than usual in 2024. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796261_1_20250318171329.jpg&q=60)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796261_1_20250318171329.jpg&q=60)
   
 
 The Hong Kong Observatory on Tuesday said residents can expect hotter weather this year due to the continuing impact of climate change.

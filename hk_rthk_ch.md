@@ -1,3 +1,95 @@
+# 廉署拘22人包括銀行職員涉詐騙貸款轉介費
+
+  
+
+廉署拘捕22人，包括18名銀行前線職員，涉嫌詐騙銀行貸款轉介費，觸犯行賄受賄、串謀詐騙等罪名，案件涉及超過200宗樓宇按揭貸款申請，牽涉賄款合共約200萬元，約100個客戶受影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796257-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796257-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796257-20250318.htm)
+
+---
+
+# 李家超：啟德體育園部分安排不理想　要求設恆常會議機制
+
+  
+
+行政長官李家超指，啟德體育園自開園至今的一些安排不理想，他要求在多方面強化機制建設，包括要設立恆常會議機制，文化體育及旅遊局和體育園定期有工作會議；體育園有應急或突發事件機制；有發言人機制，第一時間發放訊息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796256-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796256-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796256-20250318.htm)
+
+---
+
+# 林定國稱推動新型工業化是融入國家發展重要一環
+
+  
+
+去年《施政報告》所提出推動的「香港新型工業發展聯盟」正式成立，希望促進「政、產、學、研、投」緊密協作，構建香港新型工業合作平台。律政司司長林定國表示，推動本地新型工業化是融入國家發展重要一環，過程中，法律的作用不可忽視。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm)
+
+---
+
+# 新鴻基地產悼念李兆基　讚揚李兆基與郭得勝開創地產業輝煌一頁
+
+  
+
+新鴻基地產悼念前副主席李兆基昨日辭世。新地表示，李兆基與新地淵源深厚，不僅是新地創辦人兼前主席郭得勝的摯友，更是共同創立新鴻基地產的緊密夥伴，他們攜手奠定新地的穩固基石，開創香港地產業輝煌的新一頁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm)
+
+---
+
 # 天文台料今年約5至8個熱帶氣旋影響本港　風季或較遲完結
 
   
@@ -382,8 +474,9 @@
 
 ---
 
-# 潤啤：國家政策不斷落地增強未來消費信心
+# 潤啤：國家政策不斷落地大大增強未來消費信心
 
+![侯孝海（左二）稱中國去年消費市場出現一定收縮及降級，集團在高端化發展方面取得較好成績。（任浩鋒報道）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796246_1_20250318180029.jpg&q=85)
   
 
 華潤啤酒主席侯孝海表示，按今年首兩個月情況，預期全年形勢較樂觀，因為國家政策不斷落地，消費市場出現明顯回升跡象，大大增強未來消費信心，形容基本面已明顯好轉，如果今年天氣情況不太差，今年業務表現將較去年好。

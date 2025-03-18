@@ -1,3 +1,26 @@
+# 李家超有信心香港與東莞優勢互補為建設國際一流灣區作貢獻
+
+  
+
+行政長官李家超與東莞市委書記韋皓會面，就深化香港和東莞市合作及推動粵港澳大灣區高質量發展交流意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm)
+
+---
+
 # 習近平考察時強調貴州要積極對接粵港澳大灣區
 
 ![習近平強調，貴州堅持以高質量發展統攬全局，以進一步全面深化改革開放為動力，在中國式現代化進程中展現新風采。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796262_1_20250318171405.jpg&q=85)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm)
-
----
-
-# 人民日報文章：賴清德「綠恐謀獨」必然自取滅亡
-
-![人民日報批評賴清德近日拋出所謂「因應五方面威脅」的「17項策略」，不惜將台灣民眾推入險境的邪惡本質與陰險用心。（人民日報網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795842_1_20250315125000.jpg&q=90)
-  
-
-人民日報發表署名文章，批評賴清德近日拋出所謂「因應五方面威脅」的「17項策略」，立場之頑固，態度之囂張，挑釁之猖狂，充分暴露其人瘋狂謀「獨」對抗、不惜將台灣民眾推入險境的邪惡本質與陰險用心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795842-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795842-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795842-20250315.htm)
 
 ---

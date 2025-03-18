@@ -1,3 +1,49 @@
+# 李家超有信心香港與東莞優勢互補為建設國際一流灣區作貢獻
+
+  
+
+行政長官李家超與東莞市委書記韋皓會面，就深化香港和東莞市合作及推動粵港澳大灣區高質量發展交流意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm)
+
+---
+
+# 新鴻基地產悼念李兆基　讚揚李兆基與郭得勝開創地產業輝煌一頁
+
+  
+
+新鴻基地產悼念前副主席李兆基昨日辭世。新地表示，李兆基與新地淵源深厚，不僅是新地創辦人兼前主席郭得勝的摯友，更是共同創立新鴻基地產的緊密夥伴，他們攜手奠定新地的穩固基石，開創香港地產業輝煌的新一頁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm)
+
+---
+
 # 在岸人民幣兌美元高收172點子　創逾4個月新高
 
 ![在岸人民幣收市報7.2216兌1美元，較昨日收市價升172點子，創逾4個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796264_1_20250318172613.jpg&q=80)
@@ -191,8 +237,9 @@
 
 ---
 
-# 潤啤：國家政策不斷落地增強未來消費信心
+# 潤啤：國家政策不斷落地大大增強未來消費信心
 
+![侯孝海（左二）稱中國去年消費市場出現一定收縮及降級，集團在高端化發展方面取得較好成績。（任浩鋒報道）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796246_1_20250318180029.jpg&q=85)
   
 
 華潤啤酒主席侯孝海表示，按今年首兩個月情況，預期全年形勢較樂觀，因為國家政策不斷落地，消費市場出現明顯回升跡象，大大增強未來消費信心，形容基本面已明顯好轉，如果今年天氣情況不太差，今年業務表現將較去年好。
@@ -1392,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
-
----
-
-# 航空公司：加飛機離境稅削競爭力　政府：對出行開支影響十分輕微
-
-![香港航空（左）、國泰航空（中）和大灣區航空（右）分別表示，擔心調高飛機乘客離境稅會削弱本港競爭力或增加短途旅客出行成本。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796109_1_20250317202740.jpg&q=90)
-  
-
-《財政預算案》提出，今年10月1日起，飛機乘客離境稅由每名乘客120元調升至200元，立法會本周三將首讀及二讀辯論相關修例草案。三間本地航空公司分別表示，擔心削弱本港競爭力或增加短途旅客出行成本，促請政府慎重考慮。據悉，香港航空公司代表協會曾向政府反映對於增加機場離境稅的意見。政府則強調建議的增幅影響十分輕微。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm)
-
----
-
-# 中國鐵塔：公司能在低空經濟發展中發揮更好作用
-
-![張志勇（中）稱密切關注低空經濟相關領域發展，相信能為未來低空經濟增長奠定基礎。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796105_1_20250317190128.jpg&q=90)
-  
-
-全國人大代表、中國鐵塔董事長張志勇在兩會期間，建議加強低空基礎建設，提倡將低空基礎設施納入都市總體規劃，加速制定統一、全面的低空基礎設施標準等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796105-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796105-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796105-20250317.htm)
 
 ---
