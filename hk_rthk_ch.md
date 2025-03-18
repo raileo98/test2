@@ -1,3 +1,27 @@
+# 小米去年多賺逾35%　智能電動車等創新業務蝕62億元人民幣
+
+![小米去年智能電動汽車等創新業務經調整淨虧損62億元人民幣，單計第4季虧損7億元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796271_1_20250318174940.jpg&q=90)
+  
+
+小米去年盈利236.6億元人民幣，按年升逾35%，不派末期息。按非國際財務報告準則計的經調整盈利升逾41%至272.3億元，收入升35%至3659.1億元，兩者都創新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796271-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796271-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796271-20250318.htm)
+
+---
+
 # 加沙衛生部指以軍空襲增至逾400人死亡
 
   

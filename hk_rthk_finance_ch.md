@@ -1,3 +1,27 @@
+# 小米去年多賺逾35%　智能電動車等創新業務蝕62億元人民幣
+
+![小米去年智能電動汽車等創新業務經調整淨虧損62億元人民幣，單計第4季虧損7億元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796271_1_20250318174940.jpg&q=90)
+  
+
+小米去年盈利236.6億元人民幣，按年升逾35%，不派末期息。按非國際財務報告準則計的經調整盈利升逾41%至272.3億元，收入升35%至3659.1億元，兩者都創新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796271-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796271-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796271-20250318.htm)
+
+---
+
 # 聯通：AI是集團從通信運營公司轉型升級科技服務公司重要引擎
 
 ![聯通稱將持之以恒做好提質增效，堅持開源節流並重。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796283_1_20250318190721.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796119-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796119-20250317.htm)
-
----
-
-# 恒基：創辦人李兆基今天黃昏離世　享年97歲
-
-![李兆基黃昏在家人陪伴下與世長辭。（恆地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796112_2_20250317200524.jpg&q=90)
-  
-
-恒基地產公布，集團創辦人李兆基今日黃昏在家人陪伴下安詳與世長辭，享年97歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm)
 
 ---
