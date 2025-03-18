@@ -1,3 +1,75 @@
+# 日股初段升近500點
+
+![日經指數較早時報37893點，升497點，升幅1.33%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796171_1_20250318080710.jpg&q=85)
+  
+
+東京股市初段升近500點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796171-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796171-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796171-20250318.htm)
+
+---
+
+# 韓股初段升近1%
+
+![首爾綜合指數較早時報2634點，升23點，升幅0.89%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796173_1_20250318080857.jpg&q=90)
+  
+
+南韓股市初段升近1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796173-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796173-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796173-20250318.htm)
+
+---
+
+# 國資委：指導央企制訂科學合理經營目標　全力以赴穩增長
+
+![國資委表示，要更好發揮中央企業在推動經濟持續回升向好的重要作用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796170_1_20250318080546.jpg&q=80)
+  
+
+國務院國資委表示，要更好發揮中央企業在推動經濟持續回升向好的重要作用，指導企業制訂科學合理、有挑戰性的經營目標，全力以赴穩增長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796170-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796170-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796170-20250318.htm)
+
+---
+
 # 特朗普提名鮑曼為聯儲局副主席　負責金融監管
 
 ![特朗普提名聯儲局理事鮑曼擔任負責監管的副主席。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796166_1_20250318070933.jpg&q=90)
@@ -1365,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796004-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796004-20250317.htm)
-
----
-
-# 人行逆回購4810億元人民幣　單日轉為淨投放3845億元
-
-![人行公開市場開展4810億元人民幣7天期逆回購操作，單日轉為淨投放3845億元，結束10日淨回籠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796000_1_20250317094154.jpg&q=75)
-  
-
-人民銀行公開市場開展4810億元人民幣7天期逆回購操作，利率維持1.5厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796000-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796000-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796000-20250317.htm)
-
----
-
-# 內地股市個別發展　滬股初段升約0.4%
-
-![內地股市初段個別發展，上證指數較早時報3431點，升12點，升幅0.36%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795999_1_20250317093718.jpg&q=85)
-  
-
-內地股市初段個別發展，上證指數較早時報3431點，升12點，升幅0.36%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795999-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795999-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795999-20250317.htm)
-
----
-
-# 恒指高開逾200點　重上24000點
-
-![恒指競價時段報24226點，升266點，升幅1.11%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795998_1_20250317092406.jpg&q=65)
-  
-
-港股高開，恒生指數重上24000點，競價時段報24226點，升266點，升幅1.11%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795998-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795998-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795998-20250317.htm)
 
 ---

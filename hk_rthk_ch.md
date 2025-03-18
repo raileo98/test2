@@ -1,3 +1,123 @@
+# 突尼斯海岸警衛隊發現18具偷渡客遺體
+
+![突尼斯海岸警衛隊發現18具偷渡客遺體](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796174_1_20250318083108.jpg&q=90)
+  
+
+突尼斯海岸警衛隊說，在地中海沿岸海域數次行動中，解救612名偷渡客，並發現18具偷渡客遺體。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796174-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796174-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796174-20250318.htm)
+
+---
+
+# 日股初段升近500點
+
+![日經指數較早時報37893點，升497點，升幅1.33%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796171_1_20250318080710.jpg&q=85)
+  
+
+東京股市初段升近500點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796171-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796171-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796171-20250318.htm)
+
+---
+
+# 韓股初段升近1%
+
+![首爾綜合指數較早時報2634點，升23點，升幅0.89%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796173_1_20250318080857.jpg&q=90)
+  
+
+南韓股市初段升近1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796173-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796173-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796173-20250318.htm)
+
+---
+
+# 國資委：指導央企制訂科學合理經營目標　全力以赴穩增長
+
+![國資委表示，要更好發揮中央企業在推動經濟持續回升向好的重要作用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796170_1_20250318080546.jpg&q=80)
+  
+
+國務院國資委表示，要更好發揮中央企業在推動經濟持續回升向好的重要作用，指導企業制訂科學合理、有挑戰性的經營目標，全力以赴穩增長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796170-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796170-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796170-20250318.htm)
+
+---
+
+# 特朗普提名貝德福德擔任聯邦航空管理局局長
+
+![特朗普說，貝德福德擔任過多間航空公司高層，有30多年的航空和行政領導經驗。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796172_1_20250318080733.jpg&q=90)
+  
+
+美國總統特朗普提名共和航空 ( Republic Airways )行政總裁貝德福德擔任聯邦航空管理局局長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796172-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796172-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796172-20250318.htm)
+
+---
+
 # 《環看天下》：特朗普下令大規模空襲也門　胡塞武裝誓言報復
 
 ![美軍據報包括透過部署在紅海的軍艦，向也門胡塞武裝目標發動空襲。( 路透社 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796169_1_20250318074628.jpg&q=90)
@@ -1320,125 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796104-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796104-20250317.htm)
-
----
-
-# 就澤連斯基稱重建冀獲中國援助　國合署：願提供力所能及幫助
-
-![澤連斯基早前表示，希望能夠在烏克蘭停止戰爭、恢復和平以及未來重建過程中得到中國的援助。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796103_1_20250317203049.jpg&q=90)
-  
-
-中國國家國際發展合作署新聞發言人李明表示，烏克蘭危機爆發以來，中國共向烏克蘭提供四批人道主義援助。中方將繼續做維護世界和平穩定的積極力量，捍衛全球公平正義的進步力量。願繼續根據當事方的意願，提供力所能及的幫助。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796103-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796103-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796103-20250317.htm)
-
----
-
-# 藍田五邑司徒浩中學6名學生上周廈門交流時急性腸胃炎　曾食團餐
-
-![衞生防護中心正調查一宗中學交流團出現急性腸胃炎徵狀個案群組，涉及6名上星期參加交流團到廈門的學生。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796102_1_20250317184421.jpg&q=80)
-  
-
-再有中學訪內地交流團的學生急性腸胃炎，最新的個案涉及藍田五邑司徒浩中學，36名師生在上周四至周六日參加交流團到廈門，期間6名學生在上周五晚9時至翌日早上約7時，陸續出現急性腸胃炎病徵，包括嘔吐、腹瀉和發燒。其中5人在當地求醫，全部無需留院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm)
-
----
-
-# 去年3百人被呈報吸食「太空油毒品」　政府暫不考慮舉報獎勵制度
-
-![保安局表示，去年共有300人被呈報吸食「太空油毒品」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796099_1_20250317183442.jpg&q=90)
-  
-
-保安局表示，去年共有300人被呈報吸食「太空油毒品」，其中75%為21歲以下青少年，其中在北區、元朗及屯門發現的個案較多。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796099-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796099-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796099-20250317.htm)
-
----
-
-# 消委會測試指部分床褥樣本側臥表現參差　建議最少試睡15分鐘
-
-![消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。（消委會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796098_1_20250317182701.jpg&q=90)
-  
-
-消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796098-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796098-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796098-20250317.htm)
-
----
-
-# 發改委：部門要落實促進居民「增收減負」及處理「加班文化」問題
-
-![發改委稱《提振消費專項行動方案》是「牽頭管總」文件，每個部門都要抓好貫徹落實。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796097_1_20250317192823.jpg&q=85)
-  
-
-國家發展和改革委員會副主任李春臨表示，中央印發的《提振消費專項行動方案》，是一份「牽頭管總」的綜合性文件，每個部門都要抓好貫徹落實，包括促進居民「增收減負」，處理「加班文化」盛行的問題等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm)
 
 ---

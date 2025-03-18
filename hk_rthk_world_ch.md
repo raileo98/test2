@@ -1,3 +1,51 @@
+# 突尼斯海岸警衛隊發現18具偷渡客遺體
+
+![突尼斯海岸警衛隊發現18具偷渡客遺體](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796174_1_20250318083108.jpg&q=90)
+  
+
+突尼斯海岸警衛隊說，在地中海沿岸海域數次行動中，解救612名偷渡客，並發現18具偷渡客遺體。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796174-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796174-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796174-20250318.htm)
+
+---
+
+# 特朗普提名貝德福德擔任聯邦航空管理局局長
+
+![特朗普說，貝德福德擔任過多間航空公司高層，有30多年的航空和行政領導經驗。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796172_1_20250318080733.jpg&q=90)
+  
+
+美國總統特朗普提名共和航空 ( Republic Airways )行政總裁貝德福德擔任聯邦航空管理局局長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796172-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796172-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796172-20250318.htm)
+
+---
+
 # 《環看天下》：特朗普下令大規模空襲也門　胡塞武裝誓言報復
 
 ![美軍據報包括透過部署在紅海的軍艦，向也門胡塞武裝目標發動空襲。( 路透社 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796169_1_20250318074628.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795906-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795906-20250316.htm)
-
----
-
-# 也門胡塞武裝：美軍空襲造成至少19人喪生
-
-![戰機從航空母艦起飛，執行空襲任務。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795903_1_20250316075403.jpg&q=90)
-  
-
-美國總統特朗普下令對也門胡塞武裝採取「果斷而有力的軍事行動」。胡塞武裝說，空襲造成至少19人喪生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795903-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795903-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795903-20250316.htm)
-
----
-
-# 美法官頒令暫阻政府按外國敵人法驅逐部分外來人士　政府一方上訴
-
-![特朗普政府根據外國敵人法驅逐被指是委內瑞拉黑幫成員的幾名人士。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795899_1_20250316065945.jpg&q=90)
-  
-
-美國一名聯邦法官頒令，暫緩執行總統特朗普政府根據外國敵人法，驅逐部分外來人士的政策。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795899-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795899-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795899-20250316.htm)
 
 ---
