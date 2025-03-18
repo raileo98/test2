@@ -1,3 +1,27 @@
+# 中通快遞去年多賺近1%
+
+![中通快遞去年盈利88.2億元人民幣，按年升0.8%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796346_1_20250319074536.jpg&q=85)
+  
+
+中通快遞去年盈利88.2億元人民幣，按年升0.8%。經調整後盈利升12%至100.8億元。派息每股美國存託股及普通股0.35美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796346-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796346-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796346-20250319.htm)
+
+---
+
 # 據報摩根士丹利擬本月裁員約2000人
 
 ![據報摩根士丹利計劃在本月裁員約2000人，佔公司員工總數2%至3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796345_1_20250319072806.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796173-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796173-20250318.htm)
-
----
-
-# 國資委：指導央企制訂科學合理經營目標　全力以赴穩增長
-
-![國資委表示，要更好發揮中央企業在推動經濟持續回升向好的重要作用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796170_1_20250318080546.jpg&q=80)
-  
-
-國務院國資委表示，要更好發揮中央企業在推動經濟持續回升向好的重要作用，指導企業制訂科學合理、有挑戰性的經營目標，全力以赴穩增長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796170-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796170-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796170-20250318.htm)
 
 ---
