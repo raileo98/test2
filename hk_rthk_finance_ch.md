@@ -1,3 +1,51 @@
+# 美股向下　道指低收260點　納指挫1.7%
+
+![美股3大指數跌逾0.6%至近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796330_1_20250319053229.jpg&q=90)
+  
+
+美股結束兩個交易日升勢，3大指數跌逾0.6%至近2%。投資者在聯儲局公布議息結果前保持謹慎，同時評估關稅政策的潛在影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796330-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796330-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796330-20250319.htm)
+
+---
+
+# 歐洲3大指數上升　德股升近1%　議會批准大幅增加支出計劃
+
+![德國DAX指數收報23380點，升226點，升幅0.98%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796329_1_20250319052207.jpg&q=80)
+  
+
+歐洲3大指數上升，德股升近1%。德國議會批准大幅增加支出的計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796329-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796329-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796329-20250319.htm)
+
+---
+
 # 小鵬：今年總銷量實現翻倍增長　第4季穩步走向盈利
 
 ![小鵬稱通過技術降本及更大規模效應，汽車毛利率今年持續改善。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796312_1_20250318234128.jpg&q=90)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796156-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796156-20250318.htm)
-
----
-
-# 美股連升兩日　道指升353點　Telsa逆市挫近半成
-
-![道瓊斯指數收報41841點，升353點，升幅0.85%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796155_1_20250318054007.jpg&q=90)
-  
-
-美股連升兩個交易日，延續反彈勢頭，投資者評估最新經濟數據。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796155-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796155-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796155-20250318.htm)
-
----
-
-# 英法德股市升近0.6%至逾0.7%
-
-![德國DAX指數收報23154點，升167點，升幅0.73%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796152_1_20250318052534.jpg&q=90)
-  
-
-歐洲3大指數向上，能源和醫療保健股上升，市場焦點集中在德國債務改革計劃和俄烏衝突。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796152-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796152-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796152-20250318.htm)
 
 ---

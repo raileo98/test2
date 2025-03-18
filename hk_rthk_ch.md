@@ -1,3 +1,51 @@
+# 美股向下　道指低收260點　納指挫1.7%
+
+![美股3大指數跌逾0.6%至近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796330_1_20250319053229.jpg&q=90)
+  
+
+美股結束兩個交易日升勢，3大指數跌逾0.6%至近2%。投資者在聯儲局公布議息結果前保持謹慎，同時評估關稅政策的潛在影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796330-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796330-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796330-20250319.htm)
+
+---
+
+# 歐洲3大指數上升　德股升近1%　議會批准大幅增加支出計劃
+
+![德國DAX指數收報23380點，升226點，升幅0.98%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796329_1_20250319052207.jpg&q=80)
+  
+
+歐洲3大指數上升，德股升近1%。德國議會批准大幅增加支出的計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796329-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796329-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796329-20250319.htm)
+
+---
+
 # 澤連斯基：支持停襲能源設施　普京提出要求顯示未準備結束戰事
 
 ![澤連斯基強調，烏克蘭支持任何能夠實現穩定及公正和平的提案。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796328_1_20250319044847.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796262-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796262-20250318.htm)
-
----
-
-# 建築物能源效益修訂條例草案周五刊憲　加強效益管理減輕財政負擔
-
-![發言人說，今次修訂《條例》的目標是希望能夠達致三贏局面。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796259_1_20250318170123.jpg&q=90)
-  
-
-環境及生態局表示，《2025年建築物能源效益（修訂）條例草案》將在星期五刊憲。《條例草案》旨在加強本港建築物的能源效益管理制度，通過提升建築物能源效益，減少對用電和發電的需求，減少碳排放，減輕因使用更多潔淨燃料發電而對市民所造成的財政負擔，助力香港在2050年前實現碳中和。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796259-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796259-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796259-20250318.htm)
-
----
-
-# 北京：就涉海分歧中韓透過海洋事務對話合作機制保持良好溝通
-
-![毛寧說，中韓海上執法部門之間的溝通管道是順暢，當前黃海局勢穩定。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796255_1_20250318170917.jpg&q=90)
-  
-
-南韓海洋水產部屬下的海洋科學技術院日前派出調查船，試圖調查中方在黄海韓中暫定措施水域內設置的鋼結構構造物時，遭到中國海警和中方人員阻攔。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796255-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796255-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796255-20250318.htm)
 
 ---
