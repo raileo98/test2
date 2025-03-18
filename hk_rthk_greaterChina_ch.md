@@ -1,3 +1,26 @@
+# 雲南怒江山泥傾瀉1人死亡4人失蹤
+
+  
+
+雲南省怒江清晨發生山泥傾瀉，造成6人失蹤，暫時1人獲救，1人被救出後搶救無效死亡，還有4人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796234-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796234-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796234-20250318.htm)
+
+---
+
 # 習近平在貴州黔東南州考察調研
 
 ![習近平昨天在貴州省黔東南苗族侗族自治州，考察黎平縣肇興侗寨。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_2_20250318123516.jpg&q=85)
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795766-20250314.htm)
-
----
-
-# 發改委經濟研究所所長：現時仍有空間適時降準和減息
-
-![郭春麗表示，今年要實施積極有為的宏觀政策，要打好政策組合拳。(羅煒皓攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795755_1_20250314182205.jpg&q=90)
-  
-
-在北京，國家發改委宏觀經濟研究院副院長、經濟研究所所長郭春麗表示，今年要實施積極有為的宏觀政策，要打好政策組合拳，特別要強調宏觀政策取向一致性，加強財政、貨幣政策等各類政策的協同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 雲南怒江山泥傾瀉1人死亡4人失蹤
+
+  
+
+雲南省怒江清晨發生山泥傾瀉，造成6人失蹤，暫時1人獲救，1人被救出後搶救無效死亡，還有4人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796234-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796234-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796234-20250318.htm)
+
+---
+
 # 韓股全日升1點
 
 ![首爾綜合指數收報2612點，升1點，升幅0.06%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796231_1_20250318143448.jpg&q=90)

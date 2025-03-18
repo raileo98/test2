@@ -1,3 +1,27 @@
+# Wang Yi headed for Tokyo trilateral meeting
+
+![Wang Yi, right, hosts South Korean Foreign Minister Cho Tae-yul in Beijing in May. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796232_1_20250318145011.jpg&q=90)
+  
+
+The foreign ministers of South Korea, China and Japan will hold a meeting in Tokyo on Saturday, Seoul's foreign ministry said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm)
+
+---
+
 # Kiribati eyes deep-sea mining deal with China
 
 ![View of Kiribati's Parliament House. Kiribati opened discussions with China after a deal with Canada's The Metals Company fell through. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796176_1_20250318084916.jpg&q=85)
@@ -1412,29 +1436,5 @@ Premier Li Qiang’s work report has offered “important guidance” on impleme
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794493-20250306.htm)
-
----
-
-# 'AI startups boosting nation's development'
-
-![Beijing says it will boost support for the application of AI models to foster more breakthroughs in technology. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794488_1_20250306085151.jpg&q=90)
-  
-
-An analyst on Thursday said the advent of artificial intelligence startups such as DeepSeek has been a boon to the nation’s technological development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm)
 
 ---

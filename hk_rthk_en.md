@@ -1,3 +1,27 @@
+# Wang Yi headed for Tokyo trilateral meeting
+
+![Wang Yi, right, hosts South Korean Foreign Minister Cho Tae-yul in Beijing in May. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796232_1_20250318145011.jpg&q=90)
+  
+
+The foreign ministers of South Korea, China and Japan will hold a meeting in Tokyo on Saturday, Seoul's foreign ministry said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm)
+
+---
+
 # Vaping devices ban sought to stop space oil drug use
 
 ![Henry Tong wants the ban on possession of e-cigarettes devices to come into place as soon as possible. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796211_1_20250318120907.jpg&q=90)
@@ -1415,29 +1439,5 @@ An NGO on Sunday said many parents are still unclear about an incoming law which
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795949-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795949-20250316.htm)
-
----
-
-# N Macedonia nightclub fire kills 59
-
-![A view of a burnt down nightclub inside which a fire broke out and killed 51 people in Kocani. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795938_1_20250316174342.jpg&q=50)
-  
-
-A fire that tore through a nightclub in North Macedonia killed 59 revellers attending a hip-hop concert at the venue, with more than 100 wounded, the country's interior minister said on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795938-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795938-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795938-20250316.htm)
 
 ---
