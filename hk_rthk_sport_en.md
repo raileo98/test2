@@ -46,7 +46,7 @@ Lionel Messi will miss two World Cup qualifiers after he was left out of the Arg
 
 ---
 
-# IOC set to include boxing on 2028 Olympics programme
+# Boxing is here to stay in the 2028 Olympics: IOC
 
 ![Germany's Nelvie Tiafack, left, in action against Bakhodir Jalolov of Uzbekistan at the Paris Olympics. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796158_1_20250318055329.jpg&q=90)
   
