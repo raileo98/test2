@@ -1,3 +1,27 @@
+# US stocks end lower on geopolitical concerns
+
+![Stocks had risen the last two days in a partial rebound from declines in recent weeks. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796340_1_20250319064754.jpg&q=90)
+  
+
+Wall Street stocks resumed their downward slide on Tuesday as worries over the Ukraine and Middle East conflicts added to unease over President Trump's aggressive trade agenda.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm)
+
+---
+
 # Nasa astronauts Wilmore and Williams splash down
 
 ![They arrived back on Earth nine months after their faulty Boeing Starliner craft upended what was to be a week-long stay on the ISS. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796336_2_20250319063556.jpg&q=90)
@@ -1412,29 +1436,5 @@ The Consumer Council on Monday encouraged people to nap on mattresses – some o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm)
-
----
-
-# China retail sales up four percent
-
-![Total retail sales of consumer goods reached over 8.37 trillion yuan, according to official figures. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796017_1_20250317110913.jpg&q=80)
-  
-
-Retail sales in China accelerated slightly in the first two months of the year, government data showed on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm)
 
 ---

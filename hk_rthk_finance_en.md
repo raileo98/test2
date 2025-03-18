@@ -1,3 +1,27 @@
+# US stocks end lower on geopolitical concerns
+
+![Stocks had risen the last two days in a partial rebound from declines in recent weeks. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796340_1_20250319064754.jpg&q=90)
+  
+
+Wall Street stocks resumed their downward slide on Tuesday as worries over the Ukraine and Middle East conflicts added to unease over President Trump's aggressive trade agenda.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm)
+
+---
+
 # Ex-Everbright boss sentenced to 15 years for bribes
 
 ![Li Xiaopeng, pictured in 2018, is sentenced to 15 years for accepting bribes worth more than 60 million yuan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796277_1_20250318181930.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump has signed an order to hike tariffs on Chinese imports
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm)
-
----
-
-# Hong Kong stocks close higher
-
-![The Hang Seng Index finished up 0.3 percent at 23,006. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794011_1_20250303173917.jpg&q=75)
-  
-
-Hong Kong stocks ended higher on Monday, with the benchmark Hang Seng Index up 0.3 percent at 23,006.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 普京同意暫停襲擊烏國能源設施　美俄同意俄烏衝突要長久和平結束
+
+![美國總統特朗普與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796341_1_20250319064806.jpg&q=90)
+  
+
+美國總統特朗普與俄羅斯總統普京通電話，特朗普在社交平台形容交談非常好，而且富有成效，雙方同意俄烏同時放棄襲擊對方能源設施，並迅速努力實現全面停火，最終結束俄烏衝突。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796341-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796341-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796341-20250319.htm)
+
+---
+
 # 美最高法院首席大法官反駁特朗普提出彈劾法官的言論
 
 ![羅伯茨說，當對於司法裁決有分歧時，彈劾法官不是應對分歧的合適方式。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796339_1_20250319062252.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm)
-
----
-
-# 中方促日方在台灣問題謹言慎行　以實際行動兌現堅持一中原則承諾
-
-![毛寧強調，一個中國原則是中日關係的政治基礎。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796074_1_20250317164017.jpg&q=90)
-  
-
-在北京，外交部回應有報道指，日本政府聲稱1972年簽署的《中日聯合聲明》不會對日本地方議員赴台活動構成限制。發言人毛寧說，日方企圖在台灣問題上模糊歷史事實，嚴重誤導廣大日本民眾，嚴重違背日本政府堅持一個中國原則的承諾，挑戰中日關係的政治基礎，向「台獨」勢力發出嚴重錯誤信號，中方對此堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm)
 
 ---

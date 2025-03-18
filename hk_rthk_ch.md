@@ -1,3 +1,27 @@
+# 普京同意暫停襲擊烏國能源設施　美俄同意俄烏衝突要長久和平結束
+
+![美國總統特朗普與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796341_1_20250319064806.jpg&q=90)
+  
+
+美國總統特朗普與俄羅斯總統普京通電話，特朗普在社交平台形容交談非常好，而且富有成效，雙方同意俄烏同時放棄襲擊對方能源設施，並迅速努力實現全面停火，最終結束俄烏衝突。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796341-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796341-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796341-20250319.htm)
+
+---
+
 # 美最高法院首席大法官反駁特朗普提出彈劾法官的言論
 
 ![羅伯茨說，當對於司法裁決有分歧時，彈劾法官不是應對分歧的合適方式。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796339_1_20250319062252.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm)
-
----
-
-# 新地悼念李兆基　讚揚李兆基與郭得勝開創地產業輝煌一頁
-
-![新鴻基地產悼念前副主席李兆基昨日辭世。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796273_1_20250318183627.jpg&q=80)
-  
-
-新鴻基地產悼念前副主席、恒基集團創辦人李兆基昨日辭世。新地表示，李兆基與新地淵源深厚，不僅是新地創辦人兼前主席郭得勝的摯友，更是共同創立新鴻基地產的緊密夥伴，他們攜手奠定新地的穩固基石，開創香港地產業輝煌新一頁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm)
 
 ---
