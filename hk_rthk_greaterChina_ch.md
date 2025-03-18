@@ -1,3 +1,26 @@
+# 回應內地是否評估長和出售資產　外交部建議向主管部門詢問
+
+  
+
+長和計劃向美國財團出售巴拿馬運河兩端港口等資產。彭博引述消息人士指，內地有關部門開始評估長和出售海外港口業務的交易，研究是否存在國家安全漏洞或反壟斷違規行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm)
+
+---
+
 # 李家超有信心香港與東莞優勢互補為建設國際一流灣區作貢獻
 
 ![李家超與東莞市委書記韋皓（左）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796274_1_20250318183731.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm)
-
----
-
-# 東部戰區：反分裂國家法是高懸台獨頭頂利劍　維護台海穩定基石
-
-![東部戰區上將司令員林向陽在反分裂國家法實施20周年座談會上發言。（東部戰區微信官方賬號截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795853_3_20250315154807.jpg&q=90)
-  
-
-東部戰區上將司令員林向陽參加反分裂國家法實施20周年座談會。他發言時表示，軍隊堅決依法履行使命責任，不斷加強實戰化練兵備戰，持續開展常態化繞島巡航，周密組織系列演習，有力震懾台獨分裂勢力，有效穩控台海局勢，堅定捍衛國家主權和領土完整。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795853-20250315.htm)
 
 ---

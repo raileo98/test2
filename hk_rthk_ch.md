@@ -1,3 +1,26 @@
+# 回應內地是否評估長和出售資產　外交部建議向主管部門詢問
+
+  
+
+長和計劃向美國財團出售巴拿馬運河兩端港口等資產。彭博引述消息人士指，內地有關部門開始評估長和出售海外港口業務的交易，研究是否存在國家安全漏洞或反壟斷違規行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm)
+
+---
+
 # 以色列軍方表示將繼續攻擊哈馬斯在加沙的目標
 
 ![以色列軍方表示將繼續攻擊哈馬斯在加沙的目標。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796291_1_20250318201549.jpg&q=80)
