@@ -1,3 +1,26 @@
+# 工貿署料調整基金對中小企資助比例及首期撥款可減少問題個案
+
+  
+
+為支援中小企發展，《財政預算案》宣布向「發展品牌、升級轉型及拓展內銷市場的專項基金」，即「BUD專項基金」以及「市場推廣及工商機構支援基金」合共注資15億元，但兩個基金向中小企的資助比例，由以往政府和企業1比1調整至1比3；首期撥款亦由以往先批出資助額的75%，調整至20%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm)
+
+---
+
 # 建築物能源效益修訂條例草案周五刊憲　加強效益管理減輕財政負擔
 
 ![發言人說，今次修訂《條例》的目標是希望能夠達致三贏局面。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796259_1_20250318170123.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm)
-
----
-
-# 陳國基稱政府支持娛樂事業發展　林建岳冀製作人發掘利用人工智能
-
-![陳國基表示，新推出的「電影製作融資計劃2.0」和「弘揚中華文化電影製作資助計劃」，將為香港文化創意產業帶來深遠的好處。（麥偉康攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796093_1_20250317181258.jpg&q=80)
-  
-
-政務司司長陳國基表示，特區政府一直支持香港娛樂事業發展，包括由文化體育及旅遊局透過電影發展基金和創意智優計劃提供支持。政府同時支持串流媒體、電視綜藝節目和電影製作的內容開發。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796093-20250317.htm)
 
 ---

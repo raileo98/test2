@@ -1,3 +1,50 @@
+# 工貿署料調整基金對中小企資助比例及首期撥款可減少問題個案
+
+  
+
+為支援中小企發展，《財政預算案》宣布向「發展品牌、升級轉型及拓展內銷市場的專項基金」，即「BUD專項基金」以及「市場推廣及工商機構支援基金」合共注資15億元，但兩個基金向中小企的資助比例，由以往政府和企業1比1調整至1比3；首期撥款亦由以往先批出資助額的75%，調整至20%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm)
+
+---
+
+# 港燈去年盈利跌逾1%　售電量升1.1%
+
+![港燈去年盈利31.1億元，按年跌逾1%，可供分派收入跌約4%至23.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796263_1_20250318171420.jpg&q=90)
+  
+
+港燈去年盈利31.1億元，按年跌逾1%。每股份合訂單位末期分派16.09港仙，全年分派32.03港仙，兩者都與前年相同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm)
+
+---
+
 # 建築物能源效益修訂條例草案周五刊憲　加強效益管理減輕財政負擔
 
 ![發言人說，今次修訂《條例》的目標是希望能夠達致三贏局面。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796259_1_20250318170123.jpg&q=90)
@@ -1391,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796078-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796078-20250317.htm)
-
----
-
-# 港股高收185點　重上24000點關口　連升兩日
-
-![港股連升兩日，恒生指數重上24000點收市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796067_1_20250317161631.jpg&q=45)
-  
-
-港股連升兩日，恒生指數早段最多升近400點，觸及24352點，創逾1星期新高，下午升幅收窄，但仍升穿24000點收市，報24145點，升185點，升幅0.77%，全日主板成交額約2448億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm)
-
----
-
-# 增兩宗退伍軍人病個案　其中一名患者潛伏期曾到內地
-
-![衞生防護中心正展開流行病學調查，以找出可能的感染源頭、高風險接觸因素和是否出現群組個案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796072_1_20250317170823.jpg&q=80)
-  
-
-衞生防護中心在本月9日至15日期間，錄得兩宗退伍軍人病個案，包括一宗社區感染及一宗輸入個案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796072-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796072-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796072-20250317.htm)
 
 ---

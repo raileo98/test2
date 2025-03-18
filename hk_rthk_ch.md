@@ -1,3 +1,27 @@
+# 港燈去年盈利跌逾1%　售電量升1.1%
+
+![港燈去年盈利31.1億元，按年跌逾1%，可供分派收入跌約4%至23.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796263_1_20250318171420.jpg&q=90)
+  
+
+港燈去年盈利31.1億元，按年跌逾1%。每股份合訂單位末期分派16.09港仙，全年分派32.03港仙，兩者都與前年相同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm)
+
+---
+
 # 習近平考察時強調貴州要積極對接粵港澳大灣區
 
 ![習近平強調，貴州堅持以高質量發展統攬全局，以進一步全面深化改革開放為動力，在中國式現代化進程中展現新風采。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796262_1_20250318171405.jpg&q=85)
