@@ -1,3 +1,27 @@
+# 以總理：已全力恢復加沙戰鬥　直至實現戰爭目標
+
+![內塔尼亞胡批評哈馬斯一再拒絕以色列提出的停火談判建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796324_1_20250319032312.jpg&q=90)
+  
+
+以色列總理內塔尼亞胡表示，以軍星期二恢復對加沙的軍事打擊只是開始，強調戰鬥將持續下去，直到以色列實現戰爭目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796324-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796324-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796324-20250319.htm)
+
+---
+
 # 馮德萊恩稱歐盟支持丹麥捍衛格陵蘭島在內的主權和領土完整
 
 ![馮德萊恩強調，面對威脅時，歐洲必須加強防禦能力。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796322_1_20250319031053.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm)
-
----
-
-# 蔡若蓮稱學生內地考察團可加深對國家文化及科技重點安全領域認識
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796251_1_20250318170034.jpg&q=80)
-  
-
-設於尖沙咀香港歷史博物館的國家安全展覽廳，去年8月正式開啟後，到訪的小學有120間、超過4萬多位同學參觀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm)
 
 ---

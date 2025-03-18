@@ -1,3 +1,27 @@
+# 以總理：已全力恢復加沙戰鬥　直至實現戰爭目標
+
+![內塔尼亞胡批評哈馬斯一再拒絕以色列提出的停火談判建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796324_1_20250319032312.jpg&q=90)
+  
+
+以色列總理內塔尼亞胡表示，以軍星期二恢復對加沙的軍事打擊只是開始，強調戰鬥將持續下去，直到以色列實現戰爭目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796324-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796324-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796324-20250319.htm)
+
+---
+
 # 馮德萊恩稱歐盟支持丹麥捍衛格陵蘭島在內的主權和領土完整
 
 ![馮德萊恩強調，面對威脅時，歐洲必須加強防禦能力。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796322_1_20250319031053.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm)
-
----
-
-# 北韓譴責七國集團討論朝核問題　強調將加強自身核力量
-
-![北韓領袖金正恩日前到船廠參觀，視察核潛艇。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796025_1_20250317113936.jpg&q=90)
-  
-
-北韓譴責日前在加拿大召開的七國集團外長會議討論北韓核問題，對此嚴重關切，強調將相應地從數量和質量上，不斷升級並加強自身核武力量，應對外部核威懾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796025-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796025-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796025-20250317.htm)
 
 ---
