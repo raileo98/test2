@@ -1,3 +1,27 @@
+# 克宮：俄烏周三互換被俘人員　普京同意俄烏暫停攻擊對方能源設施
+
+![克里姆林宮表示，兩國總統在通話期間就烏克蘭局勢詳細和坦誠交換意見。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796319_1_20250319015052.jpg&q=90)
+  
+
+美國總統特朗普與俄羅斯總統普京的通話結束。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796319-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796319-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796319-20250319.htm)
+
+---
+
 # 以軍打死4名哈馬斯高級官員　防長警告若不放人質將面臨更大打擊
 
 ![加沙北部傑巴利耶遭以軍空襲後，有民眾視察損毀情況。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796318_1_20250319012642.jpg&q=55)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795976-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795976-20250317.htm)
-
----
-
-# 聯合國呼籲於也門保持克制　憂引發報復循環
-
-![古特雷斯（圖）的發言人指軍事活動會加劇緊張局勢。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795972_1_20250317044948.jpg&q=90)
-  
-
-聯合國呼籲在也門保持最大限度克制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795972-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795972-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795972-20250317.htm)
 
 ---

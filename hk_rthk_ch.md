@@ -1,3 +1,27 @@
+# 克宮：俄烏周三互換被俘人員　普京同意俄烏暫停攻擊對方能源設施
+
+![克里姆林宮表示，兩國總統在通話期間就烏克蘭局勢詳細和坦誠交換意見。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796319_1_20250319015052.jpg&q=90)
+  
+
+美國總統特朗普與俄羅斯總統普京的通話結束。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796319-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796319-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796319-20250319.htm)
+
+---
+
 # 以軍打死4名哈馬斯高級官員　防長警告若不放人質將面臨更大打擊
 
 ![加沙北部傑巴利耶遭以軍空襲後，有民眾視察損毀情況。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796318_1_20250319012642.jpg&q=55)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm)
-
----
-
-# 口岸爆炸案控方專家繼續講解電路板操作技術事宜
-
-![口岸爆炸案高等法院踏入第71天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796248_1_20250318162942.jpg&q=80)
-  
-
-8名男女涉及2020年初口岸爆炸案，高等法院踏入第71天審訊。控方電子裝置專家、時任署理總督察盧永楷繼續作供，控方重提屬於被告張家俊的電腦中擷取的3D打印設計圖，曾經出現在應用手機程式通訊群組用戶，與另一被告李嘉濱的對話中，同樣草圖亦被發送到涉案群組內。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796248-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796248-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796248-20250318.htm)
 
 ---
