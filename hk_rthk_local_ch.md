@@ -96,7 +96,7 @@
 
 # 李家超要求啟德體育園管理層設應急機制　恆常向文體旅局匯報運作
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_1_20250318111003.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_2_20250318113451.jpg&q=85)
   
 
 行政長官李家超出席行政會議前回應提問時說，啟德體育園開園至今，部分安排不理想及出問題需要處理。
@@ -120,7 +120,7 @@
 
 # 李家超：東盟十國特邀人士入境便利計劃今實施　專櫃處理簽證申請
 
-![李家超指今次計劃方便東盟獲邀人士更積極參與香港的國際盛事，來港投資和營商，並吸引他們以香港為進軍內地和環球市場的跳板。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796196_1_20250318104625.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796196_1_20250318112419.jpg&q=90)
   
 
 行政長官李家超出席行政會議前宣布，為東盟10國推行的特邀人士入境便利計劃今日實施，以主動邀請為香港經濟發展帶來相當貢獻，或者獲邀來港出席重要活動的東盟人士提供出入境便利，他們會獲得自助通關服務，並透過專櫃一站式處理自助通關和簽證申請。
@@ -144,7 +144,7 @@
 
 # 消息指警方國安處帶走鍾翰林後父協助調查
 
-![消息指，警方國安處早上在何文田區帶走被通緝的鍾翰林的後父協助調查。（鍾翰林社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796194_1_20250318105503.jpg&q=90)
+![消息指，警方國安處早上在何文田區帶走被通緝的鍾翰林的後父協助調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796194_1_20250318105503.jpg&q=90)
   
 
 消息指，警方國安處早上在何文田區帶走被通緝的鍾翰林的後父協助調查。
