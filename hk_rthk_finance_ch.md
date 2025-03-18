@@ -1,3 +1,27 @@
+# 台股初段升逾0.6%
+
+![加權指數較早時報22259點，升141點，升幅0.64%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796179_1_20250318090431.jpg&q=90)
+  
+
+台灣股市初段上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796179-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796179-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796179-20250318.htm)
+
+---
+
 # 日股初段升近500點
 
 ![日經指數較早時報37893點，升497點，升幅1.33%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796171_1_20250318080710.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796005-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796005-20250317.htm)
-
----
-
-# 港股升幅收窄至百多點　科指轉跌　消費及重磅金融股造好
-
-![恒生指數最多升逾340點，觸及24303點，較早時升幅收窄至149點，報24109點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796004_1_20250317100034.jpg&q=90)
-  
-
-港股連續兩日造好，恒生指數重上24000點，最多升逾340點，觸及24303點，較早時升幅收窄至149點，報24109點，升幅0.62%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796004-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796004-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796004-20250317.htm)
 
 ---

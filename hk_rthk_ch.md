@@ -1,3 +1,51 @@
+# 台股初段升逾0.6%
+
+![加權指數較早時報22259點，升141點，升幅0.64%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796179_1_20250318090431.jpg&q=90)
+  
+
+台灣股市初段上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796179-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796179-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796179-20250318.htm)
+
+---
+
+# 以軍對加沙地帶發動大規模空襲
+
+![加沙地帶在早前以軍的持續空襲中，多座房屋被毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796177_1_20250318085459.jpg&q=35)
+  
+
+以色列軍方說，正在對加沙地帶哈馬斯目標發動大規模空襲，據報造成傷亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796177-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796177-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796177-20250318.htm)
+
+---
+
 # 突尼斯海岸警衛隊發現18具偷渡客遺體
 
 ![突尼斯海岸警衛隊發現18具偷渡客遺體](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796174_1_20250318083108.jpg&q=90)
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796105-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796105-20250317.htm)
-
----
-
-# 融創中國去年虧損急增至255億至260億元人民幣
-
-![融創中國預料，去年虧損大幅增至255億元至260億元人民幣。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796095_1_20250317180639.jpg&q=90)
-  
-
-融創中國發盈利警告，預料去年虧損大幅增至255億元至260億元人民幣，虧損遠多於前年的約79.7億元，由於部分境內債務重組收益於前年入帳，撇除這因素，虧損按年減少。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796095-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796095-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796095-20250317.htm)
-
----
-
-# 俄方證實正籌備總統普京與特朗普通話
-
-![俄方證實正籌備總統普京與特朗普通話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796104_1_20250317203320.jpg&q=90)
-  
-
-美國總統特朗普表示，他計劃周二與俄羅斯總統普京通話，討論結束俄烏戰爭。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796104-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796104-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796104-20250317.htm)
 
 ---

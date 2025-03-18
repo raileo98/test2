@@ -1,3 +1,27 @@
+# Kiribati eyes deep-sea mining deal with China
+
+![View of Kiribati's Parliament House. Kiribati opened discussions with China after a deal with Canada's The Metals Company fell through. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796176_1_20250318084916.jpg&q=85)
+  
+
+Pacific nation Kiribati says it is exploring a deep-sea mining partnership with China, dangling access to a vast patch of Pacific Ocean harbouring coveted metals and minerals.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm)
+
+---
+
 # China retail sales up four percent
 
 ![Total retail sales of consumer goods reached over 8.37 trillion yuan, according to official figures. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796017_1_20250317110913.jpg&q=80)
@@ -1412,30 +1436,5 @@ An analyst on Thursday said the advent of artificial intelligence startups such 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794488-20250306.htm)
-
----
-
-# Beijing backs SARs in national integration: Xia
-
-![Chief Executive John Lee (left) has vowed to lead all sectors of Hong Kong to integrate into national development. Photo courtesy of the Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_1_20250305223240.jpg&q=90)
-![Liaison office chief Zheng Yanxiong has outlined four key roles for local NPC deputies in Hong Kong’s development. Photo courtesy of the Liaison Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794451_2_20250305223240.jpg&q=90)
-  
-
-Hong Kong and Macau have the full backing of the central government in integrating into the country’s development, a senior Beijing official said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794451-20250305.htm)
 
 ---

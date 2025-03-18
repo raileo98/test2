@@ -1,3 +1,27 @@
+# 以軍對加沙地帶發動大規模空襲
+
+![加沙地帶在早前以軍的持續空襲中，多座房屋被毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796177_1_20250318085459.jpg&q=35)
+  
+
+以色列軍方說，正在對加沙地帶哈馬斯目標發動大規模空襲，據報造成傷亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796177-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796177-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796177-20250318.htm)
+
+---
+
 # 突尼斯海岸警衛隊發現18具偷渡客遺體
 
 ![突尼斯海岸警衛隊發現18具偷渡客遺體](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796174_1_20250318083108.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795908-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795908-20250316.htm)
-
----
-
-# 馬克龍：歐美必須施壓迫使俄羅斯接受停火建議
-
-![馬克髛認為必須與美國一起向俄羅斯施加明確的壓力，迫使其接受停火提議。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795906_1_20250316092241.jpg&q=90)
-  
-
-法國總統馬克龍說，歐洲和美國必須施壓，迫使俄羅斯接受與烏克蘭停火的建議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795906-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795906-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795906-20250316.htm)
 
 ---

@@ -1,3 +1,51 @@
+# Kiribati eyes deep-sea mining deal with China
+
+![View of Kiribati's Parliament House. Kiribati opened discussions with China after a deal with Canada's The Metals Company fell through. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796176_1_20250318084916.jpg&q=85)
+  
+
+Pacific nation Kiribati says it is exploring a deep-sea mining partnership with China, dangling access to a vast patch of Pacific Ocean harbouring coveted metals and minerals.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm)
+
+---
+
+# Starbucks ordered to pay US$50m for hot tea spill
+
+![A spokesperson for the coffee chain said the company would appeal the award. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796175_1_20250318083745.jpg&q=90)
+  
+
+Starbucks has been ordered to pay US$50 million to a customer who was burned when hot tea spilled on his lap at a California drive-through.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796175-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796175-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796175-20250318.htm)
+
+---
+
 # Carney says Canada must reduce reliance on US
 
 ![Canada's Prime Minister Mark Carney speaks during a bilateral meeting with Britain's Prime Minister. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796162_1_20250318063858.jpg&q=90)
@@ -1389,53 +1437,5 @@ Pakistani insurgents attacked a passenger train in a tunnel and claimed to have 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm)
-
----
-
-# Trump to double Canada steel, aluminium tariff rate
-
-![US president Donald Trump has threatened to "substantially increase" tariffs on cars coming into the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795320_1_20250311223214.jpg&q=90)
-  
-
-US President Donald Trump on Tuesday said that he would double incoming steel and aluminium tariffs on Canadian imports from 25 percent to 50 percent, adding that these would take effect "tomorrow morning".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795320-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795320-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795320-20250311.htm)
-
----
-
-# Ukraine, US discuss partial truce as drones hit Russia
-
-![Ukraine launched its biggest-ever drone attack on Moscow and other areas overnight. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795313_1_20250311215156.jpg&q=90)
-  
-
-Ukraine said talks with the United States in Saudi Arabia began "very constructively" on Tuesday, with a partial ceasefire with Russia on the table hours after Kyiv conducted its largest drone attack on Moscow in three years of war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795313-20250311.htm)
 
 ---
