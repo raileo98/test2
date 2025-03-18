@@ -1,3 +1,27 @@
+# 以色列軍方表示將繼續攻擊哈馬斯在加沙的目標
+
+![以色列軍方表示將繼續攻擊哈馬斯在加沙的目標。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796291_1_20250318201549.jpg&q=80)
+  
+
+以色列軍方表示，將繼續攻擊哈馬斯和伊斯蘭聖戰組織在加沙的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm)
+
+---
+
 # 加沙衛生部指以軍空襲增至逾400人死亡
 
 ![加沙衛生部指以軍空襲增至逾400人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796286_1_20250318194432.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm)
-
----
-
-# 北馬其頓夜總會大火增至59死　警方向4名懷疑涉案人士發拘捕令
-
-![當局到發生大火的夜總會調查起火原因。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795953_1_20250316201014.jpg&q=90)
-  
-
-歐洲巴爾幹半島國家北馬其頓一間夜總會舉行音樂會期間發生大火，增至59人死亡，超過150人受傷。當局初步懷疑，音樂會煙火裝置產生的火花點燃了天花板，引致火警。警方拘留夜總會東主協助調查，又向4名懷疑涉案人士發出拘捕令。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795953-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795953-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795953-20250316.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 以色列軍方表示將繼續攻擊哈馬斯在加沙的目標
+
+![以色列軍方表示將繼續攻擊哈馬斯在加沙的目標。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796291_1_20250318201549.jpg&q=80)
+  
+
+以色列軍方表示，將繼續攻擊哈馬斯和伊斯蘭聖戰組織在加沙的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm)
+
+---
+
+# 羅淑佩：啟德體育園啟用有助增強香港體育事業競爭力
+
+  
+
+文化體育及旅遊局局長羅淑佩表示，特區政府會持續投放資源，與社會各界攜手建立熱愛體育的文化，隨著啟德體育園啟用，相信將會進一步提升相關人才的場地管理、裁判、訓練和盛事統籌能力，有助增強香港體育事業的競爭力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm)
+
+---
+
 # 監警會主席王沛詩與委員視察旺角警署並與衝鋒隊前線人員交流
 
   
@@ -142,6 +189,7 @@
 
 # 李家超：香港續發揮「內聯外通」優勢與廣州等大灣區城市優勢互補
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796284_1_20250318200536.jpg&q=85)
   
 
 行政長官李家超表示，香港會繼續發揮「內聯外通」的優勢，積極對接國家戰略，與廣州等大灣區城市優勢互補，共同推進高質量發展。
@@ -189,6 +237,7 @@
 
 # 孫東稱冀與業界促進新來港上市企業與本地大學開展創科合作
 
+![孫東表示，行政長官在他的三份《施政報告》中，先後提出三項100億元計劃，推動新型工業化。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796281_1_20250318200433.jpg&q=80)
   
 
 創新科技及工業局局長孫東出席「香港新型工業發展聯盟」成立典禮。他致辭時說，聯盟的成立正是香港新型工業發展又一個重要的里程碑，熱切期待聯盟未來能積極促進各創科持份者的緊密協作，包括提供融資機會、促進新來港上市企業與本地大學開展創科合作等，推動香港新型工業化的全面發展，讓創新鏈和產業鏈無縫對接。
