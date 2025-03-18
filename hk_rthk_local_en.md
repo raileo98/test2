@@ -1,3 +1,27 @@
+# BYD all juiced up over 'five-minute' charging
+
+![BYS says the 'Super e-Platform' will get rid of range anxiety by allowing drivers to travel up to 470 kilometres after plugging their cars in for just five minutes. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796221_1_20250318123453.jpg&q=85)
+  
+
+Shares in Chinese EV giant BYD surged to a record high on Tuesday after it unveiled new battery technology it says can charge a vehicle in the same time it takes to fill up a petrol car.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm)
+
+---
+
 # Legco polls to be held on December 7
 
 ![John Lee says an Election Committee by-election will be held in September, followed by the Legco general election in December. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796209_1_20250318115209.jpg&q=85)
@@ -48,7 +72,7 @@ Chief Executive John Lee on Tuesday said any changes to cross-border driving arr
 
 # CE slams 'bullying tactics' amid ports deal concerns
 
-![John Lee urged foreign governments not to resort to 'bullying tactics' when it comes to global trade. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796206_1_20250318113232.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796206_1_20250318113232.jpg&q=75)
   
 
 Chief Executive John Lee said concerns expressed over CK Hutchison’s deal to sell its global port operations to a US consortium are worthy of "serious attention," saying foreign governments should provide a fair environment for deal-making.
@@ -1412,29 +1436,5 @@ Police on Wednesday said they arrested three men who are suspected of stealing e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm)
-
----
-
-# 'People confident about One Country, Two Systems'
-
-![Path of Democracy convenor Ronny Tong, left, says the latest figures from the One Country, Two Systems Index was "reassuring". Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795430_1_20250312164449.jpg&q=90)
-  
-
-The convenor of the Path of Democracy, Ronny Tong, on Wednesday said people are confident about the One Country, Two Systems principle, despite Hong Kong facing a deficit and geopolitical tensions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795430-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795430-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795430-20250312.htm)
 
 ---

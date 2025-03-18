@@ -72,7 +72,7 @@ At least seven people were killed on Monday when a small plane crashed into the 
 
 # CE slams 'bullying tactics' amid ports deal concerns
 
-![John Lee urged foreign governments not to resort to 'bullying tactics' when it comes to global trade. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796206_1_20250318113232.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796206_1_20250318113232.jpg&q=75)
   
 
 Chief Executive John Lee said concerns expressed over CK Hutchison’s deal to sell its global port operations to a US consortium are worthy of "serious attention," saying foreign governments should provide a fair environment for deal-making.

@@ -1,3 +1,27 @@
+# BYD all juiced up over 'five-minute' charging
+
+![BYS says the 'Super e-Platform' will get rid of range anxiety by allowing drivers to travel up to 470 kilometres after plugging their cars in for just five minutes. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796221_1_20250318123453.jpg&q=85)
+  
+
+Shares in Chinese EV giant BYD surged to a record high on Tuesday after it unveiled new battery technology it says can charge a vehicle in the same time it takes to fill up a petrol car.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm)
+
+---
+
 # Tech stocks boost Hong Kong stocks in early trading
 
 ![The Hang Seng Tech Index climbed over 3 percent shortly after the opening. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796191_1_20250318102346.jpg&q=65)
@@ -1411,29 +1435,5 @@ Financial Secretary Paul Chan on Monday said while Hong Kong's capital account, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793981-20250303.htm)
-
----
-
-# China factory activity grows at fastest pace in months
-
-![The positive trend in the Caixin survey aligned with an official PMI released over the weekend. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793951_1_20250303101834.jpg&q=90)
-  
-
-China's factory activity grew at a faster pace in February, driven by stronger supply and demand, a private-sector survey showed on Monday, partly due to seasonal factors related to the holiday period.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm)
 
 ---
