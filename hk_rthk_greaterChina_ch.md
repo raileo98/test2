@@ -1,3 +1,26 @@
+# 被問是否調查長和出售港口　外交部稱中方反對霸凌損害他國權益
+
+  
+
+長和計劃向美國財團出售巴拿馬運河兩端港口等資產，彭博引述消息人士指，內地有關部門開始評估長和出售海外港口業務的交易，研究是否存在國家安全漏洞或反壟斷違規行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm)
+
+---
+
 # 世界知識產權組織數據指中國是國際專利申請最大來源國
 
 ![世界知識產權組織數據指中國是國際專利申請最大來源國。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796294_1_20250318210928.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm)
-
----
-
-# G7外長會後聲明沒再提奉行「一中」政策　中方不滿並嚴正交涉
-
-![中國駐加拿大使館發言人說，七國集團外長的聲明字裡行間充斥著傲慢、偏見和遏華反華的險惡用心。（中國駐加拿大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795863_1_20250315173417.jpg&q=90)
-  
-
-七國集團（G7）外長結束一連兩日在加拿大魁北克舉行的會議，相對於去年11月的會後聲明，七國集團外長今次的聯合聲明並無再提及奉行「一個中國」政策，聲明中又表示，鼓勵涉及台海兩岸的事項，應以和平方式處理，反對任何單方面使用武力，企圖改變現狀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm)
 
 ---

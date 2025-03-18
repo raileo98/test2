@@ -1,3 +1,26 @@
+# 被問是否調查長和出售港口　外交部稱中方反對霸凌損害他國權益
+
+  
+
+長和計劃向美國財團出售巴拿馬運河兩端港口等資產，彭博引述消息人士指，內地有關部門開始評估長和出售海外港口業務的交易，研究是否存在國家安全漏洞或反壟斷違規行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm)
+
+---
+
 # 北角聖公會聖米迦勒小學西安交流時5名學生急性腸胃炎
 
 ![5名患者的病徵與諾如病毒感染吻合。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796295_1_20250318212850.jpg&q=80)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796116-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796116-20250317.htm)
-
----
-
-# 政府：接獲浸大、理大及科大建設第三所醫學院建議書
-
-![政府公布，籌備新醫學院工作組在截止前共接獲三份建設第三所醫學院建議書，分別來自浸會大學、理工大學和科技大學。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796115_1_20250317212712.jpg&q=85)
-  
-
-政府公布，籌備新醫學院工作組在截止前共接獲三份建設第三所醫學院建議書，分別來自浸會大學、理工大學和科技大學。 工作組計劃今年第二季內與提交建議書的大學進行會面，進一步了解各間大學提出的建議，以作出綜合考量。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796115-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796115-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796115-20250317.htm)
 
 ---

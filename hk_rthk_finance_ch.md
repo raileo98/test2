@@ -1,3 +1,50 @@
+# 被問是否調查長和出售港口　外交部稱中方反對霸凌損害他國權益
+
+  
+
+長和計劃向美國財團出售巴拿馬運河兩端港口等資產，彭博引述消息人士指，內地有關部門開始評估長和出售海外港口業務的交易，研究是否存在國家安全漏洞或反壟斷違規行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm)
+
+---
+
+# 美股開市後下跌　納指初段跌逾1%
+
+![美股下跌，投資者等候本周聯儲局議息結果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796299_1_20250318214833.jpg&q=90)
+  
+
+紐約股市下跌。投資者等候本周聯儲局議息結果，以及憂慮關稅戰對經濟的影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm)
+
+---
+
 # 美國2月進口物價按年升幅高過預期　新屋動工反彈勝預期
 
 ![美國2月進口物價按年上升2%，高過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796293_1_20250318205948.jpg&q=90)
@@ -1391,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm)
-
----
-
-# 陳茂波：李兆基的仁愛與溫情會繼續照亮社會
-
-![陳茂波表示，驚悉李兆基博士離世，心裡無比沉重。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796136_2_20250317235316.jpg&q=80)
-  
-
-財政司司長陳茂波表示，驚悉李兆基博士離世，心裡無比沉重，向他的家人致以最深切的慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm)
-
----
-
-# 香港結算：繼續與相關監管機構合作協助剔除新股重複認購
-
-![港交所旗下香港結算發出通告，表示繼續與相關監管機構合作，審視FINI相關運作流程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796134_1_20250317230629.jpg&q=90)
-  
-
-港交所旗下香港結算發出通告，表示繼續與相關監管機構合作，審視FINI相關運作流程，協助股份過戶登記處剔除重複認購核查工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 被問是否調查長和出售港口　外交部稱中方反對霸凌損害他國權益
+
+  
+
+長和計劃向美國財團出售巴拿馬運河兩端港口等資產，彭博引述消息人士指，內地有關部門開始評估長和出售海外港口業務的交易，研究是否存在國家安全漏洞或反壟斷違規行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm)
+
+---
+
+# 美股開市後下跌　納指初段跌逾1%
+
+![美股下跌，投資者等候本周聯儲局議息結果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796299_1_20250318214833.jpg&q=90)
+  
+
+紐約股市下跌。投資者等候本周聯儲局議息結果，以及憂慮關稅戰對經濟的影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm)
+
+---
+
 # 北角聖公會聖米迦勒小學西安交流時5名學生急性腸胃炎
 
 ![5名患者的病徵與諾如病毒感染吻合。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796295_1_20250318212850.jpg&q=80)
