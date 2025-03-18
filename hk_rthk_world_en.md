@@ -1,3 +1,27 @@
+# Pain, anger grip N Macedonia town after fire tragedy
+
+![People light candles in tribute to the victims of a massive night club fire in Skopje. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796305_1_20250318224701.jpg&q=85)
+  
+
+Despair mixed with anger in Kocani, North Macedonia on Tuesday in the wake of a horrific nightclub fire that left dozens dead and even more injured, prompting demands for justice.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm)
+
+---
+
 # 'Hamas chose war by refusing to release hostages'
 
 ![Palestinians flee their homes after the Israeli army issues evacuation orders. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796296_1_20250318213006.jpg&q=85)
@@ -1413,29 +1437,5 @@ The US Department of Education said on Tuesday it would lay off nearly half its 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm)
-
----
-
-# Maradona's medical team on trial over his death
-
-![Fans of Argentine soccer legend Diego Maradona hold a banner that reads ''Justice for God'' in Buenos Aires. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795364_1_20250312091631.jpg&q=90)
-  
-
-Seven Argentines went on trial on Tuesday accused of homicide for their alleged role in what prosecutors called the "horror theatre" of football legend Diego Maradona's death four years ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795364-20250312.htm)
 
 ---

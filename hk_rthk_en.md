@@ -1,3 +1,27 @@
+# Pain, anger grip N Macedonia town after fire tragedy
+
+![People light candles in tribute to the victims of a massive night club fire in Skopje. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796305_1_20250318224701.jpg&q=85)
+  
+
+Despair mixed with anger in Kocani, North Macedonia on Tuesday in the wake of a horrific nightclub fire that left dozens dead and even more injured, prompting demands for justice.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm)
+
+---
+
 # 5 more get gastroenteritis after school exchange tour
 
 ![The Centre for Health Protection says two of the five pupils have sought medical attention but none needed hospitalisation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796303_1_20250318222333.jpg&q=90)
@@ -1414,29 +1438,5 @@ Unusually vicious and damaging weather across multiple US states spawned violent
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795992-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795992-20250317.htm)
-
----
-
-# Stranded astronauts to return to Earth on Tuesday
-
-![A Nasa livestream shows the SpaceX Dragon crew spacecraft approaching the International Space Station on Saturday, before docking a day later. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795995_1_20250317091414.jpg&q=90)
-  
-
-A pair of US astronauts stuck for more than nine months on the International Space Station will be returned to Earth on Tuesday evening, Nasa said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm)
 
 ---
