@@ -1,3 +1,27 @@
+# CE slams 'bullying tactics' amid ports deal concerns
+
+![John Lee urged foreign governments not to resort to 'bullying tactics' when it comes to global trade. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796206_1_20250318113232.jpg&q=75)
+  
+
+Chief Executive John Lee said concerns expressed over CK Hutchison’s deal to sell its global port operations to a US consortium are worthy of "serious attention," saying foreign governments should provide a fair environment for deal-making.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796206-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796206-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796206-20250318.htm)
+
+---
+
 # Speedy admission begins for VIPs as Lee woos Asean
 
 ![John Lee says the move aims to strengthen Hong Kong's ties with Asean countries. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796205_1_20250318110846.jpg&q=85)
@@ -1412,29 +1436,5 @@ The government is optimistic about the number of people who will stay under the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm)
-
----
-
-# Cathay Pacific profits edge up
-
-![Cathay Pacific's group net profit rose one percent to HK$9.89 billion last year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795410_1_20250312142536.jpg&q=90)
-  
-
-Cathay Pacific Airways on Wednesday reported marginal full-year profit growth as airfares fell amid intense competition at a time when Asia's airlines are continuing to get back to pre-pandemic seat capacity.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm)
 
 ---
