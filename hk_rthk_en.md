@@ -1,3 +1,27 @@
+# BYD all juiced up over 'five-minute' charging
+
+![BYS says the 'Super e-Platform' will get rid of range anxiety by allowing drivers to travel up to 470 kilometres after plugging their cars in for just five minutes. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796221_1_20250318123453.jpg&q=85)
+  
+
+Shares in Chinese EV giant BYD surged to a record high on Tuesday after it unveiled new battery technology it says can charge a vehicle in the same time it takes to fill up a petrol car.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm)
+
+---
+
 # Legco polls to be held on December 7
 
 ![John Lee says an Election Committee by-election will be held in September, followed by the Legco general election in December. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796209_1_20250318115209.jpg&q=85)
@@ -22,7 +46,7 @@ Chief Executive John Lee announced on Tuesday that the Legislative Council gener
 
 ---
 
-# 'Any changes to cross-border driving must be careful'
+# 'Changes in checkpoints for drivers need coordination'
 
 ![John Lee says the government must ensure smooth traffic flow at all checkpoints. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796214_1_20250318121204.jpg&q=90)
   
@@ -1415,29 +1439,5 @@ Hong Kong's sole delegate to the country's top legislature on Sunday said all Ch
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795934-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795934-20250316.htm)
-
----
-
-# CK Hutchison ports deal questioned again
-
-![View of Port of Balboa, managed by CK Hutchison Holdings at the entrance of the Panama Canal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795930_1_20250316152201.jpg&q=90)
-  
-
-Beijing officials have shared a second article by the Ta Kung Pao newspaper criticising the sale by Hong Kong conglomerate CK Hutchison of its Panama Canal ports – and dozens of other ports across the globe – to a US consortium.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm)
 
 ---

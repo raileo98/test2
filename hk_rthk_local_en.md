@@ -46,7 +46,7 @@ Chief Executive John Lee announced on Tuesday that the Legislative Council gener
 
 ---
 
-# 'Any changes to cross-border driving must be careful'
+# 'Changes in checkpoints for drivers need coordination'
 
 ![John Lee says the government must ensure smooth traffic flow at all checkpoints. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796214_1_20250318121204.jpg&q=90)
   

@@ -1,3 +1,27 @@
+# 華潤啤酒去年盈利跌8%　啤酒銷量減少2.5%
+
+![華潤啤酒去年啤酒業務銷量跌2.5%，平均售價升1.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796222_1_20250318123931.jpg&q=90)
+  
+
+華潤啤酒去年盈利47.4億元人民幣，按年跌8%。派末期息38.7分，全年派息76分，按年減少約19%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796222-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796222-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796222-20250318.htm)
+
+---
+
 # 外電指內地監管部門評估長和出售海外港口業務交易
 
 ![彭博引述消息人士指，中國有關部門開始評估長和出售海外港口業務的交易。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796218_1_20250318121750.jpg&q=75)
@@ -70,29 +94,6 @@
 
 ---
 
-# 李家超稱目標本月內公布公營醫療收費調整方案細節
-
-  
-
-行政長官李家超表示，目標本月內公布公營醫療收費調整方案的細節。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm)
-
----
-
 # 長和及長實不舉行全年業績記者會
 
 ![長和及長實回覆查詢時表示，不會舉行全年業績記者會以及分析員會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796204_2_20250318105756.jpg&q=85)
@@ -119,10 +120,13 @@
 
 # 習近平在貴州黔東南州考察調研
 
-![習近平了解當地加強基層黨組織建設和社會治理、保護傳承民族傳統文化、推進鄉村全面振興等情況。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_1_20250318105507.jpg&q=85)
+![習近平昨天在貴州省黔東南苗族侗族自治州，考察黎平縣肇興侗寨。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_2_20250318123516.jpg&q=85)
+![近年來，肇興侗寨加大村寨建築空間和房屋風貌保護。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_5_20250318123516.jpg&q=90)
+![習近平到貴州考察調研。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_4_20250318123516.jpg&q=90)
+![習近平到當地了解當地加強基層黨組織建設和社會治理、保護傳承民族傳統文化、推進鄉村全面振興等情況。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_3_20250318123516.jpg&q=90)
   
 
-中共中央總書記、國家主席習近平到貴州考察調研。
+中共中央總書記、國家主席習近平到貴州省考察調研。
 
   
 
