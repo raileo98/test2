@@ -22,7 +22,7 @@ China on Tuesday jailed the former boss of state-owned banking giant Everbright 
 
 ---
 
-# City's jobless numbers edge up
+# Hong Kong's jobless numbers edge up
 
 ![The jobless rate rises were mostly seen in food and beverage, transport, construction and professional and business services, excluding cleaning. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796260_2_20250318175643.jpg&q=85)
   
