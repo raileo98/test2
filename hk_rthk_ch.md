@@ -1,3 +1,50 @@
+# 嶺澳核電站1號機組去年底發生0級偏差事件　對公眾和環境沒影響
+
+![局方表示，由於此事件具有一定的參考及學習價值。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796309_1_20250318232213.jpg&q=90)
+  
+
+位於深圳大鵬新區的嶺澳核電站，1號機組去年底發生「0級偏差」事件，參數在正常範圍內。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm)
+
+---
+
+# 白宮：特朗普正與普京通電話　進展良好
+
+  
+
+美國白宮表示，總統特朗普與俄羅斯總統普京從美國東岸時間星期二早上10時開始通電話，目前仍然繼續，進展良好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796308-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796308-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796308-20250318.htm)
+
+---
+
 # 古洞北/粉嶺北新發展區餘下住戶須於5月起分批於遷出
 
 ![發展局人員向受影響住戶派發單張。（發展局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796306_1_20250318225558.jpg&q=55)

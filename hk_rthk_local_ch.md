@@ -1,3 +1,27 @@
+# 嶺澳核電站1號機組去年底發生0級偏差事件　對公眾和環境沒影響
+
+![局方表示，由於此事件具有一定的參考及學習價值。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796309_1_20250318232213.jpg&q=90)
+  
+
+位於深圳大鵬新區的嶺澳核電站，1號機組去年底發生「0級偏差」事件，參數在正常範圍內。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm)
+
+---
+
 # 古洞北/粉嶺北新發展區餘下住戶須於5月起分批於遷出
 
 ![發展局人員向受影響住戶派發單張。（發展局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796306_1_20250318225558.jpg&q=55)
@@ -1412,31 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm)
-
----
-
-# 香港電台獲贈播國寶紀錄片《熊貓奇遇記》　4月播出
-
-![四川省廣電局局長李曉駿（中）及廣播處長關婉儀（右）出席《熊貓奇遇記》在港發布儀式。（香港電台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796129_1_20250317223526.jpg&q=90)
-![港台於「香港影視娛樂博覽2025」展示優秀製作。（香港電台製作）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796129_2_20250317223755.jpg&q=85)
-![港台代表在博覽的論壇上，與來自不同國家及地區的業界就內容創新與國際傳播深入交流。（香港電台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796129_3_20250317223755.jpg&q=90)
-  
-
-香港電台今日參與由國家廣播電視總局國際合作司主辦的國際傳播論壇，在論壇期間舉行的合作項目發布儀式上，港台獲四川廣播電視台及北京廣播電視台贈播《熊貓奇遇記》。四川省委宣傳部副部長、省廣電局局長李曉駿、廣播處長關婉儀以及北京廣播電視台導演郭洪瀧出席發布儀式。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796129-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796129-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796129-20250317.htm)
 
 ---

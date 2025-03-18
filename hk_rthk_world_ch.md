@@ -1,3 +1,26 @@
+# 白宮：特朗普正與普京通電話　進展良好
+
+  
+
+美國白宮表示，總統特朗普與俄羅斯總統普京從美國東岸時間星期二早上10時開始通電話，目前仍然繼續，進展良好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796308-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796308-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796308-20250318.htm)
+
+---
+
 # 王毅就北馬其頓日前一場火災造成重大傷亡向當地官員致慰問電
 
 ![王毅對遇難者表示深切哀悼，向遇難者家屬致以誠摯慰問。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796302_1_20250318222358.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795965-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795965-20250317.htm)
-
----
-
-# 埃爾多安與特朗普通電話　稱土耳其與美國加強各領域磋商至關重要
-
-![埃爾多安說自俄烏衝突爆發以來，土耳其一直致力推動公正及可持續的和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795964_1_20250317002135.jpg&q=90)
-  
-
-土耳其總統埃爾多安與美國總統特朗普通電話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795964-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795964-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795964-20250317.htm)
 
 ---
