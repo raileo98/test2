@@ -1,3 +1,75 @@
+# 普京：西方制裁非臨時措施　欲借此對俄施加系統性戰略壓力
+
+![普京在莫斯科出席俄羅斯工業家和企業家聯合會全體會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796315_1_20250319002718.jpg&q=90)
+  
+
+俄羅斯總統普京表示，西方對俄羅斯實施的制裁不是臨時措施，而是借此對俄施加系統性戰略壓力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796315-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796315-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796315-20250319.htm)
+
+---
+
+# 王毅：中歐透過磋商解決具體經貿摩擦具重要與正面意義
+
+![中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796313_1_20250318235236.jpg&q=90)
+  
+
+中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm)
+
+---
+
+# 王毅談烏克蘭問題　支持達成公平持久並被各當事方接受協議
+
+![王毅與法國總統外事顧問博納通電話。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796314_1_20250318235218.jpg&q=90)
+  
+
+中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話，就烏克蘭問題深入交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm)
+
+---
+
 # 白宮：特朗普正與普京通電話　進展良好
 
   
@@ -1362,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795968-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795968-20250317.htm)
-
----
-
-# 美防長稱除非停止襲擊美方船隻否則美軍不會停止無情打擊胡塞武裝
-
-![美國較早時從艦艇發射導彈，打擊胡塞武裝目標。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795967_2_20250317014345.jpg&q=90)
-  
-
-美國國防部長赫格塞思表示，除非也門胡塞武裝組織停止襲擊美方船隻，否則美國不會停止無情打擊胡塞武裝的無人機，美軍行動亦不會結束。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795967-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795967-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795967-20250317.htm)
-
----
-
-# 秘魯漁民漂流太平洋95日後獲救　曾吃蟑螂及雀鳥並飲雨水維生
-
-![卡斯特羅在派塔接受身體檢查，然後被送返秘魯。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795966_1_20250317005510.jpg&q=90)
-  
-
-秘魯一名漁民在太平洋漂流95日後獲救，與家人團聚。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795966-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795966-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795966-20250317.htm)
-
----
-
-# 南韓國民力量黨黨鞭稱黨內將接受尹錫悅彈劾案裁決結果
-
-![首爾日前有民眾集會，要求擺免尹錫悅的總統職務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795965_1_20250317003250.jpg&q=80)
-  
-
-南韓執政國民力量黨黨鞭權性東說，黨內將接受憲法法院對總統尹錫悅彈劾案的裁決結果。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795965-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795965-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795965-20250317.htm)
 
 ---

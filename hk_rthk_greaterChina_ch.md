@@ -1,3 +1,51 @@
+# 王毅：中歐透過磋商解決具體經貿摩擦具重要與正面意義
+
+![中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796313_1_20250318235236.jpg&q=90)
+  
+
+中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm)
+
+---
+
+# 王毅談烏克蘭問題　支持達成公平持久並被各當事方接受協議
+
+![王毅與法國總統外事顧問博納通電話。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796314_1_20250318235218.jpg&q=90)
+  
+
+中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話，就烏克蘭問題深入交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm)
+
+---
+
 # 王毅就北馬其頓日前一場火災造成重大傷亡向當地官員致慰問電
 
 ![王毅對遇難者表示深切哀悼，向遇難者家屬致以誠摯慰問。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796302_1_20250318222358.jpg&q=85)
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm)
-
----
-
-# 北京市出現雨雪降溫天氣　當局延長暖氣供應
-
-![北京民眾在雨雪中前行。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795881_1_20250315211729.jpg&q=90)
-  
-
-受到暖濕氣流和冷空氣共同影響，北京市大部分地區出現雨雪天氣，以降雪為主，北部地區相對明顯。由於臨近供暖季結束但氣溫下降，市城市管理委員會表示，2024/25供暖季延長至下周一午夜，共延長2天。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795881-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795881-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795881-20250315.htm)
-
----
-
-# 央視︰解放軍海軍一架戰鬥機訓練期間失事　飛行員成功跳傘
-
-![央視︰解放軍海軍一架戰鬥機訓練期間失事　飛行員成功跳傘](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795871_1_20250315193542.jpg&q=90)
-  
-
-央視新聞報道，解放軍海軍一架戰鬥機訓練期間失事，飛行員成功跳傘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795871-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795871-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795871-20250315.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 王毅：中歐透過磋商解決具體經貿摩擦具重要與正面意義
+
+![中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796313_1_20250318235236.jpg&q=90)
+  
+
+中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm)
+
+---
+
+# 王毅談烏克蘭問題　支持達成公平持久並被各當事方接受協議
+
+![王毅與法國總統外事顧問博納通電話。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796314_1_20250318235218.jpg&q=90)
+  
+
+中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話，就烏克蘭問題深入交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm)
+
+---
+
 # 小鵬：今年總銷量實現翻倍增長　第4季穩步走向盈利
 
 ![小鵬稱通過技術降本及更大規模效應，汽車毛利率今年持續改善。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796312_1_20250318234128.jpg&q=90)
@@ -1385,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796241-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796241-20250318.htm)
-
----
-
-# 黃英豪稱結合中醫實力與生物科技優勢　浸大申辦醫學院具競爭力
-
-![黃英豪（左）表示，浸大有自己的特色，作為全港第一間中醫院的營辦機構，過去培育了很多中醫人才。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796239_1_20250318153111.jpg&q=90)
-  
-
-已就本港興建第三所醫學院提交建議書的浸會大學，校長衞炳江出席一個活動後表示，將努力為與籌備工作組會面作出準備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm)
-
----
-
-# 滬股全日升3點　創逾3個月新高
-
-![上證指數收報3429點，升3點，升幅0.11%，創逾3個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796237_1_20250318150717.jpg&q=90)
-  
-
-內地股市靠穩，有色、黃金、港口航運等股份造好；遊戲，白酒及零售股向下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm)
 
 ---
