@@ -1,3 +1,26 @@
+# 俄媒稱普京與特朗普本港時間晚上9時至11時會談
+
+  
+
+俄羅斯傳媒引述俄羅斯總統新聞秘書佩斯科夫表示，俄羅斯總統普京與美國總統特朗普的會談，將於本港時間晚上9時至11時舉行。雙方將討論俄美關係正常化等議題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796285-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796285-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796285-20250318.htm)
+
+---
+
 # 譚德塞稱美國削全球衛生資金或會威脅數百萬人生命
 
 ![譚德塞敦促美國與受影響國家對話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796266_1_20250318173113.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795951-20250316.htm)
-
----
-
-# 外交部駐港公署：美英等國干涉香港事務和中國內政　注定徒勞無功
-
-![發言人說，公署敦促有關國家立即停止以任何手段干預香港事務和中國內政。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795950_1_20250316191423.jpg&q=90)
-  
-
-外交部駐港公署發言人說，美國、英國、加拿大等國常駐聯合國機構官員公然會見有關反中亂港首惡分子的家屬及所謂「律師團隊」，為反中亂港勢力撐腰，抹黑香港特區法治，干涉香港事務和中國內政，公署表示強烈不滿和堅決反對，有關行徑注定徒勞無功。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm)
 
 ---
