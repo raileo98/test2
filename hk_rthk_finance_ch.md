@@ -1,3 +1,27 @@
+# 滬股全日升3點　創逾3個月新高
+
+![上證指數收報3429點，升3點，升幅0.11%，創逾3個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796237_1_20250318150717.jpg&q=90)
+  
+
+內地股市靠穩，有色、黃金、港口航運等股份造好；遊戲，白酒及零售股向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm)
+
+---
+
 # 中電今年將推出電動車充電收費服務　詳情適時於相關停車場公布
 
   
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm)
-
----
-
-# 中央提振消費方案　發改委：每個部門須貫徹落實全方位擴大消費
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796073_1_20250317184832.jpg&q=85)
-  
-
-國家發展和改革委員會、財政部、人力資源社會保障部、商務部、人民銀行、國家市場監督管理總局等六個部委，下午舉行記者會，講解中央昨日印發的《提振消費專項行動方案》。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm)
 
 ---

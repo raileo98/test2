@@ -1,3 +1,47 @@
+# 滬股全日升3點　創逾3個月新高
+
+![上證指數收報3429點，升3點，升幅0.11%，創逾3個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796237_1_20250318150717.jpg&q=90)
+  
+
+內地股市靠穩，有色、黃金、港口航運等股份造好；遊戲，白酒及零售股向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm)
+
+---
+
+# 天文台料今年6月或之前踏入風季　約5至8個熱帶氣旋影響本港
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796238-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796238-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796238-20250318.htm)
+
+---
+
 # 滯留太空9個月　美國兩名太空人啟程返回地球
 
 ![威爾莫爾和威廉姆斯在去年6月5日乘坐「星際客機」前往太空站，怎料滯留9個月。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796236_1_20250318150818.jpg&q=90)

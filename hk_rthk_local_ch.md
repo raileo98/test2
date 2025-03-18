@@ -1,3 +1,23 @@
+# 天文台料今年6月或之前踏入風季　約5至8個熱帶氣旋影響本港
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796238-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796238-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796238-20250318.htm)
+
+---
+
 # 中電今年將推出電動車充電收費服務　詳情適時於相關停車場公布
 
   
@@ -1412,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm)
-
----
-
-# 每年百多宗有關床褥投訴　消委會稱逾四成買一段時間有下陷等問題
-
-![消委會表示，過去3年的投訴當中，超過四成在購買床褥一段時間就出現下陷以至承托力不足等質量問題，其他投訴就涉及包括送貨以至保用問題等。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796037_1_20250317124308.jpg&q=85)
-  
-
-消委會過去3年，分別收到117至141宗有關床褥的投訴，內容包括貨品質素以及保用情況等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796037-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796037-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796037-20250317.htm)
 
 ---
