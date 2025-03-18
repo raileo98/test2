@@ -1,5 +1,30 @@
+# 建築物能源效益修訂條例草案周五刊憲　加強效益管理減輕財政負擔
+
+![發言人說，今次修訂《條例》的目標是希望能夠達致三贏局面。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796259_1_20250318170123.jpg&q=90)
+  
+
+環境及生態局表示，《2025年建築物能源效益（修訂）條例草案》將在星期五刊憲。《條例草案》旨在加強本港建築物的能源效益管理制度，通過提升建築物能源效益，減少對用電和發電的需求，減少碳排放，減輕因使用更多潔淨燃料發電而對市民所造成的財政負擔，助力香港在2050年前實現碳中和。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796259-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796259-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796259-20250318.htm)
+
+---
+
 # 楊永杰促設恆常機制處理應急事件　劉永松倡啟德體育園設發言人
 
+![楊永杰（左）建議文體旅局與園方的恆常會議機制；劉永松（右）認為如果恆常會議機制加入太多持份者會影響決策效率。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796254_1_20250318170149.jpg&q=90)
   
 
 行政長官李家超出席行政會議前表示，啟德體育園自開園至今一些安排不理想，已經要求園方強化機制建設。
@@ -23,6 +48,7 @@
 
 # 蔡若蓮稱學生內地考察團可加深對國家文化及科技重點安全領域認識
 
+![蔡若蓮說，教育局透過多元措施，支援中小學加強國民教育，培養同學愛國情操和國家安全意識，提升國民身份認同。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796251_1_20250318170034.jpg&q=80)
   
 
 設於尖沙咀香港歷史博物館的國家安全展覽廳，去年8月正式開啟後，到訪的小學有120間、超過4萬多位同學參觀。
@@ -70,7 +96,11 @@
 
 # 最新失業率3.2%微升0.1個百分點
 
+![政府表示，一些企業或會受到美國貿易保護措施帶來的不確定性所影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796250_1_20250318165946.jpg&q=90)
   
+
+統計處公布，去年12月至今年2月的失業率是3.2%，較上次微升0.1個百分點，有11萬1700人失業，增加約1600人。就業不足率不變，維持於1.1%，就業不足人數有40700人，減少約2300人。
+
   
 
 
@@ -1409,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796072-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796072-20250317.htm)
-
----
-
-# 議員倡就太空油毒品設舉報獎金制度　禁毒專員稱暫不會加設
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796062_1_20250317153320.jpg&q=90)
-  
-
-保安局表示，去年共有300人被呈報吸食「太空油毒品」，其中226人是21歲以下青少年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796062-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796062-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796062-20250317.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 建築物能源效益修訂條例草案周五刊憲　加強效益管理減輕財政負擔
+
+![發言人說，今次修訂《條例》的目標是希望能夠達致三贏局面。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796259_1_20250318170123.jpg&q=90)
+  
+
+環境及生態局表示，《2025年建築物能源效益（修訂）條例草案》將在星期五刊憲。《條例草案》旨在加強本港建築物的能源效益管理制度，通過提升建築物能源效益，減少對用電和發電的需求，減少碳排放，減輕因使用更多潔淨燃料發電而對市民所造成的財政負擔，助力香港在2050年前實現碳中和。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796259-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796259-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796259-20250318.htm)
+
+---
+
 # 聯通去年盈利升逾10%　今年算力投資增速料升至28%
 
 ![聯通去年算力投資按年升19%，預計今年增長加快至28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796252_1_20250318164118.jpg&q=90)
@@ -48,7 +72,11 @@
 
 # 最新失業率3.2%微升0.1個百分點
 
+![政府表示，一些企業或會受到美國貿易保護措施帶來的不確定性所影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796250_1_20250318165946.jpg&q=90)
   
+
+統計處公布，去年12月至今年2月的失業率是3.2%，較上次微升0.1個百分點，有11萬1700人失業，增加約1600人。就業不足率不變，維持於1.1%，就業不足人數有40700人，減少約2300人。
+
   
 
 
@@ -1411,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796087-20250317.htm)
-
----
-
-# 外交部：中方決不接受七國集團甩鍋推責　堅決反對污蔑抹黑中國
-
-![毛寧說，中方決不接受七國集團甩鍋推責。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796086_1_20250317172225.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧說，七國集團外長會聯合聲明及有關宣言罔顧事實，顛倒黑白，污蔑抹黑中國，干涉中國內政。中方強烈不滿、堅決反對，已向有關國家提出嚴正交涉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm)
 
 ---
