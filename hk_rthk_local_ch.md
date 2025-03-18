@@ -1,5 +1,30 @@
+# 北角聖公會聖米迦勒小學西安交流時5名學生急性腸胃炎
+
+![5名患者的病徵與諾如病毒感染吻合。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796295_1_20250318212850.jpg&q=80)
+  
+
+再有學生交流團爆發腸胃炎，衞生防護中心正調查一宗急性腸胃炎的爆發個案，涉及北角區的聖公會聖米迦勒小學，5名學生受影響，全部患者的病徵與諾如病毒感染吻合。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796295-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796295-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796295-20250318.htm)
+
+---
+
 # 羅淑佩：啟德體育園啟用有助增強香港體育事業競爭力
 
+![羅淑佩（中）表示，特區政府會持續投放資源，與社會各界攜手建立熱愛體育的文化。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796290_1_20250318212726.jpg&q=80)
   
 
 文化體育及旅遊局局長羅淑佩表示，特區政府會持續投放資源，與社會各界攜手建立熱愛體育的文化，隨著啟德體育園啟用，相信將會進一步提升相關人才的場地管理、裁判、訓練和盛事統籌能力，有助增強香港體育事業的競爭力。
@@ -23,6 +48,7 @@
 
 # 監警會主席王沛詩與委員視察旺角警署並與衝鋒隊前線人員交流
 
+![王沛詩日前聯同一眾委員和秘書處職員前往旺角警署視察「特別臨時羈留室」的最新配備及設施。（監警會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796289_1_20250318212651.jpg&q=80)
   
 
 監警會主席王沛詩日前聯同一眾委員和秘書處職員前往旺角警署視察「特別臨時羈留室」的最新配備及設施，並與西九龍衝鋒隊的前線人員交流。
@@ -46,6 +72,7 @@
 
 # 地產建設商會對李兆基辭世深感惋惜
 
+![香港地產建設商會對恒基兆業地產創辦人李兆基辭世深感惋惜。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796288_1_20250318212552.jpg&q=90)
   
 
 香港地產建設商會對恒基兆業地產創辦人李兆基辭世深感惋惜，形容他是傑出的商界楷模、香港地產界的翹楚，他的卓越領導，為社會各界、房地產的發展作出了深遠和巨大的貢獻。
@@ -1409,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796115-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796115-20250317.htm)
-
----
-
-# 丘應樺冀「香港研發+東莞轉化」領域會有更多合作項目
-
-![丘應樺表示，香港與東莞兩地同處粵港澳大灣區的核心地帶，地緣相近、人文相親，港莞兩地一直合作無間，成果非常顯著。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796113_1_20250317223603.jpg&q=80)
-  
-
-商務及經濟發展局局長丘應樺出席莞港產業合作交流會致辭時表示，香港與東莞兩地同處粵港澳大灣區的核心地帶，地緣相近、人文相親，港莞兩地一直合作無間，成果非常顯著。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm)
 
 ---
