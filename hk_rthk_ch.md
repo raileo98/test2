@@ -1,3 +1,27 @@
+# 以軍打死4名哈馬斯高級官員　防長警告若不放人質將面臨更大打擊
+
+![加沙北部傑巴利耶遭以軍空襲後，有民眾視察損毀情況。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796318_1_20250319012642.jpg&q=55)
+  
+
+以色列軍方星期二向加沙發動大規模空襲，加沙衛生部門說，超過410人死亡，500多人受傷。以軍確認，打死巴勒斯坦武裝組織哈馬斯四名高級官員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796318-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796318-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796318-20250319.htm)
+
+---
+
 # 特朗普與普京通話結束
 
 ![克里姆林宮發言人佩斯科夫表示，總統普京與美國總統特朗普的通話結束。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796317_1_20250319005324.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796248-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796248-20250318.htm)
-
----
-
-# 潤啤：國家政策不斷落地大大增強未來消費信心
-
-![侯孝海（左二）稱中國去年消費市場出現一定收縮及降級，集團在高端化發展方面取得較好成績。（任浩鋒報道）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796246_1_20250318180029.jpg&q=85)
-  
-
-華潤啤酒主席侯孝海表示，按今年首兩個月情況，預期全年形勢較樂觀，因為國家政策不斷落地，消費市場出現明顯回升跡象，大大增強未來消費信心，形容基本面已明顯好轉，如果今年天氣情況不太差，今年業務表現將較去年好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm)
 
 ---
