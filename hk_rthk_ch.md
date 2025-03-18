@@ -1,3 +1,27 @@
+# 特朗普：與普京通話非常好且富有成效　討論到和平協議很多要素
+
+![特朗普說，雙方討論到和平協議的很多要素。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796325_1_20250319032948.jpg&q=90)
+  
+
+美國總統特朗普表示，與俄羅斯總統普京的電話交談非常好，而且富有成效，雙方同意俄烏同時放棄襲擊對方能源基礎設施的提議，並同意迅速努力實現全面停火，最終結束俄羅斯與烏克蘭之間的衝突。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796325-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796325-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796325-20250319.htm)
+
+---
+
 # 以總理：已全力恢復加沙戰鬥　直至實現戰爭目標
 
 ![內塔尼亞胡批評哈馬斯一再拒絕以色列提出的停火談判建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796324_1_20250319032312.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm)
-
----
-
-# 外交部強烈不滿澳洲公然干預香港特區法治
-
-![毛寧指，對於澳方公然干預香港特區的法治，中方表示強烈不滿和堅決反對。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796253_1_20250318164700.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧表示，香港事務純屬中國內政，不容任何外部勢力插手干預。中方敦促澳方切實尊重中國主權和香港法治，為中澳關係的可持續發展營造良好的條件和氛圍。對於澳方公然干預香港特區的法治，中方表示強烈不滿和堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm)
 
 ---

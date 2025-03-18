@@ -1,3 +1,27 @@
+# 特朗普：與普京通話非常好且富有成效　討論到和平協議很多要素
+
+![特朗普說，雙方討論到和平協議的很多要素。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796325_1_20250319032948.jpg&q=90)
+  
+
+美國總統特朗普表示，與俄羅斯總統普京的電話交談非常好，而且富有成效，雙方同意俄烏同時放棄襲擊對方能源基礎設施的提議，並同意迅速努力實現全面停火，最終結束俄羅斯與烏克蘭之間的衝突。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796325-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796325-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796325-20250319.htm)
+
+---
+
 # 以總理：已全力恢復加沙戰鬥　直至實現戰爭目標
 
 ![內塔尼亞胡批評哈馬斯一再拒絕以色列提出的停火談判建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796324_1_20250319032312.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796042-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796042-20250317.htm)
-
----
-
-# 周雪梅出任香港駐倫敦經貿辦處長　稱與不同界別合作推廣香港優勢
-
-![周雪梅今日接替羅莘桉出任香港駐倫敦經濟貿易辦事處處長。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796026_1_20250317124148.jpg&q=90)
-  
-
-政府公布，周雪梅今日接替羅莘桉出任香港駐倫敦經濟貿易辦事處處長。作為香港特區政府駐倫敦的代表，周雪梅負責促進香港與英國及其他八個國家的雙邊關係，包括丹麥、愛沙尼亞、芬蘭、拉脫維亞、立陶宛、挪威、俄羅斯和瑞典。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm)
 
 ---
