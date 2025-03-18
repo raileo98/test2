@@ -72,7 +72,7 @@
 
 # 蔡若蓮稱學生內地考察團可加深對國家文化及科技重點安全領域認識
 
-![蔡若蓮說，教育局透過多元措施，支援中小學加強國民教育，培養同學愛國情操和國家安全意識，提升國民身份認同。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796251_1_20250318170034.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796251_1_20250318170034.jpg&q=80)
   
 
 設於尖沙咀香港歷史博物館的國家安全展覽廳，去年8月正式開啟後，到訪的小學有120間、超過4萬多位同學參觀。

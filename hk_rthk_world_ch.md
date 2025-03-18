@@ -1,3 +1,27 @@
+# 譚德塞稱美國削全球衛生資金或會威脅數百萬人生命
+
+![譚德塞敦促美國與受影響國家對話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796266_1_20250318173113.jpg&q=90)
+  
+
+世界衛生組織總幹事譚德塞表示，美國削減全球衛生資金或會威脅數百萬人生命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796266-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796266-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796266-20250318.htm)
+
+---
+
 # 王毅將赴東京出席中日韓外長會　並共同主持中日經濟高層對話
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm)
-
----
-
-# 北馬其頓一間夜總會發生大火　51死逾百人傷
-
-![北馬其頓一間夜總會發生大火後，救援人員到場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795936_1_20250316171255.jpg&q=90)
-  
-
-歐洲巴爾幹半島國家北馬其頓一間夜總會發生大火，內政部長表示，大火已造成51人死亡，超過100人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795936-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795936-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795936-20250316.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 在岸人民幣兌美元高收172點子　創逾4個月新高
+
+![在岸人民幣收市報7.2216兌1美元，較昨日收市價升172點子，創逾4個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796264_1_20250318172613.jpg&q=80)
+  
+
+在岸人民幣收市報7.2216兌1美元，較昨日收市價升172點子，升幅0.24%，創逾4個月新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796264-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796264-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796264-20250318.htm)
+
+---
+
 # 工貿署料調整基金對中小企資助比例及首期撥款可減少問題個案
 
   
@@ -18,6 +42,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm)
+
+---
+
+# 習近平考察時強調貴州要積極對接粵港澳大灣區
+
+![習近平強調，貴州堅持以高質量發展統攬全局，以進一步全面深化改革開放為動力，在中國式現代化進程中展現新風采。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796262_1_20250318171405.jpg&q=85)
+  
+
+中共中央總書記、國家主席、中央軍委主席習近平在貴州考察時強調，貴州堅持以高質量發展統攬全局，以進一步全面深化改革開放為動力，在中國式現代化進程中展現新風采。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796262-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796262-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796262-20250318.htm)
 
 ---
 
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796105-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796105-20250317.htm)
-
----
-
-# 融創中國去年虧損急增至255億至260億元人民幣
-
-![融創中國預料，去年虧損大幅增至255億元至260億元人民幣。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796095_1_20250317180639.jpg&q=90)
-  
-
-融創中國發盈利警告，預料去年虧損大幅增至255億元至260億元人民幣，虧損遠多於前年的約79.7億元，由於部分境內債務重組收益於前年入帳，撇除這因素，虧損按年減少。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796095-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796095-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796095-20250317.htm)
-
----
-
-# 發改委：部門要落實促進居民「增收減負」及處理「加班文化」問題
-
-![發改委稱《提振消費專項行動方案》是「牽頭管總」文件，每個部門都要抓好貫徹落實。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796097_1_20250317192823.jpg&q=85)
-  
-
-國家發展和改革委員會副主任李春臨表示，中央印發的《提振消費專項行動方案》，是一份「牽頭管總」的綜合性文件，每個部門都要抓好貫徹落實，包括促進居民「增收減負」，處理「加班文化」盛行的問題等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm)
 
 ---

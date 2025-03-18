@@ -1,3 +1,27 @@
+# City's jobless numbers edge up
+
+![Hong Kong's jobless rate rose slightly to 3.2 percent last month, with the most notable changes seen in industries such as food and beverage services. File photo: Shutterstock](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796260_1_20250318170934.jpg&q=80)
+  
+
+Hong Kong's jobless rate has increased slightly as authorities warned about the "uncertainties" caused by US trade protection measures going forward.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm)
+
+---
+
 # Stocks jump as mainland tech spree continues
 
 ![Local stocks jumped up 2.46 percent to 24,740.57. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796240_1_20250318161915.jpg&q=75)
@@ -1411,29 +1435,5 @@ Hong Kong stocks ended higher on Monday, with the benchmark Hang Seng Index up 0
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794011-20250303.htm)
-
----
-
-# HK's retail sales drop 3.2 percent in January
-
-![Hong Kong's retail sales dropped for the 11th consecutive month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794002_1_20250303165314.jpg&q=90)
-  
-
-Hong Kong's retail sales dropped 3.2 percent in January year-on-year, marking the 11th consecutive month of declines.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794002-20250303.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794002-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1794002-20250303.htm)
 
 ---

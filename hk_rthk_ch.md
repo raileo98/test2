@@ -1,3 +1,51 @@
+# 譚德塞稱美國削全球衛生資金或會威脅數百萬人生命
+
+![譚德塞敦促美國與受影響國家對話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796266_1_20250318173113.jpg&q=90)
+  
+
+世界衛生組織總幹事譚德塞表示，美國削減全球衛生資金或會威脅數百萬人生命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796266-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796266-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796266-20250318.htm)
+
+---
+
+# 在岸人民幣兌美元高收172點子　創逾4個月新高
+
+![在岸人民幣收市報7.2216兌1美元，較昨日收市價升172點子，創逾4個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796264_1_20250318172613.jpg&q=80)
+  
+
+在岸人民幣收市報7.2216兌1美元，較昨日收市價升172點子，升幅0.24%，創逾4個月新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796264-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796264-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796264-20250318.htm)
+
+---
+
 # 工貿署料調整基金對中小企資助比例及首期撥款可減少問題個案
 
   
@@ -191,7 +239,7 @@
 
 # 蔡若蓮稱學生內地考察團可加深對國家文化及科技重點安全領域認識
 
-![蔡若蓮說，教育局透過多元措施，支援中小學加強國民教育，培養同學愛國情操和國家安全意識，提升國民身份認同。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796251_1_20250318170034.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796251_1_20250318170034.jpg&q=80)
   
 
 設於尖沙咀香港歷史博物館的國家安全展覽廳，去年8月正式開啟後，到訪的小學有120間、超過4萬多位同學參觀。

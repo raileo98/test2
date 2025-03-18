@@ -1,3 +1,27 @@
+# City's jobless numbers edge up
+
+![Hong Kong's jobless rate rose slightly to 3.2 percent last month, with the most notable changes seen in industries such as food and beverage services. File photo: Shutterstock](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796260_1_20250318170934.jpg&q=80)
+  
+
+Hong Kong's jobless rate has increased slightly as authorities warned about the "uncertainties" caused by US trade protection measures going forward.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm)
+
+---
+
 # Hotter weather expected this year: observatory
 
 ![The observatory noted that Hong Kong recorded 11 months that were warmer than usual in 2024. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796261_1_20250318171329.jpg&q=60)
@@ -1414,29 +1438,5 @@ Russian 17-year-old Mirra Andreeva toppled world number one Aryna Sabalenka 2-6,
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795977-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795977-20250317.htm)
-
----
-
-# Newcastle win the League Cup, stunning Liverpool
-
-![Newcastle United players celebrate after the final whistle. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795975_1_20250317053653.jpg&q=90)
-  
-
-Newcastle ended their 56-year trophy drought in stunning style as Dan Burn and Alexander Isak sealed a 2-1 win against Liverpool in the League Cup final on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm)
 
 ---
