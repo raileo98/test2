@@ -1,3 +1,27 @@
+# 特朗普與普京通話結束
+
+![克里姆林宮發言人佩斯科夫表示，總統普京與美國總統特朗普的通話結束。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796317_1_20250319005324.jpg&q=90)
+  
+
+俄羅斯傳媒引述克里姆林宮發言人佩斯科夫表示，總統普京與美國總統特朗普的通話結束。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796317-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796317-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796317-20250319.htm)
+
+---
+
 # 德國聯邦議會批准大幅增加國防和基礎設施開支的財政方案
 
 ![方案獲議會超過三分二的多數票通過。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796316_1_20250319004200.jpg&q=90)
@@ -96,6 +120,7 @@
 
 # 白宮：特朗普正與普京通電話　進展良好
 
+![美國總統特朗普與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796308_1_20250319005502.jpg&q=90)
   
 
 美國白宮表示，總統特朗普與俄羅斯總統普京從美國東岸時間星期二早上10時開始通電話，目前仍然繼續，進展良好。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795971-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795971-20250317.htm)
-
----
-
-# 也門胡塞武裝稱向美國杜魯門號航母群發射導彈及出動無人機
-
-![薩那有房屋被炸中。胡塞武裝早前已表明會予以回應。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795969_1_20250317014553.jpg&q=80)
-  
-
-也門胡塞武裝組織控制的電視台報道，組織對位於紅海北部的美國杜魯門號航空母艦及隨行艦隻，發射18枚彈道導彈及巡航導彈，以及出動一架攻擊型無人機，報復美國之前空襲也門境內目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795969-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795969-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795969-20250317.htm)
 
 ---

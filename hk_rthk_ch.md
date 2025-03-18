@@ -1,3 +1,27 @@
+# 特朗普與普京通話結束
+
+![克里姆林宮發言人佩斯科夫表示，總統普京與美國總統特朗普的通話結束。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796317_1_20250319005324.jpg&q=90)
+  
+
+俄羅斯傳媒引述克里姆林宮發言人佩斯科夫表示，總統普京與美國總統特朗普的通話結束。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796317-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796317-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796317-20250319.htm)
+
+---
+
 # 德國聯邦議會批准大幅增加國防和基礎設施開支的財政方案
 
 ![方案獲議會超過三分二的多數票通過。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796316_1_20250319004200.jpg&q=90)
@@ -216,6 +240,7 @@
 
 # 白宮：特朗普正與普京通電話　進展良好
 
+![美國總統特朗普與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796308_1_20250319005502.jpg&q=90)
   
 
 美國白宮表示，總統特朗普與俄羅斯總統普京從美國東岸時間星期二早上10時開始通電話，目前仍然繼續，進展良好。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm)
-
----
-
-# 18名銀行前線職員涉嫌詐騙銀行貸款轉介費被廉署拘捕
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796243_1_20250318161624.jpg&q=90)
-  
-
-廉署拘捕22人包括18名銀行前線職員，涉嫌詐騙銀行貸款的轉介費，觸犯行賄、受賄、洗黑錢和串謀詐騙罪，被捕人士分別來自10間本地銀行，其中一人被捕時已離職。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796243-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796243-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796243-20250318.htm)
 
 ---
