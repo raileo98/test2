@@ -1,3 +1,27 @@
+# ERB to offer new courses to highly educated trainees
+
+![The Employees Retraining Board says it has been actively promoting skills-based training. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796244_1_20250318161327.jpg&q=85)
+  
+
+The Employees Retraining Board (ERB) on Tuesday said it will step up collaboration with tertiary institutions this year to provide advanced courses for people with a higher education level.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796244-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796244-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796244-20250318.htm)
+
+---
+
 # 22 arrested over alleged mortgage referral bribes
 
 ![Grace Yee says she believes the case only involves a few bad apples at individual banks. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796247_1_20250318162219.jpg&q=90)
@@ -1412,29 +1436,5 @@ The privacy watchdog said on Wednesday it completed an investigation on last Apr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795447-20250312.htm)
-
----
-
-# 'Price hike for medication should be less than 10 pc'
-
-![Ivan Lin hopes any price increment for 16 weeks worth of medication at public hospitals could be less than 10 percent, saying that would hurt members of the grassroots. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795440_1_20250312174458.jpg&q=80)
-  
-
-A community group on Wednesday welcomed the Hospital Authority’s new arrangement to cut the amount of medication distributed to patients.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795440-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795440-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795440-20250312.htm)
 
 ---

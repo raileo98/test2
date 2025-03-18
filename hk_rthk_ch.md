@@ -1,3 +1,74 @@
+# 聯通去年盈利升逾10%　今年算力投資增速料升至28%
+
+![聯通去年算力投資按年升19%，預計今年增長加快至28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796252_1_20250318164118.jpg&q=90)
+  
+
+中國聯通去年盈利206.1億元，按年升逾10%。末期息每股15.62分人民幣，全年派息40.43分，按年升20%，派息比率提高5個百分點至60%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm)
+
+---
+
+# 楊永杰促設恆常機制處理應急事件　劉永松倡啟德體育園設發言人
+
+  
+
+行政長官李家超出席行政會議前表示，啟德體育園自開園至今一些安排不理想，已經要求園方強化機制建設。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm)
+
+---
+
+# 外交部強烈不滿澳洲公然干預香港特區法治
+
+![毛寧指，對於澳方公然干預香港特區的法治，中方表示強烈不滿和堅決反對。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796253_1_20250318164700.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧表示，香港事務純屬中國內政，不容任何外部勢力插手干預。中方敦促澳方切實尊重中國主權和香港法治，為中澳關係的可持續發展營造良好的條件和氛圍。對於澳方公然干預香港特區的法治，中方表示強烈不滿和堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm)
+
+---
+
 # 蔡若蓮稱學生內地考察團可加深對國家文化及科技重點安全領域認識
 
   
@@ -67,6 +138,7 @@
 
 # 美商務部據報禁DeepSeek　外交部：反對泛化國家安全概念
 
+![毛寧回應，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796249_1_20250318164617.jpg&q=90)
   
 
 對於有報道指，美國商務部各部門最近通知工作人員，中國人工智能模型深度求索(DeepSeek)已被禁止在政府設備上使用，在北京，外交部發言人毛寧回應，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化，中方也將堅定維護中國企業的合法權益。
@@ -137,7 +209,7 @@
 
 # 18名銀行前線職員涉嫌詐騙銀行貸款轉介費被廉署拘捕
 
-![陳徳輝表示，相關銀行職員安排客戶簽署貸款文件時，偷偷地將轉介申請表格混入文件，並騙取客戶簽名。（彭冠中攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796243_1_20250318161624.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796243_1_20250318161624.jpg&q=90)
   
 
 廉署拘捕22人包括18名銀行前線職員，涉嫌詐騙銀行貸款的轉介費，觸犯行賄、受賄、洗黑錢和串謀詐騙罪，被捕人士分別來自10間本地銀行，其中一人被捕時已離職。

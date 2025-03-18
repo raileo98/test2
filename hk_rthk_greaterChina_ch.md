@@ -1,3 +1,27 @@
+# 外交部強烈不滿澳洲公然干預香港特區法治
+
+![毛寧指，對於澳方公然干預香港特區的法治，中方表示強烈不滿和堅決反對。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796253_1_20250318164700.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧表示，香港事務純屬中國內政，不容任何外部勢力插手干預。中方敦促澳方切實尊重中國主權和香港法治，為中澳關係的可持續發展營造良好的條件和氛圍。對於澳方公然干預香港特區的法治，中方表示強烈不滿和堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm)
+
+---
+
 # 蔡若蓮稱學生內地考察團可加深對國家文化及科技重點安全領域認識
 
   
@@ -23,6 +47,7 @@
 
 # 美商務部據報禁DeepSeek　外交部：反對泛化國家安全概念
 
+![毛寧回應，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796249_1_20250318164617.jpg&q=90)
   
 
 對於有報道指，美國商務部各部門最近通知工作人員，中國人工智能模型深度求索(DeepSeek)已被禁止在政府設備上使用，在北京，外交部發言人毛寧回應，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化，中方也將堅定維護中國企業的合法權益。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795822-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795822-20250315.htm)
-
----
-
-# 王毅：中東問題已夠多　不應再製造新的緊張甚至危機
-
-![王毅在北京會見俄羅斯副外長里亞布科夫及伊朗副外長加里布阿巴迪。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795797_1_20250315012635.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在北京會見出席伊朗核問題中俄伊北京會晤的俄羅斯副外長里亞布科夫，以及伊朗副外長加里布阿巴迪。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm)
 
 ---

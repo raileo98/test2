@@ -1,3 +1,26 @@
+# 楊永杰促設恆常機制處理應急事件　劉永松倡啟德體育園設發言人
+
+  
+
+行政長官李家超出席行政會議前表示，啟德體育園自開園至今一些安排不理想，已經要求園方強化機制建設。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm)
+
+---
+
 # 蔡若蓮稱學生內地考察團可加深對國家文化及科技重點安全領域認識
 
   
@@ -91,7 +114,7 @@
 
 # 18名銀行前線職員涉嫌詐騙銀行貸款轉介費被廉署拘捕
 
-![陳徳輝表示，相關銀行職員安排客戶簽署貸款文件時，偷偷地將轉介申請表格混入文件，並騙取客戶簽名。（彭冠中攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796243_1_20250318161624.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796243_1_20250318161624.jpg&q=90)
   
 
 廉署拘捕22人包括18名銀行前線職員，涉嫌詐騙銀行貸款的轉介費，觸犯行賄、受賄、洗黑錢和串謀詐騙罪，被捕人士分別來自10間本地銀行，其中一人被捕時已離職。
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796062-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796062-20250317.htm)
-
----
-
-# 第三輪航空業輸入勞工計劃明起接受申請　涵蓋技工地勤等10工種
-
-![運輸業輸入勞工計劃當中的航空業計劃將於明日起接受第三輪申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796059_1_20250317152744.jpg&q=85)
-  
-
-運輸業輸入勞工計劃當中的航空業計劃將於明日起接受第三輪申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796059-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796059-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796059-20250317.htm)
 
 ---

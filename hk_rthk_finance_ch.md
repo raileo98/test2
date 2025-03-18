@@ -1,3 +1,27 @@
+# 聯通去年盈利升逾10%　今年算力投資增速料升至28%
+
+![聯通去年算力投資按年升19%，預計今年增長加快至28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796252_1_20250318164118.jpg&q=90)
+  
+
+中國聯通去年盈利206.1億元，按年升逾10%。末期息每股15.62分人民幣，全年派息40.43分，按年升20%，派息比率提高5個百分點至60%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm)
+
+---
+
 # 港股高收595點　連升3日累計近1280點
 
 ![港股創逾3年新高，恒生指數收市報24740點，升595點，升幅約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796245_1_20250318162011.jpg&q=10)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm)
-
----
-
-# 市場監管總局稱引導商戶提供優質服務　嚴格監管執法以保障消費者
-
-![市監總局稱將與各部門密切合作，營造安全可靠、讓人放心的消費環境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796082_1_20250317192615.jpg&q=85)
-  
-
-國家發改委、市場監管總局等六個部委，就《提振消費專項行動方案》舉行記者會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm)
 
 ---

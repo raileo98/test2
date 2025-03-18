@@ -1,3 +1,26 @@
+# 楊永杰促設恆常機制處理應急事件　劉永松倡啟德體育園設發言人
+
+  
+
+行政長官李家超出席行政會議前表示，啟德體育園自開園至今一些安排不理想，已經要求園方強化機制建設。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm)
+
+---
+
 # 港隊於殘疾人劍擊世界盃奪2銀4銅
 
 ![香港輪椅劍擊隊在意大利舉行的殘疾人劍擊世界盃，奪得2銀4銅。（香港傷殘人士體育協會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796216_1_20250318125651.jpg&q=90)
@@ -1427,29 +1450,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794084-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794084-20250304.htm)
-
----
-
-# 意甲聯賽　祖雲達斯主場2:0擊敗維羅納
-
-![祖雲達斯擊敗維羅納，連勝5場。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794083_1_20250304071938.jpg&q=90)
-  
-
-意大利甲組足球聯賽，祖雲達斯主場2:0擊敗維羅納。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1794083-20250304.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794083-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794083-20250304.htm)
 
 ---

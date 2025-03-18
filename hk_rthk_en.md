@@ -1,3 +1,51 @@
+# Stocks jump as mainland tech spree continues
+
+![Local stocks jumped up 2.46 percent to 24,740.57. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796240_1_20250318161915.jpg&q=75)
+  
+
+Markets rose 2.2 percent on Tuesday, led by continued buying of mainland Chinese tech firms.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796240-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796240-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796240-20250318.htm)
+
+---
+
+# ERB to offer new courses to highly educated trainees
+
+![The Employees Retraining Board says it has been actively promoting skills-based training. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796244_1_20250318161327.jpg&q=85)
+  
+
+The Employees Retraining Board (ERB) on Tuesday said it will step up collaboration with tertiary institutions this year to provide advanced courses for people with a higher education level.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796244-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796244-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796244-20250318.htm)
+
+---
+
 # 22 arrested over alleged mortgage referral bribes
 
 ![Grace Yee says she believes the case only involves a few bad apples at individual banks. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796247_1_20250318162219.jpg&q=90)
@@ -1391,53 +1439,5 @@ Chelsea's challenge for a place in next season's Champions League faltered in a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm)
-
----
-
-# Hospitalised Pope Francis addresses frailty
-
-![Children holding balloons gather by the statue of John Paul II outside the Gemelli University Hospital where Pope Francis is hospitalised, in Rome. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795960_1_20250316215620.jpg&q=85)
-  
-
-Pope Francis acknowledged being fragile and "facing a period of trial", as he thanked well-wishers on Sunday for prayers in a message from hospital, where he has been slowly recovering from pneumonia.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795960-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795960-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795960-20250316.htm)
-
----
-
-# 'Most scared I've been': US strikes sow panic in Yemen
-
-![Armed Yemenis shout slogans and raise their weapons during a protest against Israel's decision to block aid into the Gaza Strip, in the capital Sanaa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795952_1_20250316194411.jpg&q=80)
-  
-
-The first US strikes against Yemen's Houthis since Donald Trump took office killed 31 people, the rebels said on Sunday, with the US president warning "hell will rain down upon" the Iran-backed group if it did not stop attacking shipping.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm)
 
 ---
