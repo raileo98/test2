@@ -22,12 +22,12 @@ The Hang Seng Index gained 533.78 points, or 2.21 percent, to open at 24,679.35 
 
 ---
 
-# Israel launches new strikes against Hamas
+# Scores dead in new Israeli strikes against Hamas
 
 ![Israeli Prime Minister Benjamin Netanyahu said he instructed the military to take "strong action" against Hamas. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796187_1_20250318093845.jpg&q=90)
   
 
-Israel launched new strikes against Hamas on Tuesday and promised ‘increasing military force’ after talks on further hostage releases stalled.
+Israel launched new strikes against Hamas on Tuesday and promised "increasing military force" after talks on further hostage releases stalled.
 
   
 

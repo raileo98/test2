@@ -1,6 +1,6 @@
 # 李家超要求啟德體育園管理層設應急機制　恆常向文體旅局匯報運作
 
-![李家超要求啟德體育園管理層設應急機制　恒常向文體旅局匯報運作（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_1_20250318104648.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_1_20250318111003.jpg&q=85)
   
 
 行政長官李家超出席行政會議前回應提問時說，啟德體育園開園至今，部分安排不理想及出問題需要處理。
