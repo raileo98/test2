@@ -1,3 +1,27 @@
+# 洪都拉斯小型飛機墜毀至少7人喪生
+
+![搜救人員在墜毀現場救援。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796223_1_20250318125456.jpg&q=90)
+  
+
+一架載有十多人的小型飛機洪都拉斯北部墜毀，至少7人喪生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796223-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796223-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796223-20250318.htm)
+
+---
+
 # 華潤啤酒去年盈利跌8%　啤酒銷量減少2.5%
 
 ![華潤啤酒去年啤酒業務銷量跌2.5%，平均售價升1.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796222_1_20250318123931.jpg&q=90)

@@ -1,3 +1,27 @@
+# 洪都拉斯小型飛機墜毀至少7人喪生
+
+![搜救人員在墜毀現場救援。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796223_1_20250318125456.jpg&q=90)
+  
+
+一架載有十多人的小型飛機洪都拉斯北部墜毀，至少7人喪生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796223-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796223-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796223-20250318.htm)
+
+---
+
 # 加沙衛生部門稱以軍大規模空襲造成至少200人死亡
 
 ![以軍空襲造成大量傷亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796208_1_20250318114327.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795931-20250316.htm)
-
----
-
-# 特朗普政府凍結美國之音等傳媒機構資助　員工被通知休假
-
-![特朗普政府凍結美國之音等多個傳媒機構的資助。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795926_1_20250316140900.jpg&q=90)
-  
-
-美國特朗普政府凍結美國之音等多個傳媒機構的資助，機構員工被通知休假。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795926-20250316.htm)
 
 ---

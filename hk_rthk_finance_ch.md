@@ -1,3 +1,27 @@
+# 市場料3大央行維持利率不變　未來英倫銀行或更有逼切減息
+
+![吳卓殷料英倫銀行可能更加有逼切減息，預計今年餘下時間有0.75厘的減息空間。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796224_1_20250318125541.jpg&q=90)
+  
+
+今個星期被喻為「超級央行周」，美、英、日等多國央行都會議息。當中，美國聯儲局將於本港時間星期四公布議息結果，市場普遍預期將維持利率於4.25厘至4.5厘不變，會後聲明、反映聯儲局官員對未來利率走勢預測的點陣圖、以及主席鮑威爾記者會上息率及經濟前景的看法將成為焦點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796224-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796224-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796224-20250318.htm)
+
+---
+
 # 華潤啤酒去年盈利跌8%　啤酒銷量減少2.5%
 
 ![華潤啤酒去年啤酒業務銷量跌2.5%，平均售價升1.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796222_1_20250318123931.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796053-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796053-20250317.htm)
-
----
-
-# 台股高收約0.7%
-
-![台灣加權指數收報22118點，升150點，升幅0.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796052_1_20250317140921.jpg&q=90)
-  
-
-台灣股市高收，加權指數收報22118點，升150點，升幅0.69%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796052-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796052-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796052-20250317.htm)
 
 ---
