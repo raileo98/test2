@@ -1,3 +1,27 @@
+# 小鵬汽車去年虧損收窄44%　料首季交付量按年升逾3倍
+
+![小鵬汽車預料，首季交付量介乎9.1萬至9.3萬輛，按年升逾3倍。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796282_1_20250318183629.jpg&q=90)
+  
+
+小鵬汽車去年虧損57.9億元人民幣，按年收窄44%，不派息。非公認會計準則計，虧損收窄41%至55.5億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796282-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796282-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796282-20250318.htm)
+
+---
+
 # 小米去年多賺逾35%　智能電動車等創新業務蝕62億元人民幣
 
 ![小米去年智能電動汽車等創新業務經調整淨虧損62億元人民幣，單計第4季虧損7億元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796271_1_20250318174940.jpg&q=90)
@@ -22,7 +46,7 @@
 
 ---
 
-# 聯通：AI是集團從通信運營公司轉型升級科技服務公司重要引擎
+# 聯通：AI是集團轉型升級至科技服務公司重要引擎
 
 ![聯通稱將持之以恒做好提質增效，堅持開源節流並重。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796283_1_20250318190721.jpg&q=90)
   
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm)
-
----
-
-# 美國2月零售銷售按月反彈0.2%仍遜預期
-
-![美國2月零售銷售按月反彈0.2%，但升幅小過預期；核心銷售反彈1%，升幅大過預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796119_1_20250317204720.jpg&q=85)
-  
-
-美國2月零售銷售按月反彈0.2%，但升幅小過預期；扣除汽車的零售銷售按月上升0.3%，符合市場預期。扣除汽車、汽油、建築材料及食品服務的核心銷售反彈1%，升幅大過預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796119-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796119-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796119-20250317.htm)
 
 ---
