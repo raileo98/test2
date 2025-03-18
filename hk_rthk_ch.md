@@ -1,3 +1,26 @@
+# 工貿署料調整基金對中小企資助比例及首期撥款可減少問題個案
+
+  
+
+為支援中小企發展，《財政預算案》宣布向「發展品牌、升級轉型及拓展內銷市場的專項基金」，即「BUD專項基金」以及「市場推廣及工商機構支援基金」合共注資15億元，但兩個基金向中小企的資助比例，由以往政府和企業1比1調整至1比3；首期撥款亦由以往先批出資助額的75%，調整至20%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm)
+
+---
+
 # 港燈去年盈利跌逾1%　售電量升1.1%
 
 ![港燈去年盈利31.1億元，按年跌逾1%，可供分派收入跌約4%至23.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796263_1_20250318171420.jpg&q=90)
