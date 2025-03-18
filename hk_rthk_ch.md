@@ -1,3 +1,26 @@
+# 18名銀行前線職員涉嫌詐騙銀行貸款轉介費被廉署拘捕
+
+  
+
+廉署拘捕22人包括18名銀行前線職員，涉嫌詐騙銀行貸款的轉介費，觸犯行賄、受賄、洗黑錢和串謀詐騙罪，被捕人士分別來自10間本地銀行，其中一人被捕時已離職，
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796243-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796243-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796243-20250318.htm)
+
+---
+
 # 王毅將赴東京出席中日韓外長會　並共同主持中日經濟高層對話
 
   
@@ -95,7 +118,7 @@
 
 # 天文台料今年6月或之前踏入風季　約5至8個熱帶氣旋影響本港
 
-![天文台預測今年風季進入本港500公里範圍內的熱帶氣旋數目屬「正常至偏多」約5至8個。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796238_1_20250318152550.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796238_1_20250318152550.jpg&q=80)
   
 
 天文台預測，本港今年有機會在6月或之前踏入風季，10月或之後風季結束；進入本港500公里範圍內的熱帶氣旋數目屬「正常至偏多」，約5至8個。

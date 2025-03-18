@@ -1,3 +1,26 @@
+# 18名銀行前線職員涉嫌詐騙銀行貸款轉介費被廉署拘捕
+
+  
+
+廉署拘捕22人包括18名銀行前線職員，涉嫌詐騙銀行貸款的轉介費，觸犯行賄、受賄、洗黑錢和串謀詐騙罪，被捕人士分別來自10間本地銀行，其中一人被捕時已離職，
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796243-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796243-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796243-20250318.htm)
+
+---
+
 # 黃英豪稱結合中醫實力與生物科技優勢　浸大申辦醫學院具競爭力
 
 ![黃英豪（左）表示，浸大有自己的特色，作為全港第一間中醫院的營辦機構，過去培育了很多中醫人才。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796239_1_20250318153111.jpg&q=90)
@@ -24,7 +47,7 @@
 
 # 天文台料今年6月或之前踏入風季　約5至8個熱帶氣旋影響本港
 
-![天文台預測今年風季進入本港500公里範圍內的熱帶氣旋數目屬「正常至偏多」約5至8個。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796238_1_20250318152550.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796238_1_20250318152550.jpg&q=80)
   
 
 天文台預測，本港今年有機會在6月或之前踏入風季，10月或之後風季結束；進入本港500公里範圍內的熱帶氣旋數目屬「正常至偏多」，約5至8個。
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm)
-
----
-
-# 消委會稱未有專屬條例監管化妝品　冀消費者明白風險或用替代方法
-
-![黃鳳嫺表示，消委會今次檢視的主要目的，是希望為消費者提供整合資訊，令他們明白這些產品的潛在風險。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796040_1_20250317125312.jpg&q=90)
-  
-
-消委會檢視市面超過30款妝前底霜，在20款標榜具防曬效能的樣本中，發現超過八成都含有可能干擾內分泌，以及引起光過敏反應的成分。消委會總幹事黃鳳嫺表示，本港現時未有專屬條例監管化妝品，這類產品是受一般消費者安全條例監管。至於今次檢視的產品有無違反商品說明條例，因消委會今次無對產品進行測試，所以無法得知有關成分的含量多與少，難以作出相關判斷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm)
 
 ---

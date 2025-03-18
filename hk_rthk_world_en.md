@@ -1,6 +1,6 @@
 # Small plane crash off Honduras island kills at least 7
 
-![Rescue teams carry an injured man after a plane crash in Roatan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796215_1_20250318121302.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796215_1_20250318121302.jpg&q=90)
   
 
 At least seven people were killed on Monday when a small plane crashed into the sea while taking off from the Honduras Caribbean island of Roatan.
@@ -24,7 +24,7 @@ At least seven people were killed on Monday when a small plane crashed into the 
 
 # Scores dead in new Israeli strikes against Hamas
 
-![Israeli Prime Minister Benjamin Netanyahu said he instructed the military to take "strong action" against Hamas. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796187_1_20250318093845.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796187_1_20250318093845.jpg&q=90)
   
 
 Israel launched new strikes against Hamas on Tuesday and promised "increasing military force" after talks on further hostage releases stalled.
