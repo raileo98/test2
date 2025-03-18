@@ -1,3 +1,51 @@
+# Germany votes for big defence spending package
+
+![Germany's chancellor-in-waiting Friedrich Merz says dramatic steps are needed at a time of geopolitical turmoil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796326_1_20250319033004.jpg&q=90)
+  
+
+German lawmakers gave the green light on Tuesday for a colossal spending boost for defence and infrastructure pushed by chancellor-in-waiting Friedrich Merz amid deep fears in Europe over the future strength of the transatlantic alliance.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796326-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796326-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796326-20250319.htm)
+
+---
+
+# Putin, Trump fail to reach deal on full ceasefire
+
+![The two spoke for more than an hour and a half, and both expressed hopes for repairing relations between the countries. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796323_1_20250319031834.jpg&q=90)
+  
+
+US President Donald Trump and Russian President Vladimir Putin agreed on Tuesday on a halt in Russian attacks against Ukrainian energy targets – but fell far short of securing a full ceasefire in a highly anticipated phone call.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796323-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796323-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796323-20250319.htm)
+
+---
+
 # Pain, anger grip N Macedonia town after fire tragedy
 
 ![People light candles in tribute to the victims of a massive night club fire in Skopje. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796305_1_20250318224701.jpg&q=85)
@@ -1389,53 +1437,5 @@ Greenland's centre-right opposition Democrats have won a surprise victory in leg
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795416-20250312.htm)
-
----
-
-# Trump's 25 pct tariffs on steel and aluminium in force
-
-![A new wave of US tariffs sees levies of 25 percent on steel and aluminium imports. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795389_1_20250312121525.jpg&q=80)
-  
-
-US President Donald Trump's increased tariffs on steel and aluminum imports took effect on Wednesday as prior exemptions, duty free quotas and product exclusions expired.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm)
-
----
-
-# US Education Department to cut half its staff
-
-![The US Department of Education said affected employees will be placed on administrative leave from March 21. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795376_1_20250312104000.jpg&q=90)
-  
-
-The US Department of Education said on Tuesday it would lay off nearly half its staff, a possible precursor to closing altogether, as government agencies scrambled to meet US President Donald Trump's deadline to submit plans for a second round of mass layoffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795376-20250312.htm)
 
 ---

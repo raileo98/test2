@@ -1,3 +1,27 @@
+# 中方嚴重關切和強烈譴責以色列再挑起戰火　美方斥哈馬斯應負責
+
+![聯合國安理會開會討論加沙局勢。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796327_1_20250319042203.jpg&q=85)
+  
+
+聯合國安理會開會討論加沙局勢，中國常駐聯合國代表傅聰表示，中方對得來不易的停火局面被破壞感到遺憾，嚴重關切和強烈譴責以色列再挑起戰火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796327-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796327-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796327-20250319.htm)
+
+---
+
 # 特朗普：與普京通話非常好且富有成效　討論到和平協議很多要素
 
 ![特朗普說，雙方討論到和平協議的很多要素。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796325_1_20250319032948.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm)
-
----
-
-# 楊永杰促設恆常機制處理應急事件　劉永松倡啟德體育園設發言人
-
-![楊永杰（左）建議文體旅局與園方的恆常會議機制；劉永松（右）認為如果恆常會議機制加入太多持份者會影響決策效率。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796254_1_20250318170149.jpg&q=90)
-  
-
-行政長官李家超出席行政會議前表示，啟德體育園自開園至今一些安排不理想，已經要求園方強化機制建設。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm)
 
 ---

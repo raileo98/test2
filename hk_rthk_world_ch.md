@@ -1,3 +1,27 @@
+# 中方嚴重關切和強烈譴責以色列再挑起戰火　美方斥哈馬斯應負責
+
+![聯合國安理會開會討論加沙局勢。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796327_1_20250319042203.jpg&q=85)
+  
+
+聯合國安理會開會討論加沙局勢，中國常駐聯合國代表傅聰表示，中方對得來不易的停火局面被破壞感到遺憾，嚴重關切和強烈譴責以色列再挑起戰火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796327-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796327-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796327-20250319.htm)
+
+---
+
 # 特朗普：與普京通話非常好且富有成效　討論到和平協議很多要素
 
 ![特朗普說，雙方討論到和平協議的很多要素。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796325_1_20250319032948.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796055-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796055-20250317.htm)
-
----
-
-# 特朗普：計劃周二與普京通話　認為很有機會結束俄烏戰爭
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796042_1_20250317125325.jpg&q=90)
-  
-
-美國總統特朗普表示，他計劃周二與俄羅斯總統普京通話，討論結束俄烏戰爭。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796042-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796042-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796042-20250317.htm)
 
 ---
