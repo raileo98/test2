@@ -1,3 +1,50 @@
+# 蔡若蓮稱學生內地考察團可加深對國家文化及科技重點安全領域認識
+
+  
+
+設於尖沙咀香港歷史博物館的國家安全展覽廳，去年8月正式開啟後，到訪的小學有120間、超過4萬多位同學參觀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm)
+
+---
+
+# 港股高收595點　連升3日累計近1280點
+
+![港股創逾3年新高，恒生指數收市報24740點，升595點，升幅約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796245_1_20250318162011.jpg&q=10)
+  
+
+港股連升3日，升穿24700點，創逾3年新高。恒生指數接近全日最高位收市，報24740點，升595點，升幅約2.5%，指數3日累計升近1280點。全日主板成交額逾2859億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm)
+
+---
+
 # 最新失業率3.2%微升0.1個百分點
 
   
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796059-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796059-20250317.htm)
-
----
-
-# 羅淑佩與新加坡文化、社區及青年部長會面　探討兩地合作機會
-
-![羅淑佩（右）與新加坡文化、社區及青年部長兼律政部第二部長唐振輝會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796057_1_20250317152714.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩與新加坡文化、社區及青年部長兼律政部第二部長唐振輝會面。羅淑佩向唐振輝介紹香港在文化、旅遊和體育方面的深度融合發展，雙方就政府推動相關政策交流看法，並探討未來兩地在文化、體育及旅遊領域深化國際交流與合作的機會，氣氛親切融洽。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796057-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796057-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796057-20250317.htm)
-
----
-
-# 警員持爆破工具及盾牌到旺角建興大廈搜查　據了解涉及火炭謀殺案
-
-![部分警員戴頭盔，手持盾牌及爆破工具，調查期間一度將大廈圍封。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796056_1_20250317152633.jpg&q=85)
-  
-
-大批警員中午到旺角亞皆老街建興大廈調查，部分警員戴頭盔，手持盾牌及爆破工具，調查期間一度將大廈圍封，其後解封。據了解，警員調查涉及昨日下午在火炭發生的謀殺案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796056-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796056-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796056-20250317.htm)
 
 ---

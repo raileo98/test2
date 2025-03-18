@@ -1,3 +1,26 @@
+# 蔡若蓮稱學生內地考察團可加深對國家文化及科技重點安全領域認識
+
+  
+
+設於尖沙咀香港歷史博物館的國家安全展覽廳，去年8月正式開啟後，到訪的小學有120間、超過4萬多位同學參觀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm)
+
+---
+
 # 美商務部據報禁DeepSeek　外交部：反對泛化國家安全概念
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795797-20250315.htm)
-
----
-
-# 李強︰要更注重加大政策力度和激發市場力量良性互動
-
-![李強說，要實施好更加積極有為的宏觀政策，最大限度發揮政策效應。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795770_1_20250314201958.jpg&q=90)
-  
-
-國務院總理李強主持召開國務院第八次全體會議，深入學習貫徹總書記習近平在全國兩會期間的重要講話和全國兩會精神，對落實國務院2025年重點工作進行部署。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm)
 
 ---

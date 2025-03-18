@@ -1,3 +1,27 @@
+# 港股高收595點　連升3日累計近1280點
+
+![港股創逾3年新高，恒生指數收市報24740點，升595點，升幅約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796245_1_20250318162011.jpg&q=10)
+  
+
+港股連升3日，升穿24700點，創逾3年新高。恒生指數接近全日最高位收市，報24740點，升595點，升幅約2.5%，指數3日累計升近1280點。全日主板成交額逾2859億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm)
+
+---
+
 # 最新失業率3.2%微升0.1個百分點
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm)
-
----
-
-# 在岸人民幣兌美元低收100點子
-
-![在岸人民幣收報7.2388兌1美元，較上星期五收市價跌100點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796079_1_20250317170007.jpg&q=75)
-  
-
-在岸人民幣收報7.2388兌1美元，較上星期五收市價跌100點子，跌幅0.14%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796079-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796079-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796079-20250317.htm)
 
 ---

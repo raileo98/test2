@@ -1,3 +1,50 @@
+# 蔡若蓮稱學生內地考察團可加深對國家文化及科技重點安全領域認識
+
+  
+
+設於尖沙咀香港歷史博物館的國家安全展覽廳，去年8月正式開啟後，到訪的小學有120間、超過4萬多位同學參觀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm)
+
+---
+
+# 港股高收595點　連升3日累計近1280點
+
+![港股創逾3年新高，恒生指數收市報24740點，升595點，升幅約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796245_1_20250318162011.jpg&q=10)
+  
+
+港股連升3日，升穿24700點，創逾3年新高。恒生指數接近全日最高位收市，報24740點，升595點，升幅約2.5%，指數3日累計升近1280點。全日主板成交額逾2859億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm)
+
+---
+
 # 最新失業率3.2%微升0.1個百分點
 
   
