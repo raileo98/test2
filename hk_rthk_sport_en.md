@@ -1,3 +1,27 @@
+# Ohtani leads Dodgers to MLB season-opener win in Tokyo
+
+![Ohtani shook off the nerves to deliver two crucial hits during the Dodgers' season-opening win. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796342_1_20250319070737.jpg&q=90)
+  
+
+Shohei Ohtani admitted he was "nervous" playing in front of a packed Tokyo crowd as the Los Angeles Dodgers started the new Major League Baseball season with a win.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm)
+
+---
+
 # Tennis players' union launch legal blitz against tours
 
 ![The Djokovic-backed players union takes aim at the sport's governing bodies, the ATP and WTA. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796331_1_20250319053811.jpg&q=90)
@@ -1421,29 +1445,5 @@ Real Madrid claimed a small edge on city rivals Atlético Madrid with a tight 2-
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794271-20250305.htm)
-
----
-
-# Mavs' Irving ruled out for NBA season with ACL injury
-
-![Irving was helped off the court in the Mavericks' game against the Sacramento Kings. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794261_1_20250305054216.jpg&q=85)
-  
-
-Dallas Mavericks All Star guard Kyrie Irving will miss the rest of the NBA season after suffering a torn anterior cruciate ligament (ACL) in his left knee, according to media reports.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm)
 
 ---

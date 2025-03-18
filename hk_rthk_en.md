@@ -1,3 +1,27 @@
+# Ohtani leads Dodgers to MLB season-opener win in Tokyo
+
+![Ohtani shook off the nerves to deliver two crucial hits during the Dodgers' season-opening win. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796342_1_20250319070737.jpg&q=90)
+  
+
+Shohei Ohtani admitted he was "nervous" playing in front of a packed Tokyo crowd as the Los Angeles Dodgers started the new Major League Baseball season with a win.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm)
+
+---
+
 # US stocks end lower on geopolitical concerns
 
 ![Stocks had risen the last two days in a partial rebound from declines in recent weeks. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796340_1_20250319064754.jpg&q=90)
@@ -1412,29 +1436,5 @@ A former senior Hospital Authority official has called for caution in setting co
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm)
-
----
-
-# Nap on beds before purchasing: consumer watchdog
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
-  
-
-The Consumer Council on Monday encouraged people to nap on mattresses – some of which were found to provide inadequate support – before making a purchase.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm)
 
 ---
