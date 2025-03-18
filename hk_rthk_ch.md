@@ -1,3 +1,27 @@
+# 馮德萊恩稱歐盟支持丹麥捍衛格陵蘭島在內的主權和領土完整
+
+![馮德萊恩強調，面對威脅時，歐洲必須加強防禦能力。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796322_1_20250319031053.jpg&q=90)
+  
+
+歐盟委員會主席馮德萊恩表示，歐盟支持丹麥捍衛包括格陵蘭島在內的主權和領土完整。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796322-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796322-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796322-20250319.htm)
+
+---
+
 # 也門胡塞武裝向以色列發射導彈　以軍稱成功攔截
 
 ![胡塞武裝發言人強調，如果以色列不停止對加沙的侵略，組織將擴大對以色列的打擊範圍。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796321_1_20250319023204.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm)
-
----
-
-# 港股收市升595點　連升3日累計近1280點
-
-![港股創逾3年新高，恒生指數收市報24740點，升595點，升幅約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796245_1_20250318162011.jpg&q=10)
-  
-
-港股連升3日，升穿24700點，創逾3年新高。恒生指數接近全日最高位收市，報24740點，升595點，升幅約2.5%，指數3日累計升近1280點。全日主板成交額逾2859億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm)
 
 ---

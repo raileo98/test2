@@ -1,3 +1,27 @@
+# 馮德萊恩稱歐盟支持丹麥捍衛格陵蘭島在內的主權和領土完整
+
+![馮德萊恩強調，面對威脅時，歐洲必須加強防禦能力。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796322_1_20250319031053.jpg&q=90)
+  
+
+歐盟委員會主席馮德萊恩表示，歐盟支持丹麥捍衛包括格陵蘭島在內的主權和領土完整。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796322-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796322-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796322-20250319.htm)
+
+---
+
 # 也門胡塞武裝向以色列發射導彈　以軍稱成功攔截
 
 ![胡塞武裝發言人強調，如果以色列不停止對加沙的侵略，組織將擴大對以色列的打擊範圍。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796321_1_20250319023204.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796025-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796025-20250317.htm)
-
----
-
-# 也門胡塞武裝：美軍空襲已造成53人死亡近百人受傷
-
-![胡塞武裝說，美軍的空襲造成居民財產和公共設施損失。圖為薩達省一名居民在遇襲地點，向傳媒展示一塊導彈碎片。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795989_1_20250317081232.jpg&q=75)
-  
-
-也門胡塞武裝說，美軍自上周六以來對也門的空襲已造成53人死亡，包括婦女和兒童，另有98人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795989-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795989-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795989-20250317.htm)
 
 ---
