@@ -1,3 +1,27 @@
+# SAR women's rugby squad 'keen to deliver on home soil'
+
+![The SAR women's rugby squad looks to build on last year's success, when they were runners-up in the Melrose Claymores competition. Photo courtesy of HKCR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796233_4_20250318154756.jpg&q=90)
+  
+
+The Hong Kong, China women’s rugby team on Tuesday said they are ready to take their game to the next level at the upcoming Rugby Sevens, to be held at the Kai Tak Sports Park for the first time this month.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm)
+
+---
+
 # Messi ruled out as Argentina aim for World Cup spot
 
 ![The Argentina superstar will reportedly be sidelined over a muscle strain injury. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796168_1_20250318073733.jpg&q=90)
@@ -1422,29 +1446,5 @@ World number one Judd Trump made a winning start in Hong Kong, beating Gary Wils
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm)
-
----
-
-# Trump in action as World Snooker Grand Prix begins
-
-![Judd Trump faces Gary Wilson at 7.30pm at the World Snooker Grand Prix. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794172_1_20250304164452.jpg&q=90)
-  
-
-Snooker legend Judd Trump is set to make his highly anticipated debut in Hong Kong on Tuesday as a newly minted SAR resident.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794172-20250304.htm)
 
 ---

@@ -1,3 +1,27 @@
+# SAR women's rugby squad 'keen to deliver on home soil'
+
+![The SAR women's rugby squad looks to build on last year's success, when they were runners-up in the Melrose Claymores competition. Photo courtesy of HKCR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796233_4_20250318154756.jpg&q=90)
+  
+
+The Hong Kong, China women’s rugby team on Tuesday said they are ready to take their game to the next level at the upcoming Rugby Sevens, to be held at the Kai Tak Sports Park for the first time this month.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm)
+
+---
+
 # Wang Yi headed for Tokyo trilateral meeting
 
 ![Wang Yi, right, hosts South Korean Foreign Minister Cho Tae-yul in Beijing in May. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796232_1_20250318145011.jpg&q=90)
@@ -1415,29 +1439,5 @@ A man in his 50s on Sunday died after an apparent chopper attack in Fo Tan.
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm)
-
----
-
-# Parents need more guidance on child abuse law: YMCA
-
-![The Chinese YMCA says parents should be aware of their own emotions when taking care of their children, and to seek help when needed. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795949_1_20250316183822.jpg&q=90)
-  
-
-An NGO on Sunday said many parents are still unclear about an incoming law which makes it mandatory to report child abuse, adding that authorities should step up efforts to explain the legislation which comes into effect next year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795949-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795949-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795949-20250316.htm)
 
 ---

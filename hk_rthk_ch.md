@@ -1,3 +1,26 @@
+# 王毅將赴東京出席中日韓外長會　並共同主持中日經濟高層對話
+
+  
+
+外交部宣布，中共中央政治局委員、外長王毅本周六將出席在日本東京舉行的第11次中日韓外長會。在日本期間，他亦會與日本外相岩屋毅共同主持第6次中日經濟高層對話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796242-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796242-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796242-20250318.htm)
+
+---
+
 # 加沙衛生部指以軍空襲增至逾3百人死亡　北京促各方有效執行停火
 
 ![毛寧說，中方希望各方能夠切實推動停火協議連續有效執行。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796241_1_20250318154103.jpg&q=90)
