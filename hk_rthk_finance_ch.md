@@ -1,6 +1,34 @@
-# 李家超要求啟德體育園管理層設應急機制　恒常向文體旅局匯報運作
+# 日股半日升逾500點　未能企穩38000點
+
+![日經指數半日收報37943點，升546點，升幅1.46%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796200_1_20250318103926.jpg&q=90)
+  
+
+東京股市造好。
 
   
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796200-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796200-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796200-20250318.htm)
+
+---
+
+# 李家超要求啟德體育園管理層設應急機制　恆常向文體旅局匯報運作
+
+![李家超要求啟德體育園管理層設應急機制　恒常向文體旅局匯報運作（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_1_20250318104648.jpg&q=85)
+  
+
+行政長官李家超出席行政會議前回應提問時說，啟德體育園開園至今，部分安排不理想及出問題需要處理。
+
   
 
 
@@ -1410,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm)
-
----
-
-# 國家統計局：新屋銷售基本穩定　但部分地區樓市仍在調整
-
-![國家統計局表示，新屋銷售基本穩定，一線城市樓價有所回穩，但部分地區樓市仍處於調整，市場回穩仍存在壓力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796034_1_20250317123519.jpg&q=90)
-  
-
-內地今年首兩個月新建商品房銷售面積及銷售額按年跌幅，分別大幅收窄至5.1%和2.6%，扭轉去年全年的雙位數跌幅；兩者去年同期的跌幅都超過兩成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm)
 
 ---

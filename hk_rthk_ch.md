@@ -1,3 +1,50 @@
+# 李家超：非常重視第三間醫學院　特別工作組正積極審視建議書
+
+  
+
+行政長官李家超表示，他和特區政府非常重視第三間醫學院，這是醫療改革的一部分，以確保有足夠醫生，而且水平符合要求，特別工作組正積極審視3間大學提交的建議書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796201-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796201-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796201-20250318.htm)
+
+---
+
+# 日股半日升逾500點　未能企穩38000點
+
+![日經指數半日收報37943點，升546點，升幅1.46%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796200_1_20250318103926.jpg&q=90)
+  
+
+東京股市造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796200-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796200-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796200-20250318.htm)
+
+---
+
 # 吳聲展稱要發現太空油吸食者主要非靠檢測而要教師觀察同學關心
 
   
@@ -21,9 +68,13 @@
 
 ---
 
-# 李家超要求啟德體育園管理層設應急機制　恒常向文體旅局匯報運作
+# 李家超要求啟德體育園管理層設應急機制　恆常向文體旅局匯報運作
 
+![李家超要求啟德體育園管理層設應急機制　恒常向文體旅局匯報運作（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_1_20250318104648.jpg&q=85)
   
+
+行政長官李家超出席行政會議前回應提問時說，啟德體育園開園至今，部分安排不理想及出問題需要處理。
+
   
 
 
@@ -67,6 +118,7 @@
 
 # 李家超：東盟十國特邀人士入境便利計劃今實施　專櫃處理簽證申請
 
+![李家超指今次計劃方便東盟獲邀人士更積極參與香港的國際盛事，來港投資和營商，並吸引他們以香港為進軍內地和環球市場的跳板。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796196_1_20250318104625.jpg&q=90)
   
 
 行政長官李家超出席行政會議前宣布，為東盟10國推行的特邀人士入境便利計劃今日實施，以主動邀請為香港經濟發展帶來相當貢獻，或者獲邀來港出席重要活動的東盟人士提供出入境便利，他們會獲得自助通關服務，並透過專櫃一站式處理自助通關和簽證申請。
@@ -1384,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm)
-
----
-
-# 國台辦：台灣資通電軍「倚網謀獨」必遭嚴厲懲治
-
-![陳斌華表示，台灣資通電軍「倚網謀獨」必遭嚴厲懲治。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796125_1_20250317212052.jpg&q=90)
-  
-
-在北京，國台辦發言人陳斌華表示，台灣資通電軍「倚網謀獨」、挑釁滋事，純屬不自量力，必遭嚴厲懲治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796125-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796125-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796125-20250317.htm)
-
----
-
-# 恒基創辦人李兆基離世享年97歲　歷年捐款數以十億元計
-
-![恒基兆業地產發出訃告，宣佈集團創辦人李兆基於今天黃昏 ，在家人陪伴下安詳與世長辭，享年97歲。（恒地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796124_2_20250317213019.jpg&q=90)
-  
-
-恒基兆業地產發出訃告，宣布集團創辦人李兆基於今天黃昏 在家人陪伴下安詳與世長辭，享年97歲。出殯儀式的舉行日期，有待家族安排妥當後，將會另行公布。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm)
 
 ---
