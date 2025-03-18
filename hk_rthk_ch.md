@@ -1,3 +1,26 @@
+# 何炳德透露接獲當局通知使用金屬棚架比例將逐步擴展至五成工程
+
+  
+
+香港竹棚業持續發展關注組成員、港九搭棚同敬工會理事長何炳德透露，昨日接獲發展局通知，當局將會以試行方式，在興建新大樓的公務工程招標項目中使用金屬棚架，並逐步將比例擴展至50%的工程，期望有助提升工地安全，減少意外。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796227-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796227-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796227-20250318.htm)
+
+---
+
 # 特步去年多賺約20%
 
 ![特步去年盈利12.4億元人民幣，按年升20.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796226_1_20250318132451.jpg&q=90)
