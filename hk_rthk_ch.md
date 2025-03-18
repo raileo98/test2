@@ -1,3 +1,50 @@
+# 李家超提出啟德體育園設發言人機制　學者料有助處理互相卸責情況
+
+  
+
+行政長官李家超出席行政會議前表示，啟德體育園一些安排不理想，已經要求園方強化機制建設。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796268-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796268-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796268-20250318.htm)
+
+---
+
+# 法庭拒絕非公開聆訊申請　下令許家印前妻需向恒大清盤人支付訟費
+
+![法官指，為確保清盤過程公開透明，保障公眾利益及司法公正，拒絕非公開聆訊申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796278_1_20250318181939.jpg&q=80)
+  
+
+中國恒大去年被清盤人接管後，入稟向恒大創辦人許家印、前妻丁玉梅、前行政總裁夏海鈞以及前首席財務官潘大榮等，追討合共約468億港元股息及酬金，其後成功申請禁制令，阻止他們處理名下全球600億港元資產。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796278-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796278-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796278-20250318.htm)
+
+---
+
 # 陳栢緯料西太平洋颱風總數或不變　出現較強颱風機率或增加
 
   
