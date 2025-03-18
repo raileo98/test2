@@ -1,3 +1,27 @@
+# 據報摩根士丹利擬本月裁員約2000人
+
+![據報摩根士丹利計劃在本月裁員約2000人，佔公司員工總數2%至3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796345_1_20250319072806.jpg&q=90)
+  
+
+外電引述消息人士指，摩根士丹利計劃在本月裁員約2000人，佔公司員工總數2%至3%，但不包括財務顧問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796345-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796345-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796345-20250319.htm)
+
+---
+
 # 港股ADR普遍向下　小米績後逆市升逾3%
 
 ![港股ADR普遍向下，阿里巴巴跌逾3%，美團跌近2%。不過小米升逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796338_1_20250319062047.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796170-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796170-20250318.htm)
-
----
-
-# 特朗普提名鮑曼為聯儲局副主席　負責金融監管
-
-![特朗普提名聯儲局理事鮑曼擔任負責監管的副主席。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796166_1_20250318070933.jpg&q=90)
-  
-
-美國總統特朗普在社交媒體上發文表示，提名聯儲局理事鮑曼擔任負責監管的副主席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796166-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796166-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796166-20250318.htm)
 
 ---

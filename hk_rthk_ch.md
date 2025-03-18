@@ -1,3 +1,27 @@
+# 據報摩根士丹利擬本月裁員約2000人
+
+![據報摩根士丹利計劃在本月裁員約2000人，佔公司員工總數2%至3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796345_1_20250319072806.jpg&q=90)
+  
+
+外電引述消息人士指，摩根士丹利計劃在本月裁員約2000人，佔公司員工總數2%至3%，但不包括財務顧問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796345-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796345-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796345-20250319.htm)
+
+---
+
 # 比利時門將古圖奧斯獲重召　冀球迷接受他回歸
 
 ![古圖奧斯說，希望球迷接受他回歸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796344_1_20250319072249.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796275-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796275-20250318.htm)
-
----
-
-# 李家超有信心香港與東莞優勢互補為建設國際一流灣區作貢獻
-
-![李家超與東莞市委書記韋皓（左）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796274_1_20250318183731.jpg&q=90)
-  
-
-行政長官李家超與東莞市委書記韋皓會面，就深化香港和東莞市合作及推動粵港澳大灣區高質量發展交流意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm)
 
 ---
