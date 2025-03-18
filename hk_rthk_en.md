@@ -1,3 +1,27 @@
+# 'Funding cut won't affect non-local student tuition'
+
+![Education chief Christine Choi says non-local students' tuition fee adjustments are not linked with the income of a university. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796300_1_20250318215610.jpg&q=80)
+  
+
+Education authorities on Tuesday stressed that plans to slash funding for universities does not translate to a rise in tuition fees for non-local students as a source of income.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796300-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796300-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796300-20250318.htm)
+
+---
+
 # 'Hamas chose war by refusing to release hostages'
 
 ![Palestinians flee their homes after the Israeli army issues evacuation orders. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796296_1_20250318213006.jpg&q=85)
@@ -1414,29 +1438,5 @@ The UK's Labour government will on Monday set out details of how it plans to sla
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm)
-
----
-
-# Draper powers past Rune to claim first ATP 1000 title
-
-![Draper will make his top ten debut at seventh in the world after the victory at Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795988_1_20250317081126.jpg&q=90)
-  
-
-Britain's Jack Draper roared past Denmark's Holger Rune 6-2, 6-2 to win his first ATP Masters 1000 title at Indian Wells.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795988-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795988-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795988-20250317.htm)
 
 ---
