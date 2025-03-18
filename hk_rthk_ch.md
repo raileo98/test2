@@ -1,3 +1,27 @@
+# 小鵬：今年總銷量實現翻倍增長　第4季穩步走向盈利
+
+![小鵬稱通過技術降本及更大規模效應，汽車毛利率今年持續改善。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796312_1_20250318234128.jpg&q=90)
+  
+
+小鵬汽車去年汽車交付量上升34%至19萬輛，今年首兩個月交付量約6.1萬輛，預料首季交付量介乎9.1萬至9.3萬輛，按年升逾3倍；首季收入預測介乎150億元至157億元人民幣，按年升約1.3倍或以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm)
+
+---
+
 # 香港小輪去年盈利跌14%　基礎溢利升10%
 
 ![香港小輪去年收益約4.23億元，上升約13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796311_1_20250318232609.jpg&q=80)
