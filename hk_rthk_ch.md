@@ -1,3 +1,27 @@
+# 德國聯邦議會批准大幅增加國防和基礎設施開支的財政方案
+
+![方案獲議會超過三分二的多數票通過。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796316_1_20250319004200.jpg&q=90)
+  
+
+德國聯邦議會批准大幅增加國防和基礎設施開支的財政方案，標誌著德國財政政策的重大轉變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796316-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796316-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796316-20250319.htm)
+
+---
+
 # 普京：西方制裁非臨時措施　欲借此對俄施加系統性戰略壓力
 
 ![普京在莫斯科出席俄羅斯工業家和企業家聯合會全體會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796315_1_20250319002718.jpg&q=90)
@@ -1410,28 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796243-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796243-20250318.htm)
-
----
-
-# 王毅將赴東京出席中日韓外長會　並共同主持中日經濟高層對話
-
-  
-
-外交部宣布，中共中央政治局委員、外長王毅本周六將出席在日本東京舉行的第11次中日韓外長會。在日本期間，他亦會與日本外相岩屋毅共同主持第6次中日經濟高層對話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796242-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796242-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796242-20250318.htm)
 
 ---

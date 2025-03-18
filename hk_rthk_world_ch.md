@@ -1,3 +1,27 @@
+# 德國聯邦議會批准大幅增加國防和基礎設施開支的財政方案
+
+![方案獲議會超過三分二的多數票通過。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796316_1_20250319004200.jpg&q=90)
+  
+
+德國聯邦議會批准大幅增加國防和基礎設施開支的財政方案，標誌著德國財政政策的重大轉變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796316-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796316-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796316-20250319.htm)
+
+---
+
 # 普京：西方制裁非臨時措施　欲借此對俄施加系統性戰略壓力
 
 ![普京在莫斯科出席俄羅斯工業家和企業家聯合會全體會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796315_1_20250319002718.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795969-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795969-20250317.htm)
-
----
-
-# 巴拿馬電廠指電力系統已恢復　供電陸逐恢復
-
-![當地星期六晚開始停電，目前電力供應陸續恢復。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795968_1_20250317013530.jpg&q=90)
-  
-
-巴拿馬電力傳輸公司通報，電力系統已經恢復。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795968-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795968-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795968-20250317.htm)
 
 ---
