@@ -1,3 +1,51 @@
+# Legco polls to be held on December 7
+
+![John Lee says an Election Committee by-election will be held in September, followed by the Legco general election in December. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796209_1_20250318115209.jpg&q=85)
+  
+
+Chief Executive John Lee announced on Tuesday that the Legislative Council general election will be held on December 7.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796209-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796209-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796209-20250318.htm)
+
+---
+
+# 'Any changes to cross-border driving must be careful'
+
+![John Lee says the government must ensure smooth traffic flow at all checkpoints. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796214_1_20250318121204.jpg&q=90)
+  
+
+Chief Executive John Lee on Tuesday said any changes to cross-border driving arrangements must prioritise traffic management and require careful coordination with mainland authorities.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796214-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796214-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796214-20250318.htm)
+
+---
+
 # CE slams 'bullying tactics' amid ports deal concerns
 
 ![John Lee urged foreign governments not to resort to 'bullying tactics' when it comes to global trade. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796206_1_20250318113232.jpg&q=75)
@@ -24,7 +72,7 @@ Chief Executive John Lee said concerns expressed over CK Hutchison’s deal to s
 
 # Speedy admission begins for VIPs as Lee woos Asean
 
-![John Lee says the move aims to strengthen Hong Kong's ties with Asean countries. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796205_1_20250318110846.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796205_1_20250318110846.jpg&q=85)
   
 
 A special admission scheme that makes it easier for guests from 10 Asean nations to visit Hong Kong will start on Tuesday, Chief Executive John Lee has announced.
@@ -1388,53 +1436,5 @@ The convenor of the Path of Democracy, Ronny Tong, on Wednesday said people are 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795430-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795430-20250312.htm)
-
----
-
-# HK's IPO funds could double this year: FS
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795394_1_20250312124004.jpg&q=90)
-  
-
-Financial Secretary Paul Chan on Wednesday hinted that the city could double the funds raised for its initial public offering (IPO) market this year compared to that of last year, as optimism over the nation’s tech sector grows.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795394-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795394-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795394-20250312.htm)
-
----
-
-# Govt optimistic over top talent scheme visa renewals
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795403_1_20250312134034.jpg&q=90)
-  
-
-The government is optimistic about the number of people who will stay under the Top Talent Pass Scheme, labour chief Chris Sun said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795403-20250312.htm)
 
 ---

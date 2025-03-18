@@ -1,3 +1,146 @@
+# 有校長稱北區元朗屯門吸食太空油毒品年輕人較多或與學生人數有關
+
+![去年吸食太空油毒品的呈報個案，七成半是21歲以下的年輕人，北區、元朗及屯門區的個案相對較多。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796220_1_20250318122930.jpg&q=90)
+  
+
+去年吸食太空油毒品的呈報個案，七成半是21歲以下的年輕人，北區、元朗及屯門區的個案相對較多。屯門區中學校長會主席吳聲展說，或與三區學生人數較多有關，已及早宣傳教育，防止數字上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796220-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796220-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796220-20250318.htm)
+
+---
+
+# 外電指內地監管部門評估長和出售海外港口業務交易
+
+![彭博引述消息人士指，中國有關部門開始評估長和出售海外港口業務的交易。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796218_1_20250318121750.jpg&q=75)
+  
+
+彭博引述消息人士指，中國有關部門開始評估長和出售海外港口業務的交易。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm)
+
+---
+
+# 李家超︰須重視社會對長和擬向美國財團出售巴拿馬運河港口關切
+
+![長和計劃向美國財團出售巴拿馬運河兩端港口等資產。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796219_1_20250318122902.jpg&q=80)
+  
+
+長和計劃向美國財團出售巴拿馬運河兩端港口等資產，行政長官李家超回應指，社會有很多議論，這些關切值得重視。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm)
+
+---
+
+# 港股半日升435點　科技及汽車股造好　長和系偏軟
+
+![港股連升3日，恒生指數創逾3年新高，高見24680點，中午報24580點，升435點，升幅1.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796213_1_20250318121840.jpg&q=90)
+  
+
+港股連升3日，恒生指數創逾3年新高，最多升逾530點，高見24680點，中午報24580點，升435點，升幅1.8%，半日主板成交額約1531億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796213-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796213-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796213-20250318.htm)
+
+---
+
+# 立法會換屆選舉12月7日舉行　選委會界別分組補選9月7日進行
+
+![李家超宣布，第8屆立法會選舉將定於12月7日舉行，選出90名議員。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796217_1_20250318122611.jpg&q=80)
+  
+
+行政長官李家超宣布，第8屆立法會選舉將定於12月7日舉行，選出90名議員；而在選舉前會舉行選委會界別分組補選，有關補選定於9月7日進行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796217-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796217-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796217-20250318.htm)
+
+---
+
+# 港隊於殘疾人劍擊世界盃奪2銀4銅
+
+  
+
+香港輪椅劍擊隊在意大利舉行的殘疾人劍擊世界盃，奪得2銀4銅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796216-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796216-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796216-20250318.htm)
+
+---
+
 # 民建聯歡迎立法會選舉12月7日舉行　冀選出真正愛國愛港人士
 
   
@@ -1338,102 +1481,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm)
-
----
-
-# 國泰本月30日恢復往返印度海德拉巴直航客運航班
-
-![劉凱詩（左四）表示，印度具有重要戰略意義。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796137_1_20250317234235.jpg&q=80)
-  
-
-國泰航空將於本月30日恢復往返印度海德拉巴直航客運航班，亦是國泰宣布今年新增6個新航點中的首個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796137-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796137-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796137-20250317.htm)
-
----
-
-# 陳茂波：李兆基的仁愛與溫情會繼續照亮社會
-
-![陳茂波表示，驚悉李兆基博士離世，心裡無比沉重。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796136_2_20250317235316.jpg&q=80)
-  
-
-財政司司長陳茂波表示，驚悉李兆基博士離世，心裡無比沉重，向他的家人致以最深切的慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm)
-
----
-
-# 兩名香港代表獲選第六批國家級非物質文化遺產代表性傳承人
-
-![黃大仙信俗的代表、嗇色園黃大仙祠監院（義覺）道長李耀輝都獲入傳承人名單。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796135_1_20250317232046.jpg&q=90)
-![西貢坑口客家舞麒麟的代表劉錦棠在名單之內。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796135_2_20250317232046.jpg&q=90)
-  
-
-西貢坑口客家舞麒麟傳承人劉錦棠以及黃大仙信俗文化傳承人李耀輝，獲選為第六批「國家級非物質文化遺產代表性傳承人」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm)
-
----
-
-# 香港結算：繼續與相關監管機構合作協助剔除新股重複認購
-
-![港交所旗下香港結算發出通告，表示繼續與相關監管機構合作，審視FINI相關運作流程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796134_1_20250317230629.jpg&q=90)
-  
-
-港交所旗下香港結算發出通告，表示繼續與相關監管機構合作，審視FINI相關運作流程，協助股份過戶登記處剔除重複認購核查工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm)
 
 ---

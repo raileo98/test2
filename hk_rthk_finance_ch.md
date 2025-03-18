@@ -1,3 +1,51 @@
+# 外電指內地監管部門評估長和出售海外港口業務交易
+
+![彭博引述消息人士指，中國有關部門開始評估長和出售海外港口業務的交易。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796218_1_20250318121750.jpg&q=75)
+  
+
+彭博引述消息人士指，中國有關部門開始評估長和出售海外港口業務的交易。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm)
+
+---
+
+# 港股半日升435點　科技及汽車股造好　長和系偏軟
+
+![港股連升3日，恒生指數創逾3年新高，高見24680點，中午報24580點，升435點，升幅1.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796213_1_20250318121840.jpg&q=90)
+  
+
+港股連升3日，恒生指數創逾3年新高，最多升逾530點，高見24680點，中午報24580點，升435點，升幅1.8%，半日主板成交額約1531億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796213-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796213-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796213-20250318.htm)
+
+---
+
 # 滬深股市半日靠穩
 
 ![上證指數半日收報3429點，升3點，升幅0.09%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796207_1_20250318114054.jpg&q=90)
@@ -22,6 +70,29 @@
 
 ---
 
+# 李家超稱目標本月內公布公營醫療收費調整方案細節
+
+  
+
+行政長官李家超表示，目標本月內公布公營醫療收費調整方案的細節。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm)
+
+---
+
 # 長和及長實不舉行全年業績記者會
 
 ![長和及長實回覆查詢時表示，不會舉行全年業績記者會以及分析員會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796204_2_20250318105756.jpg&q=85)
@@ -43,6 +114,54 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm)
+
+---
+
+# 習近平在貴州黔東南州考察調研
+
+![習近平了解當地加強基層黨組織建設和社會治理、保護傳承民族傳統文化、推進鄉村全面振興等情況。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_1_20250318105507.jpg&q=85)
+  
+
+中共中央總書記、國家主席習近平到貴州考察調研。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm)
+
+---
+
+# 李家超：「一車多關」必須兩地政府協商同意才可執行
+
+![李家超表示，私家車可以利用不同關口過關，當然方便駕駛者，但要確保每個關口的交通運作暢順，一定要通盤考慮。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796202_1_20250318110646.jpg&q=90)
+  
+
+行政長官李家超表示，私家車可以利用不同關口過關，當然方便駕駛者，但要確保每個關口的交通運作暢順，一定要通盤考慮。如果沒有任何管制，某些較為方便的關口很容易有嚴重塞車，並倒灌市區，關口涉及兩地交通，兩地管理部門要完全配合，確保一個地方的交通阻塞，另一個地方的部門可以隨時應對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796202-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796202-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796202-20250318.htm)
 
 ---
 
@@ -91,6 +210,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm)
+
+---
+
+# 李家超：東盟十國特邀人士入境便利計劃今實施　專櫃處理簽證申請
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796196_1_20250318112419.jpg&q=90)
+  
+
+行政長官李家超出席行政會議前宣布，為東盟10國推行的特邀人士入境便利計劃今日實施，以主動邀請為香港經濟發展帶來相當貢獻，或者獲邀來港出席重要活動的東盟人士提供出入境便利，他們會獲得自助通關服務，並透過專櫃一站式處理自助通關和簽證申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm)
 
 ---
 
@@ -1293,150 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796052-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796052-20250317.htm)
-
----
-
-# 分析指內地經濟未全面復蘇　前景仍有隱憂　料續有政策支持
-
-![楊宇霆認同，經濟未全面復蘇，只是部分行業受惠，前景仍有隱憂，因此中央提出要因地制宜發展新質生產力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796049_1_20250317132853.jpg&q=85)
-  
-
-內地今年首兩個月主要經濟數據符合或好於預期，不過2月失業率回升至5.4%，是兩年來最高水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796049-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796049-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796049-20250317.htm)
-
----
-
-# 恒指下午初段升逾1%
-
-![恒生指數較早時報24280點，升320點，升幅1.34%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796047_1_20250317130707.jpg&q=45)
-  
-
-港股下午初段升逾1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796047-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796047-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796047-20250317.htm)
-
----
-
-# 病人組織憂共付收費或令經濟能力不足病人延誤病情
-
-![政府日前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，要市民按項目共付費用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796046_1_20250317133952.jpg&q=80)
-  
-
-政府日前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，要市民按項目共付費用，急症室及住院病人接受有關服務仍維持免費。有醫管局前高層表示，醫生有時會因應臨床需要建議病人做影像檢查，同收費與否無關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm)
-
----
-
-# 丘鈦科技去年盈利升2.4倍　恢復派息
-
-![丘鈦科技去年盈利2.79億元人民幣，按年增長2.4倍。公司恢復派息，派末期息10港仙。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796045_1_20250317130507.jpg&q=80)
-  
-
-丘鈦科技去年盈利2.79億元人民幣，按年增長2.4倍。公司恢復派息，派末期息10港仙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796045-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796045-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796045-20250317.htm)
-
----
-
-# 統計局：CPI溫和上升趨勢不變
-
-![付凌暉說，最新公布的《提振消費專項行動方案》，加力擴圍實施消費品以舊換新，有望帶動消費穩定增長。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796044_2_20250317145539.jpg&q=90)
-![付凌暉表示，CPI溫和上升趨勢不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796044_1_20250317125318.jpg&q=90)
-  
-
-內地上月居民消費價格指數(CPI)按年下降0.7%，扣除春節錯月影響，CPI按年上升0.1%。1月CPI按年升0.5%。今年首兩個月CPI回落0.1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796044-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796044-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796044-20250317.htm)
-
----
-
-# 消委會稱未有專屬條例監管化妝品　冀消費者明白風險或用替代方法
-
-![黃鳳嫺表示，消委會今次檢視的主要目的，是希望為消費者提供整合資訊，令他們明白這些產品的潛在風險。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796040_1_20250317125312.jpg&q=90)
-  
-
-消委會檢視市面超過30款妝前底霜，在20款標榜具防曬效能的樣本中，發現超過八成都含有可能干擾內分泌，以及引起光過敏反應的成分。消委會總幹事黃鳳嫺表示，本港現時未有專屬條例監管化妝品，這類產品是受一般消費者安全條例監管。至於今次檢視的產品有無違反商品說明條例，因消委會今次無對產品進行測試，所以無法得知有關成分的含量多與少，難以作出相關判斷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm)
 
 ---

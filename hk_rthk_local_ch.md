@@ -1,3 +1,99 @@
+# 有校長稱北區元朗屯門吸食太空油毒品年輕人較多或與學生人數有關
+
+![去年吸食太空油毒品的呈報個案，七成半是21歲以下的年輕人，北區、元朗及屯門區的個案相對較多。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796220_1_20250318122930.jpg&q=90)
+  
+
+去年吸食太空油毒品的呈報個案，七成半是21歲以下的年輕人，北區、元朗及屯門區的個案相對較多。屯門區中學校長會主席吳聲展說，或與三區學生人數較多有關，已及早宣傳教育，防止數字上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796220-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796220-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796220-20250318.htm)
+
+---
+
+# 外電指內地監管部門評估長和出售海外港口業務交易
+
+![彭博引述消息人士指，中國有關部門開始評估長和出售海外港口業務的交易。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796218_1_20250318121750.jpg&q=75)
+  
+
+彭博引述消息人士指，中國有關部門開始評估長和出售海外港口業務的交易。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm)
+
+---
+
+# 李家超︰須重視社會對長和擬向美國財團出售巴拿馬運河港口關切
+
+![長和計劃向美國財團出售巴拿馬運河兩端港口等資產。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796219_1_20250318122902.jpg&q=80)
+  
+
+長和計劃向美國財團出售巴拿馬運河兩端港口等資產，行政長官李家超回應指，社會有很多議論，這些關切值得重視。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm)
+
+---
+
+# 立法會換屆選舉12月7日舉行　選委會界別分組補選9月7日進行
+
+![李家超宣布，第8屆立法會選舉將定於12月7日舉行，選出90名議員。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796217_1_20250318122611.jpg&q=80)
+  
+
+行政長官李家超宣布，第8屆立法會選舉將定於12月7日舉行，選出90名議員；而在選舉前會舉行選委會界別分組補選，有關補選定於9月7日進行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796217-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796217-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796217-20250318.htm)
+
+---
+
 # 民建聯歡迎立法會選舉12月7日舉行　冀選出真正愛國愛港人士
 
   
@@ -1341,101 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796032-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796032-20250317.htm)
-
----
-
-# 消委會檢視標榜防曬妝前底霜　逾八成或干擾內分泌及引起光過敏
-
-![消委會在20款標榜具防曬效能的樣本中，發現超過八成都含有可能干擾內分泌，以及引起光過敏反應的成分。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796031_1_20250317123953.jpg&q=90)
-  
-
-消委會檢視市面超過30款妝前底霜，在20款標榜具防曬效能的樣本中，發現超過八成都含有可能干擾內分泌，以及引起光過敏反應的成分。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796031-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796031-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796031-20250317.htm)
-
----
-
-# 調查指非政府機構僱員男女比例相若　近半享有較僱傭條例優厚福利
-
-![非政府機構僱員的男女比例相若，分別為51.1%和48.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796028_1_20250317124211.jpg&q=80)
-  
-
-政府統計處出版《主題性住戶統計調查第81號報告書》，根據2023年12月至去年3月期間，進行的主題性住戶統計調查，非政府機構僱員的男女比例相若，分別為51.1%和48.9%，約八成七在現職有簽訂書面僱傭合約，約四成八享有較《僱傭條例》所規定更優厚的僱傭福利，56.9%享有《僱傭條例》所規定以外的僱傭福利項目。此外，約一成有彈性工作安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm)
-
----
-
-# 周雪梅出任香港駐倫敦經貿辦處長　稱與不同界別合作推廣香港優勢
-
-![周雪梅今日接替羅莘桉出任香港駐倫敦經濟貿易辦事處處長。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796026_1_20250317124148.jpg&q=90)
-  
-
-政府公布，周雪梅今日接替羅莘桉出任香港駐倫敦經濟貿易辦事處處長。作為香港特區政府駐倫敦的代表，周雪梅負責促進香港與英國及其他八個國家的雙邊關係，包括丹麥、愛沙尼亞、芬蘭、拉脫維亞、立陶宛、挪威、俄羅斯和瑞典。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796026-20250317.htm)
-
----
-
-# 67歲男子荃灣失蹤　警籲市民提供消息
-
-![失蹤男子身高約1.67米，瘦身材、尖面型、黃皮膚、禿頭及兩側有短白髮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796022_1_20250317114101.jpg&q=90)
-  
-
-警方呼籲市民提供一名在荃灣失蹤男子的消息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796022-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796022-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796022-20250317.htm)
 
 ---
