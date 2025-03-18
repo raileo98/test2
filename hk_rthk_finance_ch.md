@@ -1,3 +1,26 @@
+# 孫東稱冀與業界促進新來港上市企業與本地大學開展創科合作
+
+  
+
+創新科技及工業局局長孫東出席「香港新型工業發展聯盟」成立典禮。他致辭時說，聯盟的成立正是香港新型工業發展又一個重要的里程碑，熱切期待聯盟未來能積極促進各創科持份者的緊密協作，包括提供融資機會、促進新來港上市企業與本地大學開展創科合作等，推動香港新型工業化的全面發展，讓創新鏈和產業鏈無縫對接。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm)
+
+---
+
 # 李家超有信心香港與東莞優勢互補為建設國際一流灣區作貢獻
 
   
@@ -70,7 +93,6 @@
 
 # 工貿署料調整基金對中小企資助比例及首期撥款可減少問題個案
 
-![丘應樺稱，變動是因應《財政預算案》調整政府支出，但當局會定期審視實際情況。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796265_1_20250318174504.jpg&q=90)
 ![廖廣翔表示，基金秘書處審核申請和確保符合要求後，會再將申請交由跨部門小組審閱，而獲批企業亦須定期繳交報告。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796265_2_20250318175213.jpg&q=90)
   
 
@@ -1415,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm)
-
----
-
-# 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
-
-![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_2_20250317200046.jpg&q=90)
-  
-
-新華社報道，中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬，會見巴拿馬主要政黨領導人，同智庫學者等座談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
 
 ---

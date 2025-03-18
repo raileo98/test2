@@ -1,3 +1,96 @@
+# 孫東稱冀與業界促進新來港上市企業與本地大學開展創科合作
+
+  
+
+創新科技及工業局局長孫東出席「香港新型工業發展聯盟」成立典禮。他致辭時說，聯盟的成立正是香港新型工業發展又一個重要的里程碑，熱切期待聯盟未來能積極促進各創科持份者的緊密協作，包括提供融資機會、促進新來港上市企業與本地大學開展創科合作等，推動香港新型工業化的全面發展，讓創新鏈和產業鏈無縫對接。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm)
+
+---
+
+# 與前妻討論再婚擔心公屋被奪斬傷對方　男子承認意圖傷人候判
+
+![法官認為，案件不受藥物影響，需時考慮，押後至本周五判刑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796280_1_20250318183127.jpg&q=80)
+  
+
+六旬男保安員與妻子離婚三年後討論再婚，保安員怕被前妻搶走公屋單位而拒絕，兩人再次討論再婚時男方勃然大怒，飲紅酒及服用安眠藥後持刀斬妻。男保安員承認一項有意圖而傷人罪，辯方求情時指他多年來遭前妻虐待，是受酒精及藥物影響下無預謀犯案，又認為前妻現時已原諒他，高等法院法官陳慶偉則認為，辯方的想法「太樂觀」，案件不受藥物影響，需時考慮而押後至本周五判刑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796280-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796280-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796280-20250318.htm)
+
+---
+
+# 廉署拘捕十多名銀行前線職員涉助中介公司騙取按揭貸款轉介費
+
+  
+
+廉署拘捕22人，包括18名銀行前線職員，涉嫌協助一間中介公司騙取銀行按揭貸款的轉介費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796270-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796270-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796270-20250318.htm)
+
+---
+
+# 天文台料今年約5至8個熱帶氣旋進入本港500公里範圍
+
+  
+
+天文台預測，今年約有5至8個熱帶氣旋進入本港500公里範圍內，可能在6月或之前踏入風季，10月或之後結束。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796269-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796269-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796269-20250318.htm)
+
+---
+
 # 李家超提出啟德體育園設發言人機制　學者料有助處理互相卸責情況
 
   
@@ -116,6 +209,7 @@
 
 # 李家超：啟德體育園部分安排不理想　要求設恆常會議機制
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796256_1_20250318183501.jpg&q=90)
   
 
 行政長官李家超指，啟德體育園自開園至今的一些安排不理想，他要求在多方面強化機制建設，包括要設立恆常會議機制，文化體育及旅遊局和體育園定期有工作會議；體育園有應急或突發事件機制；有發言人機制，第一時間發放訊息。
@@ -256,7 +350,6 @@
 
 # 工貿署料調整基金對中小企資助比例及首期撥款可減少問題個案
 
-![丘應樺稱，變動是因應《財政預算案》調整政府支出，但當局會定期審視實際情況。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796265_1_20250318174504.jpg&q=90)
 ![廖廣翔表示，基金秘書處審核申請和確保符合要求後，會再將申請交由跨部門小組審閱，而獲批企業亦須定期繳交報告。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796265_2_20250318175213.jpg&q=90)
   
 
