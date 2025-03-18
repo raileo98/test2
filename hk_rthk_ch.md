@@ -1,3 +1,26 @@
+# 地產建設商會對李兆基辭世深感惋惜
+
+  
+
+香港地產建設商會對恒基兆業地產創辦人李兆基辭世深感惋惜，形容他是傑出的商界楷模、香港地產界的翹楚，他的卓越領導，為社會各界、房地產的發展作出了深遠和巨大的貢獻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm)
+
+---
+
 # 小鵬汽車去年虧損收窄44%　料首季交付量按年升逾3倍
 
 ![小鵬汽車預料，首季交付量介乎9.1萬至9.3萬輛，按年升逾3倍。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796282_1_20250318183629.jpg&q=90)
@@ -75,7 +98,7 @@
 ![俄媒稱普京與特朗普本港時間晚上9時至11時會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796285_1_20250318194308.jpg&q=90)
   
 
-俄羅斯傳媒報道，俄羅斯總統新聞秘書佩斯科夫表示，總統普京與美國總統特朗普的會談，將於本港時間晚上9時至11時舉行。雙方將討論俄美關係正常化等議題。
+俄羅斯傳媒報道，俄羅斯總統普京與美國總統特朗普的會談，將於本港時間晚上9時至11時舉行。雙方將討論俄美關係正常化等議題。
 
   
 

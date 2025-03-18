@@ -1,3 +1,26 @@
+# 地產建設商會對李兆基辭世深感惋惜
+
+  
+
+香港地產建設商會對恒基兆業地產創辦人李兆基辭世深感惋惜，形容他是傑出的商界楷模、香港地產界的翹楚，他的卓越領導，為社會各界、房地產的發展作出了深遠和巨大的貢獻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm)
+
+---
+
 # 李家超：香港續發揮「內聯外通」優勢與廣州等大灣區城市優勢互補
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
-
----
-
-# 航空公司：加飛機離境稅削競爭力　政府：對出行開支影響十分輕微
-
-![香港航空（左）、國泰航空（中）和大灣區航空（右）分別表示，擔心調高飛機乘客離境稅會削弱本港競爭力或增加短途旅客出行成本。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796109_1_20250317202740.jpg&q=90)
-  
-
-《財政預算案》提出，今年10月1日起，飛機乘客離境稅由每名乘客120元調升至200元，立法會本周三將首讀及二讀辯論相關修例草案。三間本地航空公司分別表示，擔心削弱本港競爭力或增加短途旅客出行成本，促請政府慎重考慮。據悉，香港航空公司代表協會曾向政府反映對於增加機場離境稅的意見。政府則強調建議的增幅影響十分輕微。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm)
 
 ---

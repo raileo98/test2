@@ -1,3 +1,26 @@
+# 地產建設商會對李兆基辭世深感惋惜
+
+  
+
+香港地產建設商會對恒基兆業地產創辦人李兆基辭世深感惋惜，形容他是傑出的商界楷模、香港地產界的翹楚，他的卓越領導，為社會各界、房地產的發展作出了深遠和巨大的貢獻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm)
+
+---
+
 # 小鵬汽車去年虧損收窄44%　料首季交付量按年升逾3倍
 
 ![小鵬汽車預料，首季交付量介乎9.1萬至9.3萬輛，按年升逾3倍。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796282_1_20250318183629.jpg&q=90)
@@ -1414,30 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm)
-
----
-
-# 李家超對李兆基辭世表示哀悼　讚揚對經濟發展繁榮穩定貢獻良多
-
-![李家超對李兆基辭世表示哀悼。（恒地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796120_1_20250317212350.jpg&q=90)
-![李兆基於2007年獲頒授大紫荊勳章。(恒地提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796120_2_20250317221456.jpg&q=90)
-  
-
-恒基地產宣布，集團創辦人李兆基今日黃昏在家人陪伴下安詳與世長辭，享年97歲。行政長官李家超對李兆基辭世表示哀悼。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm)
 
 ---

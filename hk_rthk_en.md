@@ -1,3 +1,27 @@
+# F1 boss holds talks with Thailand on hosting GP
+
+![Thailand's Buriram track hosted the season-opening MotoGP races. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796287_1_20250318195022.jpg&q=90)
+  
+
+Formula One boss Stefano Domenicali held talks with Thailand's prime minister on Tuesday about possible plans to bring a grand prix to the kingdom.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796287-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796287-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796287-20250318.htm)
+
+---
+
 # Ex-Everbright boss sentenced to 15 years for bribes
 
 ![Li Xiaopeng, pictured in 2018, is sentenced to 15 years for accepting bribes worth more than 60 million yuan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796277_1_20250318181930.jpg&q=90)
@@ -1414,29 +1438,5 @@ Australian sprinting prodigy Gout Gout ran the fastest men's 200m in the world t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795982-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795982-20250317.htm)
-
----
-
-# Cavs win streak halted after Magic comeback
-
-![Orlando's Paolo Banchero led the Magic with 24 points in the road victory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795978_1_20250317061009.jpg&q=90)
-  
-
-Paolo Banchero scored 24 points as the Orlando Magic overturned a 13-point deficit to end the Cleveland Cavaliers' 16-game unbeaten streak with a gutsy 108-103 road victory.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm)
 
 ---

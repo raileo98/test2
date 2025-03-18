@@ -1,3 +1,27 @@
+# F1 boss holds talks with Thailand on hosting GP
+
+![Thailand's Buriram track hosted the season-opening MotoGP races. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796287_1_20250318195022.jpg&q=90)
+  
+
+Formula One boss Stefano Domenicali held talks with Thailand's prime minister on Tuesday about possible plans to bring a grand prix to the kingdom.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796287-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796287-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796287-20250318.htm)
+
+---
+
 # SAR women's rugby squad 'keen to deliver on home soil'
 
 ![The SAR women's rugby squad looks to build on last year's success, when they were runners-up in the Melrose Claymores competition. Photo courtesy of HKCR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796233_4_20250318154756.jpg&q=90)
@@ -1421,30 +1445,5 @@ Virat Kohli produced a trademark innings with a polished 84 as India pulled off 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm)
-
----
-
-# Trump wins opening match at World Snooker Grand Prix
-
-![Trump beat Gary Wilson 4-2 in an all-English affair at Kai Tak Arena. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794234_1_20250304224416.jpg&q=90)
-![The Secretary for Culture, Sports and Tourism, Rosanna Law (middle) officiated at the opening ceremony. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794234_2_20250304224416.jpg&q=90)
-  
-
-World number one Judd Trump made a winning start in Hong Kong, beating Gary Wilson to advance to the last 16 of the World Snooker Grand Prix at Kai Tak Arena.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794234-20250304.htm)
 
 ---
