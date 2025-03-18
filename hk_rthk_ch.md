@@ -1,3 +1,51 @@
+# 世界知識產權組織數據指中國是國際專利申請最大來源國
+
+![世界知識產權組織數據指中國是國際專利申請最大來源國。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796294_1_20250318210928.jpg&q=90)
+  
+
+世界知識產權組織數據顯示，中國是國際專利申請最大來源國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm)
+
+---
+
+# 美國2月進口物價按年升幅高過預期　新屋動工反彈勝預期
+
+![美國2月進口物價按年上升2%，高過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796293_1_20250318205948.jpg&q=90)
+  
+
+美國2月出口物價按月升幅收窄至0.1%，按年上升2.1%；進口物價按月上升0.4%，按年上升2%，高過市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796293-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796293-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796293-20250318.htm)
+
+---
+
 # 回應內地是否評估長和出售資產　外交部建議向主管部門詢問
 
   
@@ -735,12 +783,12 @@
 
 ---
 
-# 聯通去年盈利升逾10%　今年算力投資增速料升至28%
+# 聯通去年多賺逾10%　今年算力投資增速料升至28%
 
 ![聯通去年算力投資按年升19%，預計今年增長加快至28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796252_1_20250318164118.jpg&q=90)
   
 
-中國聯通去年盈利206.1億元，按年升逾10%。末期息每股15.62分人民幣，全年派息40.43分，按年升20%，派息比率提高5個百分點至60%。
+中國聯通去年盈利206.1億元人民幣，按年升逾10%。末期息每股15.62分，全年派息40.43分，按年升20%，派息比率提高5個百分點至60%。
 
   
 

@@ -1,3 +1,27 @@
+# 世界知識產權組織數據指中國是國際專利申請最大來源國
+
+![世界知識產權組織數據指中國是國際專利申請最大來源國。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796294_1_20250318210928.jpg&q=90)
+  
+
+世界知識產權組織數據顯示，中國是國際專利申請最大來源國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm)
+
+---
+
 # 回應內地是否評估長和出售資產　外交部建議向主管部門詢問
 
   
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795863-20250315.htm)
-
----
-
-# 中國成功發射四維高景三號02星
-
-![中國成功發射四維高景三號02星。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795860_1_20250315172109.jpg&q=90)
-  
-
-中國在酒泉衛星發射中心使用長征二號丁運載火箭，成功將四維高景三號02星發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795860-20250315.htm)
 
 ---

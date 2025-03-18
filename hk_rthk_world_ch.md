@@ -1,3 +1,27 @@
+# 世界知識產權組織數據指中國是國際專利申請最大來源國
+
+![世界知識產權組織數據指中國是國際專利申請最大來源國。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796294_1_20250318210928.jpg&q=90)
+  
+
+世界知識產權組織數據顯示，中國是國際專利申請最大來源國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm)
+
+---
+
 # 以色列軍方表示將繼續攻擊哈馬斯在加沙的目標
 
 ![以色列軍方表示將繼續攻擊哈馬斯在加沙的目標。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796291_1_20250318201549.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm)
-
----
-
-# 日本沖繩縣知事反對部署長程導彈
-
-![日本沖繩縣知事玉城丹尼反對部署長程導彈。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795954_1_20250316204834.jpg&q=90)
-  
-
-日本沖繩縣知事玉城丹尼在宜野灣市與內閣官房長官林芳正會面時表示，反對部署將用於反擊能力的長程導彈。他說，今後若計劃將導彈部署在沖繩縣內，可以預見會導致基地負擔增加，並有風險會成為被攻擊對象，得不到縣民的理解。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795954-20250316.htm)
 
 ---
