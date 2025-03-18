@@ -141,30 +141,6 @@
 
 ---
 
-# 建築物能源效益修訂條例草案周五刊憲　加強效益管理減輕財政負擔
-
-![發言人說，今次修訂《條例》的目標是希望能夠達致三贏局面。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796259_1_20250318170123.jpg&q=90)
-  
-
-環境及生態局表示，《2025年建築物能源效益（修訂）條例草案》將在星期五刊憲。《條例草案》旨在加強本港建築物的能源效益管理制度，通過提升建築物能源效益，減少對用電和發電的需求，減少碳排放，減輕因使用更多潔淨燃料發電而對市民所造成的財政負擔，助力香港在2050年前實現碳中和。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796259-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796259-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796259-20250318.htm)
-
----
-
 # 聯通去年盈利升逾10%　今年算力投資增速料升至28%
 
 ![聯通去年算力投資按年升19%，預計今年增長加快至28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796252_1_20250318164118.jpg&q=90)
@@ -1439,5 +1415,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm)
+
+---
+
+# 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
+
+![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_2_20250317200046.jpg&q=90)
+  
+
+新華社報道，中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬，會見巴拿馬主要政黨領導人，同智庫學者等座談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
 
 ---
