@@ -1,3 +1,27 @@
+# 比利時起訴5人涉與華為疑透過說客賄賂歐洲議會議員案件有關
+
+![報道指，華為的說客涉嫌賄賂現任或前任歐洲議會議員，推廣公司在歐洲的商業政策。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796333_1_20250319054420.jpg&q=90)
+  
+
+比利時檢察部門起訴五人，涉嫌與中國電訊設備商華為，懷疑透過說客賄賂歐洲議會議員的案件有關，其中四人被控貪污及參與犯罪組織，另一人被控洗黑錢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796333-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796333-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796333-20250319.htm)
+
+---
+
 # 澤連斯基：支持停襲能源設施　普京提出要求顯示未準備結束戰事
 
 ![澤連斯基強調，烏克蘭支持任何能夠實現穩定及公正和平的提案。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796328_1_20250319044847.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm)
-
----
-
-# 美國多州遭龍捲風等惡劣天氣影響　增至最少40人死亡
-
-![在阿拉巴馬州，民眾到被龍捲風吹襲的房屋了解受損情況。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796064_1_20250317154024.jpg&q=75)
-  
-
-美國多個州遭受龍捲風等惡劣天氣影響，增至最少40人死亡。總統特朗普表示，白宮正在監測一系列龍捲風和風暴天氣，國民警衛隊已部署到阿肯色州，政府亦已準備好協助州和地方官員應對災情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796064-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796064-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796064-20250317.htm)
 
 ---

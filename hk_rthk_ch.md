@@ -1,3 +1,27 @@
+# 比利時起訴5人涉與華為疑透過說客賄賂歐洲議會議員案件有關
+
+![報道指，華為的說客涉嫌賄賂現任或前任歐洲議會議員，推廣公司在歐洲的商業政策。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796333_1_20250319054420.jpg&q=90)
+  
+
+比利時檢察部門起訴五人，涉嫌與中國電訊設備商華為，懷疑透過說客賄賂歐洲議會議員的案件有關，其中四人被控貪污及參與犯罪組織，另一人被控洗黑錢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796333-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796333-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796333-20250319.htm)
+
+---
+
 # 美股向下　道指低收260點　納指挫1.7%
 
 ![美股3大指數跌逾0.6%至近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796330_1_20250319053229.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm)
-
----
-
-# 習近平考察時強調貴州要積極對接粵港澳大灣區
-
-![習近平強調，貴州堅持以高質量發展統攬全局，以進一步全面深化改革開放為動力，在中國式現代化進程中展現新風采。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796262_1_20250318171405.jpg&q=85)
-  
-
-中共中央總書記、國家主席、中央軍委主席習近平在貴州考察時強調，貴州堅持以高質量發展統攬全局，以進一步全面深化改革開放為動力，在中國式現代化進程中展現新風采。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796262-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796262-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796262-20250318.htm)
 
 ---
