@@ -48,10 +48,11 @@
 
 # 滯留國際太空站9個月的兩名美國太空人返抵地球
 
-![滯留國際太空站9個月的兩名美國太空人返抵地球](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796337_1_20250319065439.jpg&q=90)
+![包括威爾莫爾和威廉姆斯在內的4名太空人重返地球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796337_2_20250319074152.jpg&q=80)
+![SpaceX的龍飛船重返地球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796337_3_20250319074152.jpg&q=90)
   
 
-美國太空探索技術公司SpaceX的龍飛船，搭載包括因波音星際客機飛船故障滯留國際太空站的4名太空人，在美國東岸時間星期二傍晚返抵地球，在佛羅里達州附近海域濺落。
+美國太空探索技術公司SpaceX的龍飛船，搭載4太空人，其中兩人因波音星際客機飛船故障滯留國際太空站，在美國東岸時間星期二傍晚返抵地球，在佛羅里達州附近海域濺落。
 
   
 
