@@ -1,3 +1,51 @@
+# 特步去年多賺約20%
+
+![特步去年盈利12.4億元人民幣，按年升20.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796226_1_20250318132451.jpg&q=90)
+  
+
+特步去年盈利12.4億元人民幣，按年升20.2%，創新高。派末期息每股9.5港仙，按年升約19%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796226-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796226-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796226-20250318.htm)
+
+---
+
+# 恒指下午初段升逾400點
+
+![恒指較早時報24558點，升412點，升幅1.71%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796225_1_20250318131349.jpg&q=65)
+  
+
+港股下午初段升逾400點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796225-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796225-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796225-20250318.htm)
+
+---
+
 # 市場料3大央行維持利率不變　未來英倫銀行或更有逼切減息
 
 ![吳卓殷料英倫銀行可能更加有逼切減息，預計今年餘下時間有0.75厘的減息空間。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796224_1_20250318125541.jpg&q=90)
@@ -291,7 +339,7 @@
 ![以軍空襲造成大量傷亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796208_1_20250318114327.jpg&q=85)
   
 
-以色列軍方當地星期二凌晨，向加沙地帶發動自1月19日停火生效以來最大規模的空襲，加沙衛生部門說，空襲已造成至少200人死亡。
+在以色列與哈馬斯就第二階段停火談判停滯之際，以色列軍方當地星期二凌晨，向加沙地帶發動自1月19日停火生效以來最大規模的空襲，加沙衛生部門說，空襲已造成至少200人死亡。路透社引述哈馬斯消息人士表示，死者包括一名高級成員及其家人。
 
   
 
