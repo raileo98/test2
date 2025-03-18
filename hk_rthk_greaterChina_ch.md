@@ -1,3 +1,26 @@
+# 北京：就涉海分歧中韓透過海洋事務對話合作機制保持良好溝通
+
+  
+
+南韓海洋水產部屬下的海洋科學技術院日前派出調查船，試圖調查中方在黄海韓中暫定措施水域內設置的鋼結構構造物時，遭到中國海警和中方人員阻攔。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796255-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796255-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796255-20250318.htm)
+
+---
+
 # 外交部強烈不滿澳洲公然干預香港特區法治
 
 ![毛寧指，對於澳方公然干預香港特區的法治，中方表示強烈不滿和堅決反對。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796253_1_20250318164700.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795823-20250315.htm)
-
----
-
-# 中國駐加使館斥七國集團粗暴干涉中國內政　已提嚴正交涉
-
-![中國駐加拿大使館表示，七國集團外長會議會後聯合聲明，無視客觀事實和中方嚴正立場，中方已向加方提出嚴正交涉。 （中國駐加拿大使館網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795822_1_20250315090144.jpg&q=90)
-  
-
-中國駐加拿大使館批評，七國集團外長會議結束後發布的聯合聲明，再次老調重彈，無視客觀事實和中方嚴正立場，粗暴干涉中國內政，惡意污衊抹黑中國。中方對此強烈不滿、堅決反對，已向加方提出嚴正交涉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795822-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795822-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795822-20250315.htm)
 
 ---
