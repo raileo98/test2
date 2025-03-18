@@ -1,3 +1,27 @@
+# Tech stocks boost Hong Kong stocks in early trading
+
+![The Hang Seng Tech Index climbed over 3 percent shortly after the opening. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796191_1_20250318102346.jpg&q=65)
+  
+
+The Hang Seng Index gained 533.78 points, or 2.21 percent, to open at 24,679.35 on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm)
+
+---
+
 # US stocks rise ahead of Fed meeting
 
 ![Wall Street expects the US central bank is widely expected to keep interest rates unchanged. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796161_1_20250318063244.jpg&q=85)
@@ -1411,29 +1435,5 @@ China's factory activity grew at a faster pace in February, driven by stronger s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793951-20250303.htm)
-
----
-
-# China bubble tea giant soars on HK trading debut
-
-![Mixue has grown into a franchise giant with over 45,000 stores globally. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1793947_1_20250303101108.jpg&q=90)
-  
-
-Shares of China's largest bubble tea and drinks chain Mixue Group jumped nearly 30 percent on their first day of trading on the Hong Kong Stock Exchange on Monday after the firm raised HK$444 million in an initial public offering (IPO).
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm](https://news.rthk.hk/rthk/en/component/k2/1793947-20250303.htm)
 
 ---

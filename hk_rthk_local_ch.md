@@ -1,3 +1,69 @@
+# 吳聲展稱要發現太空油吸食者主要非靠檢測而要教師觀察同學關心
+
+  
+
+當局指出，去年有300人被呈報吸食太空油毒品，當中七成半是21歲以下，其中北區、元朗及屯門有較多個案。屯門區中學校長會主席吳聲展在本台節目《千禧年代》表示，在三個地區的個案相對多，或與學生人數較多有關，教育界希望數字不要上升，已及早作出宣傳，而「健康校園計劃」亦有提供自願測檢及身心健康輔導，有一半學校參與，當中大埔區超過九成，屯門區就有逾八成半。他認為要發現吸食者，主要並非靠檢測，而是要由教師觀察及同學們關心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796199-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796199-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796199-20250318.htm)
+
+---
+
+# 李家超要求啟德體育園管理層設應急機制　恒常向文體旅局匯報運作
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm)
+
+---
+
+# 李家超：東盟十國特邀人士入境便利計劃今實施　專櫃處理簽證申請
+
+  
+
+行政長官李家超出席行政會議前宣布，為東盟10國推行的特邀人士入境便利計劃今日實施，以主動邀請為香港經濟發展帶來相當貢獻，或者獲邀來港出席重要活動的東盟人士提供出入境便利，他們會獲得自助通關服務，並透過專櫃一站式處理自助通關和簽證申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm)
+
+---
+
 # 消息指警方國安處帶走鍾翰林後父協助調查
 
   
@@ -23,7 +89,7 @@
 
 # 長和擬售巴拿馬港口　李家超：社會關切值得重視反對外國施壓脅迫
 
-![長和計劃出售巴拿馬港口，李家超表示，社會關切值得重視反對外國施壓脅迫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796193_1_20250318100559.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796193_1_20250318101513.jpg&q=75)
   
 
 港澳辦日前兩次轉載評論文章，談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。
@@ -47,7 +113,7 @@
 
 # 李家超宣布12月7日舉行第八屆立法會選舉
 
-![李家超宣布12月7日舉行第八屆立法會選舉。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796189_1_20250318095240.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796189_1_20250318095240.jpg&q=90)
   
 
 行政長官李家超宣布，第8屆立法會選舉將定於12月7日舉行，選出90名議員；而在選舉前會舉行選委會界別分組補選，有關補選定於9月7日進行。
@@ -1366,77 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796003-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796003-20250317.htm)
-
----
-
-# 病人組織指共付費用市民支付金額偏高　病人或選擇不進行某些檢查
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796001_2_20250317112115.jpg&q=90)
-  
-
-政府早前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，由市民按項目共付費用。香港病人政策連線主席林志釉擔心，在共付原則下，市民要支付的金額比例仍然偏高，例如磁力共振，可能病人最終都要負擔過千元才能做到檢查，對一些未符合豁免收費資格、但經濟能力不足的病人來說，可能真的會因此而不進行某些檢查，以致延誤病情，又或者有病人寧願轉去急症室求診，以減少收費支出。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796001-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796001-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796001-20250317.htm)
-
----
-
-# 陸志聰贊成急症病例維持影像檢查免費　整體考慮醫療服務可持續性
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795994_2_20250317095708.jpg&q=80)
-  
-
-消息指，政府最快於本月內交代公營醫療收費調整方案。政府日前表示，正考慮電腦掃描及磁力共振等複雜的影像檢查，要市民按項目共付費用，急症室及住院病人接受有關服務仍維持免費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795994-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795994-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795994-20250317.htm)
-
----
-
-# 亞洲電影大獎劉青雲獲最佳男主角獎　九龍城寨之圍城獲最佳美指獎
-
-![劉青雲憑《爸爸》收獲最佳男主角獎。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795970_1_20250317020721.jpg&q=90)
-  
-
-第18屆亞洲電影大獎在香港西九文化區戲曲中心舉行頒獎典禮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795970-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795970-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795970-20250317.htm)
 
 ---

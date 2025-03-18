@@ -1,3 +1,27 @@
+# 以軍大規模空襲加沙據報至少100人死亡　哈馬斯譴責
+
+![空襲中的傷者送去醫院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796197_1_20250318103104.jpg&q=80)
+  
+
+以色列軍方當地期二凌晨，向加沙地帶發動自1月19日停火生效以來最大規模的空襲，加沙衛生部門說，空襲已造成至少100人死亡。巴勒斯坦通訊社報道說，死者中包括婦女和兒童，由於以色列空襲仍在進行，救援人員難以抵達現場展開急救工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796197-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796197-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796197-20250318.htm)
+
+---
+
 # 以軍大規模襲擊加沙據報造成數十人死亡
 
 ![空襲造成大量傷亡，圖為救護車把傷者送院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796188_1_20250318094229.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795925-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795925-20250316.htm)
-
----
-
-# 美國廣泛地區遭受龍捲風等惡劣天氣影響　逾30人喪生
-
-![美國多個州遭受多股龍捲風和猛烈暴風雨吹襲，造成多人傷亡，圖為密蘇里州一間房屋受龍捲風破壞的情況。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795915_1_20250316114534.jpg&q=55)
-  
-
-美國中部和南部廣泛地區受惡劣天氣影響，包括遭受多股龍捲風和猛烈暴風雨吹襲，造成超過30人死亡，數十人受傷。密西西比、佐治亞等多個州進入緊急狀態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm)
 
 ---

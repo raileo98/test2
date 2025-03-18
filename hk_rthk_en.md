@@ -1,9 +1,33 @@
+# Tech stocks boost Hong Kong stocks in early trading
+
+![The Hang Seng Tech Index climbed over 3 percent shortly after the opening. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796191_1_20250318102346.jpg&q=65)
+  
+
+The Hang Seng Index gained 533.78 points, or 2.21 percent, to open at 24,679.35 on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm)
+
+---
+
 # Israel launches new strikes against Hamas
 
 ![Israeli Prime Minister Benjamin Netanyahu said he instructed the military to take "strong action" against Hamas. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796187_1_20250318093845.jpg&q=90)
   
 
-Israel launched new strikes against Hamas and promised ‘increasing military force’ after talks on further hostage releases stalled.
+Israel launched new strikes against Hamas on Tuesday and promised ‘increasing military force’ after talks on further hostage releases stalled.
 
   
 
@@ -1415,29 +1439,5 @@ US Secretary of State Marco Rubio and Russia's Foreign Minister Sergei Lavrov sp
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm)
-
----
-
-# US launches large-scale strikes against Yemeni Houthis
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795905_1_20250316083448.jpg&q=90)
-  
-
-At least 19 were killed as US President Donald Trump launched large-scale military strikes against Yemen's Iran-aligned Houthis on Saturday over the group's attacks against Red Sea shipping, warning "hell will rain down" on them if they do not stop.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm)
 
 ---

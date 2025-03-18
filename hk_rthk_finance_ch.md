@@ -1,3 +1,71 @@
+# 李家超要求啟德體育園管理層設應急機制　恒常向文體旅局匯報運作
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm)
+
+---
+
+# 恒指升幅收窄至逾300點　恒地系個別發展
+
+![恒指較早時報24492點，升346點，升幅1.44%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796195_1_20250318102229.jpg&q=40)
+  
+
+港股連升3日，恒指裂口高開逾500點，並升穿年內高位，其後升幅收窄，恒指較早時報24492點，升346點，升幅1.44%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796195-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796195-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796195-20250318.htm)
+
+---
+
+# 長和擬售巴拿馬港口　李家超：社會關切值得重視反對外國施壓脅迫
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796193_1_20250318101513.jpg&q=75)
+  
+
+港澳辦日前兩次轉載評論文章，談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm)
+
+---
+
 # 滬深股市初段靠穩
 
 ![上證指數較早時報3431點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796186_1_20250318093417.jpg&q=85)
@@ -358,6 +426,127 @@
 
 ---
 
+# 特朗普：習近平不久將來會訪問美國
+
+![特朗普表示，中國國家主席習近平在不久的將來會訪問美國。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796150_1_20250318051823.jpg&q=90)
+  
+
+美國總統特朗普表示，中國國家主席習近平在不久的將來會訪問美國，但沒有透露詳情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm)
+
+---
+
+# 卡尼訪問法國和英國　強調會盡可能與美國保持積極關係
+
+![卡尼在唐寧街10號與英國首相施紀賢會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796148_1_20250318042915.jpg&q=85)
+![卡尼較早時亦到白金漢宮拜會加拿大國家元首、英王查理斯三世。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796148_2_20250318042915.jpg&q=90)
+  
+
+加拿大新總理卡尼到訪巴黎及倫敦，是他上任後首度外訪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm)
+
+---
+
+# 丁薛祥晤英國能源大臣　願深化金融、貿易、綠色等領域合作
+
+![丁薛祥在北京與文立彬會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796140_1_20250318001047.jpg&q=90)
+  
+
+中共中央政治局常委、國務院副總理丁薛祥在北京與英國能源安全和淨零排放大臣文立彬會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm)
+
+---
+
+# 蔡若蓮感謝李兆基令無數學生受惠　麥美娟感謝捐地建青年宿舍
+
+![李兆基基金向保良局捐贈元朗地皮，由政府全數資助興建大規模青年宿舍「保良局李兆基青年綠洲」，圖為青年綠洲正式開幕儀式。（恒基圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796139_1_20250318001358.jpg&q=85)
+  
+
+恒基地產創辦人李兆基在離世，享年97歲。特區政府多名司局長表示哀悼，並對他家人致以深切慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm)
+
+---
+
+# 陳茂波：李兆基的仁愛與溫情會繼續照亮社會
+
+![陳茂波表示，驚悉李兆基博士離世，心裡無比沉重。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796136_2_20250317235316.jpg&q=80)
+  
+
+財政司司長陳茂波表示，驚悉李兆基博士離世，心裡無比沉重，向他的家人致以最深切的慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm)
+
+---
+
 # 香港結算：繼續與相關監管機構合作協助剔除新股重複認購
 
 ![港交所旗下香港結算發出通告，表示繼續與相關監管機構合作，審視FINI相關運作流程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796134_1_20250317230629.jpg&q=90)
@@ -403,6 +592,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm)
+
+---
+
+# 恒基創辦人李兆基離世享年97歲　歷年捐款數以十億元計
+
+![恒基兆業地產發出訃告，宣佈集團創辦人李兆基於今天黃昏 ，在家人陪伴下安詳與世長辭，享年97歲。（恒地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796124_2_20250317213019.jpg&q=90)
+  
+
+恒基兆業地產發出訃告，宣布集團創辦人李兆基於今天黃昏 在家人陪伴下安詳與世長辭，享年97歲。出殯儀式的舉行日期，有待家族安排妥當後，將會另行公布。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm)
 
 ---
 
@@ -1221,221 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm)
-
----
-
-# 強積金對沖5月取消　鄧家彪籲僱主勿因擔心增加負擔而解僱員工
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796033_1_20250317125239.jpg&q=90)
-  
-
-強積金對沖安排將於5月1日起取消，工聯會立法會議員鄧家彪呼籲僱主不要因為擔心負擔增加而解僱員工，新安排下不設追溯期，如果僱主趕在5月1日前解僱員工，可能要給予的遣散費會更多，同時亦未必可以即時聘請到新人填補空缺。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796033-20250317.htm)
-
----
-
-# 內地首兩個月主要經濟數據符合或好過市場預期
-
-![內地今年首兩個月主要經濟數據符合或好於市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796030_2_20250317123810.jpg&q=90)
-  
-
-內地今年首兩個月主要經濟數據符合或好於市場預期，新建商品房銷售按年跌幅亦顯著收窄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796030-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796030-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796030-20250317.htm)
-
----
-
-# 恒指半日升316點　成交逾1400億元　港交所升逾4%
-
-![恒指企半日收市報24276點，升316點，升1.32%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796029_1_20250317120836.jpg&q=65)
-  
-
-港股反覆造好，恒指企穩24000點以上，今早高位觸及24352點，升近400點，半日收市報24276點，升316點，升1.32%，半日主板成交額近1418億元
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796029-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796029-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796029-20250317.htm)
-
----
-
-# 調查指非政府機構僱員男女比例相若　近半享有較僱傭條例優厚福利
-
-![非政府機構僱員的男女比例相若，分別為51.1%和48.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796028_1_20250317124211.jpg&q=80)
-  
-
-政府統計處出版《主題性住戶統計調查第81號報告書》，根據2023年12月至去年3月期間，進行的主題性住戶統計調查，非政府機構僱員的男女比例相若，分別為51.1%和48.9%，約八成七在現職有簽訂書面僱傭合約，約四成八享有較《僱傭條例》所規定更優厚的僱傭福利，56.9%享有《僱傭條例》所規定以外的僱傭福利項目。此外，約一成有彈性工作安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796028-20250317.htm)
-
----
-
-# 滬股半日升約0.3%　創業板跌0.5%
-
-![內地股市3大指數個別發展，上證指數半日報3429點，升9點，升幅0.28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796024_1_20250317113538.jpg&q=90)
-  
-
-內地股市3大指數個別發展，油氣、乳業、房地產、汽車零部件等股份上升，有色金屬、證券、人工智能相關股份下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796024-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796024-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796024-20250317.htm)
-
----
-
-# 世界互聯網大會亞太峰會下月港舉行　孫東稱體現香港創科合作樞紐
-
-![孫東指現時香港正全力打造國際創新科技中心，形容對未來創科產業的發展已進入快車道，人工智能、數據、機械人等被列入重點發展範疇。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796020_2_20250317142226.jpg&q=90)
-  
-
-世界互聯網大會亞太峰會，將於4月14至15日首度在香港舉行，創新科技及工業局局長孫東早上在北京出席新聞發布會。他表示大會選址香港作為2025年亞太峰會的主辦城市，正好體現香港是環球創科合作的樞紐，外界傳統上認為香港是金融中心、貿易中心、航運中心，現時香港正全力打造國際創新科技中心，形容對未來創科產業的發展已進入快車道，人工智能、數據、機械人等被列入重點發展範疇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm)
-
----
-
-# 國家統計局：實現5%左右經濟增長目標絕非輕而易舉
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796016_1_20250317145323.jpg&q=90)
-  
-
-國家統計局新聞發言人、國民經濟綜合統計司司長付凌暉表示，隨著更加積極的財政政策和適度寬鬆的貨幣政策逐步落地，政策協同效應不斷增強。首兩個月生產供應穩定增長，市場需求逐步擴大，就業形勢保持總體穩定，發展新動能逐步壯大。他形容，今年經濟運行起步平穩，發展趨勢「向新向好」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm)
-
----
-
-# 新加坡2月出口按年增長7.6%遜預期
-
-![新加坡2月非石油的國內出口按年增長7.6%，差過市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796013_1_20250317104140.jpg&q=85)
-  
-
-新加坡2月非石油的國內出口按年增長7.6%，差過市場預期的增長8.7%，1月則下跌2.1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796013-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796013-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796013-20250317.htm)
-
----
-
-# 日股半日升逾400點
-
-![日經指數報37475點，升422點，升1.14%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796012_1_20250317103756.jpg&q=90)
-  
-
-東京股市半日升逾400點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796012-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796012-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796012-20250317.htm)
 
 ---

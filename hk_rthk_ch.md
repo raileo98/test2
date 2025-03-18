@@ -1,3 +1,117 @@
+# 吳聲展稱要發現太空油吸食者主要非靠檢測而要教師觀察同學關心
+
+  
+
+當局指出，去年有300人被呈報吸食太空油毒品，當中七成半是21歲以下，其中北區、元朗及屯門有較多個案。屯門區中學校長會主席吳聲展在本台節目《千禧年代》表示，在三個地區的個案相對多，或與學生人數較多有關，教育界希望數字不要上升，已及早作出宣傳，而「健康校園計劃」亦有提供自願測檢及身心健康輔導，有一半學校參與，當中大埔區超過九成，屯門區就有逾八成半。他認為要發現吸食者，主要並非靠檢測，而是要由教師觀察及同學們關心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796199-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796199-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796199-20250318.htm)
+
+---
+
+# 李家超要求啟德體育園管理層設應急機制　恒常向文體旅局匯報運作
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm)
+
+---
+
+# 以軍大規模空襲加沙據報至少100人死亡　哈馬斯譴責
+
+![空襲中的傷者送去醫院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796197_1_20250318103104.jpg&q=80)
+  
+
+以色列軍方當地期二凌晨，向加沙地帶發動自1月19日停火生效以來最大規模的空襲，加沙衛生部門說，空襲已造成至少100人死亡。巴勒斯坦通訊社報道說，死者中包括婦女和兒童，由於以色列空襲仍在進行，救援人員難以抵達現場展開急救工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796197-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796197-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796197-20250318.htm)
+
+---
+
+# 李家超：東盟十國特邀人士入境便利計劃今實施　專櫃處理簽證申請
+
+  
+
+行政長官李家超出席行政會議前宣布，為東盟10國推行的特邀人士入境便利計劃今日實施，以主動邀請為香港經濟發展帶來相當貢獻，或者獲邀來港出席重要活動的東盟人士提供出入境便利，他們會獲得自助通關服務，並透過專櫃一站式處理自助通關和簽證申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm)
+
+---
+
+# 恒指升幅收窄至逾300點　恒地系個別發展
+
+![恒指較早時報24492點，升346點，升幅1.44%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796195_1_20250318102229.jpg&q=40)
+  
+
+港股連升3日，恒指裂口高開逾500點，並升穿年內高位，其後升幅收窄，恒指較早時報24492點，升346點，升幅1.44%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796195-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796195-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796195-20250318.htm)
+
+---
+
 # 消息指警方國安處帶走鍾翰林後父協助調查
 
   
@@ -23,7 +137,7 @@
 
 # 長和擬售巴拿馬港口　李家超：社會關切值得重視反對外國施壓脅迫
 
-![長和計劃出售巴拿馬港口，李家超表示，社會關切值得重視反對外國施壓脅迫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796193_1_20250318100559.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796193_1_20250318101513.jpg&q=75)
   
 
 港澳辦日前兩次轉載評論文章，談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。
@@ -47,7 +161,7 @@
 
 # 李家超宣布12月7日舉行第八屆立法會選舉
 
-![李家超宣布12月7日舉行第八屆立法會選舉。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796189_1_20250318095240.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796189_1_20250318095240.jpg&q=90)
   
 
 行政長官李家超宣布，第8屆立法會選舉將定於12月7日舉行，選出90名議員；而在選舉前會舉行選委會界別分組補選，有關補選定於9月7日進行。
@@ -1318,126 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm)
-
----
-
-# 北馬其頓夜總會大火導致59死　20人懷疑涉案被捕
-
-![北馬其頓一間夜總會發生大火，導致59死逾150人受傷。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796123_1_20250317211005.jpg&q=75)
-  
-
-歐洲巴爾幹半島國家北馬其頓一間夜總會導致59人死亡的大火，全國今日起為遇難者哀悼7日。當局至今拘捕20名懷疑涉案人士，包括夜總會經理和政府官員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796123-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796123-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796123-20250317.htm)
-
----
-
-# 美俄領袖將通話　歐盟外交官員質疑莫斯科不真正希望和平
-
-![卡拉斯質疑俄羅斯是否希望和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796121_1_20250317212204.jpg&q=90)
-  
-
-美國總統特朗普表示，他計劃周二與俄羅斯總統普京通話，討論結束俄烏戰爭。俄羅斯亦說，通話會談正在籌備中。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796121-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796121-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796121-20250317.htm)
-
----
-
-# 李家超對李兆基辭世表示哀悼　讚揚對經濟發展繁榮穩定貢獻良多
-
-![李家超對李兆基辭世表示哀悼。（恒地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796120_1_20250317212350.jpg&q=90)
-![李兆基於2007年獲頒授大紫荊勳章。(恒地提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796120_2_20250317221456.jpg&q=90)
-  
-
-恒基地產宣布，集團創辦人李兆基今日黃昏在家人陪伴下安詳與世長辭，享年97歲。行政長官李家超對李兆基辭世表示哀悼。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm)
-
----
-
-# 美國2月零售銷售按月反彈0.2%仍遜預期
-
-![美國2月零售銷售按月反彈0.2%，但升幅小過預期；核心銷售反彈1%，升幅大過預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796119_1_20250317204720.jpg&q=85)
-  
-
-美國2月零售銷售按月反彈0.2%，但升幅小過預期；扣除汽車的零售銷售按月上升0.3%，符合市場預期。扣除汽車、汽油、建築材料及食品服務的核心銷售反彈1%，升幅大過預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796119-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796119-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796119-20250317.htm)
-
----
-
-# 廉署控海關前高級關員涉虛假陳述申請外間工作獲取逾十萬元
-
-![廉署控海關前高級關員涉虛假陳述申請外間工作獲取逾十萬元](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796116_1_20250317203746.jpg&q=80)
-  
-
-廉政公署落案起訴一名海關時任高級關員，控告她涉嫌於申請從事有薪外間工作時，以載有虛假陳述的申請表格誤導海關，聲稱自己過往一年沒有從事任何外間工作。她獲廉署准予保釋，星期三在東區裁判法院答辯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796116-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796116-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796116-20250317.htm)
 
 ---
