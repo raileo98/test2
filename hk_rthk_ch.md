@@ -1,3 +1,26 @@
+# 李家超：香港續發揮「內聯外通」優勢與廣州等大灣區城市優勢互補
+
+  
+
+行政長官李家超表示，香港會繼續發揮「內聯外通」的優勢，積極對接國家戰略，與廣州等大灣區城市優勢互補，共同推進高質量發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm)
+
+---
+
 # 聯通：AI是集團從通信運營公司轉型升級科技服務公司重要引擎
 
 ![聯通稱將持之以恒做好提質增效，堅持開源節流並重。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796283_1_20250318190721.jpg&q=90)

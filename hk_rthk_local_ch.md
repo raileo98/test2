@@ -1,3 +1,26 @@
+# 李家超：香港續發揮「內聯外通」優勢與廣州等大灣區城市優勢互補
+
+  
+
+行政長官李家超表示，香港會繼續發揮「內聯外通」的優勢，積極對接國家戰略，與廣州等大灣區城市優勢互補，共同推進高質量發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm)
+
+---
+
 # 孫東稱冀與業界促進新來港上市企業與本地大學開展創科合作
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm)
-
----
-
-# 火炭謀殺案被捕父子有黑幫背景涉策劃案件　警方追緝刀手
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796108_1_20250317201503.jpg&q=80)
-  
-
-警方拘捕2男1女涉及火炭昨日的謀殺案，包括一對涉嫌策劃謀殺、有黑社會背景的父子，警方正追緝刀手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796108-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796108-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796108-20250317.htm)
 
 ---
