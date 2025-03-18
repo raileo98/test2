@@ -1,3 +1,27 @@
+# 5 more get gastroenteritis after school exchange tour
+
+![The Centre for Health Protection says two of the five pupils have sought medical attention but none needed hospitalisation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796303_1_20250318222333.jpg&q=90)
+  
+
+Five primary school pupils who took part in an exchange tour on the mainland have fallen ill with gastroenteritis, adding to a string of similar cases in the past few weeks.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796303-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796303-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796303-20250318.htm)
+
+---
+
 # 'Funding cut won't affect non-local student tuition'
 
 ![Education chief Christine Choi says non-local students' tuition fee adjustments are not linked with the income of a university. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796300_1_20250318215610.jpg&q=80)
@@ -1414,29 +1438,5 @@ A pair of US astronauts stuck for more than nine months on the International Spa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm)
-
----
-
-# UK finance minister to unveil plan to cut red tape
-
-![Regulators will be summoned to Downing Street to hear Rachel Reeves' action plan to cut the administrative cost of regulation on business. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795990_1_20250317085014.jpg&q=90)
-  
-
-The UK's Labour government will on Monday set out details of how it plans to slash red tape to boost business, as it struggles to deliver growth nine months after winning power.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm)
 
 ---

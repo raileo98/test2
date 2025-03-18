@@ -1,3 +1,27 @@
+# 王毅就北馬其頓日前一場火災造成重大傷亡向當地官員致慰問電
+
+![王毅對遇難者表示深切哀悼，向遇難者家屬致以誠摯慰問。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796302_1_20250318222358.jpg&q=85)
+  
+
+中共中央政治局委員、外交部長王毅就北馬其頓火災造成人員傷亡，向北馬其頓外交和對外貿易部長穆聰斯基致慰問電。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796302-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796302-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796302-20250318.htm)
+
+---
+
 # 世界知識產權組織數據指中國是國際專利申請最大來源國
 
 ![世界知識產權組織數據指中國是國際專利申請最大來源國。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796294_1_20250318210928.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795964-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795964-20250317.htm)
-
----
-
-# 何立峰會見美國前財長保爾森
-
-![何立峰在北京會見美國前財長保爾森。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795963_1_20250316223000.jpg&q=90)
-  
-
-在北京，中共中央政治局委員、中央財辦主任何立峰會見美國前財政部長保爾森，雙方就中美經貿關係、全球經濟等交換看法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm)
 
 ---

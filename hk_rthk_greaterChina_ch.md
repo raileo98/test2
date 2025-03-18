@@ -1,3 +1,27 @@
+# 王毅就北馬其頓日前一場火災造成重大傷亡向當地官員致慰問電
+
+![王毅對遇難者表示深切哀悼，向遇難者家屬致以誠摯慰問。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796302_1_20250318222358.jpg&q=85)
+  
+
+中共中央政治局委員、外交部長王毅就北馬其頓火災造成人員傷亡，向北馬其頓外交和對外貿易部長穆聰斯基致慰問電。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796302-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796302-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796302-20250318.htm)
+
+---
+
 # 被問是否調查長和出售港口　外交部稱中方反對霸凌損害他國權益
 
 ![毛寧被重申中方堅決反對經濟脅迫、霸凌等損害他國權益。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796298_1_20250318222759.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795871-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795871-20250315.htm)
-
----
-
-# 李慧琼：政府可考慮高層次統籌「深化國際交往合作」策略
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795867_1_20250315182615.jpg&q=85)
-  
-
-國務院總理李強發表的政府工作報告，港澳篇幅提出「深化國際交往合作」，全國人大常委李慧琼認為，特區政府可以考慮高層次統籌「深化國際交往合作」策略，推動民間一齊參與。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795867-20250315.htm)
 
 ---

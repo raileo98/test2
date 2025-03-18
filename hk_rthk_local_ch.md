@@ -1,5 +1,29 @@
+# 機場三跑項目分判商「工頭」向工人收賄約70萬判囚2年
+
+  
+
+機場三跑項目分判商有「工頭」因向多名工人收受賄款共約70萬元，遭廉署起訴。其中一名50歲「工頭」在區域法院判監2年，屬同類案件最高刑期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796304-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796304-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796304-20250318.htm)
+
+---
+
 # 教育局要求內地交流團承辦機構暫停供應生冷食品燒味及貝類海鮮
 
+![教育局表明，已要求承辦學生內地交流計劃的承辦機構暫停供應生冷食品、燒味及貝類海鮮等食物。(「薪火相傳」國民教育活動系列網頁截圖 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796301_1_20250318223416.jpg&q=90)
   
 
 接連有學校參加內地交流團時爆發急性腸胃炎，根據教育局轄下「薪火相傳」國民教育活動系列網站，教育局表明，已要求承辦學生內地交流計劃的承辦機構暫停供應生冷食品、燒味及貝類海鮮等食物。當局亦提醒，學校舉行學生內地交流活動時，應避免提供有關高危食物。
@@ -1413,30 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm)
-
----
-
-# 李家超對李兆基辭世表示哀悼　讚揚對經濟發展繁榮穩定貢獻良多
-
-![李家超對李兆基辭世表示哀悼。（恒地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796120_1_20250317212350.jpg&q=90)
-![李兆基於2007年獲頒授大紫荊勳章。(恒地提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796120_2_20250317221456.jpg&q=90)
-  
-
-恒基地產宣布，集團創辦人李兆基今日黃昏在家人陪伴下安詳與世長辭，享年97歲。行政長官李家超對李兆基辭世表示哀悼。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm)
 
 ---
