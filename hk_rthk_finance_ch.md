@@ -1,3 +1,27 @@
+# 滬深股市半日靠穩
+
+![上證指數半日收報3429點，升3點，升幅0.09%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796207_1_20250318114054.jpg&q=90)
+  
+
+滬深股市靠穩。有色金屬、醫療股上升，遊戲、農業、白酒股下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796207-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796207-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796207-20250318.htm)
+
+---
+
 # 長和及長實不舉行全年業績記者會
 
 ![長和及長實回覆查詢時表示，不會舉行全年業績記者會以及分析員會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796204_2_20250318105756.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm)
-
----
-
-# 中國鐵塔去年盈利升約10%　EBITDA升近5%
-
-![中國鐵塔去年盈利107.3億元人民幣，按年增長約10%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796039_1_20250317123354.jpg&q=90)
-  
-
-中國鐵塔去年盈利107.3億元人民幣，按年增長約10%。派末期息每股30.796分，以股份合併及削減股本後計，按年減少近18%。全年股息合計每股41.696分，按年增長11.5%，派息比率76%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796039-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796039-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796039-20250317.htm)
 
 ---

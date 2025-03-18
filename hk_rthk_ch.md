@@ -1,3 +1,27 @@
+# 滬深股市半日靠穩
+
+![上證指數半日收報3429點，升3點，升幅0.09%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796207_1_20250318114054.jpg&q=90)
+  
+
+滬深股市靠穩。有色金屬、醫療股上升，遊戲、農業、白酒股下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796207-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796207-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796207-20250318.htm)
+
+---
+
 # 李家超稱目標本月內公布公營醫療收費調整方案細節
 
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm)
-
----
-
-# 再有參加內地團學生腸胃炎　教育局要求承辦機構停用相關用餐地點
-
-![教育局表示，為安全起見，已要求承辦機構停用相關用餐地點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796132_1_20250317231354.jpg&q=90)
-  
-
-再有中學訪問內地交流團的學生患上急性腸胃炎，藍田五邑司徒浩中學36名師生上周參加交流團到廈門，期間6名學生陸續出現急性腸胃炎病徵。衞生防護中心初步調查顯示，6名受影響人士除團餐外，並未有進食其他共同食物。教育局表示，現時所有參加者均已返港，不適的學生回港後已逐漸康復，未有痾嘔，亦未有出現新個案。為安全起見，已要求承辦機構停用相關用餐地點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm)
 
 ---
