@@ -311,7 +311,7 @@
 
 # 特朗普期待與普京通話　稱烏克蘭問題最終協議很多內容已達成共識
 
-![特朗普表示，期待今日稍後與俄羅斯總統普京通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796163_1_20250318064615.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796163_1_20250318064615.jpg&q=90)
   
 
 美國總統特朗普表示，期待今日稍後與俄羅斯總統普京通話，指出烏克蘭問題最終協議的很多內容已達成共識，但仍有很多未完成。
