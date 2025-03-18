@@ -1,8 +1,99 @@
-# 18名銀行前線職員涉嫌詐騙銀行貸款轉介費被廉署拘捕
+# 最新失業率3.2%微升0.1個百分點
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm)
+
+---
+
+# 美商務部據報禁DeepSeek　外交部：反對泛化國家安全概念
 
   
 
-廉署拘捕22人包括18名銀行前線職員，涉嫌詐騙銀行貸款的轉介費，觸犯行賄、受賄、洗黑錢和串謀詐騙罪，被捕人士分別來自10間本地銀行，其中一人被捕時已離職，
+對於有報道指，美國商務部各部門最近通知工作人員，中國人工智能模型深度求索(DeepSeek)已被禁止在政府設備上使用，在北京，外交部發言人毛寧回應，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化，中方也將堅定維護中國企業的合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm)
+
+---
+
+# 口岸爆炸案控方專家繼續講解電路板操作技術事宜
+
+![口岸爆炸案高等法院踏入第71天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796248_1_20250318162942.jpg&q=80)
+  
+
+8名男女涉及2020年初口岸爆炸案，高等法院踏入第71天審訊。控方電子裝置專家、時任署理總督察盧永楷繼續作供，控方重提屬於被告張家俊的電腦中擷取的3D打印設計圖，曾經出現在應用手機程式通訊群組用戶，與另一被告李嘉濱的對話中，同樣草圖亦被發送到涉案群組內。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796248-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796248-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796248-20250318.htm)
+
+---
+
+# 潤啤：國家政策不斷落地增強未來消費信心
+
+  
+
+華潤啤酒主席侯孝海表示，按今年首兩個月情況，預期全年形勢較樂觀，因為國家政策不斷落地，消費市場出現明顯回升跡象，大大增強未來消費信心，形容基本面已明顯好轉，如果今年天氣情況不太差，今年業務表現將較去年好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm)
+
+---
+
+# 18名銀行前線職員涉嫌詐騙銀行貸款轉介費被廉署拘捕
+
+![陳徳輝表示，相關銀行職員安排客戶簽署貸款文件時，偷偷地將轉介申請表格混入文件，並騙取客戶簽名。（彭冠中攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796243_1_20250318161624.jpg&q=90)
+  
+
+廉署拘捕22人包括18名銀行前線職員，涉嫌詐騙銀行貸款的轉介費，觸犯行賄、受賄、洗黑錢和串謀詐騙罪，被捕人士分別來自10間本地銀行，其中一人被捕時已離職。
 
   
 

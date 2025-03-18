@@ -1,8 +1,53 @@
-# 18名銀行前線職員涉嫌詐騙銀行貸款轉介費被廉署拘捕
+# 最新失業率3.2%微升0.1個百分點
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm)
+
+---
+
+# 口岸爆炸案控方專家繼續講解電路板操作技術事宜
+
+![口岸爆炸案高等法院踏入第71天審訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796248_1_20250318162942.jpg&q=80)
+  
+
+8名男女涉及2020年初口岸爆炸案，高等法院踏入第71天審訊。控方電子裝置專家、時任署理總督察盧永楷繼續作供，控方重提屬於被告張家俊的電腦中擷取的3D打印設計圖，曾經出現在應用手機程式通訊群組用戶，與另一被告李嘉濱的對話中，同樣草圖亦被發送到涉案群組內。
 
   
 
-廉署拘捕22人包括18名銀行前線職員，涉嫌詐騙銀行貸款的轉介費，觸犯行賄、受賄、洗黑錢和串謀詐騙罪，被捕人士分別來自10間本地銀行，其中一人被捕時已離職，
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796248-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796248-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796248-20250318.htm)
+
+---
+
+# 18名銀行前線職員涉嫌詐騙銀行貸款轉介費被廉署拘捕
+
+![陳徳輝表示，相關銀行職員安排客戶簽署貸款文件時，偷偷地將轉介申請表格混入文件，並騙取客戶簽名。（彭冠中攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796243_1_20250318161624.jpg&q=90)
+  
+
+廉署拘捕22人包括18名銀行前線職員，涉嫌詐騙銀行貸款的轉介費，觸犯行賄、受賄、洗黑錢和串謀詐騙罪，被捕人士分別來自10間本地銀行，其中一人被捕時已離職。
 
   
 
@@ -1390,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796056-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796056-20250317.htm)
-
----
-
-# 私人項目建安老院舍計劃申請增　政府冀優化令計劃更有成效
-
-![莊永桓說，政府在前年推出優化措施，希望令計劃更有成效。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796051_1_20250317142318.jpg&q=90)
-  
-
-政府在2003年推出計劃，鼓勵發展商在新建私人發展項目中興建安老院舍，包括可獲豁免地價的樓面面積等；而在23年6月政府優化計劃，提供更多誘因，包括放寬每幅用地獲豁免地價的合資格安老院舍數目和總樓面面積上限。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796051-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796051-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796051-20250317.htm)
-
----
-
-# 病人組織憂共付收費或令經濟能力不足病人延誤病情
-
-![政府日前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，要市民按項目共付費用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796046_1_20250317133952.jpg&q=80)
-  
-
-政府日前表示，正考慮公立醫院的電腦掃描及磁力共振等複雜的影像檢查，要市民按項目共付費用，急症室及住院病人接受有關服務仍維持免費。有醫管局前高層表示，醫生有時會因應臨床需要建議病人做影像檢查，同收費與否無關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796046-20250317.htm)
 
 ---

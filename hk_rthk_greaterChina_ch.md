@@ -1,3 +1,26 @@
+# 美商務部據報禁DeepSeek　外交部：反對泛化國家安全概念
+
+  
+
+對於有報道指，美國商務部各部門最近通知工作人員，中國人工智能模型深度求索(DeepSeek)已被禁止在政府設備上使用，在北京，外交部發言人毛寧回應，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化，中方也將堅定維護中國企業的合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm)
+
+---
+
 # 王毅將赴東京出席中日韓外長會　並共同主持中日經濟高層對話
 
   
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795770-20250314.htm)
-
----
-
-# 中方：冀各方通過對話談判就烏克蘭危機達成公平持久和平協議
-
-![毛寧說，中方願意同國際社會一起，為最終化解危機、實現持久和平繼續發揮建設性的作用。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795771_1_20250314202242.jpg&q=90)
-  
-
-在北京，外交部回應有關俄羅斯總統普京提議與美國總統特朗普就俄烏臨時停火協議舉行會談的提問，發言人毛寧說，在烏克蘭危機問題上，中方始終堅持習近平主席提出的「四個應該」，也就是各國的主權領土完整都應該得到尊重，聯合國的憲章宗旨和原則都應該得到遵守，各國合理的安全關切都應該得到重視，一切有利於和平解決危機的努力都應該得到支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795771-20250314.htm)
 
 ---

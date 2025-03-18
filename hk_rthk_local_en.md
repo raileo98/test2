@@ -1,3 +1,27 @@
+# 22 arrested over alleged mortgage referral bribes
+
+![Grace Yee says she believes the case only involves a few bad apples at individual banks. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796247_1_20250318162219.jpg&q=90)
+  
+
+The ICAC on Tuesday said 22 people have been arrested on suspicion of accepting bribes and helping intermediaries defraud banks of mortgage referral fees.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm)
+
+---
+
 # Vaping devices ban sought to stop space oil drug use
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796211_1_20250318120907.jpg&q=90)
@@ -1412,29 +1436,5 @@ A community group on Wednesday welcomed the Hospital Authority’s new arrangeme
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795440-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795440-20250312.htm)
-
----
-
-# Watchdog launches compliance check on Deliveroo
-
-![The privacy watchdog says that Deliveroo’s closure may affect the personal data of its customers and riders. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795435_1_20250312173023.jpg&q=90)
-  
-
-Hong Kong’s privacy watchdog said on Wednesday it launched a compliance check on Deliveroo to ensure the personal data of its customers and food couriers will not be leaked.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795435-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795435-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795435-20250312.htm)
 
 ---

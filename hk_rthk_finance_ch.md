@@ -1,3 +1,46 @@
+# 最新失業率3.2%微升0.1個百分點
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm)
+
+---
+
+# 潤啤：國家政策不斷落地增強未來消費信心
+
+  
+
+華潤啤酒主席侯孝海表示，按今年首兩個月情況，預期全年形勢較樂觀，因為國家政策不斷落地，消費市場出現明顯回升跡象，大大增強未來消費信心，形容基本面已明顯好轉，如果今年天氣情況不太差，今年業務表現將較去年好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm)
+
+---
+
 # 滬股全日升3點　創逾3個月新高
 
 ![上證指數收報3429點，升3點，升幅0.11%，創逾3個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796237_1_20250318150717.jpg&q=90)
@@ -1392,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796079-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796079-20250317.htm)
-
----
-
-# 證監會：新一年度薪酬調整仍待董事局批准　尚未最終確定
-
-![證監會重申，一直以謹慎理財、開源節流、降本增效方式，應對近年香港金融市場的挑戰。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796080_1_20250317170250.jpg&q=85)
-  
-
-證監會回應傳媒有關2025/2026年度預算中建議薪酬調整的查詢，重申有關建議有待證監會董事局批准，尚未最終確定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm)
-
----
-
-# 財政部：消費品以舊換新資金將盡快下達
-
-![財政部稱消費品以舊換新資金3000億元人民幣，年初已提前下達首批810億元資金。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796075_1_20250317192434.jpg&q=75)
-  
-
-在北京，財政部經濟建設司司長符金陵表示，中央財政安排的消費品以舊換新資金規模倍增至3000億元人民幣，在年初已提前下達首批810億元資金，其餘資金將盡快下達，確保以舊換新政策持續實施，讓優惠直達消費者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm)
 
 ---

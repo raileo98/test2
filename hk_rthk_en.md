@@ -1,3 +1,27 @@
+# 22 arrested over alleged mortgage referral bribes
+
+![Grace Yee says she believes the case only involves a few bad apples at individual banks. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796247_1_20250318162219.jpg&q=90)
+  
+
+The ICAC on Tuesday said 22 people have been arrested on suspicion of accepting bribes and helping intermediaries defraud banks of mortgage referral fees.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm)
+
+---
+
 # SAR women's rugby squad 'keen to deliver on home soil'
 
 ![The SAR women's rugby squad looks to build on last year's success, when they were runners-up in the Melrose Claymores competition. Photo courtesy of HKCR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796233_4_20250318154756.jpg&q=90)
@@ -1415,29 +1439,5 @@ The first US strikes against Yemen's Houthis since Donald Trump took office kill
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm)
-
----
-
-# Man dies after alleged chopper attack in Fo Tan
-
-![Police say the victim was allegedly attacked by two knife-wielding men. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795948_2_20250316185117.jpg&q=70)
-  
-
-A man in his 50s on Sunday died after an apparent chopper attack in Fo Tan.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm)
 
 ---
