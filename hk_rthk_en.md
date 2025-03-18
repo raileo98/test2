@@ -1,3 +1,27 @@
+# Tennis players' union launch legal blitz against tours
+
+![The Djokovic-backed players union takes aim at the sport's governing bodies, the ATP and WTA. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796331_1_20250319053811.jpg&q=90)
+  
+
+A tennis union co-founded by Novak Djokovic announced a series of legal actions aimed at the sport's governing bodies, alleging "anti-competitive restraints and abusive practices".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm)
+
+---
+
 # Germany votes for big defence spending package
 
 ![Germany's chancellor-in-waiting Friedrich Merz says dramatic steps are needed at a time of geopolitical turmoil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796326_1_20250319033004.jpg&q=90)
@@ -1412,29 +1436,5 @@ US President Donald Trump's administration began mass layoffs at Voice of Americ
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796015-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796015-20250317.htm)
-
----
-
-# Hang Seng Index opens up over 1.1 percent
-
-![Hong Kong stocks open up as investors await key China economic data for the first two months of the year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796006_1_20250317101632.jpg&q=70)
-  
-
-Hong Kong's Hang Seng Index gained 266.02 points, or 1.11 percent, to open at 24,226 points on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796006-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796006-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796006-20250317.htm)
 
 ---

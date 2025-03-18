@@ -1,3 +1,27 @@
+# Tennis players' union launch legal blitz against tours
+
+![The Djokovic-backed players union takes aim at the sport's governing bodies, the ATP and WTA. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796331_1_20250319053811.jpg&q=90)
+  
+
+A tennis union co-founded by Novak Djokovic announced a series of legal actions aimed at the sport's governing bodies, alleging "anti-competitive restraints and abusive practices".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm)
+
+---
+
 # F1 boss holds talks with Thailand on hosting GP
 
 ![Thailand's Buriram track hosted the season-opening MotoGP races. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796287_1_20250318195022.jpg&q=90)
@@ -1421,29 +1445,5 @@ Dallas Mavericks All Star guard Kyrie Irving will miss the rest of the NBA seaso
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794261-20250305.htm)
-
----
-
-# India advance to Champions Trophy final
-
-![India's KL Rahul, left, celebrates with Ravindra Jadeja after their semi-final win over Australia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794259_1_20250305053559.jpg&q=90)
-  
-
-Virat Kohli produced a trademark innings with a polished 84 as India pulled off a tense chase to beat Australia by four wickets in the first semi-final of the Champions Trophy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794259-20250305.htm)
 
 ---
