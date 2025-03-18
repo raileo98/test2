@@ -1,3 +1,27 @@
+# 澤連斯基：支持停襲能源設施　普京提出要求顯示未準備結束戰事
+
+![澤連斯基強調，烏克蘭支持任何能夠實現穩定及公正和平的提案。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796328_1_20250319044847.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，支持俄烏雙方暫停攻擊對方能源設施30日的建議，但需要了解更多細節，期待與美國總統特朗普通話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796328-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796328-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796328-20250319.htm)
+
+---
+
 # 中方嚴重關切和強烈譴責以色列再挑起戰火　美方斥哈馬斯應負責
 
 ![聯合國安理會開會討論加沙局勢。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796327_1_20250319042203.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796255-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796255-20250318.htm)
-
----
-
-# 聯通去年多賺逾10%　今年算力投資增速料升至28%
-
-![聯通去年算力投資按年升19%，預計今年增長加快至28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796252_1_20250318164118.jpg&q=90)
-  
-
-中國聯通去年盈利206.1億元人民幣，按年升逾10%。末期息每股15.62分，全年派息40.43分，按年升20%，派息比率提高5個百分點至60%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm)
 
 ---

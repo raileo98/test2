@@ -1,3 +1,27 @@
+# 澤連斯基：支持停襲能源設施　普京提出要求顯示未準備結束戰事
+
+![澤連斯基強調，烏克蘭支持任何能夠實現穩定及公正和平的提案。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796328_1_20250319044847.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，支持俄烏雙方暫停攻擊對方能源設施30日的建議，但需要了解更多細節，期待與美國總統特朗普通話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796328-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796328-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796328-20250319.htm)
+
+---
+
 # 中方嚴重關切和強烈譴責以色列再挑起戰火　美方斥哈馬斯應負責
 
 ![聯合國安理會開會討論加沙局勢。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796327_1_20250319042203.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796064-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796064-20250317.htm)
-
----
-
-# 俄副外長：為達和平協議需拒絕烏克蘭加入北約
-
-![格魯什科強調，歐洲必須明白要為俄羅斯的安全提供國際法保障，必須拒絕烏克蘭加入北約。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796055_1_20250317145558.jpg&q=90)
-  
-
-俄羅斯副外長格魯什科說，為達成和平協議，俄方需要可靠的安全保障，當中包括拒絕烏克蘭加入北約以及烏克蘭保持中立地位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796055-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796055-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796055-20250317.htm)
 
 ---
