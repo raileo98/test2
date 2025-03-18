@@ -1,3 +1,26 @@
+# 教育局要求內地交流團承辦機構暫停供應生冷食品燒味及貝類海鮮
+
+  
+
+接連有學校參加內地交流團時爆發急性腸胃炎，根據教育局轄下「薪火相傳」國民教育活動系列網站，教育局表明，已要求承辦學生內地交流計劃的承辦機構暫停供應生冷食品、燒味及貝類海鮮等食物。當局亦提醒，學校舉行學生內地交流活動時，應避免提供有關高危食物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796301-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796301-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796301-20250318.htm)
+
+---
+
 # 被問是否調查長和出售港口　外交部稱中方反對霸凌損害他國權益
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796120-20250317.htm)
-
----
-
-# 廉署控海關前高級關員涉虛假陳述申請外間工作獲取逾十萬元
-
-![廉署控海關前高級關員涉虛假陳述申請外間工作獲取逾十萬元](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796116_1_20250317203746.jpg&q=80)
-  
-
-廉政公署落案起訴一名海關時任高級關員，控告她涉嫌於申請從事有薪外間工作時，以載有虛假陳述的申請表格誤導海關，聲稱自己過往一年沒有從事任何外間工作。她獲廉署准予保釋，星期三在東區裁判法院答辯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796116-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796116-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796116-20250317.htm)
 
 ---
