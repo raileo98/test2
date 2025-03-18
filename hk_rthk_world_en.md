@@ -1,3 +1,27 @@
+# Small plane crash off Honduras island kills at least 7
+
+![Rescue teams carry an injured man after a plane crash in Roatan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796215_1_20250318121302.jpg&q=90)
+  
+
+At least seven people were killed on Monday when a small plane crashed into the sea while taking off from the Honduras Caribbean island of Roatan.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm)
+
+---
+
 # Scores dead in new Israeli strikes against Hamas
 
 ![Israeli Prime Minister Benjamin Netanyahu said he instructed the military to take "strong action" against Hamas. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796187_1_20250318093845.jpg&q=90)
@@ -1413,29 +1437,5 @@ Washington's looming tariffs on steel and aluminium are "entirely unjustified", 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm)
-
----
-
-# UK makes manslaughter arrest of ship captain
-
-![Smoke rises from the MV Solong cargo ship in the North Sea, off the coast of England. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795360_1_20250312090215.jpg&q=90)
-  
-
-British police on Tuesday arrested on suspicion of manslaughter the captain of a ship that crashed into a tanker in the North Sea, sparking a massive blaze and leaving one crew member missing, presumed dead.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm)
 
 ---

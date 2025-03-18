@@ -1,6 +1,29 @@
+# 港隊於殘疾人劍擊世界盃奪2銀4銅
+
+  
+
+香港輪椅劍擊隊在意大利舉行的殘疾人劍擊世界盃，奪得2銀4銅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796216-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796216-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796216-20250318.htm)
+
+---
+
 # 李家超要求啟德體育園管理層設應急機制　恆常向文體旅局匯報運作
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_2_20250318113451.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_3_20250318120223.jpg&q=75)
   
 
 行政長官李家超出席行政會議前回應提問時說，啟德體育園開園至今，部分安排不理想及出問題需要處理。
@@ -1427,29 +1450,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794083-20250304.htm](https://news.rthk.hk/rthk/ch/component/k2/1794083-20250304.htm)
-
----
-
-# 「世界格蘭披治桌球大獎賽2025」獲頒「M」品牌
-
-![「世界格蘭披治桌球大獎賽2025」獲頒授「M」品牌認可。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794021_1_20250303185402.jpg&q=90)
-  
-
-大型體育活動事務委員會向「世界格蘭披治桌球大獎賽2025」頒授「M」品牌認可，賽事由明日起至星期日在啟德體育園舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm](https://news.rthk.hk/rthk/ch/component/k2/1794021-20250303.htm)
 
 ---

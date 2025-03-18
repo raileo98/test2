@@ -1,3 +1,27 @@
+# Small plane crash off Honduras island kills at least 7
+
+![Rescue teams carry an injured man after a plane crash in Roatan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796215_1_20250318121302.jpg&q=90)
+  
+
+At least seven people were killed on Monday when a small plane crashed into the sea while taking off from the Honduras Caribbean island of Roatan.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm)
+
+---
+
 # CE slams 'bullying tactics' amid ports deal concerns
 
 ![John Lee urged foreign governments not to resort to 'bullying tactics' when it comes to global trade. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796206_1_20250318113232.jpg&q=75)
@@ -1415,29 +1439,5 @@ More than 3,000 runners took part in the inaugural Kai Tak Run at the Kai Tak Sp
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795923-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795923-20250316.htm)
-
----
-
-# Thousands of tech jobs on offer to attract talent: FS
-
-![Paul Chan says grooming tech talent is important for the SAR. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795917_1_20250316115514.jpg&q=80)
-  
-
-Financial Secretary Paul Chan said grooming local tech talent and attracting people in the field from outside Hong Kong are both important for the development of innovation and technology in the city.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795917-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795917-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795917-20250316.htm)
 
 ---

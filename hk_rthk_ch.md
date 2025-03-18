@@ -1,3 +1,26 @@
+# 民建聯歡迎立法會選舉12月7日舉行　冀選出真正愛國愛港人士
+
+  
+
+民建聯歡迎立法會換屆選舉定於12月7日舉行，並期望通過今次選舉，選出真正愛國愛港、有能力、高質素的人士，擔負起立法會的重要職責，積極為香港的繁榮穩定建言獻策，協助特區政府依法施政，推動各項政策更加貼近民意，符合香港實際發展需要。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796212-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796212-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796212-20250318.htm)
+
+---
+
 # 滬深股市半日靠穩
 
 ![上證指數半日收報3429點，升3點，升幅0.09%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796207_1_20250318114054.jpg&q=90)
@@ -215,7 +238,7 @@
 
 # 李家超要求啟德體育園管理層設應急機制　恆常向文體旅局匯報運作
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_2_20250318113451.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_3_20250318120223.jpg&q=75)
   
 
 行政長官李家超出席行政會議前回應提問時說，啟德體育園開園至今，部分安排不理想及出問題需要處理。
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796134-20250317.htm)
-
----
-
-# 甯漢豪和何永賢對李兆基離世表示哀悼
-
-![甯漢豪（右）及何永賢（左）均對李兆基離世表示哀悼。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796133_1_20250317231924.jpg&q=85)
-  
-
-恒基地產創辦人李兆基在家人陪伴下，今日黃昏與世長辭，享年97歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm)
 
 ---

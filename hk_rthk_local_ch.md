@@ -1,3 +1,26 @@
+# 民建聯歡迎立法會選舉12月7日舉行　冀選出真正愛國愛港人士
+
+  
+
+民建聯歡迎立法會換屆選舉定於12月7日舉行，並期望通過今次選舉，選出真正愛國愛港、有能力、高質素的人士，擔負起立法會的重要職責，積極為香港的繁榮穩定建言獻策，協助特區政府依法施政，推動各項政策更加貼近民意，符合香港實際發展需要。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796212-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796212-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796212-20250318.htm)
+
+---
+
 # 李家超稱目標本月內公布公營醫療收費調整方案細節
 
   
@@ -119,7 +142,7 @@
 
 # 李家超要求啟德體育園管理層設應急機制　恆常向文體旅局匯報運作
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_2_20250318113451.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_3_20250318120223.jpg&q=75)
   
 
 行政長官李家超出席行政會議前回應提問時說，啟德體育園開園至今，部分安排不理想及出問題需要處理。
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796022-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796022-20250317.htm)
-
----
-
-# 世界互聯網大會亞太峰會下月港舉行　孫東稱體現香港創科合作樞紐
-
-![孫東指現時香港正全力打造國際創新科技中心，形容對未來創科產業的發展已進入快車道，人工智能、數據、機械人等被列入重點發展範疇。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796020_2_20250317142226.jpg&q=90)
-  
-
-世界互聯網大會亞太峰會，將於4月14至15日首度在香港舉行，創新科技及工業局局長孫東早上在北京出席新聞發布會。他表示大會選址香港作為2025年亞太峰會的主辦城市，正好體現香港是環球創科合作的樞紐，外界傳統上認為香港是金融中心、貿易中心、航運中心，現時香港正全力打造國際創新科技中心，形容對未來創科產業的發展已進入快車道，人工智能、數據、機械人等被列入重點發展範疇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm)
 
 ---
