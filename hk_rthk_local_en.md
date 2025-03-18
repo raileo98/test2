@@ -1,3 +1,27 @@
+# Vaping devices ban sought to stop space oil drug use
+
+![Henry Tong wants the ban on possession of e-cigarettes devices to come into place as soon as possible. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796211_1_20250318120907.jpg&q=90)
+  
+
+The chairman of the Hong Kong Council on Smoking and Health on Tuesday called on the government to ban the possession of e-cigarettes devices.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796211-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796211-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796211-20250318.htm)
+
+---
+
 # BYD all juiced up over 'five-minute' charging
 
 ![BYS says the 'Super e-Platform' will get rid of range anxiety by allowing drivers to travel up to 470 kilometres after plugging their cars in for just five minutes. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796221_1_20250318123453.jpg&q=85)
@@ -1412,29 +1436,5 @@ Hong Kong’s privacy watchdog said on Wednesday it launched a compliance check 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795435-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795435-20250312.htm)
-
----
-
-# Three men arrested over Disneyland burglary
-
-![Sources say the electronic items missing from the Hong Kong Disneyland warehouse are worth around HK$3 million. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795429_1_20250312163825.jpg&q=85)
-  
-
-Police on Wednesday said they arrested three men who are suspected of stealing electronic devices from a Hong Kong Disneyland warehouse, and handling stolen goods.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795429-20250312.htm)
 
 ---

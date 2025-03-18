@@ -1,3 +1,27 @@
+# Vaping devices ban sought to stop space oil drug use
+
+![Henry Tong wants the ban on possession of e-cigarettes devices to come into place as soon as possible. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796211_1_20250318120907.jpg&q=90)
+  
+
+The chairman of the Hong Kong Council on Smoking and Health on Tuesday called on the government to ban the possession of e-cigarettes devices.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796211-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796211-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796211-20250318.htm)
+
+---
+
 # BYD all juiced up over 'five-minute' charging
 
 ![BYS says the 'Super e-Platform' will get rid of range anxiety by allowing drivers to travel up to 470 kilometres after plugging their cars in for just five minutes. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796221_1_20250318123453.jpg&q=85)
@@ -1415,29 +1439,5 @@ A fire that tore through a nightclub in North Macedonia killed 59 revellers atte
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795938-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795938-20250316.htm)
-
----
-
-# HK firms should strive for win-win deals: Starry Lee
-
-![Starry Lee responds to questions on articles criticising the CK Hutchison port deal. Photo courtesy of TVB](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795934_1_20250316165214.jpg&q=90)
-  
-
-Hong Kong's sole delegate to the country's top legislature on Sunday said all Chinese people should do their part to help the nation’s development, and business exchanges are only sustainable if it is a win-win situation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795934-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795934-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795934-20250316.htm)
 
 ---
