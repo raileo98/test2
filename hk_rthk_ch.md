@@ -1,3 +1,26 @@
+# 李家超稱目標本月內公布公營醫療收費調整方案細節
+
+  
+
+行政長官李家超表示，目標本月內公布公營醫療收費調整方案的細節。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm)
+
+---
+
 # 加沙衛生部門稱以軍大規模空襲造成至少200人死亡
 
 ![以軍空襲造成大量傷亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796208_1_20250318114327.jpg&q=85)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm)
-
----
-
-# 國台辧：解放軍在台島附近開展演習是維護台海和平正當之舉
-
-![國台辦稱，解放軍在台島附近開展演習是維護台海和平的正當之舉、必要之舉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796131_1_20250317225020.jpg&q=90)
-  
-
-在北京，國台辦發言人陳斌華表示，解放軍在台島附近開展演習，是對賴清德不斷宣揚「台獨」分裂謬論、升高兩岸對立對抗的堅決懲戒，是對「台獨」分裂勢力謀獨挑釁的有力震懾，是對外部勢力干涉滋事的嚴正警告，是捍衛國家主權、維護台海和平的正當之舉、必要之舉。正告賴清德當局，膽敢挑釁玩火，只會自取滅亡、粉身碎骨。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796131-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796131-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796131-20250317.htm)
 
 ---

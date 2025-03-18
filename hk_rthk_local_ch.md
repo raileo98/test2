@@ -1,3 +1,26 @@
+# 李家超稱目標本月內公布公營醫療收費調整方案細節
+
+  
+
+行政長官李家超表示，目標本月內公布公營醫療收費調整方案的細節。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm)
+
+---
+
 # 長和及長實不舉行全年業績記者會
 
 ![長和及長實回覆查詢時表示，不會舉行全年業績記者會以及分析員會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796204_2_20250318105756.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm)
-
----
-
-# 3款床褥壓力不均1款穩定較低轉身或擾伴侶　消委會倡宜親身試睡
-
-![消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。（消委會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796014_1_20250317105536.jpg&q=90)
-  
-
-消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。結果又發現，不同品牌保養服務條款參差，價錢與質素亦未必成正比。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796014-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796014-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796014-20250317.htm)
 
 ---
