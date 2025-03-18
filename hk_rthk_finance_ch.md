@@ -1,3 +1,99 @@
+# 滬深股市初段靠穩
+
+![上證指數較早時報3431點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796186_1_20250318093417.jpg&q=85)
+  
+
+內地股市初段上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796186-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796186-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796186-20250318.htm)
+
+---
+
+# 人行逆回購2733億元人民幣　連續兩日淨投放
+
+![人行進行2733億元人民幣7天期逆回購操作，利率維持在1.5厘。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796185_1_20250318093016.jpg&q=80)
+  
+
+人民銀行公開市場今日進行2733億元人民幣7天期逆回購操作，利率維持在1.5厘，對沖今日到期量，單日淨投放2356億元，連續兩日淨投放。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796185-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796185-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796185-20250318.htm)
+
+---
+
+# 恒指高開533點　科指升近3%
+
+![恒指升穿今年高位，競價時段報24679點，升533點，升幅2.21%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796183_1_20250318092600.jpg&q=45)
+  
+
+港股裂口高開逾500點，恒指升穿今年高位，競價時段報24679點，升533點，升幅2.21%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796183-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796183-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796183-20250318.htm)
+
+---
+
+# 人民幣中間價下調近50點子
+
+![人民幣中間價報7.1733兌1美元，較上日中間價下調45點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796182_1_20250318091955.jpg&q=75)
+  
+
+人民幣中間價報7.1733兌1美元，較上日中間價下調45點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796182-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796182-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796182-20250318.htm)
+
+---
+
 # 台股初段升逾0.6%
 
 ![加權指數較早時報22259點，升141點，升幅0.64%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796179_1_20250318090431.jpg&q=90)
@@ -1341,101 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796012-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796012-20250317.htm)
-
----
-
-# 內地首兩個月新建商品房銷售面積及金額改善　跌幅收窄至單位數
-
-![內地今年首兩個月全國房地產開發投資按年跌9.8%，較去年全年跌10.6%有所改善。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796009_1_20250317102539.jpg&q=75)
-  
-
-國家統計局公布，今年首兩個月全國房地產開發投資按年跌9.8%，較去年全年跌10.6%有所改善，但跌幅較去年同期擴大0.8個百分點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796009-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796009-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796009-20250317.htm)
-
----
-
-# 內地2月全國城鎮調查失業率升至5.4%　創兩年來最高水平
-
-![內地首兩個月全國城鎮調查失業率平均值5.3%。單計2月升至5.4%，是兩年來最高水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796011_1_20250317103300.jpg&q=90)
-  
-
-國家統計局公布，首兩個月全國城鎮調查失業率平均值5.3%。單計2月升至5.4%，是兩年來最高水平，按年上升0.2個百分點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796011-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796011-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796011-20250317.htm)
-
----
-
-# 內地首兩個月消費增長4%符合預期　投資及工業增速勝預期
-
-![內地首兩個月社會消費品零售總額按年升4%，符合預期；工業及投資增速都高於預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796008_1_20250317102117.jpg&q=75)
-  
-
-內地今年首兩個月主要經濟數據符合或好於市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796008-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796008-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796008-20250317.htm)
-
----
-
-# 內地2月70個大中城市房價按年跌幅收窄至4.8%　按月轉跌
-
-![內地2月70個大中城市新建商品住宅售價指數按年跌幅收窄至4.8%，按月轉跌0.1%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796005_1_20250317100938.jpg&q=50)
-  
-
-路透根據國家統計局數據測算，內地2月70個大中城市新建商品住宅售價指數按年跌4.8%，跌幅較前月收窄0.2個百分點，連跌20個月，但連續4個月收窄跌幅；按月轉跌0.1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796005-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796005-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796005-20250317.htm)
 
 ---

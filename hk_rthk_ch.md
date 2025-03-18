@@ -1,3 +1,171 @@
+# 李家超宣布12月7日舉行第八屆立法會選舉
+
+![李家超宣布12月7日舉行第八屆立法會選舉。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796189_1_20250318095240.jpg&q=90)
+  
+
+行政長官李家超宣布，第8屆立法會選舉將定於12月7日舉行，而在選舉前會舉行選委會界別分組補選，有關補選定於9月7日進行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796189-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796189-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796189-20250318.htm)
+
+---
+
+# 以軍大規模襲擊加沙據報造成數十人死亡
+
+![空襲造成大量傷亡，圖為救護車把傷者送院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796188_1_20250318094229.jpg&q=90)
+  
+
+以色列軍方向加沙地帶發動自1月19日停火生效以來最大規模的空襲，造成多人傷亡
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796188-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796188-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796188-20250318.htm)
+
+---
+
+# 滬深股市初段靠穩
+
+![上證指數較早時報3431點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796186_1_20250318093417.jpg&q=85)
+  
+
+內地股市初段上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796186-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796186-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796186-20250318.htm)
+
+---
+
+# 人行逆回購2733億元人民幣　連續兩日淨投放
+
+![人行進行2733億元人民幣7天期逆回購操作，利率維持在1.5厘。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796185_1_20250318093016.jpg&q=80)
+  
+
+人民銀行公開市場今日進行2733億元人民幣7天期逆回購操作，利率維持在1.5厘，對沖今日到期量，單日淨投放2356億元，連續兩日淨投放。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796185-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796185-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796185-20250318.htm)
+
+---
+
+# 恒指高開533點　科指升近3%
+
+![恒指升穿今年高位，競價時段報24679點，升533點，升幅2.21%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796183_1_20250318092600.jpg&q=45)
+  
+
+港股裂口高開逾500點，恒指升穿今年高位，競價時段報24679點，升533點，升幅2.21%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796183-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796183-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796183-20250318.htm)
+
+---
+
+# 人民幣中間價下調近50點子
+
+![人民幣中間價報7.1733兌1美元，較上日中間價下調45點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796182_1_20250318091955.jpg&q=75)
+  
+
+人民幣中間價報7.1733兌1美元，較上日中間價下調45點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796182-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796182-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796182-20250318.htm)
+
+---
+
+# 大熊貓「家姐」「細佬」周六首與媽媽「盈盈」一起與見公眾
+
+![大熊貓龍鳳胎「家姐」、「細佬」將於本周六起，與媽媽「盈盈」一起在「大熊貓之旅」展館與公眾見面。（海洋公園社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796181_1_20250318092746.jpg&q=85)
+  
+
+海洋公園表示，大熊貓龍鳳胎「家姐」、「細佬」將於本周六起，與媽媽「盈盈」一起在「大熊貓之旅」展館與公眾見面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796181-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796181-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796181-20250318.htm)
+
+---
+
 # 台股初段升逾0.6%
 
 ![加權指數較早時報22259點，升141點，升幅0.64%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796179_1_20250318090431.jpg&q=90)
@@ -1272,173 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm)
-
----
-
-# 恒基：創辦人李兆基今天黃昏離世　享年97歲
-
-![李兆基黃昏在家人陪伴下與世長辭。（恆地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796112_2_20250317200524.jpg&q=90)
-  
-
-恒基地產公布，集團創辦人李兆基今日黃昏在家人陪伴下安詳與世長辭，享年97歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796112-20250317.htm)
-
----
-
-# 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
-
-![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_2_20250317200046.jpg&q=90)
-  
-
-新華社報道，中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬，會見巴拿馬主要政黨領導人，同智庫學者等座談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
-
----
-
-# 航空公司：加飛機離境稅削競爭力　政府：對出行開支影響十分輕微
-
-![香港航空（左）、國泰航空（中）和大灣區航空（右）分別表示，擔心調高飛機乘客離境稅會削弱本港競爭力或增加短途旅客出行成本。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796109_1_20250317202740.jpg&q=90)
-  
-
-《財政預算案》提出，今年10月1日起，飛機乘客離境稅由每名乘客120元調升至200元，立法會本周三將首讀及二讀辯論相關修例草案。三間本地航空公司分別表示，擔心削弱本港競爭力或增加短途旅客出行成本，促請政府慎重考慮。據悉，香港航空公司代表協會曾向政府反映對於增加機場離境稅的意見。政府則強調建議的增幅影響十分輕微。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796109-20250317.htm)
-
----
-
-# 火炭謀殺案被捕父子有黑幫背景涉策劃案件　警方追緝刀手
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796108_1_20250317201503.jpg&q=80)
-  
-
-警方拘捕2男1女涉及火炭昨日的謀殺案，包括一對涉嫌策劃謀殺、有黑社會背景的父子，警方正追緝刀手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796108-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796108-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796108-20250317.htm)
-
----
-
-# 外交部：祖國完全統一勢不可擋　「倚外謀獨」終是絕路
-
-![外交部稱，祖國完全統一勢不可擋，「倚外謀獨」終是絕路。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796107_1_20250317192325.jpg&q=80)
-  
-
-在北京，外交部發言人毛寧表示，祖國完全統一勢不可擋，「倚外謀獨」終是絕路。希望有關國家認清台灣當局險惡用心，以實際行動嚴格恪守一個中國原則，切實維護雙邊關係政治基礎。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796107-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796107-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796107-20250317.htm)
-
----
-
-# 外交部：中泰合作打擊跨境違法犯罪　美方無權干涉
-
-![外交部說，中方強烈譴責任何針對中泰兩國的惡意詆毀和非法制裁。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796106_1_20250317191316.jpg&q=80)
-  
-
-在北京，外交部發言人毛寧說，中泰兩個主權國家開展打擊偷渡等跨境違法犯罪合作，符合中泰兩國法律、國際法和國際慣例，美方無權干涉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm)
-
----
-
-# 中國鐵塔：公司能在低空經濟發展中發揮更好作用
-
-![張志勇（中）稱密切關注低空經濟相關領域發展，相信能為未來低空經濟增長奠定基礎。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796105_1_20250317190128.jpg&q=90)
-  
-
-全國人大代表、中國鐵塔董事長張志勇在兩會期間，建議加強低空基礎建設，提倡將低空基礎設施納入都市總體規劃，加速制定統一、全面的低空基礎設施標準等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796105-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796105-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796105-20250317.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 以軍大規模襲擊加沙據報造成數十人死亡
+
+![空襲造成大量傷亡，圖為救護車把傷者送院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796188_1_20250318094229.jpg&q=90)
+  
+
+以色列軍方向加沙地帶發動自1月19日停火生效以來最大規模的空襲，造成多人傷亡
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796188-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796188-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796188-20250318.htm)
+
+---
+
 # 以軍對加沙地帶發動大規模空襲
 
 ![加沙地帶在早前以軍的持續空襲中，多座房屋被毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796177_1_20250318085459.jpg&q=35)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795915-20250316.htm)
-
----
-
-# 特朗普調整特使任命　凱洛格只負責烏克蘭事務
-
-![80歲的凱洛格原本被提名為烏克蘭和俄羅斯問題特使，現在縮減為烏克蘭事務特使。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795908_1_20250316095715.jpg&q=90)
-  
-
-美國總統特朗普調整負責俄烏事務特使的任命，退役美軍將領凱洛格由原本的俄烏問題特使改為烏克蘭事務特使。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795908-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795908-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795908-20250316.htm)
 
 ---

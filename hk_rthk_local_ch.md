@@ -1,3 +1,51 @@
+# 李家超宣布12月7日舉行第八屆立法會選舉
+
+![李家超宣布12月7日舉行第八屆立法會選舉。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796189_1_20250318095240.jpg&q=90)
+  
+
+行政長官李家超宣布，第8屆立法會選舉將定於12月7日舉行，而在選舉前會舉行選委會界別分組補選，有關補選定於9月7日進行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796189-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796189-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796189-20250318.htm)
+
+---
+
+# 大熊貓「家姐」「細佬」周六首與媽媽「盈盈」一起與見公眾
+
+![大熊貓龍鳳胎「家姐」、「細佬」將於本周六起，與媽媽「盈盈」一起在「大熊貓之旅」展館與公眾見面。（海洋公園社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796181_1_20250318092746.jpg&q=85)
+  
+
+海洋公園表示，大熊貓龍鳳胎「家姐」、「細佬」將於本周六起，與媽媽「盈盈」一起在「大熊貓之旅」展館與公眾見面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796181-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796181-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796181-20250318.htm)
+
+---
+
 # 蔡若蓮感謝李兆基令無數學生受惠　麥美娟感謝捐地建青年宿舍
 
 ![李兆基基金向保良局捐贈元朗地皮，由政府全數資助興建大規模青年宿舍「保良局李兆基青年綠洲」，圖為青年綠洲正式開幕儀式。（恒基圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796139_1_20250318001358.jpg&q=85)
@@ -1391,54 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795959-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795959-20250316.htm)
-
----
-
-# 海關機場檢獲市值220萬元懷疑海洛英　一對男女被捕
-
-![海關檢獲的懷疑海洛英約重3.6公斤、估計市值約220萬元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795958_2_20250316213346.jpg&q=80)
-![海關又在該女旅客隨身袋中檢獲一支懷疑另類吸煙產品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795958_3_20250316213346.jpg&q=85)
-  
-
-​海關在機場破獲一宗行李藏毒案，檢獲約3.6公斤、估計市值約220萬元的懷疑海洛英，以及一支懷疑另類吸煙產品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795958-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795958-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795958-20250316.htm)
-
----
-
-# 環保署：沒限制啟德體藝館活動時間　環評報告噪音不會超標
-
-![環保署表示，啟德體藝館舉行的活動均在有中央空調的室內進行，環境影響評估噪音不會超標。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795957_1_20250316211815.jpg&q=90)
-  
-
-世界格蘭披治桌球大獎賽早前在啟德體藝館舉行，部分賽事進行至凌晨。環保署表示，署方和環境影響評估都沒有限制啟德體藝館活動的時間，亦沒有就超過午夜12時的活動施加任何限制，而啟德體藝館舉行的活動，包括體育活動或音樂表演，均在有中央空調的室內進行，所以環境影響評估報告的評估是噪音不會超標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795957-20250316.htm)
 
 ---

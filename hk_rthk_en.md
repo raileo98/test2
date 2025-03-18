@@ -1,3 +1,99 @@
+# Israel launches new strikes against Hamas
+
+![Israeli Prime Minister Benjamin Netanyahu said he instructed the military to take "strong action" against Hamas. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796187_1_20250318093845.jpg&q=90)
+  
+
+Israel launched new strikes against Hamas and promised ‘increasing military force’ after talks on further hostage releases stalled.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796187-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796187-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796187-20250318.htm)
+
+---
+
+# MMA star Conor McGregor meets Trump at White House
+
+![Irish UFC fighter Conor McGregor stands at the briefing room lectern with White House press secretary Karoline Leavitt. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796184_1_20250318092653.jpg&q=90)
+  
+
+Irish mixed martial arts fighter Conor McGregor, who has been found liable of sexual assault, met Donald Trump during a Saint Patrick's Day visit on Monday during which he lashed out at illegal immigration in Ireland.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796184-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796184-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796184-20250318.htm)
+
+---
+
+# Stranded astronauts set to return after nine months
+
+![Nasa livestream shows a Crew-10 member greeting International Space Station crew shortly after docking on Sunday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796180_1_20250318090524.jpg&q=90)
+  
+
+After more than nine months aboard the International Space Station, a pair of astronauts are finally set to depart for Earth early Tuesday, ending a prolonged mission that has captivated global attention.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm)
+
+---
+
+# Indonesia to repatriate hundreds of scam workers
+
+![View of the scam centres in Shwe Kokko as seen from the Thai side of the border in early March. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796178_1_20250318085711.jpg&q=85)
+  
+
+More than 500 Indonesians freed from online scam centres in Myanmar are expected to be repatriated via Thailand in the coming days.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm)
+
+---
+
 # Kiribati eyes deep-sea mining deal with China
 
 ![View of Kiribati's Parliament House. Kiribati opened discussions with China after a deal with Canada's The Metals Company fell through. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796176_1_20250318084916.jpg&q=85)
@@ -1343,101 +1439,5 @@ At least 19 were killed as US President Donald Trump launched large-scale milita
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm)
-
----
-
-# Judge bars deportations after Trump's invasion claim
-
-![The ruling came hours after Trump claimed the Venezuelan gang Tren de Aragua was invading the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795902_1_20250316073140.jpg&q=90)
-  
-
-A federal judge on Saturday barred the administration of President Donald Trump from deportations under an 18th century law that Trump invoked just hours earlier asserting the United States was being invaded by a Venezuelan gang and that he had new powers to remove its members from the country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795902-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795902-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795902-20250316.htm)
-
----
-
-# France beat Scotland to claim Six Nations
-
-![France's scrum-half Antoine Dupont (centre) holds the trophy while celebrating. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795897_1_20250316063919.jpg&q=85)
-  
-
-France claimed their seventh Six Nations trophy in a record-strewn 35-16 victory Scotland on Saturday, shaking off their beautiful runners-up tag on a crisp evening at the Stade de France.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm)
-
----
-
-# Military jet crashes, pilot ejects unhurt: CCTV
-
-![The PLA said there was no collateral damage on the ground. File Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795895_1_20250316051831.jpg&q=90)
-  
-
-CCTV news says a People's Liberation Army naval fighter jet crashed on Saturday during a training exercise in Hainan Province, with the pilot safely ejecting.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795895-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795895-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795895-20250316.htm)
-
----
-
-# Gaza civil defence says Israeli strikes kill 9
-
-![Hamas says the Israeli strikes on Beit Lahia violate the Gaza truce deal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795885_1_20250315222731.jpg&q=80)
-  
-
-Gaza's civil defence agency said nine people, including journalists, were killed in Israeli strikes in the north on Saturday, an attack Hamas denounced as a "blatant violation" of the fragile ceasefire.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795885-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795885-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795885-20250315.htm)
 
 ---

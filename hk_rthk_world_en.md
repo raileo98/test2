@@ -1,3 +1,99 @@
+# Israel launches new strikes against Hamas
+
+![Israeli Prime Minister Benjamin Netanyahu said he instructed the military to take "strong action" against Hamas. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796187_1_20250318093845.jpg&q=90)
+  
+
+Israel launched new strikes against Hamas and promised ‘increasing military force’ after talks on further hostage releases stalled.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796187-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796187-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796187-20250318.htm)
+
+---
+
+# MMA star Conor McGregor meets Trump at White House
+
+![Irish UFC fighter Conor McGregor stands at the briefing room lectern with White House press secretary Karoline Leavitt. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796184_1_20250318092653.jpg&q=90)
+  
+
+Irish mixed martial arts fighter Conor McGregor, who has been found liable of sexual assault, met Donald Trump during a Saint Patrick's Day visit on Monday during which he lashed out at illegal immigration in Ireland.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796184-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796184-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796184-20250318.htm)
+
+---
+
+# Stranded astronauts set to return after nine months
+
+![Nasa livestream shows a Crew-10 member greeting International Space Station crew shortly after docking on Sunday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796180_1_20250318090524.jpg&q=90)
+  
+
+After more than nine months aboard the International Space Station, a pair of astronauts are finally set to depart for Earth early Tuesday, ending a prolonged mission that has captivated global attention.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm)
+
+---
+
+# Indonesia to repatriate hundreds of scam workers
+
+![View of the scam centres in Shwe Kokko as seen from the Thai side of the border in early March. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796178_1_20250318085711.jpg&q=85)
+  
+
+More than 500 Indonesians freed from online scam centres in Myanmar are expected to be repatriated via Thailand in the coming days.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm)
+
+---
+
 # Kiribati eyes deep-sea mining deal with China
 
 ![View of Kiribati's Parliament House. Kiribati opened discussions with China after a deal with Canada's The Metals Company fell through. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796176_1_20250318084916.jpg&q=85)
@@ -1341,101 +1437,5 @@ British police on Tuesday arrested on suspicion of manslaughter the captain of a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795360-20250312.htm)
-
----
-
-# Greenland votes in election eyed by Trump
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795336_1_20250312034150.jpg&q=90)
-  
-
-Greenland voted on Tuesday in legislative elections that could yield a timeline for independence for the Danish self-governing territory coveted by US President Donald Trump.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795336-20250312.htm)
-
----
-
-# Ukraine backs ceasefire as US ends aid freeze
-
-![US Secretary of State Marco Rubio speaks with the media following meetings with a Ukrainian delegation in Jeddah. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795341_1_20250312052757.jpg&q=90)
-  
-
-Ukraine endorsed an American proposal for a 30-day ceasefire and agreed to immediate negotiations with Russia in crunch talks in Jeddah on Tuesday after three years of grinding military conflict.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795341-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795341-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795341-20250312.htm)
-
----
-
-# Ex-Philippine president Duterte bound for The Hague
-
-![President Ferdinand Marcos Junior told a press briefing that the plane carrying his predecessor had departed at 11:03 pm (1503 GMT). Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795337_1_20250312034834.jpg&q=90)
-  
-
-A plane carrying former Filipino president Rodrigo Duterte left the Philippine capital bound for The Hague on Tuesday following his arrest on an International Criminal Court (ICC) warrant stemming from his deadly crackdown on drugs, Manila said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795337-20250312.htm)
-
----
-
-# Separatists attack train in Pakistan carrying hundreds
-
-![The militants claim to have taken more than a hundred people hostage. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795321_1_20250311223534.jpg&q=80)
-  
-
-Pakistani insurgents attacked a passenger train in a tunnel and claimed to have taken over 100 hostages on Tuesday, as authorities struggled to reach the remote area. The fate of the estimated 500 people aboard was not immediately clear.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795321-20250311.htm)
 
 ---
