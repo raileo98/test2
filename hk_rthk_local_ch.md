@@ -1,6 +1,30 @@
+# 天文台料今年約5至8個熱帶氣旋影響本港　風季或較遲完結
+
+  
+
+天文台預計，本港今年有機會在6月或之前踏入風季，有約5至8個熱帶氣旋進入本港500公里範圍內，屬於正常至偏多，風季可能較遲才完結。至於全年雨量預測介乎2100至2700毫米，接近正常，但仍有機會受暴雨和局部地區大雨影響，天文台提醒市民為風雨季做好準備。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796272-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796272-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796272-20250318.htm)
+
+---
+
 # 工貿署料調整基金對中小企資助比例及首期撥款可減少問題個案
 
 ![丘應樺稱，變動是因應《財政預算案》調整政府支出，但當局會定期審視實際情況。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796265_1_20250318174504.jpg&q=90)
+![廖廣翔表示，基金秘書處審核申請和確保符合要求後，會再將申請交由跨部門小組審閱，而獲批企業亦須定期繳交報告。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796265_2_20250318175213.jpg&q=90)
   
 
 為支援中小企發展，《財政預算案》宣布向「發展品牌、升級轉型及拓展內銷市場的專項基金」，即「BUD專項基金」以及「市場推廣及工商機構支援基金」合共注資15億元，但兩個基金向中小企的資助比例，由以往政府和企業1比1調整至1比3；首期撥款亦由以往先批出資助額的75%，調整至20%。
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796080-20250317.htm)
-
----
-
-# 宋皇臺站出入口B2及B3暫時關閉　消息：現場報稱發現可疑物品
-
-![宋皇臺站出入口B2及B3暫時關閉。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796078_2_20250317173719.jpg&q=90)
-  
-
-運輸署接獲港鐵公司通知，因應警方要求，宋皇臺站出入口B2及B3暫時關閉，呼籲乘客使用其他出入口。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796078-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796078-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796078-20250317.htm)
 
 ---
