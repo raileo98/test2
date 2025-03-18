@@ -1,5 +1,78 @@
+# 長和及長實不舉行全年業績記者會
+
+![長和及長實回覆查詢時表示，不會舉行全年業績記者會以及分析員會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796204_2_20250318105756.jpg&q=85)
+  
+
+長和及長實今個星期四將舉行董事會會議，批准公司及附屬公司截至去年底止的年度業績及發布，及考慮建議派付末期股息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm)
+
+---
+
+# 習近平在貴州黔東南州考察調研
+
+![習近平了解當地加強基層黨組織建設和社會治理、保護傳承民族傳統文化、推進鄉村全面振興等情況。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_1_20250318105507.jpg&q=85)
+  
+
+中共中央總書記、國家主席習近平昨天在貴州省黔東南苗族侗族自治州考察黎平縣肇興侗寨，了解當地加強基層黨組織建設和社會治理、保護傳承民族傳統文化、推進鄉村全面振興等情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm)
+
+---
+
+# 李家超：「一車多關」必須兩地政府協商同意才可執行
+
+![李家超表示，私家車可以利用不同關口過關，當然方便駕駛者，但要確保每個關口的交通運作暢順，一定要通盤考慮。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796202_1_20250318110646.jpg&q=90)
+  
+
+行政長官李家超表示，私家車可以利用不同關口過關，當然方便駕駛者，但要確保每個關口的交通運作暢順，一定要通盤考慮。如果沒有任何管制，某些較為方便的關口很容易有嚴重塞車，並倒灌市區，關口涉及兩地交通，兩地管理部門要完全配合，確保一個地方的交通阻塞，另一個地方的部門可以隨時應對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796202-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796202-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796202-20250318.htm)
+
+---
+
 # 李家超：非常重視第三間醫學院　特別工作組正積極審視建議書
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796201_1_20250318105631.jpg&q=90)
   
 
 行政長官李家超表示，他和特區政府非常重視第三間醫學院，這是醫療改革的一部分，以確保有足夠醫生，而且水平符合要求，特別工作組正積極審視3間大學提交的建議書。
@@ -47,6 +120,7 @@
 
 # 吳聲展稱要發現太空油吸食者主要非靠檢測而要教師觀察同學關心
 
+![吳聲展（左）認為要發現吸食者，主要並非靠檢測，而是要由教師觀察及同學們關心。伍家順（中）表示，學生如有吸毒問題，現時有很多外展或其他計劃協助。湯修齊（右）認為公眾要明白管有煙彈有極大的健康及法律風險。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796199_1_20250318110619.jpg&q=90)
   
 
 當局指出，去年有300人被呈報吸食太空油毒品，當中七成半是21歲以下，其中北區、元朗及屯門有較多個案。屯門區中學校長會主席吳聲展在本台節目《千禧年代》表示，在三個地區的個案相對多，或與學生人數較多有關，教育界希望數字不要上升，已及早作出宣傳，而「健康校園計劃」亦有提供自願測檢及身心健康輔導，有一半學校參與，當中大埔區超過九成，屯門區就有逾八成半。他認為要發現吸食者，主要並非靠檢測，而是要由教師觀察及同學們關心。
@@ -166,6 +240,7 @@
 
 # 消息指警方國安處帶走鍾翰林後父協助調查
 
+![消息指，警方國安處早上在何文田區帶走被通緝的鍾翰林的後父協助調查。（鍾翰林社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796194_1_20250318105503.jpg&q=90)
   
 
 消息指，警方國安處早上在何文田區帶走被通緝的鍾翰林的後父協助調查。
@@ -1362,79 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm)
-
----
-
-# 香港電台獲贈播國寶紀錄片《熊貓奇遇記》　4月播出
-
-![四川省廣電局局長李曉駿（中）及廣播處長關婉儀（右）出席《熊貓奇遇記》在港發布儀式。（香港電台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796129_1_20250317223526.jpg&q=90)
-![港台於「香港影視娛樂博覽2025」展示優秀製作。（香港電台製作）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796129_2_20250317223755.jpg&q=85)
-![港台代表在博覽的論壇上，與來自不同國家及地區的業界就內容創新與國際傳播深入交流。（香港電台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796129_3_20250317223755.jpg&q=90)
-  
-
-香港電台今日參與由國家廣播電視總局國際合作司主辦的國際傳播論壇，在論壇期間舉行的合作項目發布儀式上，港台獲四川廣播電視台及北京廣播電視台贈播《熊貓奇遇記》。四川省委宣傳部副部長、省廣電局局長李曉駿、廣播處長關婉儀以及北京廣播電視台導演郭洪瀧出席發布儀式。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796129-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796129-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796129-20250317.htm)
-
----
-
-# 中方：有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的回應
-
-![外交部稱，中方有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的堅決回應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796128_1_20250317214401.jpg&q=80)
-  
-
-在北京，外交部回應有關解放軍今日在台海附近開展軍事演習的提問，發言人毛寧說，中方有關軍事行動是捍衛國家主權、安全和領土完整的必要、合法、正當之舉，是對外部勢力執意縱容支持「台獨」行徑的堅決回應，是對「台獨」分裂勢力倒行逆施的嚴正警告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm)
-
----
-
-# 美股開市後靠穩
-
-![美股開市後靠穩。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796127_1_20250317213843.jpg&q=85)
-  
-
-紐約股市靠穩。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 長和及長實不舉行全年業績記者會
+
+![長和及長實回覆查詢時表示，不會舉行全年業績記者會以及分析員會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796204_2_20250318105756.jpg&q=85)
+  
+
+長和及長實今個星期四將舉行董事會會議，批准公司及附屬公司截至去年底止的年度業績及發布，及考慮建議派付末期股息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm)
+
+---
+
 # 日股半日升逾500點　未能企穩38000點
 
 ![日經指數半日收報37943點，升546點，升幅1.46%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796200_1_20250318103926.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796039-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796039-20250317.htm)
-
----
-
-# 本港研發生成式人工智能大模型今年推出　孫東稱開發亦著重治理
-
-![孫東表示，香港的人工智能生態圈正快速發展中。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796038_1_20250317134025.jpg&q=90)
-  
-
-世界互聯網大會亞太峰會4月14日至15日在灣仔會展舉行，將舉辦與人工智能、數字金融等有關的論壇，預計吸引逾千名海内外與會者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm)
 
 ---

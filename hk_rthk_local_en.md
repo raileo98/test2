@@ -72,7 +72,7 @@ The government said on Monday it received three proposals for establishing the c
 
 # Police arrest three over Fo Tan murder case
 
-![Superintendent Li Muk-yik says the victim and the suspected masterminds had money disputes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796114_1_20250317200724.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796114_1_20250317200724.jpg&q=80)
   
 
 Police said three people have been arrested for their alleged involvement in a murder case in Fo Tan on Sunday.
@@ -120,7 +120,7 @@ One of Hong Kong's richest people, Henderson Land founder Lee Shau-kee, has died
 
 # HK triathletes race for a spot in National Games
 
-![The Asia Triathlon Sprint Championships will take place on April 5 and 6. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796101_1_20250317182204.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796101_1_20250317182204.jpg&q=85)
   
 
 Triathletes from the SAR will try to book a spot in this year's National Games by competing in a selection race next month along Victoria Harbour.

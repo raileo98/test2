@@ -1,3 +1,27 @@
+# 習近平在貴州黔東南州考察調研
+
+![習近平了解當地加強基層黨組織建設和社會治理、保護傳承民族傳統文化、推進鄉村全面振興等情況。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_1_20250318105507.jpg&q=85)
+  
+
+中共中央總書記、國家主席習近平昨天在貴州省黔東南苗族侗族自治州考察黎平縣肇興侗寨，了解當地加強基層黨組織建設和社會治理、保護傳承民族傳統文化、推進鄉村全面振興等情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm)
+
+---
+
 # 丁薛祥晤英國能源大臣　願深化金融、貿易、綠色等領域合作
 
 ![丁薛祥在北京與文立彬會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796140_1_20250318001047.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795755-20250314.htm)
-
----
-
-# 內地2月新增人民幣貸款1.01萬億元遜預期
-
-![外電測算內地2月新增人民幣貸款1.01萬億元，低過市場預期中值的1.28萬億元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795754_1_20250314174206.jpg&q=90)
-  
-
-人民銀行公布，今年首兩個月人民幣貸款增加6.14萬億元。外電計算，內地2月新增人民幣貸款1.01萬億元，低過市場預期中值的1.28萬億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795754-20250314.htm)
 
 ---

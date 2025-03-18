@@ -1,5 +1,54 @@
+# 長和及長實不舉行全年業績記者會
+
+![長和及長實回覆查詢時表示，不會舉行全年業績記者會以及分析員會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796204_2_20250318105756.jpg&q=85)
+  
+
+長和及長實今個星期四將舉行董事會會議，批准公司及附屬公司截至去年底止的年度業績及發布，及考慮建議派付末期股息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm)
+
+---
+
+# 李家超：「一車多關」必須兩地政府協商同意才可執行
+
+![李家超表示，私家車可以利用不同關口過關，當然方便駕駛者，但要確保每個關口的交通運作暢順，一定要通盤考慮。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796202_1_20250318110646.jpg&q=90)
+  
+
+行政長官李家超表示，私家車可以利用不同關口過關，當然方便駕駛者，但要確保每個關口的交通運作暢順，一定要通盤考慮。如果沒有任何管制，某些較為方便的關口很容易有嚴重塞車，並倒灌市區，關口涉及兩地交通，兩地管理部門要完全配合，確保一個地方的交通阻塞，另一個地方的部門可以隨時應對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796202-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796202-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796202-20250318.htm)
+
+---
+
 # 李家超：非常重視第三間醫學院　特別工作組正積極審視建議書
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796201_1_20250318105631.jpg&q=90)
   
 
 行政長官李家超表示，他和特區政府非常重視第三間醫學院，這是醫療改革的一部分，以確保有足夠醫生，而且水平符合要求，特別工作組正積極審視3間大學提交的建議書。
@@ -23,6 +72,7 @@
 
 # 吳聲展稱要發現太空油吸食者主要非靠檢測而要教師觀察同學關心
 
+![吳聲展（左）認為要發現吸食者，主要並非靠檢測，而是要由教師觀察及同學們關心。伍家順（中）表示，學生如有吸毒問題，現時有很多外展或其他計劃協助。湯修齊（右）認為公眾要明白管有煙彈有極大的健康及法律風險。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796199_1_20250318110619.jpg&q=90)
   
 
 當局指出，去年有300人被呈報吸食太空油毒品，當中七成半是21歲以下，其中北區、元朗及屯門有較多個案。屯門區中學校長會主席吳聲展在本台節目《千禧年代》表示，在三個地區的個案相對多，或與學生人數較多有關，教育界希望數字不要上升，已及早作出宣傳，而「健康校園計劃」亦有提供自願測檢及身心健康輔導，有一半學校參與，當中大埔區超過九成，屯門區就有逾八成半。他認為要發現吸食者，主要並非靠檢測，而是要由教師觀察及同學們關心。
@@ -94,6 +144,7 @@
 
 # 消息指警方國安處帶走鍾翰林後父協助調查
 
+![消息指，警方國安處早上在何文田區帶走被通緝的鍾翰林的後父協助調查。（鍾翰林社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796194_1_20250318105503.jpg&q=90)
   
 
 消息指，警方國安處早上在何文田區帶走被通緝的鍾翰林的後父協助調查。
@@ -1388,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796014-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796014-20250317.htm)
-
----
-
-# 防曬妝前底霜八成半樣本成分或干擾內分泌　研究指或影響性荷爾蒙
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796010_1_20250317103858.jpg&q=85)
-  
-
-消委會檢視市面上37款妝前底霜，當中20款標榜具防曬效能的樣本中，八成半顯示含有可能干擾內分泌的防曬成分，以及可能令部分人士引起光過敏反應的奥克立林。干擾內分泌的物質或會影響性荷爾蒙，有機會削弱生殖能力、導致新生嬰兒生殖器出現異常。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796010-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796010-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796010-20250317.htm)
-
----
-
-# 8.7萬元廣告營商課程　市民指須購大量額外工具要求退款遭拒
-
-![消委會敦促業界，銷售時必須向消費者清晰講解課程內容及所有潛在或附加費用，明確列明推廣承諾。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796007_1_20250317103308.jpg&q=90)
-  
-
-消委會去年接獲688宗教育服務投訴，當中部分個案與進修課程有關，投訴涉及課程顧問承諾提供「100%退款保證」，但當投訴人覺得課程內容不符，要求退款時，商戶多次引用各種理由拒絕；亦有課程標榜為學員度身訂造一套「資產增值策略」，實際上為推銷投資海外物業代辦服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796007-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796007-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796007-20250317.htm)
 
 ---
