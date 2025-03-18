@@ -1,3 +1,27 @@
+# 白宮：美俄元首認為實現和平將從能源和基礎設施停火開始
+
+![白宮發表聲明說，兩國元首同意俄烏衝突需要以持久和平結束。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796320_1_20250319022112.jpg&q=90)
+  
+
+美國總統特朗普與俄羅斯總統普京的通話結束。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796320-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796320-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796320-20250319.htm)
+
+---
+
 # 克宮：俄烏周三互換被俘人員　普京同意俄烏暫停攻擊對方能源設施
 
 ![克里姆林宮表示，兩國總統在通話期間就烏克蘭局勢詳細和坦誠交換意見。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796319_1_20250319015052.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795979-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795979-20250317.htm)
-
----
-
-# 以國總理尋求解除國安總局長巴爾職務　巴爾指對方期望違公眾利益
-
-![巴爾說作為國家安全總局局長，首先要對以色列公民忠誠。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795976_1_20250317064902.jpg&q=90)
-  
-
-以色列總理辦公室發表聲明，指總理內塔尼亞胡將向內閣提案，解除國家安全總局局長巴爾的職務，理由是持續不信任。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795976-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795976-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795976-20250317.htm)
 
 ---

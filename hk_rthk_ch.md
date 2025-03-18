@@ -1,3 +1,27 @@
+# 白宮：美俄元首認為實現和平將從能源和基礎設施停火開始
+
+![白宮發表聲明說，兩國元首同意俄烏衝突需要以持久和平結束。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796320_1_20250319022112.jpg&q=90)
+  
+
+美國總統特朗普與俄羅斯總統普京的通話結束。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796320-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796320-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796320-20250319.htm)
+
+---
+
 # 克宮：俄烏周三互換被俘人員　普京同意俄烏暫停攻擊對方能源設施
 
 ![克里姆林宮表示，兩國總統在通話期間就烏克蘭局勢詳細和坦誠交換意見。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796319_1_20250319015052.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm)
-
----
-
-# 美商務部據報禁DeepSeek　外交部：反對泛化國家安全概念
-
-![毛寧回應，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796249_1_20250318164617.jpg&q=90)
-  
-
-對於有報道指，美國商務部各部門最近通知工作人員，中國人工智能模型深度求索(DeepSeek)已被禁止在政府設備上使用，在北京，外交部發言人毛寧回應，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化，中方也將堅定維護中國企業的合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm)
 
 ---
