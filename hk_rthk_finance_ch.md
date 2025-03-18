@@ -1,3 +1,99 @@
+# 小鵬：今年總銷量實現翻倍增長　第4季穩步走向盈利
+
+![小鵬稱通過技術降本及更大規模效應，汽車毛利率今年持續改善。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796312_1_20250318234128.jpg&q=90)
+  
+
+小鵬汽車去年汽車交付量上升34%至19萬輛，今年首兩個月交付量約6.1萬輛，預料首季交付量介乎9.1萬至9.3萬輛，按年升逾3倍；首季收入預測介乎150億元至157億元人民幣，按年升約1.3倍或以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm)
+
+---
+
+# 香港小輪去年盈利跌14%　基礎溢利升10%
+
+![香港小輪去年收益約4.23億元，上升約13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796311_1_20250318232609.jpg&q=80)
+  
+
+香港小輪去年盈利約1.64億元，按年下跌14%，扣除投資物業公允價值變動，基礎溢利1.58億元，按年上升10%。末期息每股0.15元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796311-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796311-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796311-20250318.htm)
+
+---
+
+# 美麗華酒店去年盈利跌約24%　基礎盈利升1.2%
+
+![美麗華酒店去年盈利7.47億元，按年下跌約24%；基礎盈利上升1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796310_1_20250318232353.jpg&q=90)
+  
+
+美麗華酒店去年盈利7.47億元，按年下跌約24%；扣除投資物業重新估值變動影響及其他非經常項目後，基礎盈利上升1.2%，達到8.3億元。末期息每股0.3元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm)
+
+---
+
+# 小米：切入汽車業務後集團全生態戰略展現非常強協同效應
+
+![小米稱春節期間汽車訂單量大幅提升。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796307_1_20250318230208.jpg&q=90)
+  
+
+小米集團去年第4季整體利潤約90億元人民幣，按年升逾90%；經調整盈利升逾69%至83.2億元，創季度新高；收入升約49%至1090億元，首次單季突破千億元，創單季新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm)
+
+---
+
 # 被問是否調查長和出售港口　外交部稱中方反對霸凌損害他國權益
 
 ![毛寧被重申中方堅決反對經濟脅迫、霸凌等損害他國權益。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796298_1_20250318222759.jpg&q=90)
@@ -1342,102 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796152-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796152-20250318.htm)
-
----
-
-# 特朗普：習近平不久將來會訪問美國
-
-![特朗普表示，中國國家主席習近平在不久的將來會訪問美國。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796150_1_20250318051823.jpg&q=90)
-  
-
-美國總統特朗普表示，中國國家主席習近平在不久的將來會訪問美國，但沒有透露詳情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm)
-
----
-
-# 卡尼訪問法國和英國　強調會盡可能與美國保持積極關係
-
-![卡尼在唐寧街10號與英國首相施紀賢會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796148_1_20250318042915.jpg&q=85)
-![卡尼較早時亦到白金漢宮拜會加拿大國家元首、英王查理斯三世。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796148_2_20250318042915.jpg&q=90)
-  
-
-加拿大新總理卡尼到訪巴黎及倫敦，是他上任後首度外訪。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm)
-
----
-
-# 丁薛祥晤英國能源大臣　願深化金融、貿易、綠色等領域合作
-
-![丁薛祥在北京與文立彬會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796140_1_20250318001047.jpg&q=90)
-  
-
-中共中央政治局常委、國務院副總理丁薛祥在北京與英國能源安全和淨零排放大臣文立彬會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm)
-
----
-
-# 蔡若蓮感謝李兆基令無數學生受惠　麥美娟感謝捐地建青年宿舍
-
-![李兆基基金向保良局捐贈元朗地皮，由政府全數資助興建大規模青年宿舍「保良局李兆基青年綠洲」，圖為青年綠洲正式開幕儀式。（恒基圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796139_1_20250318001358.jpg&q=85)
-  
-
-恒基地產創辦人李兆基在離世，享年97歲。特區政府多名司局長表示哀悼，並對他家人致以深切慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm)
 
 ---

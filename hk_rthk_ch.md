@@ -1,3 +1,75 @@
+# 香港小輪去年盈利跌14%　基礎溢利升10%
+
+![香港小輪去年收益約4.23億元，上升約13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796311_1_20250318232609.jpg&q=80)
+  
+
+香港小輪去年盈利約1.64億元，按年下跌14%，扣除投資物業公允價值變動，基礎溢利1.58億元，按年上升10%。末期息每股0.15元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796311-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796311-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796311-20250318.htm)
+
+---
+
+# 美麗華酒店去年盈利跌約24%　基礎盈利升1.2%
+
+![美麗華酒店去年盈利7.47億元，按年下跌約24%；基礎盈利上升1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796310_1_20250318232353.jpg&q=90)
+  
+
+美麗華酒店去年盈利7.47億元，按年下跌約24%；扣除投資物業重新估值變動影響及其他非經常項目後，基礎盈利上升1.2%，達到8.3億元。末期息每股0.3元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm)
+
+---
+
+# 小米：切入汽車業務後集團全生態戰略展現非常強協同效應
+
+![小米稱春節期間汽車訂單量大幅提升。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796307_1_20250318230208.jpg&q=90)
+  
+
+小米集團去年第4季整體利潤約90億元人民幣，按年升逾90%；經調整盈利升逾69%至83.2億元，創季度新高；收入升約49%至1090億元，首次單季突破千億元，創單季新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm)
+
+---
+
 # 嶺澳核電站1號機組去年底發生0級偏差事件　對公眾和環境沒影響
 
 ![局方表示，由於此事件具有一定的參考及學習價值。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796309_1_20250318232213.jpg&q=90)
