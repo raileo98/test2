@@ -1,3 +1,26 @@
+# 回應內地是否評估長和出售資產　外交部建議向主管部門詢問
+
+  
+
+長和計劃向美國財團出售巴拿馬運河兩端港口等資產。彭博引述消息人士指，內地有關部門開始評估長和出售海外港口業務的交易，研究是否存在國家安全漏洞或反壟斷違規行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm)
+
+---
+
 # 地產建設商會對李兆基辭世深感惋惜
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796127-20250317.htm)
-
----
-
-# 恒基創辦人李兆基離世享年97歲　歷年捐款數以十億元計
-
-![恒基兆業地產發出訃告，宣佈集團創辦人李兆基於今天黃昏 ，在家人陪伴下安詳與世長辭，享年97歲。（恒地提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796124_2_20250317213019.jpg&q=90)
-  
-
-恒基兆業地產發出訃告，宣布集團創辦人李兆基於今天黃昏 在家人陪伴下安詳與世長辭，享年97歲。出殯儀式的舉行日期，有待家族安排妥當後，將會另行公布。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796124-20250317.htm)
 
 ---
