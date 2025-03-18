@@ -72,7 +72,7 @@ Shares in Chinese EV giant BYD surged to a record high on Tuesday after it unvei
 
 # Legco polls to be held on December 7
 
-![John Lee says an Election Committee by-election will be held in September, followed by the Legco general election in December. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796209_1_20250318115209.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796209_1_20250318115209.jpg&q=85)
   
 
 Chief Executive John Lee announced on Tuesday that the Legislative Council general election will be held on December 7.
@@ -96,7 +96,7 @@ Chief Executive John Lee announced on Tuesday that the Legislative Council gener
 
 # 'Changes in checkpoints for drivers need coordination'
 
-![John Lee says the government must ensure smooth traffic flow at all checkpoints. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796214_1_20250318121204.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796214_1_20250318121204.jpg&q=90)
   
 
 Chief Executive John Lee on Tuesday said any changes to cross-border driving arrangements must prioritise traffic management and require careful coordination with mainland authorities.

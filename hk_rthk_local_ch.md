@@ -1,6 +1,34 @@
-# 天文台料今年6月或之前踏入風季　約5至8個熱帶氣旋影響本港
+# 黃英豪稱結合中醫實力與生物科技優勢　浸大申辦醫學院具競爭力
+
+![黃英豪（左）表示，浸大有自己的特色，作為全港第一間中醫院的營辦機構，過去培育了很多中醫人才。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796239_1_20250318153111.jpg&q=90)
+  
+
+已就本港興建第三所醫學院提交建議書的浸會大學，校長衞炳江出席一個活動後表示，將努力為與籌備工作組會面作出準備。
 
   
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm)
+
+---
+
+# 天文台料今年6月或之前踏入風季　約5至8個熱帶氣旋影響本港
+
+![天文台預測今年風季進入本港500公里範圍內的熱帶氣旋數目屬「正常至偏多」約5至8個。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796238_1_20250318152550.jpg&q=80)
+  
+
+天文台預測，本港今年有機會在6月或之前踏入風季，10月或之後風季結束；進入本港500公里範圍內的熱帶氣旋數目屬「正常至偏多」，約5至8個。
+
   
 
 
@@ -20,6 +48,7 @@
 
 # 中電今年將推出電動車充電收費服務　詳情適時於相關停車場公布
 
+![中電宣布，將於今年推出電動車充電收費服務，以配合市場發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796235_1_20250318152934.jpg&q=90)
   
 
 中電宣布，將於今年推出電動車充電收費服務，以配合市場發展，有關充電收費安排及詳情，將適時透過相關停車場通告發布。
@@ -43,6 +72,7 @@
 
 # 工業傷亡權益會歡迎公共建築工程逐步採用金屬棚架提升安全
 
+![工業傷亡權益會認為，逐步在公共建築工程更廣泛採用金屬棚架，可減少因棚架問題導致的事故。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796228_1_20250318152816.jpg&q=85)
   
 
 有竹棚業界人士表示，接獲發展局通知，政府當局將會以試行方式，在興建新大樓的公務工程招標項目中使用金屬棚架，並逐步將比例擴展至50%的工程。
@@ -66,6 +96,7 @@
 
 # 何炳德透露接獲當局通知使用金屬棚架比例將逐步擴展至五成工程
 
+![何炳德指出，金屬棚架成本較貴約為竹棚的兩至三倍、要有較大儲存空間、金屬棚在夏天會燙手。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796227_1_20250318152715.jpg&q=85)
   
 
 香港竹棚業持續發展關注組成員、港九搭棚同敬工會理事長何炳德透露，昨日接獲發展局通知，當局將會以試行方式，在興建新大樓的公務工程招標項目中使用金屬棚架，並逐步將比例擴展至50%的工程，期望有助提升工地安全，減少意外。
@@ -1408,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796040-20250317.htm)
-
----
-
-# 本港研發生成式人工智能大模型今年推出　孫東稱開發亦著重治理
-
-![孫東表示，香港的人工智能生態圈正快速發展中。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796038_1_20250317134025.jpg&q=90)
-  
-
-世界互聯網大會亞太峰會4月14日至15日在灣仔會展舉行，將舉辦與人工智能、數字金融等有關的論壇，預計吸引逾千名海内外與會者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm)
 
 ---
