@@ -1,3 +1,27 @@
+# 加沙衛生部指以軍空襲增至逾3百人死亡　北京促各方有效執行停火
+
+![毛寧說，中方希望各方能夠切實推動停火協議連續有效執行。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796241_1_20250318154103.jpg&q=90)
+  
+
+在以色列與哈馬斯就第二階段停火談判停滯之際，以色列軍方當地星期二凌晨，向加沙地帶發動自1月19日停火生效以來最大規模的空襲，加沙衛生部門說，空襲已造成至少330人死亡。路透社引述哈馬斯消息人士表示，死者包括一名高級成員及其家人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796241-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796241-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796241-20250318.htm)
+
+---
+
 # 滯留太空9個月　美國兩名太空人啟程返回地球
 
 ![威爾莫爾和威廉姆斯在去年6月5日乘坐「星際客機」前往太空站，怎料滯留9個月。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796236_1_20250318150818.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795935-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795935-20250316.htm)
-
----
-
-# 美國將南韓列入「敏感國家」名單　韓方稱將與美方積極磋商
-
-![美國將南韓列入「敏感國家」名單　韓方稱將與美方積極磋商](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795932_1_20250316161836.jpg&q=90)
-  
-
-美國能源部證實，美國今年1月初已將南韓列入「敏感國家」名單，但未對南韓施加新的限制措施，美國能源部願同南韓推進互利合作。韓聯社引述南韓外交部表示，韓方將會就事件與美方積極磋商。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795932-20250316.htm)
 
 ---

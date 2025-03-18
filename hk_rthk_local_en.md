@@ -1,6 +1,6 @@
 # Vaping devices ban sought to stop space oil drug use
 
-![Henry Tong wants the ban on possession of e-cigarettes devices to come into place as soon as possible. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796211_1_20250318120907.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796211_1_20250318120907.jpg&q=90)
   
 
 The chairman of the Hong Kong Council on Smoking and Health on Tuesday called on the government to ban the possession of e-cigarettes devices.
