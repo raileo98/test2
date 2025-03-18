@@ -1,3 +1,27 @@
+# 普京：西方制裁非臨時措施　欲借此對俄施加系統性戰略壓力
+
+![普京在莫斯科出席俄羅斯工業家和企業家聯合會全體會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796315_1_20250319002718.jpg&q=90)
+  
+
+俄羅斯總統普京表示，西方對俄羅斯實施的制裁不是臨時措施，而是借此對俄施加系統性戰略壓力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796315-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796315-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796315-20250319.htm)
+
+---
+
 # 王毅：中歐透過磋商解決具體經貿摩擦具重要與正面意義
 
 ![中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796313_1_20250318235236.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796242-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796242-20250318.htm)
-
----
-
-# 加沙衛生部指以軍空襲增至逾3百人死亡　北京促各方有效執行停火
-
-![毛寧說，中方希望各方能夠切實推動停火協議連續有效執行。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796241_1_20250318154103.jpg&q=90)
-  
-
-在以色列與哈馬斯就第二階段停火談判停滯之際，以色列軍方當地星期二凌晨，向加沙地帶發動自1月19日停火生效以來最大規模的空襲，加沙衛生部門說，空襲已造成至少330人死亡。路透社引述哈馬斯消息人士表示，死者包括一名高級成員及其家人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796241-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796241-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796241-20250318.htm)
 
 ---
