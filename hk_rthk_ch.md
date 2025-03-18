@@ -1,3 +1,27 @@
+# 港股ADR普遍向下　小米績後逆市升逾3%
+
+![港股ADR普遍向下，阿里巴巴跌逾3%，美團跌近2%。不過小米升逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796338_1_20250319062047.jpg&q=90)
+  
+
+港股美國預託證券(ADR)普遍向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796338-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796338-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796338-20250319.htm)
+
+---
+
 # 普京同意暫停襲擊烏國能源設施　美俄同意俄烏衝突要長久和平結束
 
 ![美國總統特朗普與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796341_1_20250319064806.jpg&q=90)
@@ -120,6 +144,7 @@
 
 # 滯留國際太空站9個月的兩名美國太空人返抵地球
 
+![滯留國際太空站9個月的兩名美國太空人返抵地球](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796337_1_20250319065439.jpg&q=90)
   
 
 美國太空探索技術公司SpaceX的龍飛船，搭載包括因波音星際客機飛船故障滯留國際太空站的4名太空人，在美國東岸時間星期二傍晚返抵地球，在佛羅里達州附近海域濺落。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796256-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796256-20250318.htm)
-
----
-
-# 林定國稱推動新型工業化是融入國家發展重要一環
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796258_1_20250318183756.jpg&q=90)
-  
-
-去年《施政報告》所提出推動的「香港新型工業發展聯盟」正式成立，希望促進「政、產、學、研、投」緊密協作，構建香港新型工業合作平台。律政司司長林定國表示，推動本地新型工業化是融入國家發展重要一環，過程中，法律的作用不可忽視。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm)
 
 ---

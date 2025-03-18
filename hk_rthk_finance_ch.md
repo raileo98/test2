@@ -1,3 +1,27 @@
+# 港股ADR普遍向下　小米績後逆市升逾3%
+
+![港股ADR普遍向下，阿里巴巴跌逾3%，美團跌近2%。不過小米升逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796338_1_20250319062047.jpg&q=90)
+  
+
+港股美國預託證券(ADR)普遍向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796338-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796338-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796338-20250319.htm)
+
+---
+
 # 金價創新高　中東局勢緊張及美國關稅計劃推動避險需求
 
 ![金價創新高，中東局勢及美國的關稅計劃，資金流入黃金避險。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796334_1_20250319054926.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796166-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796166-20250318.htm)
-
----
-
-# 港股ADR較本港昨日收市價普遍上升　阿里巴巴升近6%
-
-![港股ADR普遍上升，阿里巴巴升近6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796160_1_20250318061950.jpg&q=80)
-  
-
-港股美國預託證券(ADR)普遍上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796160-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796160-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796160-20250318.htm)
 
 ---
