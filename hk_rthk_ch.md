@@ -1,9 +1,56 @@
+# 消息指警方國安處帶走鍾翰林後父協助調查
+
+  
+
+消息指，警方國安處早上在何文田區帶走被通緝的鍾翰林的後父協助調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796194-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796194-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796194-20250318.htm)
+
+---
+
+# 長和擬售巴拿馬港口　李家超：社會關切值得重視反對外國施壓脅迫
+
+![長和計劃出售巴拿馬港口，李家超表示，社會關切值得重視反對外國施壓脅迫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796193_1_20250318100559.jpg&q=75)
+  
+
+港澳辦日前兩次轉載評論文章，談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm)
+
+---
+
 # 李家超宣布12月7日舉行第八屆立法會選舉
 
 ![李家超宣布12月7日舉行第八屆立法會選舉。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796189_1_20250318095240.jpg&q=90)
   
 
-行政長官李家超宣布，第8屆立法會選舉將定於12月7日舉行，而在選舉前會舉行選委會界別分組補選，有關補選定於9月7日進行。
+行政長官李家超宣布，第8屆立法會選舉將定於12月7日舉行，選出90名議員；而在選舉前會舉行選委會界別分組補選，有關補選定於9月7日進行。
 
   
 
@@ -27,7 +74,7 @@
 ![空襲造成大量傷亡，圖為救護車把傷者送院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796188_1_20250318094229.jpg&q=90)
   
 
-以色列軍方向加沙地帶發動自1月19日停火生效以來最大規模的空襲，造成多人傷亡
+以色列軍方向加沙地帶發動自1月19日停火生效以來最大規模的空襲，造成多人傷亡。
 
   
 
@@ -1392,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796116-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796116-20250317.htm)
-
----
-
-# 政府：接獲浸大、理大及科大建設第三所醫學院建議書
-
-![政府公布，籌備新醫學院工作組在截止前共接獲三份建設第三所醫學院建議書，分別來自浸會大學、理工大學和科技大學。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796115_1_20250317212712.jpg&q=85)
-  
-
-政府公布，籌備新醫學院工作組在截止前共接獲三份建設第三所醫學院建議書，分別來自浸會大學、理工大學和科技大學。 工作組計劃今年第二季內與提交建議書的大學進行會面，進一步了解各間大學提出的建議，以作出綜合考量。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796115-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796115-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796115-20250317.htm)
-
----
-
-# 丘應樺冀「香港研發+東莞轉化」領域會有更多合作項目
-
-![丘應樺表示，香港與東莞兩地同處粵港澳大灣區的核心地帶，地緣相近、人文相親，港莞兩地一直合作無間，成果非常顯著。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796113_1_20250317223603.jpg&q=80)
-  
-
-商務及經濟發展局局長丘應樺出席莞港產業合作交流會致辭時表示，香港與東莞兩地同處粵港澳大灣區的核心地帶，地緣相近、人文相親，港莞兩地一直合作無間，成果非常顯著。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm)
 
 ---

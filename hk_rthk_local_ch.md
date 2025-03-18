@@ -1,9 +1,56 @@
+# 消息指警方國安處帶走鍾翰林後父協助調查
+
+  
+
+消息指，警方國安處早上在何文田區帶走被通緝的鍾翰林的後父協助調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796194-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796194-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796194-20250318.htm)
+
+---
+
+# 長和擬售巴拿馬港口　李家超：社會關切值得重視反對外國施壓脅迫
+
+![長和計劃出售巴拿馬港口，李家超表示，社會關切值得重視反對外國施壓脅迫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796193_1_20250318100559.jpg&q=75)
+  
+
+港澳辦日前兩次轉載評論文章，談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm)
+
+---
+
 # 李家超宣布12月7日舉行第八屆立法會選舉
 
 ![李家超宣布12月7日舉行第八屆立法會選舉。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796189_1_20250318095240.jpg&q=90)
   
 
-行政長官李家超宣布，第8屆立法會選舉將定於12月7日舉行，而在選舉前會舉行選委會界別分組補選，有關補選定於9月7日進行。
+行政長官李家超宣布，第8屆立法會選舉將定於12月7日舉行，選出90名議員；而在選舉前會舉行選委會界別分組補選，有關補選定於9月7日進行。
 
   
 
@@ -1391,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795970-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795970-20250317.htm)
-
----
-
-# 元朗攸壆路簡約公屋項目本月28日起分批入伙
-
-![何永賢今日與幾戶即將入住攸壆路項目的家庭，到場進行壁畫創作，在公共空間的兩幅大牆畫上自己喜愛的食物。（何永賢社交專頁影片截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795961_1_20250316221946.jpg&q=90)
-  
-
-房屋局局長何永賢表示，元朗攸壆路簡約公屋項目的住戶，將於3月28日獲派鎖匙，分批入伙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795961-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795961-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795961-20250316.htm)
-
----
-
-# 新界南反黑組接手調查火炭斬人案　將安排為死者驗屍
-
-![警方接報指火炭麗禾里3A號對開有一名男子懷疑被另外兩名男子以刀襲擊，施襲者其後登上一輛的士逃去。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795959_1_20250316220304.jpg&q=55)
-  
-
-一名52歲男子在火炭被人以刀襲擊，身體多處受傷，昏迷被送往威爾斯親王醫院，其後傷重不治。警方列作謀殺案，並追緝2名身穿黑衣、年約20歲的男子。新界南總區反三合會行動組正調查案件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795959-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795959-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795959-20250316.htm)
 
 ---
