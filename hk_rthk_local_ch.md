@@ -1,3 +1,26 @@
+# 中電今年將推出電動車充電收費服務　詳情適時於相關停車場公布
+
+  
+
+中電宣布，將於今年推出電動車充電收費服務，以配合市場發展，有關充電收費安排及詳情，將適時透過相關停車場通告發布。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796235-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796235-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796235-20250318.htm)
+
+---
+
 # 工業傷亡權益會歡迎公共建築工程逐步採用金屬棚架提升安全
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796037-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796037-20250317.htm)
-
----
-
-# 消委會測試巿面雙人床褥樣本　大部分仰臥承托好惟側臥表現參差
-
-![消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796036_1_20250317123918.jpg&q=85)
-  
-
-消委會測試巿面14款雙人床褥樣本，發現大部分樣本在仰臥時能提供良好承托，但側臥表現參差。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796036-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796036-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796036-20250317.htm)
 
 ---

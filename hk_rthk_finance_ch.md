@@ -1,3 +1,26 @@
+# 中電今年將推出電動車充電收費服務　詳情適時於相關停車場公布
+
+  
+
+中電宣布，將於今年推出電動車充電收費服務，以配合市場發展，有關充電收費安排及詳情，將適時透過相關停車場通告發布。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796235-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796235-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796235-20250318.htm)
+
+---
+
 # 韓股全日升1點
 
 ![首爾綜合指數收報2612點，升1點，升幅0.06%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796231_1_20250318143448.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm)
-
----
-
-# 港股高收185點　重上24000點關口　連升兩日
-
-![港股連升兩日，恒生指數重上24000點收市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796067_1_20250317161631.jpg&q=45)
-  
-
-港股連升兩日，恒生指數早段最多升近400點，觸及24352點，創逾1星期新高，下午升幅收窄，但仍升穿24000點收市，報24145點，升185點，升幅0.77%，全日主板成交額約2448億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796067-20250317.htm)
 
 ---
