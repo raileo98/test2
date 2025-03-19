@@ -1,3 +1,27 @@
+# 港股全日升30點　小米及比亞迪股份破頂
+
+![恒生指數午後觸及24874點，再創逾3年新高，收市報24771點，升30點，連升4日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796427_1_20250319161702.jpg&q=85)
+  
+
+港股反覆靠穩，恒生指數午後最多升逾130點，觸及24874點，再創逾3年新高，收市報24771點，升30點，升幅0.12%，連升4日，全日高低點數波幅逾270點。單日主板成交額約2719億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796427-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796427-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796427-20250319.htm)
+
+---
+
 # 外交部駐港公署：強烈不滿澳方為反中亂港分子撐腰打氣
 
 ![發言人說，中方敦促澳方停止為犯罪分子提供「庇護所」。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796426_1_20250319160822.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796141-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796141-20250318.htm)
-
----
-
-# 丁薛祥晤英國能源大臣　願深化金融、貿易、綠色等領域合作
-
-![丁薛祥在北京與文立彬會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796140_1_20250318001047.jpg&q=90)
-  
-
-中共中央政治局常委、國務院副總理丁薛祥在北京與英國能源安全和淨零排放大臣文立彬會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm)
 
 ---
