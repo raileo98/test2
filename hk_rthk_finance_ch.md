@@ -1,3 +1,27 @@
+# 現貨金再創新高　聯儲局年內或再減息兩次
+
+![現貨金一度升至每盎司3051.99美元創新高，較早時報3046.84美元，升幅0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796514_1_20250320055329.jpg&q=80)
+  
+
+金價再創歷史新高，聯儲局按兵不動，並暗示今年或再減息兩次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796514-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796514-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796514-20250320.htm)
+
+---
+
 # 美元升幅收窄　聯儲局維持利率不變並料增長放緩
 
 ![美元指數一度高見103.9，較早時報103.46，升幅逾0.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796512_1_20250320054805.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796346-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796346-20250319.htm)
-
----
-
-# 據報摩根士丹利擬本月裁員約2000人
-
-![據報摩根士丹利計劃在本月裁員約2000人，佔公司員工總數2%至3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796345_1_20250319072806.jpg&q=90)
-  
-
-外電引述消息人士指，摩根士丹利計劃在本月裁員約2000人，佔公司員工總數2%至3%，但不包括財務顧問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796345-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796345-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796345-20250319.htm)
 
 ---
