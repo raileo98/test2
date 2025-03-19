@@ -1,3 +1,99 @@
+# 立法會三讀通過《保護關鍵基礎設施條例草案》
+
+![《保護關鍵基礎設施條例草案》獲立法會三讀通過。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796447_1_20250319173909.jpg&q=80)
+  
+
+《保護關鍵基礎設施條例草案》獲立法會三讀通過。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796447-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796447-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796447-20250319.htm)
+
+---
+
+# 騰訊上季盈利按年升90%　按季跌4%
+
+![騰訊去年第4季盈利513.2億元人民幣，按年增長90%，按季則跌4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796446_1_20250319173858.jpg&q=90)
+  
+
+騰訊去年第4季盈利513.2億元人民幣，按年增長90%，按季則跌4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796446-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796446-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796446-20250319.htm)
+
+---
+
+# 港島首個社區客廳筲箕灣開幕　今年增5個新社區客團超出目標
+
+![陳國基說，今年將共有5個新社區客廳投入營運，超出原本提出3間的目標。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796444_1_20250319173054.jpg&q=80)
+  
+
+政務司司長陳國基主持筲箕灣社區客廳開幕典禮，這是港島首個社區客廳，亦是全港第五個社區客廳。他在致辭時說，筲箕灣社區客廳面積有2700平方呎，預計可服務330個劏房戶，全年可服務5萬人次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796444-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796444-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796444-20250319.htm)
+
+---
+
+# 韓媒：上月試圖闖入中國駐韓大使館男子被起訴
+
+![韓媒：上月試圖闖入中國駐韓大使館男子被起訴](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796443_1_20250319172903.jpg&q=90)
+  
+
+韓聯社引述當地法律界的消息指，上月身穿Marvel電影人物「美國隊長」服飾，試圖闖入中國駐韓大使館和當地警署的男子，已被逮捕起訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm)
+
+---
+
 # 香港場外結算公司接受在岸國債及政策性金融債作為履約抵押品
 
 ![境外投資者本周五起可使用債券通持倉中在岸國債和政策性金融債作為所有衍生品交易履約抵押品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796431_1_20250319164608.jpg&q=90)

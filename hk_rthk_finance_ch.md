@@ -1,3 +1,27 @@
+# 騰訊上季盈利按年升90%　按季跌4%
+
+![騰訊去年第4季盈利513.2億元人民幣，按年增長90%，按季則跌4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796446_1_20250319173858.jpg&q=90)
+  
+
+騰訊去年第4季盈利513.2億元人民幣，按年增長90%，按季則跌4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796446-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796446-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796446-20250319.htm)
+
+---
+
 # 香港場外結算公司接受在岸國債及政策性金融債作為履約抵押品
 
 ![境外投資者本周五起可使用債券通持倉中在岸國債和政策性金融債作為所有衍生品交易履約抵押品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796431_1_20250319164608.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796283-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796283-20250318.htm)
-
----
-
-# 孫東稱冀與業界促進新來港上市企業與本地大學開展創科合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796281_1_20250318200433.jpg&q=80)
-  
-
-創新科技及工業局局長孫東出席「香港新型工業發展聯盟」成立典禮。他致辭時說，聯盟的成立正是香港新型工業發展又一個重要的里程碑，熱切期待聯盟未來能積極促進各創科持份者的緊密協作，包括提供融資機會、促進新來港上市企業與本地大學開展創科合作等，推動香港新型工業化的全面發展，讓創新鏈和產業鏈無縫對接。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm)
 
 ---

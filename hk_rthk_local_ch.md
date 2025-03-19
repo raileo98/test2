@@ -1,3 +1,51 @@
+# 立法會三讀通過《保護關鍵基礎設施條例草案》
+
+![《保護關鍵基礎設施條例草案》獲立法會三讀通過。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796447_1_20250319173909.jpg&q=80)
+  
+
+《保護關鍵基礎設施條例草案》獲立法會三讀通過。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796447-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796447-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796447-20250319.htm)
+
+---
+
+# 港島首個社區客廳筲箕灣開幕　今年增5個新社區客團超出目標
+
+![陳國基說，今年將共有5個新社區客廳投入營運，超出原本提出3間的目標。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796444_1_20250319173054.jpg&q=80)
+  
+
+政務司司長陳國基主持筲箕灣社區客廳開幕典禮，這是港島首個社區客廳，亦是全港第五個社區客廳。他在致辭時說，筲箕灣社區客廳面積有2700平方呎，預計可服務330個劏房戶，全年可服務5萬人次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796444-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796444-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796444-20250319.htm)
+
+---
+
 # 香港場外結算公司接受在岸國債及政策性金融債作為履約抵押品
 
 ![境外投資者本周五起可使用債券通持倉中在岸國債和政策性金融債作為所有衍生品交易履約抵押品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796431_1_20250319164608.jpg&q=90)
@@ -1385,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796272-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796272-20250318.htm)
-
----
-
-# 工貿署料調整基金對中小企資助比例及首期撥款可減少問題個案
-
-![廖廣翔表示，基金秘書處審核申請和確保符合要求後，會再將申請交由跨部門小組審閱，而獲批企業亦須定期繳交報告。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796265_2_20250318175213.jpg&q=90)
-  
-
-為支援中小企發展，《財政預算案》宣布向「發展品牌、升級轉型及拓展內銷市場的專項基金」，即「BUD專項基金」以及「市場推廣及工商機構支援基金」合共注資15億元，但兩個基金向中小企的資助比例，由以往政府和企業1比1調整至1比3；首期撥款亦由以往先批出資助額的75%，調整至20%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm)
-
----
-
-# 港燈去年盈利跌逾1%　售電量升1.1%
-
-![港燈去年盈利31.1億元，按年跌逾1%，可供分派收入跌約4%至23.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796263_1_20250318171420.jpg&q=90)
-  
-
-港燈去年盈利31.1億元，按年跌逾1%。每股份合訂單位末期分派16.09港仙，全年分派32.03港仙，兩者都與前年相同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm)
 
 ---
