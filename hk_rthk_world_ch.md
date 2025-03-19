@@ -1,6 +1,10 @@
 # 白宮證實特朗普與澤連斯基通話
 
+![白宮證實特朗普與澤連斯基通話。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796488_1_20250319225813.jpg&q=90)
   
+
+美國白宮證實，總統特朗普在橢圓型辦公室與烏克蘭總統澤連斯基通話。
+
   
 
 
