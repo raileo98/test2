@@ -1,3 +1,27 @@
+# 植田和男：日本經濟仍有疲軟跡象　海外經濟不確定性增加
+
+![植田和男表示，必須仔細審視薪酬趨勢，又指薪酬上升勢頭強勁，並延伸至小型企業。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796418_1_20250319154153.jpg&q=90)
+  
+
+日本央行總裁植田和男表示，日本經濟正在溫和復蘇，但仍有一些疲軟跡象，日本經濟及物價、全球貿易政策趨勢的不確定仍很高，美國關稅政策仍有很大不確定，海外經濟不確定性比1月上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796418-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796418-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796418-20250319.htm)
+
+---
+
 # 66名的士司機被記分涉拒載兜路等　無的士司機記15分取消資格
 
   
