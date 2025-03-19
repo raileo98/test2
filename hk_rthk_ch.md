@@ -1,3 +1,50 @@
+# 海洋公園登山纜車及山上高峰樂園恢復運作
+
+  
+
+海洋公園在網站表示，早前一度暫停服務的登山纜車及山上高峰樂園，已於下午4時15分恢復運作，園方感謝受影響訪客的體諒。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796429-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796429-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796429-20250319.htm)
+
+---
+
+# 財政部近日將於倫敦發行不多於60億元人民幣綠色主權債券
+
+![財政部近日將在倫敦發行人民幣綠色主權債券，規模不多於60億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796428_1_20250319162504.jpg&q=90)
+  
+
+財政部表示，近日將在倫敦發行人民幣綠色主權債券，規模不多於60億元人民幣，將另行公布具體發行安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796428-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796428-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796428-20250319.htm)
+
+---
+
 # 印尼維持利率不變
 
 ![印尼央行維持利率不變，7日期逆回購利率繼續是5.75厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796425_1_20250319160814.jpg&q=90)

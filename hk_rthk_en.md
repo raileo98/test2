@@ -1,3 +1,27 @@
+# More local companies planning to hire than cut staff
+
+![Lancy Chui says that while the local healthcare industry showed the strongest hiring demand, the logistics sector could face a challenging hiring outlook due to global trade frictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796421_1_20250319154853.jpg&q=90)
+  
+
+An employment survey has found that about 30 percent of Hong Kong companies are planning to hire more staff in the coming three months, while about 20 percent of them are expected to have personnel cuts.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796421-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796421-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796421-20250319.htm)
+
+---
+
 # 'Stable China-US trade ties benefit global firms'
 
 ![Wang Shouwen holds talks with Ramon Laguarta in Beijing. Photo courtesy of Commerce Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796422_1_20250319154955.jpg&q=90)
@@ -96,7 +120,7 @@ Polytechnic University (PolyU) on Wednesday said it will shoulder the cost of de
 
 # At least 10 injured after bus hits exit ramp divider
 
-![The KMB double-decker at the scene of the accident in Tai Po on Tolo Highway. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796402_1_20250319132024.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796402_1_20250319132024.jpg&q=90)
   
 
 At least ten people were injured when a bus hit an exit ramp road divider on Tolo Highway on Wednesday.
@@ -1411,29 +1435,5 @@ The Centre for Health Protection (CHP) is investigating a gastroenteritis cluste
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796126-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796126-20250317.htm)
-
----
-
-# Three proposals received for HK's third medical school
-
-![The Task Group on New Medical School previously held meetings to discuss the next steps for evaluating proposals on the establishment of the third medical school. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796122_1_20250317205156.jpg&q=85)
-  
-
-The government said on Monday it received three proposals for establishing the city’s third medical institution.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm)
 
 ---

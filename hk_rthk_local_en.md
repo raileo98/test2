@@ -48,7 +48,7 @@ Polytechnic University (PolyU) on Wednesday said it will shoulder the cost of de
 
 # At least 10 injured after bus hits exit ramp divider
 
-![The KMB double-decker at the scene of the accident in Tai Po on Tolo Highway. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796402_1_20250319132024.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796402_1_20250319132024.jpg&q=90)
   
 
 At least ten people were injured when a bus hit an exit ramp road divider on Tolo Highway on Wednesday.

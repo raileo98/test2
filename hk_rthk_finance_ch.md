@@ -1,3 +1,27 @@
+# 財政部近日將於倫敦發行不多於60億元人民幣綠色主權債券
+
+![財政部近日將在倫敦發行人民幣綠色主權債券，規模不多於60億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796428_1_20250319162504.jpg&q=90)
+  
+
+財政部表示，近日將在倫敦發行人民幣綠色主權債券，規模不多於60億元人民幣，將另行公布具體發行安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796428-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796428-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796428-20250319.htm)
+
+---
+
 # 印尼維持利率不變
 
 ![印尼央行維持利率不變，7日期逆回購利率繼續是5.75厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796425_1_20250319160814.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796262-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796262-20250318.htm)
-
----
-
-# 聯通去年多賺逾10%　今年算力投資增速料升至28%
-
-![聯通去年算力投資按年升19%，預計今年增長加快至28%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796252_1_20250318164118.jpg&q=90)
-  
-
-中國聯通去年盈利206.1億元人民幣，按年升逾10%。末期息每股15.62分，全年派息40.43分，按年升20%，派息比率提高5個百分點至60%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796252-20250318.htm)
 
 ---
