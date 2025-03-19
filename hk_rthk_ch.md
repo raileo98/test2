@@ -1,5 +1,76 @@
+# 理大籌建第三間醫學院專家諮詢委員會21人包括鍾南山及張文宏
+
+  
+
+本港三所大學正分別爭取籌建第三間醫學院，其中理大公布籌建第三間醫學院的專家諮詢委員會名單，合共有21人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm)
+
+---
+
+# 九巴74X失事撞欄　11名乘客及車長受傷
+
+  
+
+一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796408-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796408-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796408-20250319.htm)
+
+---
+
+# 台股低收1.4%　跌穿22000點
+
+![加權指數回落至22000點以下，收報21960點，跌310點，跌幅1.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796407_1_20250319142027.jpg&q=90)
+  
+
+台灣股市偏軟，結束3日升勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796407-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796407-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796407-20250319.htm)
+
+---
+
 # 南韓總統彈劾案未有宣判日　警方已計劃逾2萬人維護社會治安秩序
 
+![首爾近日有集會要求尹錫悅立即下台。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796406_1_20250319141528.jpg&q=85)
   
 
 南韓警方將於總統尹錫悅彈劾案宣判當日，在全韓範圍部署超過330支機動部隊、合共2萬多名警員，其中1萬4千人會部署到首爾市中心區域。
@@ -23,6 +94,7 @@
 
 # 羅淑佩稱啟德體育園公司已積極找發言人　冀七欖消息發放得更好
 
+![羅淑佩指政府下達要求後，啟德體育園公司已積極尋找發言人，會建立相關制度。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796405_1_20250319141721.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩表示，就啟德體育園啟用初期的情況，已向營運公司管理層表達高度關注，並指示要迅速調整體制，包括優化決策、溝通及處理突發事件機制，亦要求改善員工的敏感度及向外發放信息的安排，包括設立專職發言人，以加強公眾對啟德體育園的認知和信心。

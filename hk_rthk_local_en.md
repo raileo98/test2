@@ -1,9 +1,33 @@
-# At least 10 injured after bus hits pavement
+# PolyU 'to shoulder cost of third medical school'
+
+![Polytechnic University has hailed its 45 years of experience in nurturing medical professionals as it states the case for its bid for the third medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796404_1_20250319133406.jpg&q=75)
+  
+
+Polytechnic University (PolyU) on Wednesday said it will shoulder the cost of developing Hong Kong's third medical school when necessary.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796404-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796404-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796404-20250319.htm)
+
+---
+
+# At least 10 injured after bus hits exit ramp divider
 
 ![The KMB double-decker at the scene of the accident in Tai Po on Tolo Highway. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796402_1_20250319132024.jpg&q=90)
   
 
-At least ten people were injured when a bus struck the pavement on Tolo Highway on Wednesday.
+At least ten people were injured when a bus hit an exit ramp road divider on Tolo Highway on Wednesday.
 
   
 
@@ -48,7 +72,7 @@ The government said it plans to amend the law to help boost the development of i
 
 # Two EMSD staff, supplier charged with fraud
 
-![The trio are charged with conspiracy to defraud, and the ICAC said more charges could be laid against the trio. (File photo: RTHK)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796388_1_20250319122707.jpg&q=90)
+![The trio are charged with conspiracy to defraud, and the ICAC said more charges could be laid against the trio. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796388_1_20250319122707.jpg&q=90)
   
 
 The ICAC said on Wednesday two frontline staff from the Electrical and Mechanical Services Department and a supplier have been charged with conspiracy to defraud.
@@ -1411,30 +1435,5 @@ A population expert on Thursday welcomed the government's proposed amendments to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795595-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795595-20250313.htm)
-
----
-
-# Picasso's legacy lives on in new HK exhibition
-
-![The exhibition will be open to the public at the M+ West Gallery from March 15 to July 13. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795585_1_20250313175146.jpg&q=90)
-![Doryun Chong said this exhibition marks the first major showcase of Picasso's masterpieces in the SAR in over a decade. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795585_2_20250313175146.jpg&q=90)
-  
-
-An upcoming exhibition dedicated to Spanish artist Pablo Picasso is set to bring a vibrant intercultural and intergenerational experience to Hong Kong as part of this year's French May Arts Festival.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795585-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795585-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795585-20250313.htm)
 
 ---

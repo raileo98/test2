@@ -1,3 +1,27 @@
+# 台股低收1.4%　跌穿22000點
+
+![加權指數回落至22000點以下，收報21960點，跌310點，跌幅1.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796407_1_20250319142027.jpg&q=90)
+  
+
+台灣股市偏軟，結束3日升勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796407-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796407-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796407-20250319.htm)
+
+---
+
 # 嘉里建設去年盈利跌75%
 
 ![嘉里建設去年盈利8.08億元，按年大跌75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796403_1_20250319132958.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm)
-
----
-
-# 滬股全日升3點　創逾3個月新高
-
-![上證指數收報3429點，升3點，升幅0.11%，創逾3個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796237_1_20250318150717.jpg&q=90)
-  
-
-內地股市靠穩，有色、黃金、港口航運等股份造好；遊戲，白酒及零售股向下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm)
 
 ---

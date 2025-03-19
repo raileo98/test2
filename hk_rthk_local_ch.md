@@ -1,5 +1,52 @@
+# 理大籌建第三間醫學院專家諮詢委員會21人包括鍾南山及張文宏
+
+  
+
+本港三所大學正分別爭取籌建第三間醫學院，其中理大公布籌建第三間醫學院的專家諮詢委員會名單，合共有21人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm)
+
+---
+
+# 九巴74X失事撞欄　11名乘客及車長受傷
+
+  
+
+一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796408-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796408-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796408-20250319.htm)
+
+---
+
 # 羅淑佩稱啟德體育園公司已積極找發言人　冀七欖消息發放得更好
 
+![羅淑佩指政府下達要求後，啟德體育園公司已積極尋找發言人，會建立相關制度。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796405_1_20250319141721.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩表示，就啟德體育園啟用初期的情況，已向營運公司管理層表達高度關注，並指示要迅速調整體制，包括優化決策、溝通及處理突發事件機制，亦要求改善員工的敏感度及向外發放信息的安排，包括設立專職發言人，以加強公眾對啟德體育園的認知和信心。
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796220-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796220-20250318.htm)
-
----
-
-# 外電指內地監管部門評估長和出售海外港口業務交易
-
-![彭博引述消息人士指，中國有關部門開始評估長和出售海外港口業務的交易。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796218_1_20250318121750.jpg&q=75)
-  
-
-彭博引述消息人士指，中國有關部門開始評估長和出售海外港口業務的交易。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm)
-
----
-
-# 李家超︰須重視社會對長和擬向美國財團出售巴拿馬運河港口關切
-
-![長和計劃向美國財團出售巴拿馬運河兩端港口等資產。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796219_1_20250318122902.jpg&q=80)
-  
-
-長和計劃向美國財團出售巴拿馬運河兩端港口等資產，行政長官李家超回應指，社會有很多議論，這些關切值得重視。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm)
 
 ---

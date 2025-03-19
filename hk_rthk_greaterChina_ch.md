@@ -1,3 +1,26 @@
+# 理大籌建第三間醫學院專家諮詢委員會21人包括鍾南山及張文宏
+
+  
+
+本港三所大學正分別爭取籌建第三間醫學院，其中理大公布籌建第三間醫學院的專家諮詢委員會名單，合共有21人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm)
+
+---
+
 # 李家超與江門市委書記會面　就深化港邑合作及推動大灣區發展交流
 
 ![李家超（右）與江門市委書記陳岸明（左）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796400_1_20250319135325.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm)
-
----
-
-# 聖保羅書院中五生內地交流期間死亡　蔡若蓮重申與交流考察無關
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795921_1_20250316123957.jpg&q=90)
-  
-
-聖保羅書院一名中五學生早前在杭州交流期間死亡，教育局局長蔡若蓮出席活動時，被問到學界仍有不同揣測，局方會否進一步交代；蔡若蓮重申，調查已結束，證明事件與交流及考察無關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795921-20250316.htm)
 
 ---
