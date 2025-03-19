@@ -22,6 +22,29 @@
 
 ---
 
+# 陳國基稱東莞一直是香港在經貿和航運緊密合作夥伴
+
+  
+
+政務司司長陳國基在香港東莞社團總會就職典禮致辭時表示，隨着粵港澳大灣區的發展進一步深化，香港與東莞的人流、物流和資金流往來更加頻繁，東莞一直是香港在經貿和航運上緊密的合作夥伴，並在近年大力發展新的產業支柱、引進大型科創企業落戶，以及致力優化科技創新生態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm)
+
+---
+
 # 平保去年盈利升近48%　壽險及健康險利潤跌約2%
 
 ![平安保險去年盈利1266.1億元人民幣，按年增長近48%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796460_1_20250319182900.jpg&q=90)
@@ -43,6 +66,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796460-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796460-20250319.htm)
+
+---
+
+# 李家超會見廣東省省長王偉中　就進一步加強粵港合作交流
+
+![李家超在禮賓府會見率團訪港的廣東省省長王偉中。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796470_1_20250319194522.jpg&q=90)
+  
+
+行政長官李家超在禮賓府，會見率團訪港的廣東省省長王偉中，雙方就進一步加強粵港合作及推動大灣區高質量發展交流意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm)
 
 ---
 
@@ -211,29 +258,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm)
-
----
-
-# 雲從科技冀以港為據點拓海外市場　科大訊飛稱語音技術助政府辦公
-
-  
-
-內地多間創科民企代表參與本港一個大灣區創新科技論壇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm)
 
 ---
 
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm)
-
----
-
-# 世界知識產權組織數據指中國是國際專利申請最大來源國
-
-![世界知識產權組織數據指中國是國際專利申請最大來源國。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796294_1_20250318210928.jpg&q=90)
-  
-
-世界知識產權組織數據顯示，中國是國際專利申請最大來源國。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm)
 
 ---
