@@ -1,6 +1,149 @@
+# 周文港：大學收入無問題　劉智鵬：大學由日常開支儲備應對削款
+
+  
+
+預算案提出，未來三年，每年削減教資會資助大學經常撥款2%，撥款額達681億。立法會教育事務委員會主席周文港於本台節目《千禧年代》指出，雖然每年削減2%撥款，但實際三年期會較原先撥款增加8%，因此不應裁員減薪。對於政府要求大學將一般及發展基金中退回其中40億，周文港表示，八大的整體儲備現時有1300多億，認為各大學可以充分利用，相信在提升教學方面無問題。政府資助只佔大學收入四至六成，而每年大學的恆常收入，亦包括非本地生及自資課程收入等，佔平均收入達四成，亦正不斷增加，而大學科研成果轉化為收入，亦按年增加近13%，連續兩年過百億，重申大學收入並無問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm)
+
+---
+
+# 西門子計劃全球裁員逾6000人
+
+![西門子表示，裁員主要原因是在中國和德國這兩大關鍵市場的需求疲弱，以及競爭壓力增加。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796368_1_20250319095211.jpg&q=90)
+  
+
+德國西門子計劃在全球裁員超過6000人，佔全球員工總數約2%，主要原因是在中國和德國這兩大關鍵市場的需求疲弱，以及競爭壓力增加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796368-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796368-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796368-20250319.htm)
+
+---
+
+# 兩機電署監工涉收供應商百萬元禮物　供應商多次中標訂單逾千萬元
+
+![3人涉嫌於機電署採購維修零件時，以貪污不法手段令涉案供應商於7年間多次中標，並誇大購貨訂單的購買物品數量及價格。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796367_1_20250319095519.jpg&q=90)
+  
+
+廉政公署落案起訴兩名機電署監工及一名供應商，3人涉嫌於機電署採購維修零件時，以貪污不法手段令涉案供應商於7年間多次中標，並誇大購貨訂單的購買物品數量及價格，訂單金額合共超過1360萬元。3人被控告串謀詐騙，今日將在西九龍裁判法院應訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796367-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796367-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796367-20250319.htm)
+
+---
+
+# 8紀律部隊和輔助部隊下月舉行開放日推廣「全民國家安全教育日」
+
+![保安局轄下8支紀律部隊和輔助部隊，將分別於本月內不同的周末及假日舉行開放日，讓市民加深了解各部隊對維護國家安全的工作和成果。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796366_1_20250319100305.jpg&q=80)
+  
+
+為配合下月15日全民國家安全教育日，保安局轄下8支紀律部隊和輔助部隊，將分別於本月內不同的周末及假日舉行開放日，讓市民加深了解各部隊對維護國家安全的工作和成果。市民今日起，可於相關紀律部隊的網站或流動應用程式，登記索取免費入場門票，而輔助部隊總部開放日則毋須門票。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796366-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796366-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796366-20250319.htm)
+
+---
+
+# 人行逆回購2959億元人民幣　連續3日淨投放
+
+![人行公開市場開展2959億元人民幣7天期逆回購操作，連續3日淨投放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796363_1_20250319093254.jpg&q=75)
+  
+
+人民銀行公開市場開展2959億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，單日淨投放1205億元，連續3日淨投放。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796363-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796363-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796363-20250319.htm)
+
+---
+
+# 內地股市早段跌約0.2%至約0.4%
+
+![內地股市初段偏軟，上證指數較早時報3423點，跌6點，跌幅0.19%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796364_1_20250319093509.jpg&q=90)
+  
+
+內地股市初段偏軟，上證指數較早時報3423點，跌6點，跌幅0.19%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796364-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796364-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796364-20250319.htm)
+
+---
+
 # 港股競價時段跌42點
 
-![港股競價時段跌42點。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796361_1_20250319092345.jpg&q=75)
+![港股競價時段跌42點，恒指報24697點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796361_1_20250319092555.jpg&q=75)
   
 
 港股競價時段跌42點，恒指報24697點。
@@ -504,7 +647,6 @@
 
 # 滯留國際太空站9個月的兩名美國太空人返抵地球
 
-![包括威爾莫爾和威廉姆斯在內的4名太空人重返地球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796337_2_20250319074152.jpg&q=80)
 ![SpaceX的龍飛船重返地球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796337_3_20250319074152.jpg&q=90)
   
 
@@ -1292,149 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796293-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796293-20250318.htm)
-
----
-
-# 回應內地是否評估長和出售資產　外交部建議向主管部門詢問
-
-![毛寧說中方一貫堅決反對利用經濟脅迫、霸道霸凌侵害損害他國正當權益的行為。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796292_1_20250318212809.jpg&q=90)
-  
-
-長和計劃向美國財團出售巴拿馬運河兩端港口等資產。彭博引述消息人士指，內地有關部門開始評估長和出售海外港口業務的交易，研究是否存在國家安全漏洞或反壟斷違規行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm)
-
----
-
-# 以色列軍方表示將繼續攻擊哈馬斯在加沙的目標
-
-![以色列軍方表示將繼續攻擊哈馬斯在加沙的目標。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796291_1_20250318201549.jpg&q=80)
-  
-
-以色列軍方表示，將繼續攻擊哈馬斯和伊斯蘭聖戰組織在加沙的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm)
-
----
-
-# 羅淑佩：啟德體育園啟用有助增強香港體育事業競爭力
-
-![羅淑佩（中）表示，特區政府會持續投放資源，與社會各界攜手建立熱愛體育的文化。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796290_1_20250318212726.jpg&q=80)
-  
-
-文化體育及旅遊局局長羅淑佩表示，特區政府會持續投放資源，與社會各界攜手建立熱愛體育的文化，隨著啟德體育園啟用，相信將會進一步提升相關人才的場地管理、裁判、訓練和盛事統籌能力，有助增強香港體育事業的競爭力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm)
-
----
-
-# 監警會主席王沛詩與委員視察旺角警署並與衝鋒隊前線人員交流
-
-![王沛詩日前聯同一眾委員和秘書處職員前往旺角警署視察「特別臨時羈留室」的最新配備及設施。（監警會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796289_1_20250318212651.jpg&q=80)
-  
-
-監警會主席王沛詩日前聯同一眾委員和秘書處職員前往旺角警署視察「特別臨時羈留室」的最新配備及設施，並與西九龍衝鋒隊的前線人員交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm)
-
----
-
-# 地產建設商會對李兆基辭世深感惋惜
-
-![香港地產建設商會對恒基兆業地產創辦人李兆基辭世深感惋惜。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796288_1_20250318212552.jpg&q=90)
-  
-
-香港地產建設商會對恒基兆業地產創辦人李兆基辭世深感惋惜，形容他是傑出的商界楷模、香港地產界的翹楚，他的卓越領導，為社會各界、房地產的發展作出了深遠和巨大的貢獻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm)
-
----
-
-# 小鵬汽車去年虧損收窄44%　料首季交付量按年升逾3倍
-
-![小鵬汽車預料，首季交付量介乎9.1萬至9.3萬輛，按年升逾3倍。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796282_1_20250318183629.jpg&q=90)
-  
-
-小鵬汽車去年虧損57.9億元人民幣，按年收窄44%，不派息。非公認會計準則計，虧損收窄41%至55.5億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796282-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796282-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796282-20250318.htm)
 
 ---

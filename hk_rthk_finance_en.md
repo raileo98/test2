@@ -1,3 +1,27 @@
+# Hong Kong stocks open flat ahead of Fed decision
+
+![The Fed on Wednesday is expected to maintain current interest rates. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796365_1_20250319093927.jpg&q=90)
+  
+
+The Hang Seng Index lost 42.94 points, or 0.17 percent, to open at 24,697.63 on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm)
+
+---
+
 # US stocks end lower on geopolitical concerns
 
 ![Stocks had risen the last two days in a partial rebound from declines in recent weeks. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796340_1_20250319064754.jpg&q=90)
@@ -1411,29 +1435,5 @@ US stocks closed sharply lower on Monday, after US President Donald Trump slappe
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794094-20250304.htm)
-
----
-
-# Trump signs order to further hike tariffs on China
-
-![The order raises a previously imposed 10 percent tariff on China to 20 percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794081_1_20250304063119.jpg&q=90)
-  
-
-US President Donald Trump has signed an order to hike tariffs on Chinese imports further, the White House said Monday, citing what it called Beijing's failure to tackle the illicit fentanyl trade.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794081-20250304.htm)
 
 ---

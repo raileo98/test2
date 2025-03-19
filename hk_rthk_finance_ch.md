@@ -1,6 +1,77 @@
+# 周文港：大學收入無問題　劉智鵬：大學由日常開支儲備應對削款
+
+  
+
+預算案提出，未來三年，每年削減教資會資助大學經常撥款2%，撥款額達681億。立法會教育事務委員會主席周文港於本台節目《千禧年代》指出，雖然每年削減2%撥款，但實際三年期會較原先撥款增加8%，因此不應裁員減薪。對於政府要求大學將一般及發展基金中退回其中40億，周文港表示，八大的整體儲備現時有1300多億，認為各大學可以充分利用，相信在提升教學方面無問題。政府資助只佔大學收入四至六成，而每年大學的恆常收入，亦包括非本地生及自資課程收入等，佔平均收入達四成，亦正不斷增加，而大學科研成果轉化為收入，亦按年增加近13%，連續兩年過百億，重申大學收入並無問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm)
+
+---
+
+# 人行逆回購2959億元人民幣　連續3日淨投放
+
+![人行公開市場開展2959億元人民幣7天期逆回購操作，連續3日淨投放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796363_1_20250319093254.jpg&q=75)
+  
+
+人民銀行公開市場開展2959億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，單日淨投放1205億元，連續3日淨投放。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796363-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796363-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796363-20250319.htm)
+
+---
+
+# 內地股市早段跌約0.2%至約0.4%
+
+![內地股市初段偏軟，上證指數較早時報3423點，跌6點，跌幅0.19%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796364_1_20250319093509.jpg&q=90)
+  
+
+內地股市初段偏軟，上證指數較早時報3423點，跌6點，跌幅0.19%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796364-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796364-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796364-20250319.htm)
+
+---
+
 # 港股競價時段跌42點
 
-![港股競價時段跌42點。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796361_1_20250319092345.jpg&q=75)
+![港股競價時段跌42點，恒指報24697點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796361_1_20250319092555.jpg&q=75)
   
 
 港股競價時段跌42點，恒指報24697點。
@@ -550,6 +621,30 @@
 
 ---
 
+# 世界知識產權組織數據指中國是國際專利申請最大來源國
+
+![世界知識產權組織數據指中國是國際專利申請最大來源國。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796294_1_20250318210928.jpg&q=90)
+  
+
+世界知識產權組織數據顯示，中國是國際專利申請最大來源國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm)
+
+---
+
 # 美國2月進口物價按年升幅高過預期　新屋動工反彈勝預期
 
 ![美國2月進口物價按年上升2%，高過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796293_1_20250318205948.jpg&q=90)
@@ -595,6 +690,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm)
+
+---
+
+# 羅淑佩：啟德體育園啟用有助增強香港體育事業競爭力
+
+![羅淑佩（中）表示，特區政府會持續投放資源，與社會各界攜手建立熱愛體育的文化。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796290_1_20250318212726.jpg&q=80)
+  
+
+文化體育及旅遊局局長羅淑佩表示，特區政府會持續投放資源，與社會各界攜手建立熱愛體育的文化，隨著啟德體育園啟用，相信將會進一步提升相關人才的場地管理、裁判、訓練和盛事統籌能力，有助增強香港體育事業的競爭力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm)
 
 ---
 
@@ -811,6 +930,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm)
+
+---
+
+# 港燈去年盈利跌逾1%　售電量升1.1%
+
+![港燈去年盈利31.1億元，按年跌逾1%，可供分派收入跌約4%至23.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796263_1_20250318171420.jpg&q=90)
+  
+
+港燈去年盈利31.1億元，按年跌逾1%。每股份合訂單位末期分派16.09港仙，全年分派32.03港仙，兩者都與前年相同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm)
 
 ---
 
@@ -1291,152 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796207-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796207-20250318.htm)
-
----
-
-# 長和及長實不舉行全年業績記者會
-
-![長和及長實回覆查詢時表示，不會舉行全年業績記者會以及分析員會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796204_2_20250318105756.jpg&q=85)
-  
-
-長和及長實今個星期四將舉行董事會會議，批准公司及附屬公司截至去年底止的年度業績及發布，及考慮建議派付末期股息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796204-20250318.htm)
-
----
-
-# 習近平在貴州黔東南州考察調研
-
-![習近平昨天在貴州省黔東南苗族侗族自治州，考察黎平縣肇興侗寨。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_2_20250318123516.jpg&q=85)
-![近年來，肇興侗寨加大村寨建築空間和房屋風貌保護。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_5_20250318123516.jpg&q=90)
-![習近平到貴州考察調研。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_4_20250318123516.jpg&q=90)
-![習近平到當地了解當地加強基層黨組織建設和社會治理、保護傳承民族傳統文化、推進鄉村全面振興等情況。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_3_20250318123516.jpg&q=90)
-  
-
-中共中央總書記、國家主席習近平到貴州省考察調研。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm)
-
----
-
-# 李家超：「一車多關」必須兩地政府協商同意才可執行
-
-![李家超表示，私家車可以利用不同關口過關，當然方便駕駛者，但要確保每個關口的交通運作暢順，一定要通盤考慮。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796202_1_20250318110646.jpg&q=90)
-  
-
-行政長官李家超表示，私家車可以利用不同關口過關，當然方便駕駛者，但要確保每個關口的交通運作暢順，一定要通盤考慮。如果沒有任何管制，某些較為方便的關口很容易有嚴重塞車，並倒灌市區，關口涉及兩地交通，兩地管理部門要完全配合，確保一個地方的交通阻塞，另一個地方的部門可以隨時應對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796202-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796202-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796202-20250318.htm)
-
----
-
-# 日股半日升逾500點　未能企穩38000點
-
-![日經指數半日收報37943點，升546點，升幅1.46%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796200_1_20250318103926.jpg&q=90)
-  
-
-東京股市造好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796200-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796200-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796200-20250318.htm)
-
----
-
-# 李家超要求啟德體育園管理層設應急機制　恆常向文體旅局匯報運作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_3_20250318120223.jpg&q=75)
-  
-
-行政長官李家超出席行政會議前回應提問時說，啟德體育園開園至今，部分安排不理想及出問題需要處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm)
-
----
-
-# 李家超：東盟十國特邀人士入境便利計劃今實施　專櫃處理簽證申請
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796196_1_20250318112419.jpg&q=90)
-  
-
-行政長官李家超出席行政會議前宣布，為東盟10國推行的特邀人士入境便利計劃今日實施，以主動邀請為香港經濟發展帶來相當貢獻，或者獲邀來港出席重要活動的東盟人士提供出入境便利，他們會獲得自助通關服務，並透過專櫃一站式處理自助通關和簽證申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm)
 
 ---

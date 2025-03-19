@@ -1,3 +1,51 @@
+# Record numbers forced to flee climate disasters: UN
+
+![A man starts to rebuild his home in a shanty town destroyed by Cyclone Chido on the French Indian Ocean territory of Mayotte in January. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796360_1_20250319091826.jpg&q=85)
+  
+
+Hundreds of thousands of people were forced to flee climate disasters last year, the United Nations said on Wednesday, highlighting the urgent need for early warning systems covering the entire planet.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm)
+
+---
+
+# Supreme court chief chides Trump over impeachment call
+
+![A brief statement from Chief Justice of the United States, John Roberts, said impeachment was not an appropriate response to disagreement. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796357_1_20250319090726.jpg&q=90)
+  
+
+US Supreme Court Justice John Roberts on Tuesday issued a rare public rebuke of President Donald Trump, over his call for the impeachment of a federal judge, in an extraordinary display of conflict between the executive and judiciary branches.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm)
+
+---
+
 # Netanyahu warns strikes on Gaza 'just the beginning'
 
 ![The Israeli prime minister said in a video statement that "from now on, negotiations will take place only under fire." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796354_1_20250319085145.jpg&q=90)
@@ -1389,53 +1437,5 @@ A Nasa telescope was launched into space from California on Tuesday for a missio
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795461-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795461-20250313.htm)
-
----
-
-# SpaceX scrubs launch of ISS replacement crew mission
-
-![SpaceX called off the flight over a last-minute technical issue with the rocket's launchpad. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795503_1_20250313075135.jpg&q=90)
-  
-
-SpaceX on Wednesday scrubbed the expected launch of a replacement crew of four astronauts to the International Space Station that would have set in motion the long-awaited homecoming of US astronauts Butch Wilmore and Suni Williams, who have been stuck in space for nine months after a trip on Boeing's faulty Starliner.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795503-20250313.htm)
-
----
-
-# Mark Carney to be sworn in as Canadian PM on Friday
-
-![The new Liberal leader has promised a "seamless and quick" transition as he takes over from Justin Trudeau. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795499_1_20250313072252.jpg&q=90)
-  
-
-Mark Carney will be sworn in as Canada's next prime minister on Friday morning, marking the final day of Justin Trudeau's more than nine years in power.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm)
 
 ---

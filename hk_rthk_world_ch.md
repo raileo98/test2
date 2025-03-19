@@ -1,3 +1,27 @@
+# 西門子計劃全球裁員逾6000人
+
+![西門子表示，裁員主要原因是在中國和德國這兩大關鍵市場的需求疲弱，以及競爭壓力增加。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796368_1_20250319095211.jpg&q=90)
+  
+
+德國西門子計劃在全球裁員超過6000人，佔全球員工總數約2%，主要原因是在中國和德國這兩大關鍵市場的需求疲弱，以及競爭壓力增加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796368-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796368-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796368-20250319.htm)
+
+---
+
 # 《環看天下》：卡尼訪問英法兩國   分析：與歐洲盟友展現團結
 
 ![加拿大總理卡尼日前分别前往法國及英國訪問。( 路透社 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796358_1_20250319091755.jpg&q=90)
@@ -120,7 +144,6 @@
 
 # 滯留國際太空站9個月的兩名美國太空人返抵地球
 
-![包括威爾莫爾和威廉姆斯在內的4名太空人重返地球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796337_2_20250319074152.jpg&q=80)
 ![SpaceX的龍飛船重返地球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796337_3_20250319074152.jpg&q=90)
   
 
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm)
-
----
-
-# 俄方證實正籌備總統普京與特朗普通話
-
-![俄方證實正籌備總統普京與特朗普通話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796104_1_20250317203320.jpg&q=90)
-  
-
-美國總統特朗普表示，他計劃周二與俄羅斯總統普京通話，討論結束俄烏戰爭。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796104-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796104-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796104-20250317.htm)
 
 ---

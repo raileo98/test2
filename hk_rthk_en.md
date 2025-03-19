@@ -1,3 +1,75 @@
+# Record numbers forced to flee climate disasters: UN
+
+![A man starts to rebuild his home in a shanty town destroyed by Cyclone Chido on the French Indian Ocean territory of Mayotte in January. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796360_1_20250319091826.jpg&q=85)
+  
+
+Hundreds of thousands of people were forced to flee climate disasters last year, the United Nations said on Wednesday, highlighting the urgent need for early warning systems covering the entire planet.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm)
+
+---
+
+# Hong Kong stocks open flat ahead of Fed decision
+
+![The Fed on Wednesday is expected to maintain current interest rates. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796365_1_20250319093927.jpg&q=90)
+  
+
+The Hang Seng Index lost 42.94 points, or 0.17 percent, to open at 24,697.63 on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm)
+
+---
+
+# Supreme court chief chides Trump over impeachment call
+
+![A brief statement from Chief Justice of the United States, John Roberts, said impeachment was not an appropriate response to disagreement. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796357_1_20250319090726.jpg&q=90)
+  
+
+US Supreme Court Justice John Roberts on Tuesday issued a rare public rebuke of President Donald Trump, over his call for the impeachment of a federal judge, in an extraordinary display of conflict between the executive and judiciary branches.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm)
+
+---
+
 # Netanyahu warns strikes on Gaza 'just the beginning'
 
 ![The Israeli prime minister said in a video statement that "from now on, negotiations will take place only under fire." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796354_1_20250319085145.jpg&q=90)
@@ -1363,78 +1435,5 @@ The Consumer Council on Monday warned that some makeup bases can affect hormone 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796050-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796050-20250317.htm)
-
----
-
-# HK 'in fast lane to becoming innovation and tech hub'
-
-![Sun Dong said the AI summit next month shows Hong Kong is a hub for global IT cooperation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796043_1_20250317125229.jpg&q=80)
-  
-
-Innovation and technology secretary Sun Dong said on Monday Hong Kong's I&T development was so rapid that the sector is already "in the fast lane."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796043-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796043-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796043-20250317.htm)
-
----
-
-# Experts weigh in on extending cryopreservation storage
-
-![Extending the storage of embryos and gamets could raise new issues for patients according to some fertility doctors. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796041_1_20250317124547.jpg&q=90)
-  
-
-A specialist in obstetrics and gynaecology said it remains uncertain whether patients will return for tailored counselling after storing their embryos or gametes for a certain period of time.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm)
-
----
-
-# An keeps up streak to win All England title
-
-![An Se-young, right, with China's Wang Zhiyi in Birmingham, England, after their close-fought match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796035_1_20250317122442.jpg&q=80)
-![China's Shi Yuqi with the All England Open trophy after beating Lee Chia-hao of Chinese Taipei in Birmingham. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796035_2_20250317125238.jpg&q=90)
-  
-
-Olympic women's badminton champion An Se-young came from behind to beat China's Wang Zhiyi 13-21, 21-18, 21-18 in a classic All England Open final as top seed Shi Yuqi lifted the men's crown.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796035-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796035-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796035-20250317.htm)
 
 ---

@@ -1,3 +1,74 @@
+# 周文港：大學收入無問題　劉智鵬：大學由日常開支儲備應對削款
+
+  
+
+預算案提出，未來三年，每年削減教資會資助大學經常撥款2%，撥款額達681億。立法會教育事務委員會主席周文港於本台節目《千禧年代》指出，雖然每年削減2%撥款，但實際三年期會較原先撥款增加8%，因此不應裁員減薪。對於政府要求大學將一般及發展基金中退回其中40億，周文港表示，八大的整體儲備現時有1300多億，認為各大學可以充分利用，相信在提升教學方面無問題。政府資助只佔大學收入四至六成，而每年大學的恆常收入，亦包括非本地生及自資課程收入等，佔平均收入達四成，亦正不斷增加，而大學科研成果轉化為收入，亦按年增加近13%，連續兩年過百億，重申大學收入並無問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm)
+
+---
+
+# 兩機電署監工涉收供應商百萬元禮物　供應商多次中標訂單逾千萬元
+
+![3人涉嫌於機電署採購維修零件時，以貪污不法手段令涉案供應商於7年間多次中標，並誇大購貨訂單的購買物品數量及價格。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796367_1_20250319095519.jpg&q=90)
+  
+
+廉政公署落案起訴兩名機電署監工及一名供應商，3人涉嫌於機電署採購維修零件時，以貪污不法手段令涉案供應商於7年間多次中標，並誇大購貨訂單的購買物品數量及價格，訂單金額合共超過1360萬元。3人被控告串謀詐騙，今日將在西九龍裁判法院應訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796367-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796367-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796367-20250319.htm)
+
+---
+
+# 8紀律部隊和輔助部隊下月舉行開放日推廣「全民國家安全教育日」
+
+![保安局轄下8支紀律部隊和輔助部隊，將分別於本月內不同的周末及假日舉行開放日，讓市民加深了解各部隊對維護國家安全的工作和成果。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796366_1_20250319100305.jpg&q=80)
+  
+
+為配合下月15日全民國家安全教育日，保安局轄下8支紀律部隊和輔助部隊，將分別於本月內不同的周末及假日舉行開放日，讓市民加深了解各部隊對維護國家安全的工作和成果。市民今日起，可於相關紀律部隊的網站或流動應用程式，登記索取免費入場門票，而輔助部隊總部開放日則毋須門票。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796366-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796366-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796366-20250319.htm)
+
+---
+
 # 嶺澳核電站1號機組去年底發生0級偏差事件　對公眾和環境沒影響
 
 ![局方表示，由於此事件具有一定的參考及學習價值。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796309_1_20250318232213.jpg&q=90)
@@ -1364,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm)
-
----
-
-# 甯漢豪和何永賢對李兆基離世表示哀悼
-
-![甯漢豪（右）及何永賢（左）均對李兆基離世表示哀悼。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796133_1_20250317231924.jpg&q=85)
-  
-
-恒基地產創辦人李兆基在家人陪伴下，今日黃昏與世長辭，享年97歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796133-20250317.htm)
-
----
-
-# 再有參加內地團學生腸胃炎　教育局要求承辦機構停用相關用餐地點
-
-![教育局表示，為安全起見，已要求承辦機構停用相關用餐地點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796132_1_20250317231354.jpg&q=90)
-  
-
-再有中學訪問內地交流團的學生患上急性腸胃炎，藍田五邑司徒浩中學36名師生上周參加交流團到廈門，期間6名學生陸續出現急性腸胃炎病徵。衞生防護中心初步調查顯示，6名受影響人士除團餐外，並未有進食其他共同食物。教育局表示，現時所有參加者均已返港，不適的學生回港後已逐漸康復，未有痾嘔，亦未有出現新個案。為安全起見，已要求承辦機構停用相關用餐地點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796132-20250317.htm)
-
----
-
-# 鄭雁雄：站在政治和全局高度把握好香港角色、香港方向、香港擔當
-
-![中聯辦主任鄭雁雄傳達全國兩會精神，要求把握主題、抓住重點、因制制宜，學習宣傳貫徹好全國兩會精神。（中聯辦網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796130_1_20250317224420.jpg&q=85)
-  
-
-中聯辦舉辦學習講堂，中聯辦主任鄭雁雄傳達全國兩會精神，要求把握主題、抓住重點、因制制宜，學習宣傳貫徹好全國兩會精神。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm)
 
 ---
