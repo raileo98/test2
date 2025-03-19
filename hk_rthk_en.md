@@ -1,3 +1,75 @@
+# 'New Israeli strikes on Gaza dramatic step backwards'
+
+![Palestinians flee their homes after the Israeli army issued evacuation orders for a number of neighborhoods following heavy strikes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796484_1_20250319222238.jpg&q=90)
+  
+
+Israel's resumption of strikes on the Gaza Strip is a major step in the wrong direction after its ceasefire with Palestinian militant group Hamas earlier this year, French President Emmanuel Macron said on Wednesday alongside Jordan's King Abdullah II.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm)
+
+---
+
+# UK teen who planned school massacre gets 49 years
+
+![Nicholas Prosper "wanted to be known posthumously as the world's most famous school shooter." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796483_1_20250319221939.jpg&q=90)
+  
+
+A UK teenager who killed three family members and planned to outdo notorious US massacres to become "the world's most famous school shooter of the 21st century" was on Wednesday jailed for a minimum of 49 years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796483-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796483-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796483-20250319.htm)
+
+---
+
+# Ohtani hits home run as Dodgers sweep Cubs in Tokyo
+
+![Shohei Ohtani scores a home run at the Tokyo Dome. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796480_1_20250319221213.jpg&q=90)
+  
+
+Shohei Ohtani hit a home run but Roki Sasaki had a wobbly Major League Baseball debut as the Los Angeles Dodgers beat the Chicago Cubs 6-3 in Tokyo on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm)
+
+---
+
 # Over 60 cabbies penalised under demerit points system
 
 ![Authorities say none of the penalised taxi drivers under the demerit system have racked up enough points to be disqualified. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796466_1_20250319184126.jpg&q=80)
@@ -1363,77 +1435,5 @@ More than 500 Indonesians freed from online scam centres in Myanmar are expected
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm)
-
----
-
-# Kiribati eyes deep-sea mining deal with China
-
-![View of Kiribati's Parliament House. Kiribati opened discussions with China after a deal with Canada's The Metals Company fell through. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796176_1_20250318084916.jpg&q=85)
-  
-
-Pacific nation Kiribati says it is exploring a deep-sea mining partnership with China, dangling access to a vast patch of Pacific Ocean harbouring coveted metals and minerals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm)
-
----
-
-# Starbucks ordered to pay US$50m for hot tea spill
-
-![A spokesperson for the coffee chain said the company would appeal the award. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796175_1_20250318083745.jpg&q=90)
-  
-
-Starbucks has been ordered to pay US$50 million to a customer who was burned when hot tea spilled on his lap at a California drive-through.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796175-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796175-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796175-20250318.htm)
-
----
-
-# Messi ruled out as Argentina aim for World Cup spot
-
-![The Argentina superstar will reportedly be sidelined over a muscle strain injury. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796168_1_20250318073733.jpg&q=90)
-  
-
-Lionel Messi will miss two World Cup qualifiers after he was left out of the Argentina squad for games against Uruguay and Brazil because he reportedly suffered an injury in a club game.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm)
 
 ---

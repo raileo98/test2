@@ -1,3 +1,51 @@
+# 'New Israeli strikes on Gaza dramatic step backwards'
+
+![Palestinians flee their homes after the Israeli army issued evacuation orders for a number of neighborhoods following heavy strikes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796484_1_20250319222238.jpg&q=90)
+  
+
+Israel's resumption of strikes on the Gaza Strip is a major step in the wrong direction after its ceasefire with Palestinian militant group Hamas earlier this year, French President Emmanuel Macron said on Wednesday alongside Jordan's King Abdullah II.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm)
+
+---
+
+# UK teen who planned school massacre gets 49 years
+
+![Nicholas Prosper "wanted to be known posthumously as the world's most famous school shooter." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796483_1_20250319221939.jpg&q=90)
+  
+
+A UK teenager who killed three family members and planned to outdo notorious US massacres to become "the world's most famous school shooter of the 21st century" was on Wednesday jailed for a minimum of 49 years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796483-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796483-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796483-20250319.htm)
+
+---
+
 # Turkish markets hit by arrest of Erdogan's rival
 
 ![Supporters and municipality workers hold a rally in Istanbul in support of mayor Ekrem Imamoglu following his arrest. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796448_1_20250319175032.jpg&q=90)
@@ -1389,53 +1437,5 @@ Russian President Vladimir Putin said on Thursday he had "serious questions" abo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm)
-
----
-
-# Pakistan starts counting toll of train siege
-
-![An injured passenger is wheeled into a hospital in Quetta on Thursday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795561_1_20250313151752.jpg&q=90)
-  
-
-The bodies of at least 25 people, including 21 hostages, killed in a train siege by separatist gunmen in Pakistan were retrieved from the site yesterday ahead of the first funerals, officials said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795561-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795561-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795561-20250313.htm)
-
----
-
-# Two air force pilots charged over S Korea bombing
-
-![Officials inspect an area with damaged buildings in the aftermath of the accidental bombing in Pocheon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795521_1_20250313095556.jpg&q=80)
-  
-
-South Korean military investigators charged two air force pilots on Thursday with criminal negligence over an accidental bombing of a village last week during a training exercise, which injured at least 29 people and caused extensive property damage.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm)
 
 ---

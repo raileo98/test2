@@ -1,3 +1,27 @@
+# Ohtani hits home run as Dodgers sweep Cubs in Tokyo
+
+![Shohei Ohtani scores a home run at the Tokyo Dome. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796480_1_20250319221213.jpg&q=90)
+  
+
+Shohei Ohtani hit a home run but Roki Sasaki had a wobbly Major League Baseball debut as the Los Angeles Dodgers beat the Chicago Cubs 6-3 in Tokyo on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm)
+
+---
+
 # Snooker tournament slips spur Rugby Sevens resolve
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796411_1_20250319143132.jpg&q=70)
@@ -1420,29 +1444,5 @@ Rachin Ravindra and Kane Williamson struck hundreds as New Zealand eased to a 50
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm)
-
----
-
-# LeBron James first NBA player ever to score 50,000 pts
-
-![James passed Kareem Abdul-Jabbar's previous all-time regular-season scoring record of 38,387 points in 2023 – itself a record that had stood for 39 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794431_1_20250305194615.jpg&q=90)
-  
-
-LeBron James became the first player in NBA history to score 50,000 career points on Tuesday, extending his lead as the league's all-time record scorer by reaching a milestone tally that may never be surpassed.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794431-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794431-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794431-20250305.htm)
 
 ---

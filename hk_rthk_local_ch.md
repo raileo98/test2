@@ -1,3 +1,50 @@
+# 發展局：金屬棚架不會大幅提高工程造價　佔工程合約金額2%
+
+![發展局說，金屬棚架因使用標準組件，更能保障棚架上工作人員的安全。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796485_1_20250319222511.jpg&q=75)
+  
+
+發展局表示，為進一步推廣應用金屬棚架，本月21日或以後招標的工務工程新建樓宇工程合約的半數，要採用金屬棚架，但不包括樓宇外牆維修合約。以今年的新建樓宇工務工程合約計，半數只涉及一至兩個新建樓宇工程項目。局方強調，金屬棚架不會大幅提高工程造價，整體開支大約佔樓宇建造工程合約金額的2%，而使用竹棚架則為1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796485-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796485-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796485-20250319.htm)
+
+---
+
+# 醫務衞生局稱現無計劃將京士柏用地改作醫療以外其他用途
+
+  
+
+伊利沙伯醫院多項服務，預計明年初陸續搬遷至位於啟德新急症醫院。醫務衞生局回覆傳媒查詢時表示，政府現階段並無計劃將伊利沙伯醫院所在的京士柏用地，改作醫療以外的其他用途，當局檢視第二個醫院發展計劃時，會一併考慮京士柏用地，未來的醫療用途及發展計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796482-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796482-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796482-20250319.htm)
+
+---
+
 # 機電署要求海洋公園就纜車壓轆異常而暫停運行提交報告
 
   
@@ -1384,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm)
-
----
-
-# 北角聖公會聖米迦勒小學西安交流時5名學生急性腸胃炎
-
-![5名患者的病徵與諾如病毒感染吻合。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796295_1_20250318212850.jpg&q=80)
-  
-
-再有學生交流團爆發腸胃炎，衞生防護中心正調查一宗急性腸胃炎的爆發個案，涉及北角區的聖公會聖米迦勒小學，5名學生受影響，全部患者的病徵與諾如病毒感染吻合。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796295-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796295-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796295-20250318.htm)
-
----
-
-# 羅淑佩：啟德體育園啟用有助增強香港體育事業競爭力
-
-![羅淑佩（中）表示，特區政府會持續投放資源，與社會各界攜手建立熱愛體育的文化。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796290_1_20250318212726.jpg&q=80)
-  
-
-文化體育及旅遊局局長羅淑佩表示，特區政府會持續投放資源，與社會各界攜手建立熱愛體育的文化，隨著啟德體育園啟用，相信將會進一步提升相關人才的場地管理、裁判、訓練和盛事統籌能力，有助增強香港體育事業的競爭力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm)
 
 ---

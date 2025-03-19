@@ -1,3 +1,50 @@
+# 發展局：金屬棚架不會大幅提高工程造價　佔工程合約金額2%
+
+![發展局說，金屬棚架因使用標準組件，更能保障棚架上工作人員的安全。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796485_1_20250319222511.jpg&q=75)
+  
+
+發展局表示，為進一步推廣應用金屬棚架，本月21日或以後招標的工務工程新建樓宇工程合約的半數，要採用金屬棚架，但不包括樓宇外牆維修合約。以今年的新建樓宇工務工程合約計，半數只涉及一至兩個新建樓宇工程項目。局方強調，金屬棚架不會大幅提高工程造價，整體開支大約佔樓宇建造工程合約金額的2%，而使用竹棚架則為1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796485-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796485-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796485-20250319.htm)
+
+---
+
+# 醫務衞生局稱現無計劃將京士柏用地改作醫療以外其他用途
+
+  
+
+伊利沙伯醫院多項服務，預計明年初陸續搬遷至位於啟德新急症醫院。醫務衞生局回覆傳媒查詢時表示，政府現階段並無計劃將伊利沙伯醫院所在的京士柏用地，改作醫療以外的其他用途，當局檢視第二個醫院發展計劃時，會一併考慮京士柏用地，未來的醫療用途及發展計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796482-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796482-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796482-20250319.htm)
+
+---
+
 # 美股開市後上升
 
 ![美股初段上升。投資者關注聯儲局稍後議息結果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796479_1_20250319214317.jpg&q=90)

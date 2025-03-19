@@ -1,3 +1,27 @@
+# 'King's Park site will still be used for healthcare'
+
+![The government says the King's Park site, currently home to Queen Elizabeth Hospital, will be retained for healthcare purposes. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796481_1_20250319221730.jpg&q=80)
+  
+
+The government on Wednesday said the King's Park site, currently home to Queen Elizabeth Hospital, will be retained for healthcare purposes despite a relocation plan.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm)
+
+---
+
 # Over 60 cabbies penalised under demerit points system
 
 ![Authorities say none of the penalised taxi drivers under the demerit system have racked up enough points to be disqualified. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796466_1_20250319184126.jpg&q=80)
@@ -1411,29 +1435,5 @@ Secretary for Health Lo Chung-mau said on Friday the government is reviewing fee
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795727-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795727-20250314.htm)
-
----
-
-# Tourist figures up 7pc in Jan-Feb
-
-![Locals and visitors alike enjoy the fireworks extravaganza on January 30, day two of the Year of the Snake. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795725_2_20250314160255.jpg&q=75)
-  
-
-Tourist arrivals hit 8.4 million in the first two months of the year, a seven percent increase year on year, the Hong Kong Tourism Board said on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm)
 
 ---
