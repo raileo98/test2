@@ -1,3 +1,27 @@
+# 'Stable China-US trade ties benefit global firms'
+
+![Wang Shouwen holds talks with Ramon Laguarta in Beijing. Photo courtesy of Commerce Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796422_1_20250319154955.jpg&q=90)
+  
+
+A stable, healthy and sustainable China-US economic and trade relationship is in the fundamental interest of both countries, and also benefits global companies, Vice Commerce Minister Wang Shouwen told PepsiCo Chairman Ramon Laguarta in their meeting in Beijing.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm)
+
+---
+
 # Ex-Everbright boss sentenced to 15 years for bribes
 
 ![Li Xiaopeng, pictured in 2018, is sentenced to 15 years for accepting bribes worth more than 60 million yuan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796277_1_20250318181930.jpg&q=90)
@@ -1412,29 +1436,5 @@ A PhD student from China was found guilty on Wednesday in a London court of drug
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm)
-
----
-
-# Tibet official says classes resume after deadly quake
-
-![The Tibet Autonomous Region delegation to the National People's Congress holds a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794514_1_20250306113958.jpg&q=75)
-  
-
-The chairman of the people's government of the Tibet Autonomous Region on Thursday said classes have resumed in Dingri County following the massive earthquake earlier this year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794514-20250306.htm)
 
 ---

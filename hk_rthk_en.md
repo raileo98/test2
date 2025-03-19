@@ -1,3 +1,27 @@
+# 'Stable China-US trade ties benefit global firms'
+
+![Wang Shouwen holds talks with Ramon Laguarta in Beijing. Photo courtesy of Commerce Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796422_1_20250319154955.jpg&q=90)
+  
+
+A stable, healthy and sustainable China-US economic and trade relationship is in the fundamental interest of both countries, and also benefits global companies, Vice Commerce Minister Wang Shouwen told PepsiCo Chairman Ramon Laguarta in their meeting in Beijing.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm)
+
+---
+
 # Snooker tournament slips spur Rugby Sevens resolve
 
 ![Rosanna Law said she and other officials from her bureau will go all out to ensure the first Rugby Sevens to be held at Kai Tak is a success. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796411_1_20250319143132.jpg&q=70)
@@ -1411,29 +1435,5 @@ The government said on Monday it received three proposals for establishing the c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm)
-
----
-
-# Police arrest three over Fo Tan murder case
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796114_1_20250317200724.jpg&q=80)
-  
-
-Police said three people have been arrested for their alleged involvement in a murder case in Fo Tan on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796114-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796114-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796114-20250317.htm)
 
 ---
