@@ -1,3 +1,51 @@
+# 平保去年盈利升近48%　壽險及健康險利潤跌約2%
+
+![平安保險去年盈利1266.1億元人民幣，按年增長近48%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796460_1_20250319182900.jpg&q=90)
+  
+
+平安保險去年盈利1266.1億元人民幣，按年增長近48%。派末期息每股1.62元；全年派息2.55元，按年升5%。以營運利潤計，派息比率37.9%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796460-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796460-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796460-20250319.htm)
+
+---
+
+# 澤連斯基稱將與特朗普通話　指責俄羅斯對烏克蘭發動新一輪攻擊
+
+![澤連斯基說，稍後將同美國總統特朗普通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796473_1_20250319195840.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基指責俄羅斯對烏克蘭發動新一輪攻擊，認為俄羅斯總統普京的言論與現實嚴重不符。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm)
+
+---
+
 # 公務員學院辦「習近平文化思想」講座　約160名政府中高層出席
 
 ![公務員學院在政府總部舉辦「習近平文化思想」講座。圖示國家行政學院副院長李文堂主講。(政府新聞處圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796472_1_20250319195203.jpg&q=90)
@@ -24,6 +72,7 @@
 
 # 科大廣州創校校長稱第三所醫學院計劃書包含與很多內地醫學院合作
 
+![倪明選表示，科大辦醫學院更重要是科技整合，例如人工智能技術利用在醫學方面，這兩個都是科大強項，亦是最大優勢。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796471_2_20250319200428.jpg&q=90)
   
 
 三所大學正爭取籌建本港第三間醫學院，當中包括香港科技大學。香港科技大學（廣州）創校校長倪明選表示，全力支持港科大辦第三所醫學院，已提交政府的計劃書包含與內地很多醫學院的合作。

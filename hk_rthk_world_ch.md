@@ -1,3 +1,27 @@
+# 澤連斯基稱將與特朗普通話　指責俄羅斯對烏克蘭發動新一輪攻擊
+
+![澤連斯基說，稍後將同美國總統特朗普通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796473_1_20250319195840.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基指責俄羅斯對烏克蘭發動新一輪攻擊，認為俄羅斯總統普京的言論與現實嚴重不符。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm)
+
+---
+
 # 澤連斯基質疑俄方誠意　中方強調停火進程不應由第三方強加
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796465_1_20250319184723.jpg&q=80)
@@ -1411,30 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796149-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796149-20250318.htm)
-
----
-
-# 卡尼訪問法國和英國　強調會盡可能與美國保持積極關係
-
-![卡尼在唐寧街10號與英國首相施紀賢會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796148_1_20250318042915.jpg&q=85)
-![卡尼較早時亦到白金漢宮拜會加拿大國家元首、英王查理斯三世。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796148_2_20250318042915.jpg&q=90)
-  
-
-加拿大新總理卡尼到訪巴黎及倫敦，是他上任後首度外訪。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm)
 
 ---

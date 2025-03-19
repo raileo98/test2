@@ -1,3 +1,27 @@
+# 平保去年盈利升近48%　壽險及健康險利潤跌約2%
+
+![平安保險去年盈利1266.1億元人民幣，按年增長近48%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796460_1_20250319182900.jpg&q=90)
+  
+
+平安保險去年盈利1266.1億元人民幣，按年增長近48%。派末期息每股1.62元；全年派息2.55元，按年升5%。以營運利潤計，派息比率37.9%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796460-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796460-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796460-20250319.htm)
+
+---
+
 # 日圓兌美元曾失守150　分析料長期資金或支撐日圓重新轉強
 
 ![王良享預料，日本退休基金等長期資金或增持日債配置，日圓短線兌美元介乎145至151。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796449_1_20250319175251.jpg&q=65)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796293-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796293-20250318.htm)
-
----
-
-# 回應內地是否評估長和出售資產　外交部建議向主管部門詢問
-
-![毛寧說中方一貫堅決反對利用經濟脅迫、霸道霸凌侵害損害他國正當權益的行為。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796292_1_20250318212809.jpg&q=90)
-  
-
-長和計劃向美國財團出售巴拿馬運河兩端港口等資產。彭博引述消息人士指，內地有關部門開始評估長和出售海外港口業務的交易，研究是否存在國家安全漏洞或反壟斷違規行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm)
 
 ---

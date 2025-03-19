@@ -1,3 +1,26 @@
+# 教育局稱設專責小組全面檢視交流團安排　保障活動質量及師生安全
+
+  
+
+教育局表示，在組織交流考察活動時，必以安全為首要考慮，所以出發前會安排學校簡介會和提供詳盡的指引，若遇到事故，亦會立即嚴肅跟進和處理。局方以近日的交流團出現腸胃炎徵狀事件舉例，指教育局已立刻聯繋衞生防護中心及內地相關部門密切跟進，並深入調查，雖然病源尚未核實，教育局為優化行程安排亦成立學生內地考察專責小組，直接與各內地部門單位保持密切溝通聯繫，全面檢視現時交流團的安排，保障交流團活動質量及師生安全。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796474-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796474-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796474-20250319.htm)
+
+---
+
 # 公務員學院辦「習近平文化思想」講座　約160名政府中高層出席
 
 ![公務員學院在政府總部舉辦「習近平文化思想」講座。圖示國家行政學院副院長李文堂主講。(政府新聞處圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796472_1_20250319195203.jpg&q=90)
@@ -24,6 +47,7 @@
 
 # 科大廣州創校校長稱第三所醫學院計劃書包含與很多內地醫學院合作
 
+![倪明選表示，科大辦醫學院更重要是科技整合，例如人工智能技術利用在醫學方面，這兩個都是科大強項，亦是最大優勢。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796471_2_20250319200428.jpg&q=90)
   
 
 三所大學正爭取籌建本港第三間醫學院，當中包括香港科技大學。香港科技大學（廣州）創校校長倪明選表示，全力支持港科大辦第三所醫學院，已提交政府的計劃書包含與內地很多醫學院的合作。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm)
-
----
-
-# 孫東稱冀與業界促進新來港上市企業與本地大學開展創科合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796281_1_20250318200433.jpg&q=80)
-  
-
-創新科技及工業局局長孫東出席「香港新型工業發展聯盟」成立典禮。他致辭時說，聯盟的成立正是香港新型工業發展又一個重要的里程碑，熱切期待聯盟未來能積極促進各創科持份者的緊密協作，包括提供融資機會、促進新來港上市企業與本地大學開展創科合作等，推動香港新型工業化的全面發展，讓創新鏈和產業鏈無縫對接。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm)
 
 ---
