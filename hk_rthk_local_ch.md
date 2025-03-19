@@ -1,3 +1,49 @@
+# 林健鋒稱多國面對美國加徵關稅　籲港商沉著應戰勿自亂陣腳
+
+  
+
+行政會議成員、立法會商界議員林健鋒表示，現時不只中國面對美國加徵關稅的問題，即使是美國盟友，例如墨西哥、加拿大等都面對同樣問題，呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應戰，亦希望貿易戰盡快平息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm)
+
+---
+
+# 海洋公園停纜車有遊客感失望　有遊客稱園方可安排旅遊巴接載上山
+
+  
+
+海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。而海洋列車亦正在進行年度檢查，現時無法接載訪客往返兩個園區。高峰樂園將暫停開放，直至另行通知，訪客現時可到訪山下園區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796416-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796416-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796416-20250319.htm)
+
+---
+
 # 保障關鍵基礎設施條例恢復二讀　多名議員支持稱有助提升香港形象
 
 ![立法會恢復二讀辯論保護關鍵基礎設施的條例草案。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796414_1_20250319152315.jpg&q=80)
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796235-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796235-20250318.htm)
-
----
-
-# 工業傷亡權益會歡迎公共建築工程逐步採用金屬棚架提升安全
-
-![工業傷亡權益會認為，逐步在公共建築工程更廣泛採用金屬棚架，可減少因棚架問題導致的事故。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796228_1_20250318152816.jpg&q=85)
-  
-
-有竹棚業界人士表示，接獲發展局通知，政府當局將會以試行方式，在興建新大樓的公務工程招標項目中使用金屬棚架，並逐步將比例擴展至50%的工程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796228-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796228-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796228-20250318.htm)
-
----
-
-# 何炳德透露接獲當局通知使用金屬棚架比例將逐步擴展至五成工程
-
-![何炳德指出，金屬棚架成本較貴約為竹棚的兩至三倍、要有較大儲存空間、金屬棚在夏天會燙手。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796227_1_20250318152715.jpg&q=85)
-  
-
-香港竹棚業持續發展關注組成員、港九搭棚同敬工會理事長何炳德透露，昨日接獲發展局通知，當局將會以試行方式，在興建新大樓的公務工程招標項目中使用金屬棚架，並逐步將比例擴展至50%的工程，期望有助提升工地安全，減少意外。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796227-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796227-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796227-20250318.htm)
 
 ---

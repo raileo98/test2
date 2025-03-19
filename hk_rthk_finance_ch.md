@@ -1,3 +1,26 @@
+# 林健鋒稱多國面對美國加徵關稅　籲港商沉著應戰勿自亂陣腳
+
+  
+
+行政會議成員、立法會商界議員林健鋒表示，現時不只中國面對美國加徵關稅的問題，即使是美國盟友，例如墨西哥、加拿大等都面對同樣問題，呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應戰，亦希望貿易戰盡快平息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm)
+
+---
+
 # 內地股市反覆向下　滬股全日跌3點
 
 ![內地股市反覆向下，上證指數收報3426點，跌3點，跌幅0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796415_1_20250319150905.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm)
-
----
-
-# 黃英豪稱結合中醫實力與生物科技優勢　浸大申辦醫學院具競爭力
-
-![黃英豪（左）表示，浸大有自己的特色，作為全港第一間中醫院的營辦機構，過去培育了很多中醫人才。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796239_1_20250318153111.jpg&q=90)
-  
-
-已就本港興建第三所醫學院提交建議書的浸會大學，校長衞炳江出席一個活動後表示，將努力為與籌備工作組會面作出準備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm)
 
 ---

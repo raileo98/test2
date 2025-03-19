@@ -48,7 +48,7 @@ The Hong Kong, China men’s rugby team on Wednesday said they are looking forwa
 
 # PolyU 'to shoulder cost of third medical school'
 
-![Polytechnic University has hailed its 45 years of experience in nurturing medical professionals as it states the case for its bid for the third medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796404_1_20250319133406.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796404_1_20250319133406.jpg&q=75)
   
 
 Polytechnic University (PolyU) on Wednesday said it will shoulder the cost of developing Hong Kong's third medical school when necessary.

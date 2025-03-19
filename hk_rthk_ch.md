@@ -1,3 +1,49 @@
+# 林健鋒稱多國面對美國加徵關稅　籲港商沉著應戰勿自亂陣腳
+
+  
+
+行政會議成員、立法會商界議員林健鋒表示，現時不只中國面對美國加徵關稅的問題，即使是美國盟友，例如墨西哥、加拿大等都面對同樣問題，呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應戰，亦希望貿易戰盡快平息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm)
+
+---
+
+# 海洋公園停纜車有遊客感失望　有遊客稱園方可安排旅遊巴接載上山
+
+  
+
+海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。而海洋列車亦正在進行年度檢查，現時無法接載訪客往返兩個園區。高峰樂園將暫停開放，直至另行通知，訪客現時可到訪山下園區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796416-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796416-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796416-20250319.htm)
+
+---
+
 # 內地股市反覆向下　滬股全日跌3點
 
 ![內地股市反覆向下，上證指數收報3426點，跌3點，跌幅0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796415_1_20250319150905.jpg&q=90)

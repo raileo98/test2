@@ -1,3 +1,26 @@
+# 林健鋒稱多國面對美國加徵關稅　籲港商沉著應戰勿自亂陣腳
+
+  
+
+行政會議成員、立法會商界議員林健鋒表示，現時不只中國面對美國加徵關稅的問題，即使是美國盟友，例如墨西哥、加拿大等都面對同樣問題，呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應戰，亦希望貿易戰盡快平息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm)
+
+---
+
 # 南韓總統彈劾案未有宣判日　警方已計劃逾2萬人維護社會治安秩序
 
 ![首爾近日有集會要求尹錫悅立即下台。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796406_1_20250319141528.jpg&q=85)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796123-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796123-20250317.htm)
-
----
-
-# 美俄領袖將通話　歐盟外交官員質疑莫斯科不真正希望和平
-
-![卡拉斯質疑俄羅斯是否希望和平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796121_1_20250317212204.jpg&q=90)
-  
-
-美國總統特朗普表示，他計劃周二與俄羅斯總統普京通話，討論結束俄烏戰爭。俄羅斯亦說，通話會談正在籌備中。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796121-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796121-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796121-20250317.htm)
 
 ---
