@@ -1,3 +1,27 @@
+# 滬深股市半日變動不大　深證成指徘徊11000點
+
+![滬深股市半日變動不大，上證指數半日報3427點，跌2點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796382_1_20250319113238.jpg&q=90)
+  
+
+內地股市早段偏軟，半日變動不大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796382-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796382-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796382-20250319.htm)
+
+---
+
 # 醫健通擬擴大可取覽資料人員類別　修例周五刊憲下周交立法會首讀
 
 ![修訂建議市民參加醫健通後，醫護提供者可將健康資料存入個人醫健通戶口，市民仍可自行決定是否容許個別醫護提供者取覽紀錄。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796381_1_20250319112508.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm)
-
----
-
-# 白宮：特朗普正與普京通電話　進展良好
-
-![美國總統特朗普與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796308_1_20250319005502.jpg&q=90)
-  
-
-美國白宮表示，總統特朗普與俄羅斯總統普京從美國東岸時間星期二早上10時開始通電話，目前仍然繼續，進展良好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796308-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796308-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796308-20250318.htm)
 
 ---

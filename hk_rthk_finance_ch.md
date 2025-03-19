@@ -1,3 +1,27 @@
+# 滬深股市半日變動不大　深證成指徘徊11000點
+
+![滬深股市半日變動不大，上證指數半日報3427點，跌2點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796382_1_20250319113238.jpg&q=90)
+  
+
+內地股市早段偏軟，半日變動不大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796382-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796382-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796382-20250319.htm)
+
+---
+
 # 調查指3成香港僱主計劃來季增加人手
 
 ![萬寶盛華大中華高級副總裁徐玉珊表示，香港就業市場正逐步回暖。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796379_1_20250319111508.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796224-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796224-20250318.htm)
-
----
-
-# 華潤啤酒去年盈利跌8%　啤酒銷量減少2.5%
-
-![華潤啤酒去年啤酒業務銷量跌2.5%，平均售價升1.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796222_1_20250318123931.jpg&q=90)
-  
-
-華潤啤酒去年盈利47.4億元人民幣，按年跌8%。派末期息38.7分，全年派息76分，按年減少約19%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796222-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796222-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796222-20250318.htm)
 
 ---
