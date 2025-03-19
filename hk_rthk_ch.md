@@ -1,3 +1,27 @@
+# 嘉里建設去年盈利跌75%
+
+![嘉里建設去年盈利8.08億元，按年大跌75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796403_1_20250319132958.jpg&q=85)
+  
+
+嘉里建設去年盈利8.08億元，按年大跌75%。派末期息0.95元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796403-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796403-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796403-20250319.htm)
+
+---
+
 # 李家超與江門市委書記會面　就深化港邑合作及推動大灣區發展交流
 
   

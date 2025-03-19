@@ -1,3 +1,27 @@
+# 嘉里建設去年盈利跌75%
+
+![嘉里建設去年盈利8.08億元，按年大跌75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796403_1_20250319132958.jpg&q=85)
+  
+
+嘉里建設去年盈利8.08億元，按年大跌75%。派末期息0.95元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796403-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796403-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796403-20250319.htm)
+
+---
+
 # 萬寶盛華：企業今年平均加薪3%　或採取更保守薪酬政策
 
 ![調查顯示本港今年平均加薪幅度降至3%。徐玉珊說，企業或採取更保守的薪酬政策，但亦會視乎盈利及員工表現等。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796398_1_20250319130135.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796237-20250318.htm)
-
----
-
-# 中電今年將推出電動車充電收費服務　詳情適時於相關停車場公布
-
-![中電宣布，將於今年推出電動車充電收費服務，以配合市場發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796235_1_20250318152934.jpg&q=90)
-  
-
-中電宣布，將於今年推出電動車充電收費服務，以配合市場發展，有關充電收費安排及詳情，將適時透過相關停車場通告發布。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796235-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796235-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796235-20250318.htm)
 
 ---
