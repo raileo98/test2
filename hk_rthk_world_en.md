@@ -1,27 +1,3 @@
-# Stocks end up as winning streak continues
-
-![Stocks end up as winning streak continues](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796461_1_20250319182952.jpg&q=80)
-  
-
-Equity markets were mixed and gold hit another record high on Wednesday as trade war worries cast a shadow and geopolitical concerns returned to the fore.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm)
-
----
-
 # Turkish markets hit by arrest of Erdogan's rival
 
 ![Supporters and municipality workers hold a rally in Istanbul in support of mayor Ekrem Imamoglu following his arrest. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796448_1_20250319175032.jpg&q=90)
@@ -1437,5 +1413,29 @@ The bodies of at least 25 people, including 21 hostages, killed in a train siege
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795561-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795561-20250313.htm)
+
+---
+
+# Two air force pilots charged over S Korea bombing
+
+![Officials inspect an area with damaged buildings in the aftermath of the accidental bombing in Pocheon. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795521_1_20250313095556.jpg&q=80)
+  
+
+South Korean military investigators charged two air force pilots on Thursday with criminal negligence over an accidental bombing of a village last week during a training exercise, which injured at least 29 people and caused extensive property damage.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm)
 
 ---

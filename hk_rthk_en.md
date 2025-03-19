@@ -1,3 +1,27 @@
+# Stocks end up as winning streak continues
+
+![Stocks end up as winning streak continues](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796461_1_20250319182952.jpg&q=80)
+  
+
+Equity markets were mixed and gold hit another record high on Wednesday as trade war worries cast a shadow and geopolitical concerns returned to the fore.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm)
+
+---
+
 # Turkish markets hit by arrest of Erdogan's rival
 
 ![Supporters and municipality workers hold a rally in Istanbul in support of mayor Ekrem Imamoglu following his arrest. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796448_1_20250319175032.jpg&q=90)
@@ -1411,29 +1435,5 @@ International Olympic Committee (IOC) chief Thomas Bach has announced that boxin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm)
-
----
-
-# Major rallies in Yemen after deadly US strikes
-
-![Yemenis brandish rifles and chant during a demonstration. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796143_1_20250318014607.jpg&q=90)
-  
-
-Tens of thousands of people protested in Houthi-controlled parts of Yemen on Monday, the Iran-backed rebels' Al-Masirah TV showed, two days after US attacks that left dozens dead.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796143-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796143-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796143-20250318.htm)
 
 ---

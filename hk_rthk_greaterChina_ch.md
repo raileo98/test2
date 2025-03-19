@@ -23,7 +23,7 @@
 
 # 梁振英：冀媒體商會等發揮好溝通功能　讓大家知道大灣區最新政策
 
-![梁振英說，希望媒體、商會、專業團體等，必須發揮好溝通功能，讓大家知道粵港澳大灣區城市最新政策和發展。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796441_1_20250319172302.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796441_1_20250319172302.jpg&q=90)
   
 
 全國政協副主席梁振英在一個有關大灣區創新科技論壇致辭表示，希望媒體、商會、專業團體等，必須發揮好溝通功能，讓大家知道粵港澳大灣區城市最新政策和發展。

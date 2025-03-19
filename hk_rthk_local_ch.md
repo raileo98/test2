@@ -1,3 +1,118 @@
+# 林大輝：新醫學院搬入牛潭尾校區前　理大可負擔所有財政開支
+
+  
+
+本港三間大學正分別爭取負責籌建第三間醫學院。其中理工大學表示，充滿信心可迎接此項重任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm)
+
+---
+
+# 陳國基稱預計年中向立法會提交有關簡樸房條例草案
+
+  
+
+政務司司長陳國基透露，位於高山道的社區客廳將於下月開幕，令今年啟用的社區客廳總數，增加至5間，超出去年提出的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm)
+
+---
+
+# 立法會三讀通過保護關鍵基礎設施條例　鄧炳強重申沒有域外效力
+
+  
+
+《保護關鍵基礎設施條例草案》獲立法會三讀通過。多名議員都表示支持草案，認為如果香港不立法，就會落後於國際趨勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm)
+
+---
+
+# 羅淑佩高度關注啟德體育園啟用初期情況　稱緊密溝通辦好七欖賽事
+
+  
+
+文化體育及旅遊局局長羅淑佩表示，就啟德體育園啟用初期的情況，已向營運公司管理層表達高度關注，並指示營運公司在體制上迅速作出調整，改善員工的敏感度，以及向外發放信息的安排，包括設立專職的發言人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm)
+
+---
+
+# 海洋公園登山纜車及高峰樂園一度暫停　有遊客表示失望
+
+  
+
+海洋公園登山纜車出現訊號問題，需要暫停服務，而接載訪客往返兩個園區的海洋列車，亦正進行年檢，在沒有交通工具的情況下，高峰樂園一度暫停開放，只有山下園區開放。直至下午4時許，登山纜車及高峰樂園恢復運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796451-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796451-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796451-20250319.htm)
+
+---
+
 # 消息：簡樸房認證須收費早登記或可豁免　有條件接納向天井分間房
 
 ![消息指，為鼓勵業主盡早為分間房作認證，或會推出優惠措施，就每間簡樸房認證，房屋局或會收取數千元行政等費用，若業主愈早認證，則有機會費用全免。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796458_1_20250319182155.jpg&q=90)
@@ -143,7 +258,7 @@
 
 # 梁振英：冀媒體商會等發揮好溝通功能　讓大家知道大灣區最新政策
 
-![梁振英說，希望媒體、商會、專業團體等，必須發揮好溝通功能，讓大家知道粵港澳大灣區城市最新政策和發展。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796441_1_20250319172302.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796441_1_20250319172302.jpg&q=90)
   
 
 全國政協副主席梁振英在一個有關大灣區創新科技論壇致辭表示，希望媒體、商會、專業團體等，必須發揮好溝通功能，讓大家知道粵港澳大灣區城市最新政策和發展。
@@ -1313,125 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796278-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796278-20250318.htm)
-
----
-
-# 被問日本地震傳言　天文台：地震難預測不會建議市民是否去某地方
-
-![陳栢緯說，人工智能技術相對傳統模式，較能成功捕捉颱風的生成，但對於熱帶氣旋強度的預測仍有偏差。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796275_1_20250318183756.jpg&q=80)
-  
-
-對於近期有傳言指日本將發生大地震，會否建議市民改往其他地方旅遊。天文台台長陳栢緯說，不會建議市民去不去甚麼地方，地震是無法預測，天文台會密切注意當地氣象部門相關最新預測。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796275-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796275-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796275-20250318.htm)
-
----
-
-# 李家超有信心香港與東莞優勢互補為建設國際一流灣區作貢獻
-
-![李家超與東莞市委書記韋皓（左）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796274_1_20250318183731.jpg&q=90)
-  
-
-行政長官李家超與東莞市委書記韋皓會面，就深化香港和東莞市合作及推動粵港澳大灣區高質量發展交流意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm)
-
----
-
-# 廉署拘22人包括銀行職員涉詐騙貸款轉介費
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796257_1_20250318184305.jpg&q=85)
-  
-
-廉署拘捕22人，包括18名銀行前線職員，涉嫌詐騙銀行貸款轉介費，觸犯行賄受賄、串謀詐騙等罪名，案件涉及超過200宗樓宇按揭貸款申請，牽涉賄款合共約200萬元，約100個客戶受影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796257-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796257-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796257-20250318.htm)
-
----
-
-# 李家超：啟德體育園部分安排不理想　要求設恆常會議機制
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796256_1_20250318183501.jpg&q=90)
-  
-
-行政長官李家超指，啟德體育園自開園至今的一些安排不理想，他要求在多方面強化機制建設，包括要設立恆常會議機制，文化體育及旅遊局和體育園定期有工作會議；體育園有應急或突發事件機制；有發言人機制，第一時間發放訊息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796256-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796256-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796256-20250318.htm)
-
----
-
-# 林定國稱推動新型工業化是融入國家發展重要一環
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796258_1_20250318183756.jpg&q=90)
-  
-
-去年《施政報告》所提出推動的「香港新型工業發展聯盟」正式成立，希望促進「政、產、學、研、投」緊密協作，構建香港新型工業合作平台。律政司司長林定國表示，推動本地新型工業化是融入國家發展重要一環，過程中，法律的作用不可忽視。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796258-20250318.htm)
 
 ---

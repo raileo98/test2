@@ -1,3 +1,95 @@
+# 陳國基稱預計年中向立法會提交有關簡樸房條例草案
+
+  
+
+政務司司長陳國基透露，位於高山道的社區客廳將於下月開幕，令今年啟用的社區客廳總數，增加至5間，超出去年提出的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm)
+
+---
+
+# 立法會三讀通過保護關鍵基礎設施條例　鄧炳強重申沒有域外效力
+
+  
+
+《保護關鍵基礎設施條例草案》獲立法會三讀通過。多名議員都表示支持草案，認為如果香港不立法，就會落後於國際趨勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm)
+
+---
+
+# 羅淑佩高度關注啟德體育園啟用初期情況　稱緊密溝通辦好七欖賽事
+
+  
+
+文化體育及旅遊局局長羅淑佩表示，就啟德體育園啟用初期的情況，已向營運公司管理層表達高度關注，並指示營運公司在體制上迅速作出調整，改善員工的敏感度，以及向外發放信息的安排，包括設立專職的發言人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm)
+
+---
+
+# 海洋公園登山纜車及高峰樂園一度暫停　有遊客表示失望
+
+  
+
+海洋公園登山纜車出現訊號問題，需要暫停服務，而接載訪客往返兩個園區的海洋列車，亦正進行年檢，在沒有交通工具的情況下，高峰樂園一度暫停開放，只有山下園區開放。直至下午4時許，登山纜車及高峰樂園恢復運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796451-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796451-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796451-20250319.htm)
+
+---
+
 # 消息：簡樸房認證須收費早登記或可豁免　有條件接納向天井分間房
 
 ![消息指，為鼓勵業主盡早為分間房作認證，或會推出優惠措施，就每間簡樸房認證，房屋局或會收取數千元行政等費用，若業主愈早認證，則有機會費用全免。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796458_1_20250319182155.jpg&q=90)
@@ -237,7 +329,7 @@
 
 # 梁振英：冀媒體商會等發揮好溝通功能　讓大家知道大灣區最新政策
 
-![梁振英說，希望媒體、商會、專業團體等，必須發揮好溝通功能，讓大家知道粵港澳大灣區城市最新政策和發展。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796441_1_20250319172302.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796441_1_20250319172302.jpg&q=90)
   
 
 全國政協副主席梁振英在一個有關大灣區創新科技論壇致辭表示，希望媒體、商會、專業團體等，必須發揮好溝通功能，讓大家知道粵港澳大灣區城市最新政策和發展。
