@@ -1,3 +1,27 @@
+# 俄方稱與烏方互相移交175名被俘人員
+
+![普京在莫斯科出席總檢察院擴大會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796490_1_20250319230659.jpg&q=90)
+  
+
+俄羅斯國防部表示，俄羅斯與烏克蘭在當地星期三各向對方移交175名被俘人員。俄方又額外向烏方移交22名需緊急救治的烏軍重傷人員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796490-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796490-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796490-20250319.htm)
+
+---
+
 # 羅淑佩見證馬會與中旅簽署備忘錄聯手推動賽馬旅遊
 
 ![文化體育及旅遊局局長羅淑佩（後排中），中聯辦經濟部副部長郭韶偉（後排左一）等見證下，馬會與香港中旅集團代表簽署合作備忘錄，加強在旅遊、體育、文化及青年發展的戰略合作。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796489_1_20250319230003.jpg&q=90)
