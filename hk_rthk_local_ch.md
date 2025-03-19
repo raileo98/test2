@@ -1,5 +1,6 @@
 # 保障關鍵基礎設施條例恢復二讀　多名議員支持稱有助提升香港形象
 
+![立法會恢復二讀辯論保護關鍵基礎設施的條例草案。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796414_1_20250319152315.jpg&q=80)
   
 
 立法會恢復二讀辯論保護關鍵基礎設施的條例草案。
@@ -47,7 +48,7 @@
 
 # 九巴74X疑失事撞欄　11名乘客及車長受傷
 
-![一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796408_1_20250319145230.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796408_1_20250319145230.jpg&q=75)
   
 
 一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄。
