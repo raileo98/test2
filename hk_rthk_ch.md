@@ -1,3 +1,50 @@
+# 科大廣州創校校長稱第三所醫學院計劃書包含與很多內地醫學院合作
+
+  
+
+三所大學正爭取籌建本港第三間醫學院，當中包括香港科技大學。香港科技大學（廣州）創校校長倪明選表示，全力支持港科大辦第三所醫學院，已提交政府的計劃書包含與內地很多醫學院的合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm)
+
+---
+
+# 李家超會見廣東省省長王偉中　就進一步加強粵港合作交流
+
+![李家超在禮賓府會見率團訪港的廣東省省長王偉中。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796470_1_20250319194522.jpg&q=90)
+  
+
+行政長官李家超在禮賓府，會見率團訪港的廣東省省長王偉中，雙方就進一步加強粵港合作及推動大灣區高質量發展交流意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm)
+
+---
+
 # 日圓兌美元曾失守150　分析料長期資金或支撐日圓重新轉強
 
 ![王良享預料，日本退休基金等長期資金或增持日債配置，日圓短線兌美元介乎145至151。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796449_1_20250319175251.jpg&q=65)

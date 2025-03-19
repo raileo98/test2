@@ -1,3 +1,73 @@
+# 公務員學院辦「習近平文化思想」講座　約160名政府中高層出席
+
+  
+
+公務員學院在政府總部舉辦「習近平文化思想」講座，由國家行政學院副院長李文堂主講，有約160名政治委任官員、首長級和中高級公務員出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796472-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796472-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796472-20250319.htm)
+
+---
+
+# 科大廣州創校校長稱第三所醫學院計劃書包含與很多內地醫學院合作
+
+  
+
+三所大學正爭取籌建本港第三間醫學院，當中包括香港科技大學。香港科技大學（廣州）創校校長倪明選表示，全力支持港科大辦第三所醫學院，已提交政府的計劃書包含與內地很多醫學院的合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm)
+
+---
+
+# 李家超會見廣東省省長王偉中　就進一步加強粵港合作交流
+
+![李家超在禮賓府會見率團訪港的廣東省省長王偉中。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796470_1_20250319194522.jpg&q=90)
+  
+
+行政長官李家超在禮賓府，會見率團訪港的廣東省省長王偉中，雙方就進一步加強粵港合作及推動大灣區高質量發展交流意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm)
+
+---
+
 # 煤氣：目前未到加價時間　會審慎與政府有關部門溝通
 
   
@@ -1362,77 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm)
-
----
-
-# 與前妻討論再婚擔心公屋被奪斬傷對方　男子承認意圖傷人候判
-
-![法官認為，案件不受藥物影響，需時考慮，押後至本周五判刑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796280_1_20250318183127.jpg&q=80)
-  
-
-六旬男保安員與妻子離婚三年後討論再婚，保安員怕被前妻搶走公屋單位而拒絕，兩人再次討論再婚時男方勃然大怒，飲紅酒及服用安眠藥後持刀斬妻。男保安員承認一項有意圖而傷人罪，辯方求情時指他多年來遭前妻虐待，是受酒精及藥物影響下無預謀犯案，又認為前妻現時已原諒他，高等法院法官陳慶偉則認為，辯方的想法「太樂觀」，案件不受藥物影響，需時考慮而押後至本周五判刑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796280-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796280-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796280-20250318.htm)
-
----
-
-# 廉署拘捕十多名銀行前線職員涉助中介公司騙取按揭貸款轉介費
-
-![廉署拘捕22人，包括18名銀行前線職員，涉嫌協助一間中介公司騙取銀行按揭貸款的轉介費。（彭冠中攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796270_1_20250318223305.jpg&q=80)
-  
-
-廉署拘捕22人，包括18名銀行前線職員，涉嫌協助一間中介公司騙取銀行按揭貸款的轉介費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796270-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796270-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796270-20250318.htm)
-
----
-
-# 天文台料今年約5至8個熱帶氣旋進入本港500公里範圍
-
-![天文台預測，今年約有5至8個熱帶氣旋進入本港500公里範圍內。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796269_1_20250318223109.jpg&q=55)
-  
-
-天文台預測，今年約有5至8個熱帶氣旋進入本港500公里範圍內，可能在6月或之前踏入風季，10月或之後結束。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796269-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796269-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796269-20250318.htm)
 
 ---

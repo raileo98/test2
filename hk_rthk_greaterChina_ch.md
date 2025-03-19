@@ -1,3 +1,50 @@
+# 科大廣州創校校長稱第三所醫學院計劃書包含與很多內地醫學院合作
+
+  
+
+三所大學正爭取籌建本港第三間醫學院，當中包括香港科技大學。香港科技大學（廣州）創校校長倪明選表示，全力支持港科大辦第三所醫學院，已提交政府的計劃書包含與內地很多醫學院的合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm)
+
+---
+
+# 李家超會見廣東省省長王偉中　就進一步加強粵港合作交流
+
+![李家超在禮賓府會見率團訪港的廣東省省長王偉中。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796470_1_20250319194522.jpg&q=90)
+  
+
+行政長官李家超在禮賓府，會見率團訪港的廣東省省長王偉中，雙方就進一步加強粵港合作及推動大灣區高質量發展交流意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm)
+
+---
+
 # 李強簽國務院令　國務院關於涉外知識產權糾紛處理規定5月起施行
 
 ![李強簽署國務院令，公布《國務院關於涉外知識產權糾紛處理的規定》，5月1日起施行。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796468_1_20250319191520.jpg&q=90)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm)
-
----
-
-# 內地首兩個月消費增長4%符合預期　投資及工業增速勝預期
-
-![內地首兩個月社會消費品零售總額按年升4%，符合預期；工業及投資增速都高於預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796008_1_20250317102117.jpg&q=75)
-  
-
-內地今年首兩個月主要經濟數據符合或好於市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796008-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796008-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796008-20250317.htm)
-
----
-
-# 國安部公開4名台獨網軍身份信息　警告台獨分裂是不歸路
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795996_2_20250317100433.jpg&q=90)
-  
-
-國家安全部公開4名台獨網軍的身份信息，正告「台獨」網軍頭目分子，「台獨」分裂活動是一條不歸路，國家安全機關堅決捍衛國家主權、安全、發展利益，將對「台獨」分裂勢力採取一切必要的懲治措施，依法終身追責。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795996-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795996-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795996-20250317.htm)
 
 ---
