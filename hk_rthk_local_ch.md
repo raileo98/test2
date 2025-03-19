@@ -1,3 +1,27 @@
+# 電能實業去年盈利升2%　全年派息維持2.82元
+
+![電能實業去年盈利61.2億元，按年升2%，全年派息維持2.82元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796445_1_20250319173222.jpg&q=90)
+  
+
+電能實業去年盈利61.2億元，按年升2%。末期息每股2元4仙，全年派息維持2.82元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796445-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796445-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796445-20250319.htm)
+
+---
+
 # 立法會三讀通過《保護關鍵基礎設施條例草案》
 
 ![《保護關鍵基礎設施條例草案》獲立法會三讀通過。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796447_1_20250319173909.jpg&q=80)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm)
-
----
-
-# 天文台料今年約5至8個熱帶氣旋影響本港　風季或較遲完結
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796272_1_20250318183904.jpg&q=90)
-  
-
-天文台預計，本港今年有機會在6月或之前踏入風季，有約5至8個熱帶氣旋進入本港500公里範圍內，屬於正常至偏多，風季可能較遲才完結。至於全年雨量預測介乎2100至2700毫米，接近正常，但仍有機會受暴雨和局部地區大雨影響，天文台提醒市民為風雨季做好準備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796272-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796272-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796272-20250318.htm)
 
 ---
