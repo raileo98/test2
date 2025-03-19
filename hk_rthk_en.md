@@ -1,3 +1,27 @@
+# Ocean Park swings back into full action
+
+![Some visitors are disappointed with the temporary suspension of cable car services and upper section facilities. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796433_1_20250319164747.jpg&q=75)
+  
+
+Ocean Park said on Wednesday cable car services and facilities in its upper section resumed operations at about 4 pm after they had to be closed down for more than half a day.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm)
+
+---
+
 # More local companies planning to hire than cut staff
 
 ![Lancy Chui says that while the local healthcare industry showed the strongest hiring demand, the logistics sector could face a challenging hiring outlook due to global trade frictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796421_1_20250319154853.jpg&q=90)
@@ -1411,29 +1435,5 @@ RTHK has been granted free broadcasting rights for a documentary that explores t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796118-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796118-20250317.htm)
-
----
-
-# Six students contract gastroenteritis in exchange tour
-
-![The Centre for Health Protection says the latest cluster involves six secondary students who were part of an exchange tour to Xiamen. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796126_1_20250317212915.jpg&q=80)
-  
-
-The Centre for Health Protection (CHP) is investigating a gastroenteritis cluster among secondary students who participated in an exchange tour to Xiamen last week.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796126-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796126-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796126-20250317.htm)
 
 ---

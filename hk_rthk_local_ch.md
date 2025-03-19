@@ -1,3 +1,50 @@
+# 中國疾控中心稱3月份是諾如病毒流行季節　籲勤洗手注意飲食安全
+
+  
+
+近日本港接連有參加内地交流團的學生師生出現急性腸胃炎徵狀，部分人對諾如病毒呈陽性反應。在北京，中國疾控中心研究員常昭瑞表示，3月份仍是諾如病毒流行季節，病毒可通過食用被污染的食物和水、間接接觸被污染的環境和物體表面等途徑傳播，呼籲勤洗手、注意飲食安全及做好消毒，學校及托兒機構等高風險場所要落實好日常防控措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm)
+
+---
+
+# 林哲玄稱醫健通修例可確保有整全病歷　方保僑冀兩地做好私隱保障
+
+![林哲玄希望法例可以容許上載資料時，病人應有責任讓醫護查看醫健通資料；方保僑認為，市民要清楚有關機構取得資料後使用情況，留意免責條款。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796438_1_20250319170921.jpg&q=85)
+  
+
+政府建議修訂例，擴展及優化「醫健通」功能，賦權醫務衞生局局長可要求指明醫護提供者，將重要的指明健康資料存入已參與醫健通市民的個人戶口，便利市民掌控自己的重要健康資料。當局指，私營醫護提供者大部分已登記參加醫健通並經常在獲個別市民授權後取覽紀錄，但只有少數將提供服務的紀錄存入市民醫健通戶口。當局又建議，擴展可使用醫健通的專業人員至營養師、臨床心理學家及教育心理學家等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796438-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796438-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796438-20250319.htm)
+
+---
+
 # 許正宇稱增離境稅將為政府帶來16億元收入但對乘客影響輕微
 
 ![許正宇表示，飛機乘客離境稅由120元增至200元，增幅對飛機乘客整體出行成本影響十分輕微。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796435_1_20250319165449.jpg&q=90)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm)
-
----
-
-# 港股收市升595點　連升3日累計近1280點
-
-![港股創逾3年新高，恒生指數收市報24740點，升595點，升幅約2.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796245_1_20250318162011.jpg&q=10)
-  
-
-港股連升3日，升穿24700點，創逾3年新高。恒生指數接近全日最高位收市，報24740點，升595點，升幅約2.5%，指數3日累計升近1280點。全日主板成交額逾2859億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796245-20250318.htm)
-
----
-
-# 最新失業率3.2%微升0.1個百分點
-
-![政府表示，一些企業或會受到美國貿易保護措施帶來的不確定性所影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796250_2_20250318170303.jpg&q=85)
-  
-
-統計處公布，去年12月至今年2月的失業率是3.2%，較上次微升0.1個百分點，有11萬1700人失業，增加約1600人。就業不足率不變，維持於1.1%，就業不足人數有40700人，減少約2300人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796250-20250318.htm)
 
 ---

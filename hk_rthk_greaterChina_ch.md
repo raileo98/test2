@@ -1,3 +1,26 @@
+# 中國疾控中心稱3月份是諾如病毒流行季節　籲勤洗手注意飲食安全
+
+  
+
+近日本港接連有參加内地交流團的學生師生出現急性腸胃炎徵狀，部分人對諾如病毒呈陽性反應。在北京，中國疾控中心研究員常昭瑞表示，3月份仍是諾如病毒流行季節，病毒可通過食用被污染的食物和水、間接接觸被污染的環境和物體表面等途徑傳播，呼籲勤洗手、注意飲食安全及做好消毒，學校及托兒機構等高風險場所要落實好日常防控措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm)
+
+---
+
 # 外交部：中方冀日方能正視歷史　推動中日關係健康穩定向前發展
 
 ![毛寧說，中方希望日方能本着正視歷史、開闢未來的精神，推動中日關係健康穩定向前發展。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796430_1_20250319164255.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm)
-
----
-
-# 何立峰會見美國前財長保爾森
-
-![何立峰在北京會見美國前財長保爾森。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795963_1_20250316223000.jpg&q=90)
-  
-
-在北京，中共中央政治局委員、中央財辦主任何立峰會見美國前財政部長保爾森，雙方就中美經貿關係、全球經濟等交換看法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Ocean Park swings back into full action
+
+![Some visitors are disappointed with the temporary suspension of cable car services and upper section facilities. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796433_1_20250319164747.jpg&q=75)
+  
+
+Ocean Park said on Wednesday cable car services and facilities in its upper section resumed operations at about 4 pm after they had to be closed down for more than half a day.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm)
+
+---
+
 # Snooker tournament slips spur Rugby Sevens resolve
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796411_1_20250319143132.jpg&q=70)
@@ -1411,29 +1435,5 @@ Two primary schools will not receive grants from the Education Bureau to operate
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795622-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795622-20250313.htm)
-
----
-
-# Civil service job cuts won't save much: Legco
-
-![The Legislative Council Secretariat says civil service job cuts may not save much money. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795601_1_20250313190933.jpg&q=90)
-  
-
-The government's plan to cut 10,000 civil service positions over two years may not translate into substantial manpower savings, according to a research brief released by the Legislative Council Secretariat on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795601-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795601-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795601-20250313.htm)
 
 ---
