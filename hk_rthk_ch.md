@@ -1,5 +1,53 @@
+# 安踏體育去年盈利升逾52%　末期息增加約3%
+
+![安踏體育去年盈利約156億元人民幣，按年升逾52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796389_1_20250319122918.jpg&q=90)
+  
+
+安踏體育去年盈利約156億元人民幣，按年升逾52%。撇除Amer Sports上市及配售權益攤薄所致的非現金會計利得，盈利升7%至117.3億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796389-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796389-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796389-20250319.htm)
+
+---
+
+# 九巴大埔廣福邨對開失事撞欄　初步消息指8至9人受傷
+
+  
+
+一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄，初步消息指車上有8至9人受傷，九巴司機已被救出，他報稱腰部受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796397-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796397-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796397-20250319.htm)
+
+---
+
 # 林大輝：如開設新醫學院校方可負擔開支　現屆下屆政府可分毫不付
 
+![林大輝強調理大是肯承擔的大學，願意同政府投資未來、教育和醫療。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796395_1_20250319125630.jpg&q=85)
   
 
 理工大學是其中一間向政府提交籌建第三間醫學院建議書的大學，校方表示，充滿信心可迎接這個重任。
