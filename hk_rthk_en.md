@@ -1,3 +1,27 @@
+# 'King's Park site will still be used for healthcare'
+
+![The government says the King's Park site, currently home to Queen Elizabeth Hospital, will be retained for healthcare purposes. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796481_1_20250319221730.jpg&q=80)
+  
+
+The government on Wednesday said the King's Park site, currently home to Queen Elizabeth Hospital, will be retained for healthcare purposes despite a relocation plan.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm)
+
+---
+
 # 'New Israeli strikes on Gaza dramatic step backwards'
 
 ![Palestinians flee their homes after the Israeli army issued evacuation orders for a number of neighborhoods following heavy strikes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796484_1_20250319222238.jpg&q=90)
@@ -1411,29 +1435,5 @@ After more than nine months aboard the International Space Station, a pair of as
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm)
-
----
-
-# Indonesia to repatriate hundreds of scam workers
-
-![View of the scam centres in Shwe Kokko as seen from the Thai side of the border in early March. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796178_1_20250318085711.jpg&q=85)
-  
-
-More than 500 Indonesians freed from online scam centres in Myanmar are expected to be repatriated via Thailand in the coming days.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm)
 
 ---

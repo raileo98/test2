@@ -1,3 +1,26 @@
+# 九巴指涉大埔交通意外車長昨日休息　工會質疑與工作安排失當有關
+
+  
+
+一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄。11人受傷，包括車長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796486-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796486-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796486-20250319.htm)
+
+---
+
 # 發展局：金屬棚架不會大幅提高工程造價　佔工程合約金額2%
 
 ![發展局說，金屬棚架因使用標準組件，更能保障棚架上工作人員的安全。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796485_1_20250319222511.jpg&q=75)

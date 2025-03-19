@@ -405,6 +405,30 @@
 
 ---
 
+# 歐力保險顧問公司兩度未能交審計表　被法庭判罰款2.6萬元
+
+![被告違反《保險業條例》，在東區裁判法院被定罪，判處罰款26060元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796424_1_20250319161454.jpg&q=75)
+  
+
+保險業監管局作出首宗刑事檢控，持牌經紀公司歐力保險顧問有限公司因兩度未能在財政年度結束後6個月內，向保險業監管局提交經審計財務報表，違反《保險業條例》，在東區裁判法院被定罪，判處罰款26060元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796424-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796424-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796424-20250319.htm)
+
+---
+
 # 中方促美方立即停止封鎖制裁古巴　多做有利美古關係改善事情
 
 ![毛寧說， 所謂「強迫勞動」已成為美國打壓異己的完美藉口和霸權工具。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796423_1_20250319155848.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm)
-
----
-
-# 美股開市後下跌　納指初段跌逾1%
-
-![美股下跌，投資者等候本周聯儲局議息結果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796299_1_20250318214833.jpg&q=90)
-  
-
-紐約股市下跌。投資者等候本周聯儲局議息結果，以及憂慮關稅戰對經濟的影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm)
 
 ---
