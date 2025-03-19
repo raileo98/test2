@@ -1,3 +1,51 @@
+# At least 10 injured after bus hits pavement
+
+![The KMB double-decker at the scene of the accident in Tai Po on Tolo Highway. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796402_1_20250319132024.jpg&q=90)
+  
+
+At least ten people were injured when a bus struck the pavement on Tolo Highway on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm)
+
+---
+
+# Govt moves to boost healthcare data sharing
+
+![The government hopes healthcare providers will proactively upload their patients' records onto the "eHealth" platform. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796401_2_20250319135402.jpg&q=75)
+  
+
+The government said it plans to amend the law to help boost the development of its one-stop “eHealth” platform.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm)
+
+---
+
 # Two EMSD staff, supplier charged with fraud
 
 ![The trio are charged with conspiracy to defraud, and the ICAC said more charges could be laid against the trio. (File photo: RTHK)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796388_1_20250319122707.jpg&q=90)
@@ -1388,53 +1436,5 @@ An upcoming exhibition dedicated to Spanish artist Pablo Picasso is set to bring
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795585-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795585-20250313.htm)
-
----
-
-# Cryopreservation break for those with fertility fears
-
-![The Council on Human Reproductive Technology is suggesting people be allowed to store gametes or embryos for as long as they want. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795575_2_20250313170514.jpg&q=90)
-  
-
-The government launched on Thursday a consultation on lifting the storage period limitation for frozen eggs, sperm or embryos.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795575-20250313.htm)
-
----
-
-# Driver dies after crashing van into fire engine
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795576_1_20250313161524.jpg&q=80)
-  
-
-A driver, who was behind the wheel of a light goods vehicle travelling along the West Kowloon Highway on Thursday, died after crashing into a fire engine in Tai Kok Tsui.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795576-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795576-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795576-20250313.htm)
 
 ---

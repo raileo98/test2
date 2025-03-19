@@ -1,3 +1,26 @@
+# 南韓總統彈劾案未有宣判日　警方已計劃逾2萬人維護社會治安秩序
+
+  
+
+南韓警方將於總統尹錫悅彈劾案宣判當日，在全韓範圍部署超過330支機動部隊、合共2萬多名警員，其中1萬4千人會部署到首爾市中心區域。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796406-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796406-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796406-20250319.htm)
+
+---
+
 # 王受文晤百事高層　稱穩定健康可持續中美經貿關係符合兩國利益
 
 ![商務部國際貿易談判代表兼副部長王受文會見美國百事公司董事長兼首席執行官龍嘉德。（商務部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796383_1_20250319115656.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796121-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796121-20250317.htm)
-
----
-
-# 中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬
-
-![馬輝率中共代表團訪問巴拿馬。（中國共產黨新聞網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796110_2_20250317200046.jpg&q=90)
-  
-
-新華社報道，中共中央對外聯絡部副部長馬輝率中共代表團訪問巴拿馬，會見巴拿馬主要政黨領導人，同智庫學者等座談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
 
 ---

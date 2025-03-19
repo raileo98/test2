@@ -1,5 +1,29 @@
+# 羅淑佩稱啟德體育園公司已積極找發言人　冀七欖消息發放得更好
+
+  
+
+文化體育及旅遊局局長羅淑佩表示，就啟德體育園啟用初期的情況，已向營運公司管理層表達高度關注，並指示要迅速調整體制，包括優化決策、溝通及處理突發事件機制，亦要求改善員工的敏感度及向外發放信息的安排，包括設立專職發言人，以加強公眾對啟德體育園的認知和信心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796405-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796405-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796405-20250319.htm)
+
+---
+
 # 李家超與江門市委書記會面　就深化港邑合作及推動大灣區發展交流
 
+![李家超（右）與江門市委書記陳岸明（左）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796400_1_20250319135325.jpg&q=90)
   
 
 行政長官李家超今日與江門市委書記陳岸明會面，就進一步深化港邑合作及推動粵港澳大灣區高質量發展交流意見。
@@ -146,7 +170,7 @@
 ![海洋公園登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796392_1_20250319125048.jpg&q=55)
   
 
-海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。而海洋列車亦正在進行年度檢查，現時無法接載訪客往返兩個園區。高峰樂園將暫停開放，直至另行通知，訪客現時可到訪山下園區。
+海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。而海洋列車亦正在進行年度檢查，現時無法接載訪客往返兩個園區。登山纜車與高峰樂園今日暫停開放，直至另行通知，沒有訪客被困，至於訪客現時可到訪山下園區。
 
   
 
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm)
-
----
-
-# 立法會換屆選舉12月7日舉行　選委會界別分組補選9月7日進行
-
-![李家超宣布，第8屆立法會選舉將定於12月7日舉行，選出90名議員。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796217_1_20250318122611.jpg&q=80)
-  
-
-行政長官李家超宣布，第8屆立法會選舉將定於12月7日舉行，選出90名議員；而在選舉前會舉行選委會界別分組補選，有關補選定於9月7日進行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796217-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796217-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796217-20250318.htm)
 
 ---

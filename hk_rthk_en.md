@@ -1,3 +1,51 @@
+# At least 10 injured after bus hits pavement
+
+![The KMB double-decker at the scene of the accident in Tai Po on Tolo Highway. Photo: Online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796402_1_20250319132024.jpg&q=90)
+  
+
+At least ten people were injured when a bus struck the pavement on Tolo Highway on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm)
+
+---
+
+# Govt moves to boost healthcare data sharing
+
+![The government hopes healthcare providers will proactively upload their patients' records onto the "eHealth" platform. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796401_2_20250319135402.jpg&q=75)
+  
+
+The government said it plans to amend the law to help boost the development of its one-stop “eHealth” platform.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm)
+
+---
+
 # Two EMSD staff, supplier charged with fraud
 
 ![The trio are charged with conspiracy to defraud, and the ICAC said more charges could be laid against the trio. (File photo: RTHK)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796388_1_20250319122707.jpg&q=90)
@@ -1387,53 +1435,5 @@ Triathletes from the SAR will try to book a spot in this year's National Games b
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm)
-
----
-
-# Animal groups vent concerns on pets aboard trains
-
-![Twenty groups under the Animal Welfare Advocacy Alliance, together with DAB lawmaker Edward Lau, front row centre, have held talks with MTR officials. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796100_1_20250317182151.jpg&q=90)
-  
-
-Animal welfare groups on Monday held talks with MTR Corporation officials as the railway company looks into allowing pets on trains.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796100-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796100-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796100-20250317.htm)
-
----
-
-# Stocks end up on news of China's consumption drive
-
-![The Hang Seng Index rose 0.77 percent to close at 24,145.57. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796083_1_20250317174259.jpg&q=75)
-  
-
-Markets rose on Monday as investors welcomed China's plans to kickstart consumption in the world's number two economy, though worries about US President Donald Trump's tariffs war continue to cast a shadow over trading floors.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm)
 
 ---
