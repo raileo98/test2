@@ -1,3 +1,26 @@
+# 兩名美國太空人乘SpaceX飛船返抵地球　結束逾九個月滯留
+
+  
+
+兩名美國太空人威廉姆斯和威爾莫爾，滯留國際太空站逾九個月後，乘坐SpaceX的龍飛船返抵地球，於本港時間早上近6時降落美國佛羅里達州對出海面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796457-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796457-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796457-20250319.htm)
+
+---
+
 # 韓媒：上月試圖闖入中國駐韓大使館男子被起訴
 
 ![韓媒：上月試圖闖入中國駐韓大使館男子被起訴](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796443_1_20250319172903.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796146-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796146-20250318.htm)
-
----
-
-# 美國八個州遭遇龍捲風等惡劣天氣　增至最少42死
-
-![密蘇里州遭到龍捲風吹襲，造成嚴重破壞。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796145_1_20250318031351.jpg&q=75)
-  
-
-美國中西部和南部八個州近日持續遭受龍捲風和沙塵暴等惡劣天氣侵襲，增至最少42人死亡，多處遭受大範圍破壞。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796145-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796145-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796145-20250318.htm)
 
 ---
