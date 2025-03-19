@@ -1,3 +1,27 @@
+# 外交部：中方冀日方能正視歷史　推動中日關係健康穩定向前發展
+
+![毛寧說，中方希望日方能本着正視歷史、開闢未來的精神，推動中日關係健康穩定向前發展。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796430_1_20250319164255.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧回應美日元首上月共同宣布，將反對以武力或脅迫手段單方面改變台海現狀時表示，台灣問題是中國的內政，不容任何外部干涉。日本曾經對台灣殖民統治，對中國人民負有歷史罪責，所以尤其應當謹言慎行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm)
+
+---
+
 # 外交部駐港公署：強烈不滿澳方為反中亂港分子撐腰打氣
 
 ![發言人說，中方敦促澳方停止為犯罪分子提供「庇護所」。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796426_1_20250319160822.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795963-20250316.htm)
-
----
-
-# 外交部駐港公署：美英等國干涉香港事務和中國內政　注定徒勞無功
-
-![發言人說，公署敦促有關國家立即停止以任何手段干預香港事務和中國內政。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795950_1_20250316191423.jpg&q=90)
-  
-
-外交部駐港公署發言人說，美國、英國、加拿大等國常駐聯合國機構官員公然會見有關反中亂港首惡分子的家屬及所謂「律師團隊」，為反中亂港勢力撐腰，抹黑香港特區法治，干涉香港事務和中國內政，公署表示強烈不滿和堅決反對，有關行徑注定徒勞無功。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795950-20250316.htm)
 
 ---
