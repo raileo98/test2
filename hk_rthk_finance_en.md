@@ -1,3 +1,27 @@
+# US stocks rise, Fed flags greater economic uncertainty
+
+![The Dow Jones Industrial Average finished up 0.9 percent at 41,964. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796513_1_20250320055039.jpg&q=90)
+  
+
+Wall Street stocks rose on Wednesday after the Federal Reserve kept interest rates unchanged but pointed to increased economic uncertainty, while Treasury bond yields tumbled.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796513-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796513-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796513-20250320.htm)
+
+---
+
 # Tencent posts better-than-expected Q4 results
 
 ![Tencent posts strong fourth quarter financial performances, bolstered by its gaming and advertising businesses. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796452_1_20250319182448.jpg&q=90)
@@ -1411,29 +1435,5 @@ Canada will slap tariffs on US imports beginning on Tuesday in response to levie
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm)
-
----
-
-# China's economy solid amid challenges: NPC spokesman
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794152_1_20250304143607.jpg&q=90)
-  
-
-China’s economy has a solid foundation with new growth drivers despite facing some challenges in the coming year, a spokesman for the top legislature said on Tuesday, as dates for the parliament’s annual session were announced.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794152-20250304.htm)
 
 ---
