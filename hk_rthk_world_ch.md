@@ -1,3 +1,27 @@
+# 外交部駐港公署：強烈不滿澳方為反中亂港分子撐腰打氣
+
+![發言人說，中方敦促澳方停止為犯罪分子提供「庇護所」。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796426_1_20250319160822.jpg&q=90)
+  
+
+外交部駐港公署發言人說，澳洲個別政客對所謂「香港警方在澳洲開展執法行動」表達關切，公然為反中亂港分子撐腰打氣，栽贓抹黑香港特區政府，公署表示強烈不滿和堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm)
+
+---
+
 # 中方促美方立即停止封鎖制裁古巴　多做有利美古關係改善事情
 
 ![毛寧說， 所謂「強迫勞動」已成為美國打壓異己的完美藉口和霸權工具。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796423_1_20250319155848.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm)
-
----
-
-# 卡尼就任總理後首訪法英　指加拿大需要加強與可靠盟友關係
-
-![加拿大總理卡尼抵達巴黎，與法國總統馬克龍會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796138_1_20250317235213.jpg&q=90)
-  
-
-加拿大總理卡尼抵達巴黎，與法國總統馬克龍會談，是卡尼就任總理後首次外訪。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796138-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796138-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796138-20250318.htm)
 
 ---

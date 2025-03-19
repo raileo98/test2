@@ -1,5 +1,30 @@
+# 外交部駐港公署：強烈不滿澳方為反中亂港分子撐腰打氣
+
+![發言人說，中方敦促澳方停止為犯罪分子提供「庇護所」。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796426_1_20250319160822.jpg&q=90)
+  
+
+外交部駐港公署發言人說，澳洲個別政客對所謂「香港警方在澳洲開展執法行動」表達關切，公然為反中亂港分子撐腰打氣，栽贓抹黑香港特區政府，公署表示強烈不滿和堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm)
+
+---
+
 # 歐力保險顧問公司兩度未能交審計表　被法庭判罰款2.6萬元
 
+![被告違反《保險業條例》，在東區裁判法院被定罪，判處罰款26060元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796424_1_20250319161454.jpg&q=75)
   
 
 保險業監管局作出首宗刑事檢控，持牌經紀公司歐力保險顧問有限公司因兩度未能在財政年度結束後6個月內，向保險業監管局提交經審計財務報表，違反《保險業條例》，在東區裁判法院被定罪，判處罰款26060元。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796243-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796243-20250318.htm)
-
----
-
-# 黃英豪稱結合中醫實力與生物科技優勢　浸大申辦醫學院具競爭力
-
-![黃英豪（左）表示，浸大有自己的特色，作為全港第一間中醫院的營辦機構，過去培育了很多中醫人才。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796239_1_20250318153111.jpg&q=90)
-  
-
-已就本港興建第三所醫學院提交建議書的浸會大學，校長衞炳江出席一個活動後表示，將努力為與籌備工作組會面作出準備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm)
 
 ---
