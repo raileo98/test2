@@ -1,6 +1,29 @@
+# 李家超與江門市委書記會面　就深化港邑合作及推動大灣區發展交流
+
+  
+
+行政長官李家超今日與江門市委書記陳岸明會面，就進一步深化港邑合作及推動粵港澳大灣區高質量發展交流意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796400-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796400-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796400-20250319.htm)
+
+---
+
 # 萬寶盛華：企業今年平均加薪3%　或採取更保守薪酬政策
 
-![調查顯示本港今年平均加薪幅度降至3%。徐玉珊說，企業或採取更保守的薪酬政策，但亦會視乎盈利及員工表現等。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796398_1_20250319130135.jpg&q=1)
+![調查顯示本港今年平均加薪幅度降至3%。徐玉珊說，企業或採取更保守的薪酬政策，但亦會視乎盈利及員工表現等。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796398_1_20250319130135.jpg&q=90)
   
 
 人力資源服務供應商萬寶盛華大中華高級副總裁徐玉珊表示，本港就業市場保持平穩，醫療、科技等行業就業前景都有好轉，但全球經濟不明朗化，個別行業面對不同程度壓力，運輸及物流業招聘意欲相對低迷，相信與就國際貿易摩擦和關稅政策有關。
@@ -22,8 +45,9 @@
 
 ---
 
-# 九巴大埔廣福邨對開失事撞欄　初步消息指8至9人受傷
+# 九巴大埔吐露港公路失事撞欄　初步消息指8至9人受傷
 
+![一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796397_1_20250319131144.jpg&q=90)
   
 
 一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄，初步消息指車上有8至9人受傷，九巴司機已被救出，他報稱腰部受傷。
@@ -117,7 +141,7 @@
 
 ---
 
-# 海洋公園登山纜車訊號問題暫停海洋列車正年檢　高峰樂園暫停開放
+# 海洋公園登山纜車訊號問題暫停海洋列車正年檢　山上高峰樂園停開
 
 ![海洋公園登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796392_1_20250319125048.jpg&q=55)
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796217-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796217-20250318.htm)
-
----
-
-# 民建聯歡迎立法會選舉12月7日舉行　冀選出真正愛國愛港人士
-
-![民建聯歡迎立法會換屆選舉定於12月7日舉行，並期望通過今次選舉，選出真正愛國愛港、有能力、高質素的人士。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796212_1_20250318124050.jpg&q=90)
-  
-
-民建聯歡迎立法會換屆選舉定於12月7日舉行，並期望通過今次選舉，選出真正愛國愛港、有能力、高質素的人士，擔負起立法會的重要職責，積極為香港的繁榮穩定建言獻策，協助特區政府依法施政，推動各項政策更加貼近民意，符合香港實際發展需要。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796212-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796212-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796212-20250318.htm)
 
 ---

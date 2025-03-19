@@ -1,3 +1,51 @@
+# Ocean Park cable cars, upper park facilities closed
+
+![Ocean Park says no transport services are available between its lower and upper parks. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796396_1_20250319125104.jpg&q=55)
+  
+
+Ocean Park said on Wednesday its cable car services were suspended due to signal issues, and facilities at its upper park were closed temporarily.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm)
+
+---
+
+# Joint property management key for older buildings
+
+![Home and youth affairs chief Alice Mak says the joint property management scheme will help homeowners to better manage their properties. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796384_1_20250319120525.jpg&q=90)
+  
+
+The Secretary for Home and Youth Affairs said the joint property management scheme will help homeowners to better manage and maintain their assets.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm)
+
+---
+
 # 5 more get gastroenteritis after school exchange tour
 
 ![The Centre for Health Protection says two of the five pupils have sought medical attention but none needed hospitalisation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796303_1_20250318222333.jpg&q=90)
@@ -1388,53 +1436,5 @@ The Office of the Ombudsman on Thursday urged the Housing Department to step up 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795562-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795562-20250313.htm)
-
----
-
-# 6 HK university courses make top 10 in global ranking
-
-![HKU’s dentistry course sits at the number-two spot when compared with its global peers. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795543_1_20250313124205.jpg&q=75)
-  
-
-Nearly 70 percent of local university courses have seen their global rankings rise, compared to last year’s results.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795543-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795543-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795543-20250313.htm)
-
----
-
-# Cancer devices donated by Li require clinical trials
-
-![HKU says 40 patients have been treated with the donated device over the past six months. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795541_1_20250313123550.jpg&q=75)
-  
-
-Health officials said medical devices donated by a tycoon for treating liver cancer are still under clinical trials and require careful evaluation before wider use in public healthcare.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795541-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795541-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795541-20250313.htm)
 
 ---

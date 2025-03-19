@@ -1,3 +1,27 @@
+# Joint property management key for older buildings
+
+![Home and youth affairs chief Alice Mak says the joint property management scheme will help homeowners to better manage their properties. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796384_1_20250319120525.jpg&q=90)
+  
+
+The Secretary for Home and Youth Affairs said the joint property management scheme will help homeowners to better manage and maintain their assets.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm)
+
+---
+
 # Ukraine peace talks planned for Sunday in Saudi: US
 
 ![US officials say talks aimed at a ceasefire in Ukraine would be held in the Saudi Arabian city of Jeddah on Sunday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796380_1_20250319110641.jpg&q=90)
@@ -1411,29 +1435,5 @@ Police on Monday raided a building in Mong Kok, with sources saying the operatio
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796085-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796085-20250317.htm)
-
----
-
-# Mt Fuji entry fee set for hikers
-
-![Hikers near the popular Yoshida trail, which will see a doubling of the fee, up Mount Fuji. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796065_1_20250317160637.jpg&q=70)
-  
-
-Hikers attempting any of Mount Fuji's four main trails will be charged an entry fee of 4,000 yen from this summer, after local authorities passed a bill on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm)
 
 ---
