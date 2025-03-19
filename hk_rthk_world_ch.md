@@ -1,3 +1,26 @@
+# 特朗普與普京通話後　俄烏互相空襲對方基礎設施
+
+  
+
+美國總統特朗普與俄羅斯總統普京通電話後，俄羅斯和烏克蘭互相空襲對方的基礎設施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm)
+
+---
+
 # 外交部：中方冀日方能正視歷史　推動中日關係健康穩定向前發展
 
 ![毛寧說，中方希望日方能本着正視歷史、開闢未來的精神，推動中日關係健康穩定向前發展。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796430_1_20250319164255.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796144-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796144-20250318.htm)
-
----
-
-# 特朗普將與普京通話　克宮稱主要話題是調解烏克蘭問題
-
-![佩斯科夫形容，今次通話將會是為了恢復兩國關係定下基調的重要一步。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796142_1_20250318013811.jpg&q=90)
-  
-
-美國總統特朗普今日稍後與俄羅斯總統普京通電話，克里姆林宮發言人佩斯科夫說，正準備會談的議程，主要話題將會是調解烏克蘭問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796142-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796142-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796142-20250318.htm)
 
 ---

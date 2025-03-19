@@ -1,3 +1,26 @@
+# 特朗普與普京通話後　俄烏互相空襲對方基礎設施
+
+  
+
+美國總統特朗普與俄羅斯總統普京通電話後，俄羅斯和烏克蘭互相空襲對方的基礎設施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm)
+
+---
+
 # 許正宇稱增離境稅將為政府帶來16億元收入但對乘客影響輕微
 
 ![許正宇表示，飛機乘客離境稅由120元增至200元，增幅對飛機乘客整體出行成本影響十分輕微。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796435_1_20250319165449.jpg&q=90)
@@ -72,6 +95,7 @@
 
 # 海洋公園登山纜車及山上高峰樂園恢復運作
 
+![海洋公園在網站表示，早前一度暫停服務的登山纜車及山上高峰樂園，已於下午4時15分恢復運作。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796429_1_20250319165516.jpg&q=40)
   
 
 海洋公園在網站表示，早前一度暫停服務的登山纜車及山上高峰樂園，已於下午4時15分恢復運作，園方感謝受影響訪客的體諒。
