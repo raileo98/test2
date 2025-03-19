@@ -1,3 +1,123 @@
+# 港股競價時段跌42點
+
+![港股競價時段跌42點。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796361_1_20250319092345.jpg&q=75)
+  
+
+港股競價時段跌42點，恒指報24697點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796361-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796361-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796361-20250319.htm)
+
+---
+
+# 人民幣中間價上升
+
+![人民幣中間價報7.1697兌1美元，較上日中間價上調36點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796359_1_20250319092426.jpg&q=80)
+  
+
+人民幣中間價報7.1697兌1美元，較上日中間價上調36點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796359-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796359-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796359-20250319.htm)
+
+---
+
+# 《環看天下》：卡尼訪問英法兩國   分析：與歐洲盟友展現團結
+
+![加拿大總理卡尼日前分别前往法國及英國訪問。( 路透社 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796358_1_20250319091755.jpg&q=90)
+  
+
+加拿大總理卡尼日前正式宣誓就任，隨即分别前往法國及英國訪問。這兩個國家都與加拿大有深厚的歷史淵源。英法兩國領袖都分别向卡尼保證，維持雙方緊密的盟友關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm)
+
+---
+
+# 台股初段偏軟
+
+![加權指數較早時報22231點，跌40點，跌幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796356_1_20250319090533.jpg&q=90)
+  
+
+台灣股市初段偏軟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796356-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796356-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796356-20250319.htm)
+
+---
+
+# 新奧能源停牌
+
+![新奧能源今早9時起停牌，待公布內幕消息公告。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796355_1_20250319090340.jpg&q=80)
+  
+
+新奧能源今早9時起停牌，待公布內幕消息公告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796355-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796355-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796355-20250319.htm)
+
+---
+
 # 美聯邦法官暫緩執行特朗普阻止跨性別人士軍隊服役禁令
 
 ![法官認為特朗普的命令可能違反美國憲法中禁止性别歧視的規定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796352_1_20250319083942.jpg&q=90)
@@ -1316,125 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796282-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796282-20250318.htm)
-
----
-
-# 小米去年多賺逾35%　智能電動車等創新業務蝕62億元人民幣
-
-![小米去年智能電動汽車等創新業務經調整淨虧損62億元人民幣，單計第4季虧損7億元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796271_1_20250318174940.jpg&q=90)
-  
-
-小米去年盈利236.6億元人民幣，按年升逾35%，不派末期息。按非國際財務報告準則計的經調整盈利升逾41%至272.3億元，收入升35%至3659.1億元，兩者都創新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796271-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796271-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796271-20250318.htm)
-
----
-
-# 加沙衛生部指以軍空襲增至逾400人死亡
-
-![加沙衛生部指以軍空襲增至逾400人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796286_1_20250318194432.jpg&q=85)
-  
-
-在以色列與哈馬斯就第二階段停火談判停滯之際，以色列軍方當地星期二凌晨，向加沙地帶發動自1月19日停火生效以來最大規模的空襲，加沙衛生部門說，空襲已造成超過4百人死亡，5百多人傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796286-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796286-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796286-20250318.htm)
-
----
-
-# 俄媒稱普京與特朗普本港時間晚上9時至11時會談
-
-![俄媒稱普京與特朗普本港時間晚上9時至11時會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796285_1_20250318194308.jpg&q=90)
-  
-
-俄羅斯傳媒報道，俄羅斯總統普京與美國總統特朗普的會談，將於本港時間晚上9時至11時舉行。雙方將討論俄美關係正常化等議題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796285-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796285-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796285-20250318.htm)
-
----
-
-# 李家超：香港續發揮「內聯外通」優勢與廣州等大灣區城市優勢互補
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796284_1_20250318200536.jpg&q=85)
-  
-
-行政長官李家超表示，香港會繼續發揮「內聯外通」的優勢，積極對接國家戰略，與廣州等大灣區城市優勢互補，共同推進高質量發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm)
-
----
-
-# 聯通：AI是集團轉型升級至科技服務公司重要引擎
-
-![聯通稱將持之以恒做好提質增效，堅持開源節流並重。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796283_1_20250318190721.jpg&q=90)
-  
-
-中國聯通預計今年固定資產投資約550億元人民幣，並為人工智能（AI）重點基礎設施和重大工程專項作特別預算安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796283-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796283-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796283-20250318.htm)
 
 ---

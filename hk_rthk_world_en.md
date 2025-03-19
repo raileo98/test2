@@ -1,3 +1,51 @@
+# Netanyahu warns strikes on Gaza 'just the beginning'
+
+![The Israeli prime minister said in a video statement that "from now on, negotiations will take place only under fire." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796354_1_20250319085145.jpg&q=90)
+  
+
+Israeli Prime Minister Benjamin Netanyahu warned on Tuesday that massive overnight strikes on Gaza were "only the beginning" and that future negotiations with Hamas "will take place only under fire".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm)
+
+---
+
+# US releases final trove of Kennedy assassination files
+
+![Documents related to the 1963 assassination of President John F Kennedy are displayed after they were released. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796353_1_20250319084345.jpg&q=85)
+  
+
+The US National Archives on Tuesday released the final batch of files related to the assassination of president John F Kennedy - a case that still fuels conspiracy theories more than 60 years after his death.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm)
+
+---
+
 # Nasa astronauts Wilmore and Williams splash down
 
 ![They arrived back on Earth nine months after their faulty Boeing Starliner craft upended what was to be a week-long stay on the ISS. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796336_2_20250319063556.jpg&q=90)
@@ -1389,53 +1437,5 @@ Mark Carney will be sworn in as Canada's next prime minister on Friday morning, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795499-20250313.htm)
-
----
-
-# Canada announces additional tariffs on US goods
-
-![Donald Trump's hyper-focus on tariffs since taking office in January has rattled investor, consumer and business confidence. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795475_1_20250312225143.jpg&q=90)
-  
-
-Canada on Wednesday announced additional tariffs on US$20.7 billion of US goods, retaliating against American levies on Canadian steel and aluminium.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795475-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795475-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795475-20250312.htm)
-
----
-
-# China to host talks on Iranian nuclear issue
-
-![The Foreign Ministry says China, Russia and Iran will hold talks on Friday on the Iranian nuclear issue and other topics of mutual interest. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795432_1_20250312165659.jpg&q=80)
-  
-
-China will host Russia and Iran for trilateral talks on Tehran's nuclear programme on Friday, the Foreign Ministry said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm)
 
 ---

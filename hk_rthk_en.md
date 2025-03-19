@@ -1,3 +1,51 @@
+# Netanyahu warns strikes on Gaza 'just the beginning'
+
+![The Israeli prime minister said in a video statement that "from now on, negotiations will take place only under fire." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796354_1_20250319085145.jpg&q=90)
+  
+
+Israeli Prime Minister Benjamin Netanyahu warned on Tuesday that massive overnight strikes on Gaza were "only the beginning" and that future negotiations with Hamas "will take place only under fire".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm)
+
+---
+
+# US releases final trove of Kennedy assassination files
+
+![Documents related to the 1963 assassination of President John F Kennedy are displayed after they were released. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796353_1_20250319084345.jpg&q=85)
+  
+
+The US National Archives on Tuesday released the final batch of files related to the assassination of president John F Kennedy - a case that still fuels conspiracy theories more than 60 years after his death.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm)
+
+---
+
 # Ohtani leads Dodgers to MLB season-opener win in Tokyo
 
 ![Ohtani shook off the nerves to deliver two crucial hits during the Dodgers' season-opening win. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796342_1_20250319070737.jpg&q=90)
@@ -1388,53 +1436,5 @@ Olympic women's badminton champion An Se-young came from behind to beat China's 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796035-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796035-20250317.htm)
-
----
-
-# 'Task force on gastro outbreak among students needed'
-
-![A local education concern group says the task force is needed to ensure the safety of students. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796027_1_20250317115245.jpg&q=85)
-  
-
-A local education concern group on Monday welcomed the government's decision to form a task force to look into a recent gastroenteritis outbreak among students who went on a mainland study tour in Guangdong.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm)
-
----
-
-# Healthcare co-payment levels 'should be capped'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796019_1_20250317112442.jpg&q=90)
-  
-
-A former senior Hospital Authority official has called for caution in setting co-payment levels for healthcare services after the government said it'll consider charging patients separately for certain check-ups.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm)
 
 ---

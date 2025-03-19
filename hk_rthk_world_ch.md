@@ -1,3 +1,27 @@
+# 《環看天下》：卡尼訪問英法兩國   分析：與歐洲盟友展現團結
+
+![加拿大總理卡尼日前分别前往法國及英國訪問。( 路透社 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796358_1_20250319091755.jpg&q=90)
+  
+
+加拿大總理卡尼日前正式宣誓就任，隨即分别前往法國及英國訪問。這兩個國家都與加拿大有深厚的歷史淵源。英法兩國領袖都分别向卡尼保證，維持雙方緊密的盟友關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm)
+
+---
+
 # 美聯邦法官暫緩執行特朗普阻止跨性別人士軍隊服役禁令
 
 ![法官認為特朗普的命令可能違反美國憲法中禁止性别歧視的規定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796352_1_20250319083942.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796104-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796104-20250317.htm)
-
----
-
-# 日本高知市有住宅起火　據報2死1重傷
-
-![日本高知市有住宅起火　據報2死1重傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796091_1_20250317175419.jpg&q=90)
-  
-
-日本高知市一個住宅發生火警，據報造成2人死亡，1人重傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm)
 
 ---

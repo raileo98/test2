@@ -1,3 +1,123 @@
+# 港股競價時段跌42點
+
+![港股競價時段跌42點。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796361_1_20250319092345.jpg&q=75)
+  
+
+港股競價時段跌42點，恒指報24697點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796361-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796361-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796361-20250319.htm)
+
+---
+
+# 人民幣中間價上升
+
+![人民幣中間價報7.1697兌1美元，較上日中間價上調36點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796359_1_20250319092426.jpg&q=80)
+  
+
+人民幣中間價報7.1697兌1美元，較上日中間價上調36點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796359-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796359-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796359-20250319.htm)
+
+---
+
+# 《環看天下》：卡尼訪問英法兩國   分析：與歐洲盟友展現團結
+
+![加拿大總理卡尼日前分别前往法國及英國訪問。( 路透社 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796358_1_20250319091755.jpg&q=90)
+  
+
+加拿大總理卡尼日前正式宣誓就任，隨即分别前往法國及英國訪問。這兩個國家都與加拿大有深厚的歷史淵源。英法兩國領袖都分别向卡尼保證，維持雙方緊密的盟友關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm)
+
+---
+
+# 台股初段偏軟
+
+![加權指數較早時報22231點，跌40點，跌幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796356_1_20250319090533.jpg&q=90)
+  
+
+台灣股市初段偏軟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796356-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796356-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796356-20250319.htm)
+
+---
+
+# 新奧能源停牌
+
+![新奧能源今早9時起停牌，待公布內幕消息公告。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796355_1_20250319090340.jpg&q=80)
+  
+
+新奧能源今早9時起停牌，待公布內幕消息公告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796355-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796355-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796355-20250319.htm)
+
+---
+
 # 日本2月出口按年增長11.4%　連升5個月
 
 ![日本2月出口按年增長11.4%，連續第5個月增長。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796350_1_20250319081626.jpg&q=85)
@@ -1318,125 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm)
-
----
-
-# 恒指升幅收窄至逾300點　恒地系個別發展
-
-![恒指較早時報24492點，升346點，升幅1.44%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796195_1_20250318102229.jpg&q=40)
-  
-
-港股連升3日，恒指裂口高開逾500點，並升穿年內高位，其後升幅收窄，恒指較早時報24492點，升346點，升幅1.44%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796195-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796195-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796195-20250318.htm)
-
----
-
-# 長和擬售巴拿馬港口　李家超：社會關切值得重視反對外國施壓脅迫
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796193_1_20250318101513.jpg&q=75)
-  
-
-港澳辦日前兩次轉載評論文章，談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm)
-
----
-
-# 滬深股市初段靠穩
-
-![上證指數較早時報3431點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796186_1_20250318093417.jpg&q=85)
-  
-
-內地股市初段上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796186-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796186-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796186-20250318.htm)
-
----
-
-# 人行逆回購2733億元人民幣　連續兩日淨投放
-
-![人行進行2733億元人民幣7天期逆回購操作，利率維持在1.5厘。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796185_1_20250318093016.jpg&q=80)
-  
-
-人民銀行公開市場今日進行2733億元人民幣7天期逆回購操作，利率維持在1.5厘，對沖今日到期量，單日淨投放2356億元，連續兩日淨投放。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796185-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796185-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796185-20250318.htm)
-
----
-
-# 恒指高開533點　科指升近3%
-
-![恒指升穿今年高位，競價時段報24679點，升533點，升幅2.21%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796183_1_20250318092600.jpg&q=45)
-  
-
-港股裂口高開逾500點，恒指升穿今年高位，競價時段報24679點，升533點，升幅2.21%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796183-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796183-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796183-20250318.htm)
 
 ---
