@@ -1,3 +1,75 @@
+# 恒指半日升36點　小米績後升逾1%　小鵬汽車跌6%
+
+![恒指半日收報24777點，升36點，升幅0.15%，主板成交額約1476億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796386_1_20250319120919.jpg&q=65)
+  
+
+港股反覆靠穩，再創逾3年新高。恒指一度跌近140點，其後低位反彈，最多升約70點，半日收報24777點，升36點，升幅0.15%，主板成交額約1476億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796386-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796386-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796386-20250319.htm)
+
+---
+
+# 政府向古洞北粉嶺北土地業權人付143億補償　餘169億未支付
+
+![甯漢豪指政府已向首階段發展及餘下階段的業權人，分別支付超過九成及兩成的土地補償，金額共143億元，當中利息近5000萬元。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796387_1_20250319121811.jpg&q=90)
+  
+
+發展局局長甯漢豪表示，政府就古洞北及粉嶺北新發展區分階段收回數千幅私人用地，並已支付部份土地補償。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796387-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796387-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796387-20250319.htm)
+
+---
+
+# 孫玉菡稱單親人士對子女法律程序草案存疑　政府不應強行重啟立法
+
+![孫玉菡表示，不少持份者包括單親人士當年都就立法建議表示憂慮，認為立法建議無助離異父母化解矛盾。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796385_1_20250319121720.jpg&q=90)
+  
+
+政府曾在2015年擬備《子女法律程序（父母責任）條例草案》草稿，引入法定清單，涵蓋父母的責任及權利和關乎撫育子女的重大決定，規定父母作出決定時須取得另一方明確同意或事先通知另一方等，以改革和整合關乎父母對子女的責任和權利的法律。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796385-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796385-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796385-20250319.htm)
+
+---
+
 # 王受文晤百事高層　稱穩定健康可持續中美經貿關係符合兩國利益
 
 ![商務部國際貿易談判代表兼副部長王受文會見美國百事公司董事長兼首席執行官龍嘉德。（商務部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796383_1_20250319115656.jpg&q=90)
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm)
-
----
-
-# 香港小輪去年盈利跌14%　基礎溢利升10%
-
-![香港小輪去年收益約4.23億元，上升約13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796311_1_20250318232609.jpg&q=80)
-  
-
-香港小輪去年盈利約1.64億元，按年下跌14%，扣除投資物業公允價值變動，基礎溢利1.58億元，按年上升10%。末期息每股0.15元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796311-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796311-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796311-20250318.htm)
-
----
-
-# 美麗華酒店去年盈利跌約24%　基礎盈利升1.2%
-
-![美麗華酒店去年盈利7.47億元，按年下跌約24%；基礎盈利上升1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796310_1_20250318232353.jpg&q=90)
-  
-
-美麗華酒店去年盈利7.47億元，按年下跌約24%；扣除投資物業重新估值變動影響及其他非經常項目後，基礎盈利上升1.2%，達到8.3億元。末期息每股0.3元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm)
-
----
-
-# 小米：切入汽車業務後集團全生態戰略展現非常強協同效應
-
-![小米稱春節期間汽車訂單量大幅提升。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796307_1_20250318230208.jpg&q=90)
-  
-
-小米集團去年第4季整體利潤約90億元人民幣，按年升逾90%；經調整盈利升逾69%至83.2億元，創季度新高；收入升約49%至1090億元，首次單季突破千億元，創單季新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 恒指半日升36點　小米績後升逾1%　小鵬汽車跌6%
+
+![恒指半日收報24777點，升36點，升幅0.15%，主板成交額約1476億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796386_1_20250319120919.jpg&q=65)
+  
+
+港股反覆靠穩，再創逾3年新高。恒指一度跌近140點，其後低位反彈，最多升約70點，半日收報24777點，升36點，升幅0.15%，主板成交額約1476億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796386-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796386-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796386-20250319.htm)
+
+---
+
 # 滬深股市半日變動不大　深證成指徘徊11000點
 
 ![滬深股市半日變動不大，上證指數半日報3427點，跌2點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796382_1_20250319113238.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796225-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796225-20250318.htm)
-
----
-
-# 市場料3大央行維持利率不變　未來英倫銀行或更有逼切減息
-
-![吳卓殷料英倫銀行可能更加有逼切減息，預計今年餘下時間有0.75厘的減息空間。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796224_1_20250318125541.jpg&q=90)
-  
-
-今個星期被喻為「超級央行周」，美、英、日等多國央行都會議息。當中，美國聯儲局將於本港時間星期四公布議息結果，市場普遍預期將維持利率於4.25厘至4.5厘不變，會後聲明、反映聯儲局官員對未來利率走勢預測的點陣圖、以及主席鮑威爾記者會上息率及經濟前景的看法將成為焦點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796224-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796224-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796224-20250318.htm)
 
 ---

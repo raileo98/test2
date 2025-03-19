@@ -1,3 +1,51 @@
+# 政府向古洞北粉嶺北土地業權人付143億補償　餘169億未支付
+
+![甯漢豪指政府已向首階段發展及餘下階段的業權人，分別支付超過九成及兩成的土地補償，金額共143億元，當中利息近5000萬元。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796387_1_20250319121811.jpg&q=90)
+  
+
+發展局局長甯漢豪表示，政府就古洞北及粉嶺北新發展區分階段收回數千幅私人用地，並已支付部份土地補償。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796387-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796387-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796387-20250319.htm)
+
+---
+
+# 孫玉菡稱單親人士對子女法律程序草案存疑　政府不應強行重啟立法
+
+![孫玉菡表示，不少持份者包括單親人士當年都就立法建議表示憂慮，認為立法建議無助離異父母化解矛盾。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796385_1_20250319121720.jpg&q=90)
+  
+
+政府曾在2015年擬備《子女法律程序（父母責任）條例草案》草稿，引入法定清單，涵蓋父母的責任及權利和關乎撫育子女的重大決定，規定父母作出決定時須取得另一方明確同意或事先通知另一方等，以改革和整合關乎父母對子女的責任和權利的法律。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796385-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796385-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796385-20250319.htm)
+
+---
+
 # 醫健通擬擴大可取覽資料人員類別　修例周五刊憲下周交立法會首讀
 
 ![修訂建議市民參加醫健通後，醫護提供者可將健康資料存入個人醫健通戶口，市民仍可自行決定是否容許個別醫護提供者取覽紀錄。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796381_1_20250319112508.jpg&q=80)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm)
-
----
-
-# 消息指警方國安處帶走鍾翰林後父協助調查
-
-![消息指，警方國安處早上在何文田區帶走被通緝的鍾翰林的後父協助調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796194_1_20250318105503.jpg&q=90)
-  
-
-消息指，警方國安處早上在何文田區帶走被通緝的鍾翰林的後父協助調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796194-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796194-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796194-20250318.htm)
-
----
-
-# 長和擬售巴拿馬港口　李家超：社會關切值得重視反對外國施壓脅迫
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796193_1_20250318101513.jpg&q=75)
-  
-
-港澳辦日前兩次轉載評論文章，談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm)
 
 ---
