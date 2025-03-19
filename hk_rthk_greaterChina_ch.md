@@ -1,3 +1,27 @@
+# 王受文晤百事高層　稱穩定健康可持續中美經貿關係符合兩國利益
+
+![商務部國際貿易談判代表兼副部長王受文會見美國百事公司董事長兼首席執行官龍嘉德。（商務部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796383_1_20250319115656.jpg&q=90)
+  
+
+在北京，商務部國際貿易談判代表兼副部長王受文會見美國百事公司董事長兼首席執行官龍嘉德。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm)
+
+---
+
 # 謝展寰前往北京拜訪國家海關總署　就保障供港食物供應等議題交流
 
 ![謝展寰下午啟程前赴北京，訪京期間將拜訪包括國家海關總署。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796373_1_20250319104528.jpg&q=90)
@@ -1415,30 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795916-20250316.htm)
-
----
-
-# 港澳辦再轉載文章　質疑長和擬售巴拿馬運河港口有否考量國家利益
-
-![港澳辦連續第二次轉載《大公報》的評論文章。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795884_2_20250315222028.jpg&q=85)
-![文章談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795884_1_20250315222028.jpg&q=90)
-  
-
-港澳辦連續第二次轉載《大公報》的評論文章，談及有關長和計劃出售巴拿馬運河兩端港口等資產，文章於中聯辦網站亦有轉載。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795884-20250315.htm)
 
 ---

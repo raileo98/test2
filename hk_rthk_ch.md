@@ -1,3 +1,27 @@
+# 王受文晤百事高層　稱穩定健康可持續中美經貿關係符合兩國利益
+
+![商務部國際貿易談判代表兼副部長王受文會見美國百事公司董事長兼首席執行官龍嘉德。（商務部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796383_1_20250319115656.jpg&q=90)
+  
+
+在北京，商務部國際貿易談判代表兼副部長王受文會見美國百事公司董事長兼首席執行官龍嘉德。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm)
+
+---
+
 # 滬深股市半日變動不大　深證成指徘徊11000點
 
 ![滬深股市半日變動不大，上證指數半日報3427點，跌2點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796382_1_20250319113238.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm)
-
----
-
-# 嶺澳核電站1號機組去年底發生0級偏差事件　對公眾和環境沒影響
-
-![局方表示，由於此事件具有一定的參考及學習價值。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796309_1_20250318232213.jpg&q=90)
-  
-
-位於深圳大鵬新區的嶺澳核電站，1號機組去年底發生「0級偏差」事件，參數在正常範圍內。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm)
 
 ---

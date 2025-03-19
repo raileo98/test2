@@ -1,3 +1,27 @@
+# 王受文晤百事高層　稱穩定健康可持續中美經貿關係符合兩國利益
+
+![商務部國際貿易談判代表兼副部長王受文會見美國百事公司董事長兼首席執行官龍嘉德。（商務部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796383_1_20250319115656.jpg&q=90)
+  
+
+在北京，商務部國際貿易談判代表兼副部長王受文會見美國百事公司董事長兼首席執行官龍嘉德。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm)
+
+---
+
 # 國際奧委會第144次全會在古奧林匹亞開幕
 
 ![國際奧委會第144次全會當地星期二在希臘古奧林匹亞開幕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796370_1_20250319101452.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
-
----
-
-# 外交部：祖國完全統一勢不可擋　「倚外謀獨」終是絕路
-
-![外交部稱，祖國完全統一勢不可擋，「倚外謀獨」終是絕路。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796107_1_20250317192325.jpg&q=80)
-  
-
-在北京，外交部發言人毛寧表示，祖國完全統一勢不可擋，「倚外謀獨」終是絕路。希望有關國家認清台灣當局險惡用心，以實際行動嚴格恪守一個中國原則，切實維護雙邊關係政治基礎。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796107-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796107-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796107-20250317.htm)
 
 ---
