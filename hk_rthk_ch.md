@@ -1,5 +1,29 @@
+# 美國聯儲局維持利率不變　鮑威爾指關稅是通脹升溫部分原因
+
+  
+
+美國聯儲局維持利率不變，利率再度維持於4.25至4.5厘目標區間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796518-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796518-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796518-20250320.htm)
+
+---
+
 # 特朗普與澤連斯基通電話　就俄烏停止襲擊能源設施達成一致
 
+![特朗普和澤連斯基自上月底在白宮會面激烈爭吵後，首次通話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796517_1_20250320062233.jpg&q=90)
   
 
 美國總統特朗普與烏克蘭總統澤連斯基通電話大約一小時，主要討論特朗普同俄羅斯總統普京前一日的通話。特朗普形容，與澤連斯基通話非常好和進展順利，目的是令俄羅斯和烏克蘭在要求和需求上達成一致。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm)
-
----
-
-# 香港場外結算公司接受在岸國債及政策性金融債作為履約抵押品
-
-![境外投資者本周五起可使用債券通持倉中在岸國債和政策性金融債作為所有衍生品交易履約抵押品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796431_1_20250319164608.jpg&q=90)
-  
-
-港交所旗下香港場外結算公司本周五起，接受境外投資者使用債券通持倉中在岸國債和政策性金融債，作為所有衍生品交易履約抵押品。場外結算公司自1月起已接受有關債券，作為北向互換通履約抵押品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm)
 
 ---

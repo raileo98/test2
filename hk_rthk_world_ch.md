@@ -1,5 +1,29 @@
+# 美國聯儲局維持利率不變　鮑威爾指關稅是通脹升溫部分原因
+
+  
+
+美國聯儲局維持利率不變，利率再度維持於4.25至4.5厘目標區間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796518-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796518-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796518-20250320.htm)
+
+---
+
 # 特朗普與澤連斯基通電話　就俄烏停止襲擊能源設施達成一致
 
+![特朗普和澤連斯基自上月底在白宮會面激烈爭吵後，首次通話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796517_1_20250320062233.jpg&q=90)
   
 
 美國總統特朗普與烏克蘭總統澤連斯基通電話大約一小時，主要討論特朗普同俄羅斯總統普京前一日的通話。特朗普形容，與澤連斯基通話非常好和進展順利，目的是令俄羅斯和烏克蘭在要求和需求上達成一致。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796208-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796208-20250318.htm)
-
----
-
-# 以軍大規模空襲加沙據報至少100人死亡　哈馬斯譴責
-
-![空襲中的傷者送去醫院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796197_1_20250318103104.jpg&q=80)
-  
-
-以色列軍方當地星期二凌晨，向加沙地帶發動自1月19日停火生效以來最大規模的空襲，加沙衛生部門說，空襲已造成至少100人死亡。巴勒斯坦通訊社報道說，死者中包括婦女和兒童，由於以色列空襲仍在進行，救援人員難以抵達現場展開急救工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796197-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796197-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796197-20250318.htm)
 
 ---
