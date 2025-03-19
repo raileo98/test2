@@ -1,3 +1,26 @@
+# 機電署要求海洋公園就纜車壓轆異常而暫停運行提交報告
+
+  
+
+海洋公園登山纜車出現訊號問題，一度需要暫停服務。機電工程署回覆查詢時表示，中午12時30分接獲海洋公園通報暫停開放纜車後，隨即派員到場，知悉海洋公園在纜車運行的例行檢查發現有塔台的壓轆出現異常，所以暫停纜車運行。署方表示，海洋公園檢查及調校相關壓轆，以及全面檢查其餘塔台的壓轆，在確認安全後，恢復纜車服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796478-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796478-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796478-20250319.htm)
+
+---
+
 # 《火器及彈藥修訂條例草案》周五刊憲　下月提交立法會
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm)
-
----
-
-# 監警會主席王沛詩與委員視察旺角警署並與衝鋒隊前線人員交流
-
-![王沛詩日前聯同一眾委員和秘書處職員前往旺角警署視察「特別臨時羈留室」的最新配備及設施。（監警會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796289_1_20250318212651.jpg&q=80)
-  
-
-監警會主席王沛詩日前聯同一眾委員和秘書處職員前往旺角警署視察「特別臨時羈留室」的最新配備及設施，並與西九龍衝鋒隊的前線人員交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm)
 
 ---

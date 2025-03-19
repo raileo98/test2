@@ -1,3 +1,27 @@
+# 美股開市後上升
+
+![美股初段上升。投資者關注聯儲局稍後議息結果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796479_1_20250319214317.jpg&q=90)
+  
+
+紐約股市早段上升。投資者關注聯儲局稍後議息結果。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796479-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796479-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796479-20250319.htm)
+
+---
+
 # 平保去年盈利升近48%　壽險及健康險利潤跌約2%
 
 ![平安保險去年盈利1266.1億元人民幣，按年增長近48%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796460_1_20250319182900.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm)
-
----
-
-# 美國2月進口物價按年升幅高過預期　新屋動工反彈勝預期
-
-![美國2月進口物價按年上升2%，高過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796293_1_20250318205948.jpg&q=90)
-  
-
-美國2月出口物價按月升幅收窄至0.1%，按年上升2.1%；進口物價按月上升0.4%，按年上升2%，高過市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796293-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796293-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796293-20250318.htm)
 
 ---
