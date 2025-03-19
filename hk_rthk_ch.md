@@ -1,3 +1,27 @@
+# 鮑威爾：現時是減慢縮表好時機
+
+![鮑威爾表示，現時是減慢縮表的好時機，而放慢縮表速度，亦意味著縮表持續時間更長。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796509_1_20250320042554.jpg&q=90)
+  
+
+美國聯儲局表示，將於下月1日起放慢縮表步伐，將月度減持美國國債的上限下調至50億美元，維持月度減持抵押貸款支持證券的規模在350億美元不變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796509-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796509-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796509-20250320.htm)
+
+---
+
 # 鮑威爾：通脹升溫部分原因受關稅影響
 
 ![聯儲局主席鮑威爾在議息會議後記者會上表示，要準確評估有幾多通脹是來自關稅政策是非常困難，但相信其中很大部分是來自關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796508_1_20250320035832.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm)
-
----
-
-# 許正宇稱增離境稅將為政府帶來16億元收入但對乘客影響輕微
-
-![許正宇表示，飛機乘客離境稅由120元增至200元，增幅對飛機乘客整體出行成本影響十分輕微。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796435_1_20250319165449.jpg&q=90)
-  
-
-財經事務及庫務局局長許正宇在立法會動議二讀多項與財政預算案相關的修例草案，包括修訂印花稅條例、稅務寬免條例、飛機乘客離境稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796435-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796435-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796435-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 鮑威爾：現時是減慢縮表好時機
+
+![鮑威爾表示，現時是減慢縮表的好時機，而放慢縮表速度，亦意味著縮表持續時間更長。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796509_1_20250320042554.jpg&q=90)
+  
+
+美國聯儲局表示，將於下月1日起放慢縮表步伐，將月度減持美國國債的上限下調至50億美元，維持月度減持抵押貸款支持證券的規模在350億美元不變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796509-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796509-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796509-20250320.htm)
+
+---
+
 # 鮑威爾：通脹升溫部分原因受關稅影響
 
 ![聯儲局主席鮑威爾在議息會議後記者會上表示，要準確評估有幾多通脹是來自關稅政策是非常困難，但相信其中很大部分是來自關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796508_1_20250320035832.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796334-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796334-20250319.htm)
-
----
-
-# 歐元曾創逾5個月新高　大幅增加支出計劃獲批
-
-![歐元一度升至1.0954美元，創去年10月10日以來最高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796335_1_20250319055615.jpg&q=80)
-  
-
-歐元兌美元上升，德國議會批准大幅增加支出的計劃，加上數據顯示德國投資者信心改善幅度超出預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796335-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796335-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796335-20250319.htm)
 
 ---
