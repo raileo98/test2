@@ -212,7 +212,7 @@
 # 港島首個社區客廳筲箕灣開幕　今年增5個新社區客廳超出目標
 
 ![陳國基說，今年將共有5個新社區客廳投入營運，超出原本提出3間的目標。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796444_1_20250319173054.jpg&q=80)
-![政務司司長陳國基主持筲箕灣社區客廳開幕典禮，這是港島首個社區客廳，亦是全港第五個社區客廳。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796444_3_20250319185023.jpg&q=90)
+![政務司司長陳國基主持筲箕灣社區客廳開幕典禮，這是港島首個社區客廳，亦是全港第五個社區客廳。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796444_2_20250319183436.jpg&q=90)
   
 
 政務司司長陳國基主持筲箕灣社區客廳開幕典禮，這是港島首個社區客廳，亦是全港第五個社區客廳。他在致辭時說，筲箕灣社區客廳面積有2700平方呎，預計可服務330個劏房戶，全年可服務5萬人次。
