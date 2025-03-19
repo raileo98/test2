@@ -1,3 +1,23 @@
+# 白宮證實特朗普與澤連斯基通話
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796488-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796488-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796488-20250319.htm)
+
+---
+
 # 九巴指涉大埔交通意外車長昨日休息　工會質疑與工作安排失當有關
 
   

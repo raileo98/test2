@@ -1,3 +1,23 @@
+# 白宮證實特朗普與澤連斯基通話
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796488-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796488-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796488-20250319.htm)
+
+---
+
 # 韓媒：尹錫悅彈劾案宣判日期或延至下周
 
 ![尹錫悅彈劾案的宣判日期可能延至下星期。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796475_1_20250319204938.jpg&q=90)
@@ -1411,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796151-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796151-20250318.htm)
-
----
-
-# 特朗普：習近平不久將來會訪問美國
-
-![特朗普表示，中國國家主席習近平在不久的將來會訪問美國。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796150_1_20250318051823.jpg&q=90)
-  
-
-美國總統特朗普表示，中國國家主席習近平在不久的將來會訪問美國，但沒有透露詳情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm)
 
 ---

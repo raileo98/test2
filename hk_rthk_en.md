@@ -406,12 +406,12 @@ Polytechnic University (PolyU) on Wednesday said it will shoulder the cost of de
 
 ---
 
-# At least 10 injured after bus hits exit ramp divider
+# Eleven injured after bus hits exit ramp divider
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796402_1_20250319132024.jpg&q=90)
   
 
-At least ten people were injured when a bus hit an exit ramp road divider on Tolo Highway on Wednesday.
+Eleven people including the driver were injured when a bus hit an exit ramp road divider on Tolo Highway on Wednesday.
 
   
 
