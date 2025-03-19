@@ -1,3 +1,27 @@
+# 美烏總統通話約1小時　特朗普形容「非常好」
+
+![特朗普表示，與澤連斯基進行了「非常好」的通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796492_1_20250320002157.jpg&q=90)
+  
+
+美國總統特朗普表示，他與烏克蘭總統澤連斯基進行了「非常好」的通話，持續大約一個小時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796492-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796492-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796492-20250320.htm)
+
+---
+
 # 俄方稱與烏方互相移交175名被俘人員
 
 ![普京在莫斯科出席總檢察院擴大會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796490_1_20250319230659.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796154-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796154-20250318.htm)
-
----
-
-# 特朗普稱將公開8萬頁與約翰甘迺迪遇刺案有關文件
-
-![特朗普表示，將於星期二上午公開大約80000頁與前總統約翰甘迺迪遇刺案有關的文件。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796151_1_20250318052536.jpg&q=85)
-  
-
-美國總統特朗普表示，將於星期二上午公開大約80000頁與前總統約翰甘迺迪遇刺案有關的文件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796151-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796151-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796151-20250318.htm)
 
 ---

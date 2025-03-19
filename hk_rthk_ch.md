@@ -1,3 +1,27 @@
+# 美烏總統通話約1小時　特朗普形容「非常好」
+
+![特朗普表示，與澤連斯基進行了「非常好」的通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796492_1_20250320002157.jpg&q=90)
+  
+
+美國總統特朗普表示，他與烏克蘭總統澤連斯基進行了「非常好」的通話，持續大約一個小時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796492-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796492-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796492-20250320.htm)
+
+---
+
 # 海關在機場破獲三宗涉貨運及旅客販毒案　涉款約5840萬
 
 ![海關在機場檢查48箱從泰國抵港的貨物，發現內藏約152公斤懷疑大麻花，估計市值約3900萬元。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796491_1_20250319234135.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm)
-
----
-
-# 海洋公園停纜車有遊客感失望　有遊客稱園方可安排旅遊巴接載上山
-
-![海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796416_1_20250319154422.jpg&q=90)
-  
-
-海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。而海洋列車亦正在進行年度檢查，現時無法接載訪客往返兩個園區。高峰樂園將暫停開放，直至另行通知，訪客現時可到訪山下園區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796416-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796416-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796416-20250319.htm)
 
 ---
