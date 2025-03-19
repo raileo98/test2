@@ -1,3 +1,26 @@
+# 長建去年盈利升1%　全年派息升0.8%
+
+  
+
+長江基建去年盈利81.15億元，按年升1%。營業額389.85億元，按年升1%。末期息每股1.86元，全年派息每股2.58元，按年升0.8%，集團自1996年上市28年來，股息一直增長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796450-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796450-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796450-20250319.htm)
+
+---
+
 # 電能實業去年盈利升2%　全年派息維持2.82元
 
 ![電能實業去年盈利61.2億元，按年升2%，全年派息維持2.82元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796445_1_20250319173222.jpg&q=90)
@@ -382,7 +405,7 @@
 
 # 海洋公園登山纜車及山上高峰樂園恢復運作
 
-![海洋公園在網站表示，早前一度暫停服務的登山纜車及山上高峰樂園，已於下午4時15分恢復運作。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796429_1_20250319165516.jpg&q=40)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796429_1_20250319165516.jpg&q=40)
   
 
 海洋公園在網站表示，早前一度暫停服務的登山纜車及山上高峰樂園，已於下午4時15分恢復運作，園方感謝受影響訪客的體諒。
