@@ -46,6 +46,30 @@ Ocean Park said on Wednesday cable car services and facilities in its upper sect
 
 ---
 
+# More local companies planning to hire than cut staff
+
+![Lancy Chui says that while the local healthcare industry showed the strongest hiring demand, the logistics sector could face a challenging hiring outlook due to global trade frictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796421_1_20250319154853.jpg&q=90)
+  
+
+An employment survey has found that about 30 percent of Hong Kong companies are planning to hire more staff in the coming three months, while about 20 percent of them are expected to have personnel cuts.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796421-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796421-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796421-20250319.htm)
+
+---
+
 # Snooker tournament slips spur Rugby Sevens resolve
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796411_1_20250319143132.jpg&q=70)
@@ -1411,29 +1435,5 @@ People around the globe marked World Sleep Day on Friday, an annual event that s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795692-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795692-20250314.htm)
-
----
-
-# Lawmaker says time to change cryopreservation rules
-
-![DAB lawmaker Nixie Lam welcomed government proposals to extend the storage time for eggs, sperm and embryos in Hong Kong. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795688_1_20250314110717.jpg&q=90)
-  
-
-DAB lawmaker Nixie Lam on Friday welcomed the government's initiative on lifting the storage period limitation for frozen eggs, sperm or embryos.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795688-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795688-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795688-20250314.htm)
 
 ---

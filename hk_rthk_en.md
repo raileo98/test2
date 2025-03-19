@@ -1,3 +1,27 @@
+# Turkish markets hit by arrest of Erdogan's rival
+
+![Supporters and municipality workers hold a rally in Istanbul in support of mayor Ekrem Imamoglu following his arrest. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796448_1_20250319175032.jpg&q=90)
+  
+
+Turkey's lira fell 12.7 percent and touched a new all-time low of 42 to the dollar on Wednesday, with bonds and stocks also tumbling sharply, after authorities detained President Tayyip Erdogan's main political rival.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm)
+
+---
+
 # Shau Kei Wan community living room opens
 
 ![Eric Chan says he hopes families will visit the Shau Kei Wan community living room regularly. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796434_1_20250319165113.jpg&q=80)
@@ -1411,29 +1435,5 @@ Tens of thousands of people protested in Houthi-controlled parts of Yemen on Mon
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796143-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796143-20250318.htm)
-
----
-
-# McIlroy wins second Players Championship title
-
-![The win was McIlroy's second in his career at the annual PGA Tour competiton. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796153_1_20250318053122.jpg&q=90)
-  
-
-Northern Ireland's Rory McIlroy cruised to a St. Patrick's Day victory at the Players Championship after defeating J.J. Spaun in a playoff at TPC Sawgrass in Florida.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm)
 
 ---

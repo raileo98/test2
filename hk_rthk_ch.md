@@ -1,3 +1,27 @@
+# 電能實業去年盈利升2%　全年派息維持2.82元
+
+![電能實業去年盈利61.2億元，按年升2%，全年派息維持2.82元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796445_1_20250319173222.jpg&q=90)
+  
+
+電能實業去年盈利61.2億元，按年升2%。末期息每股2元4仙，全年派息維持2.82元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796445-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796445-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796445-20250319.htm)
+
+---
+
 # 立法會三讀通過《保護關鍵基礎設施條例草案》
 
 ![《保護關鍵基礎設施條例草案》獲立法會三讀通過。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796447_1_20250319173909.jpg&q=80)

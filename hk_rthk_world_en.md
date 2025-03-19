@@ -1,3 +1,27 @@
+# Turkish markets hit by arrest of Erdogan's rival
+
+![Supporters and municipality workers hold a rally in Istanbul in support of mayor Ekrem Imamoglu following his arrest. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796448_1_20250319175032.jpg&q=90)
+  
+
+Turkey's lira fell 12.7 percent and touched a new all-time low of 42 to the dollar on Wednesday, with bonds and stocks also tumbling sharply, after authorities detained President Tayyip Erdogan's main political rival.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm)
+
+---
+
 # Ukraine peace talks planned for Sunday in Saudi: US
 
 ![US officials say talks aimed at a ceasefire in Ukraine would be held in the Saudi Arabian city of Jeddah on Sunday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796380_1_20250319110641.jpg&q=90)
@@ -1413,29 +1437,5 @@ South Korean military investigators charged two air force pilots on Thursday wit
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795521-20250313.htm)
-
----
-
-# Student activist fights his deportation from the US
-
-![Pro-Palestinian protestors rally in support of Mahmoud Khalil outside of court in New York. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795530_1_20250313114045.jpg&q=85)
-  
-
-A US judge on Wednesday extended his order blocking federal authorities from deporting a detained Columbia University student, in a case that has become a flashpoint of the Trump administration's pledge to deport some pro-Palestinian college activists.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795530-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795530-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795530-20250313.htm)
 
 ---
