@@ -1,3 +1,27 @@
+# 許正宇稱增離境稅將為政府帶來16億元收入但對乘客影響輕微
+
+![許正宇表示，飛機乘客離境稅由120元增至200元，增幅對飛機乘客整體出行成本影響十分輕微。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796435_1_20250319165449.jpg&q=90)
+  
+
+財經事務及庫務局局長許正宇在立法會動議二讀多項與財政預算案相關的修例草案，包括修訂印花稅條例、稅務寬免條例、飛機乘客離境稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796435-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796435-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796435-20250319.htm)
+
+---
+
 # 騰訊去年多賺近70%　擬回購最少800億港元股份
 
 ![騰訊去年盈利1940.73億元人民幣，按年增長68%，經調整盈利約2227.03億元，上升41%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796432_1_20250319164726.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm)
-
----
-
-# 港燈去年盈利跌逾1%　售電量升1.1%
-
-![港燈去年盈利31.1億元，按年跌逾1%，可供分派收入跌約4%至23.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796263_1_20250318171420.jpg&q=90)
-  
-
-港燈去年盈利31.1億元，按年跌逾1%。每股份合訂單位末期分派16.09港仙，全年分派32.03港仙，兩者都與前年相同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796263-20250318.htm)
 
 ---
