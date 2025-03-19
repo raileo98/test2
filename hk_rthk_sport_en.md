@@ -1,3 +1,27 @@
+# Edinburgh to host start of 2027 Tour de France
+
+![The Red Bull–BORA–hansgrohe team at the 2024 Tour de France. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796524_1_20250320071819.jpg&q=90)
+  
+
+The 2027 Tour de France will start in Edinburgh with the first three stages taking place in Scotland, England and Wales, the organisers ASO announced at a ceremony in the Scottish capital.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm)
+
+---
+
 # Ohtani hits home run as Dodgers sweep Cubs in Tokyo
 
 ![Shohei Ohtani scores a home run at the Tokyo Dome. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796480_1_20250319221213.jpg&q=90)
@@ -1420,29 +1444,5 @@ Liverpool snatched a late winner to beat Paris Saint-Germain away 1-0 in the fir
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm)
-
----
-
-# NZ crush South Africa to reach Champions Trophy final
-
-![New Zealand's Rachin Ravindra, left, celebrates with teammate Kane Williamson after scoring a century. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794471_1_20250306053652.jpg&q=90)
-  
-
-Rachin Ravindra and Kane Williamson struck hundreds as New Zealand eased to a 50-run win over South Africa in Lahore to set up a rematch with India in the Champions Trophy final.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794471-20250306.htm)
 
 ---

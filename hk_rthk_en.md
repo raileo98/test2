@@ -1,3 +1,27 @@
+# Edinburgh to host start of 2027 Tour de France
+
+![The Red Bull–BORA–hansgrohe team at the 2024 Tour de France. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796524_1_20250320071819.jpg&q=90)
+  
+
+The 2027 Tour de France will start in Edinburgh with the first three stages taking place in Scotland, England and Wales, the organisers ASO announced at a ceremony in the Scottish capital.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm)
+
+---
+
 # UK demands probe of Israel strike on Gaza UN building
 
 ![Palestinian kids watch as people search through the rubble for the bodies of their relatives after an Israeli airstrike targeted the al-Hattab family home, south of Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796520_1_20250320064412.jpg&q=85)
@@ -1411,29 +1435,5 @@ Chief Executive John Lee said concerns expressed over CK Hutchison’s deal to s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796206-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796206-20250318.htm)
-
----
-
-# Speedy admission begins for VIPs as Lee woos Asean
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796205_1_20250318110846.jpg&q=85)
-  
-
-A special admission scheme that makes it easier for guests from 10 Asean nations to visit Hong Kong will start on Tuesday, Chief Executive John Lee has announced.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm)
 
 ---

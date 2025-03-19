@@ -1,3 +1,51 @@
+# 葵涌凌晨發生火警　55歲女子吸入濃煙不適送院
+
+![葵涌凌晨發生火警　55歲女子吸入濃煙不適送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796523_1_20250320071504.jpg&q=90)
+  
+
+葵涌凌晨發生火警，1名女子吸入濃煙不適送院，大約30人自行疏散到安全位置。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796523-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796523-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796523-20250320.htm)
+
+---
+
+# 對緊急病人服務承諾未如理想　醫管局稱合適時候檢視急症室收費
+
+![醫管局表示，公立醫院急症室對屬於緊急病人的服務承諾達標率只有7成多，形容情況不理想。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796519_1_20250320064251.jpg&q=80)
+  
+
+醫管局質素及安全總監黃立己表示，全港18間公立醫院急症室，每年服務量近200萬人次，當中超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令對屬於緊急病人的服務承諾達標率只有7成多，形容情況不理想，希望可透過調整急症室收費，引導非緊急病人使用急症室以外的其他醫療服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796519-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796519-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796519-20250320.htm)
+
+---
+
 # 港隊足球友誼賽2:0挫澳門
 
 ![港隊足球友誼賽2:0挫澳門。（中國香港足球總會社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796521_1_20250320071157.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796367-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796367-20250319.htm)
-
----
-
-# 8紀律部隊和輔助部隊下月舉行開放日推廣「全民國家安全教育日」
-
-![保安局轄下8支紀律部隊和輔助部隊，將分別於本月內不同的周末及假日舉行開放日，讓市民加深了解各部隊對維護國家安全的工作和成果。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796366_1_20250319100305.jpg&q=80)
-  
-
-為配合下月15日全民國家安全教育日，保安局轄下8支紀律部隊和輔助部隊，將分別於本月內不同的周末及假日舉行開放日，讓市民加深了解各部隊對維護國家安全的工作和成果。市民今日起，可於相關紀律部隊的網站或流動應用程式，登記索取免費入場門票，而輔助部隊總部開放日則毋須門票。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796366-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796366-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796366-20250319.htm)
-
----
-
-# 嶺澳核電站1號機組去年底發生0級偏差事件　對公眾和環境沒影響
-
-![局方表示，由於此事件具有一定的參考及學習價值。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796309_1_20250318232213.jpg&q=90)
-  
-
-位於深圳大鵬新區的嶺澳核電站，1號機組去年底發生「0級偏差」事件，參數在正常範圍內。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm)
 
 ---

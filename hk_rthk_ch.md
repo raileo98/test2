@@ -1,3 +1,99 @@
+# 葵涌凌晨發生火警　55歲女子吸入濃煙不適送院
+
+![葵涌凌晨發生火警　55歲女子吸入濃煙不適送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796523_1_20250320071504.jpg&q=90)
+  
+
+葵涌凌晨發生火警，1名女子吸入濃煙不適送院，大約30人自行疏散到安全位置。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796523-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796523-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796523-20250320.htm)
+
+---
+
+# 歐國聯率領法國撼克羅地亞　麥巴比：為國家取勝最重要
+
+![麥巴比在賽前記者會自我批評，承認上仗表現不好。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796522_1_20250320071427.jpg&q=90)
+  
+
+歐洲國家聯賽將上演8強賽事，其中法國面對克羅地亞，效力皇家馬德里的法國前鋒麥巴比相隔6個月後再為國家隊披甲，他在賽前記者會自我批評，說很清楚自己不擅長的地方，也知道球迷不滿自己在球場的表現。他又說，從來不會質疑自己，也接受批評。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796522-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796522-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796522-20250320.htm)
+
+---
+
+# 對緊急病人服務承諾未如理想　醫管局稱合適時候檢視急症室收費
+
+![醫管局表示，公立醫院急症室對屬於緊急病人的服務承諾達標率只有7成多，形容情況不理想。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796519_1_20250320064251.jpg&q=80)
+  
+
+醫管局質素及安全總監黃立己表示，全港18間公立醫院急症室，每年服務量近200萬人次，當中超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令對屬於緊急病人的服務承諾達標率只有7成多，形容情況不理想，希望可透過調整急症室收費，引導非緊急病人使用急症室以外的其他醫療服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796519-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796519-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796519-20250320.htm)
+
+---
+
+# 港隊足球友誼賽2:0挫澳門
+
+![港隊足球友誼賽2:0挫澳門。（中國香港足球總會社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796521_1_20250320071157.jpg&q=90)
+  
+
+港隊為備戰下周作客新加坡的亞洲盃外圍賽，昨晚與澳門隊在旺角場進行友誼賽，結果淨勝兩球。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm)
+
+---
+
 # 美國聯儲局維持利率不變　鮑威爾指關稅是通脹升溫部分原因
 
 ![美國聯儲局維持利率不變，鮑威爾強調，當局並不急於減息。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796518_1_20250320062914.jpg&q=90)
@@ -1340,102 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796445-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796445-20250319.htm)
-
----
-
-# 立法會三讀通過《保護關鍵基礎設施條例草案》
-
-![《保護關鍵基礎設施條例草案》獲立法會三讀通過。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796447_1_20250319173909.jpg&q=80)
-  
-
-《保護關鍵基礎設施條例草案》獲立法會三讀通過。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796447-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796447-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796447-20250319.htm)
-
----
-
-# 騰訊上季盈利按年升90%　按季跌4%
-
-![騰訊去年第4季盈利513.2億元人民幣，按年增長90%，按季則跌4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796446_1_20250319173858.jpg&q=90)
-  
-
-騰訊去年第4季盈利513.2億元人民幣，按年增長90%，按季則跌4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796446-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796446-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796446-20250319.htm)
-
----
-
-# 港島首個社區客廳筲箕灣開幕　今年增5個新社區客廳超出目標
-
-![陳國基說，今年將共有5個新社區客廳投入營運，超出原本提出3間的目標。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796444_1_20250319173054.jpg&q=80)
-![政務司司長陳國基主持筲箕灣社區客廳開幕典禮，這是港島首個社區客廳，亦是全港第五個社區客廳。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796444_2_20250319183436.jpg&q=90)
-  
-
-政務司司長陳國基主持筲箕灣社區客廳開幕典禮，這是港島首個社區客廳，亦是全港第五個社區客廳。他在致辭時說，筲箕灣社區客廳面積有2700平方呎，預計可服務330個劏房戶，全年可服務5萬人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796444-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796444-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796444-20250319.htm)
-
----
-
-# 韓媒：上月試圖闖入中國駐韓大使館男子被起訴
-
-![韓媒：上月試圖闖入中國駐韓大使館男子被起訴](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796443_1_20250319172903.jpg&q=90)
-  
-
-韓聯社引述當地法律界的消息指，上月身穿Marvel電影人物「美國隊長」服飾，試圖闖入中國駐韓大使館和當地警署的男子，已被逮捕起訴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm)
 
 ---
