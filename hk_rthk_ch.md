@@ -1,3 +1,28 @@
+# 國際奧委會第144次全會在古奧林匹亞開幕
+
+![國際奧委會第144次全會當地星期二在希臘古奧林匹亞開幕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796370_1_20250319101452.jpg&q=85)
+![國際奧委會主席巴赫在開幕式致辭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796370_2_20250319101452.jpg&q=90)
+  
+
+國際奧委會第144次全會當地星期二在希臘古奧林匹亞開幕。全會之後星期三起一連三天，在希臘西南部的納瓦里諾海岸度假村內舉行，將選舉產生新一任國際奧委會主席，接替任期即將結束的巴赫，7名候選人角逐。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm)
+
+---
+
 # 周文港：大學收入無問題　劉智鵬：大學由日常開支儲備應對削款
 
   
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm)
-
----
-
-# 美國2月進口物價按年升幅高過預期　新屋動工反彈勝預期
-
-![美國2月進口物價按年上升2%，高過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796293_1_20250318205948.jpg&q=90)
-  
-
-美國2月出口物價按月升幅收窄至0.1%，按年上升2.1%；進口物價按月上升0.4%，按年上升2%，高過市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796293-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796293-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796293-20250318.htm)
 
 ---

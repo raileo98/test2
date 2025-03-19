@@ -1,3 +1,28 @@
+# 國際奧委會第144次全會在古奧林匹亞開幕
+
+![國際奧委會第144次全會當地星期二在希臘古奧林匹亞開幕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796370_1_20250319101452.jpg&q=85)
+![國際奧委會主席巴赫在開幕式致辭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796370_2_20250319101452.jpg&q=90)
+  
+
+國際奧委會第144次全會當地星期二在希臘古奧林匹亞開幕。全會之後星期三起一連三天，在希臘西南部的納瓦里諾海岸度假村內舉行，將選舉產生新一任國際奧委會主席，接替任期即將結束的巴赫，7名候選人角逐。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm)
+
+---
+
 # 西門子計劃全球裁員逾6000人
 
 ![西門子表示，裁員主要原因是在中國和德國這兩大關鍵市場的需求疲弱，以及競爭壓力增加。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796368_1_20250319095211.jpg&q=90)
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796107-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796107-20250317.htm)
-
----
-
-# 外交部：中泰合作打擊跨境違法犯罪　美方無權干涉
-
-![外交部說，中方強烈譴責任何針對中泰兩國的惡意詆毀和非法制裁。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796106_1_20250317191316.jpg&q=80)
-  
-
-在北京，外交部發言人毛寧說，中泰兩個主權國家開展打擊偷渡等跨境違法犯罪合作，符合中泰兩國法律、國際法和國際慣例，美方無權干涉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm)
 
 ---
