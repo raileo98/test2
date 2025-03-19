@@ -1,3 +1,26 @@
+# 加沙衛生部門︰以軍過去一天空襲釀最少56人死亡
+
+  
+
+以色列軍方表示，已在加沙中部和南部開展有針對性的地面行動，並進一步擴大對內察里姆走廊的控制。加沙當局表示，以軍過去一天的空襲造成至少56人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796501-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796501-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796501-20250320.htm)
+
+---
+
 # 聯儲局點陣圖：預計今年再減息0.5厘
 
 ![反映聯儲局官員對未來利率走勢預測的點陣圖顯示，預測今年將減息0.5厘，明年將再減息0.5厘。（聯儲局圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796500_1_20250320022102.jpg&q=90)
@@ -120,6 +143,7 @@
 
 # 佩斯科夫︰不排除普京與特朗普在沙特會晤可能性
 
+![佩斯科夫表示，不排除普京與特朗普在沙特會面的可能性。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796495_1_20250320022641.jpg&q=90)
   
 
 美國中東問題特使威特科夫表示，有關達成結束俄烏戰爭相關協議的技術討論，將於下星期一在沙特阿拉伯展開，並認為停火協議可能最早在幾星期內達成。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796428-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796428-20250319.htm)
-
----
-
-# 印尼維持利率不變
-
-![印尼央行維持利率不變，7日期逆回購利率繼續是5.75厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796425_1_20250319160814.jpg&q=90)
-  
-
-印尼央行維持利率不變，7日期逆回購利率繼續是5.75厘，符合大多數分析員預期，其餘預期會減息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796425-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796425-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796425-20250319.htm)
 
 ---
