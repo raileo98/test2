@@ -1,3 +1,26 @@
+# 羅淑佩見證馬會與中旅簽署備忘錄聯手推動賽馬旅遊
+
+  
+
+文化體育及旅遊局局長羅淑佩見證馬會與中旅集團簽署備忘錄。羅淑佩表示，高興看到馬會與中旅攜手推廣具香港特色的旅遊產品，包括賽馬旅遊及海島旅遊，並在旅遊、體育和文化方面加強合作，進一步向外展示香港作為世界級旅遊目的地的魅力，吸引旅客來港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm)
+
+---
+
 # 白宮證實特朗普與澤連斯基通話
 
   

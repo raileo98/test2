@@ -1,3 +1,26 @@
+# 羅淑佩見證馬會與中旅簽署備忘錄聯手推動賽馬旅遊
+
+  
+
+文化體育及旅遊局局長羅淑佩見證馬會與中旅集團簽署備忘錄。羅淑佩表示，高興看到馬會與中旅攜手推廣具香港特色的旅遊產品，包括賽馬旅遊及海島旅遊，並在旅遊、體育和文化方面加強合作，進一步向外展示香港作為世界級旅遊目的地的魅力，吸引旅客來港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm)
+
+---
+
 # 美股開市後上升
 
 ![美股初段上升。投資者關注聯儲局稍後議息結果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796479_1_20250319214317.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm)
-
----
-
-# 被問是否調查長和出售港口　外交部稱中方反對霸凌損害他國權益
-
-![毛寧被重申中方堅決反對經濟脅迫、霸凌等損害他國權益。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796298_1_20250318222759.jpg&q=90)
-  
-
-長和計劃向美國財團出售巴拿馬運河兩端港口等資產，彭博引述消息人士指，內地有關部門開始評估長和出售海外港口業務的交易，研究是否存在國家安全漏洞或反壟斷違規行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm)
 
 ---

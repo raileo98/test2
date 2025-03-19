@@ -1,3 +1,26 @@
+# 羅淑佩見證馬會與中旅簽署備忘錄聯手推動賽馬旅遊
+
+  
+
+文化體育及旅遊局局長羅淑佩見證馬會與中旅集團簽署備忘錄。羅淑佩表示，高興看到馬會與中旅攜手推廣具香港特色的旅遊產品，包括賽馬旅遊及海島旅遊，並在旅遊、體育和文化方面加強合作，進一步向外展示香港作為世界級旅遊目的地的魅力，吸引旅客來港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm)
+
+---
+
 # 九巴指涉大埔交通意外車長昨日休息　工會質疑與工作安排失當有關
 
   
@@ -1407,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796304-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796304-20250318.htm)
-
----
-
-# 教育局要求內地交流團承辦機構暫停供應生冷食品燒味及貝類海鮮
-
-![教育局表明，已要求承辦學生內地交流計劃的承辦機構暫停供應生冷食品、燒味及貝類海鮮等食物。(「薪火相傳」國民教育活動系列網頁截圖 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796301_1_20250318223416.jpg&q=90)
-  
-
-接連有學校參加內地交流團時爆發急性腸胃炎，根據教育局轄下「薪火相傳」國民教育活動系列網站，教育局表明，已要求承辦學生內地交流計劃的承辦機構暫停供應生冷食品、燒味及貝類海鮮等食物。當局亦提醒，學校舉行學生內地交流活動時，應避免提供有關高危食物。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796301-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796301-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796301-20250318.htm)
 
 ---
