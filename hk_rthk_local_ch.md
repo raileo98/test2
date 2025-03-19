@@ -1,3 +1,49 @@
+# 《火器及彈藥修訂條例草案》周五刊憲　下月提交立法會
+
+  
+
+政府將於星期五就《火器及彈藥修訂條例草案》刊憲，加強打擊非法製造和販運槍枝彈藥的跨國犯罪活動，並於下月2日向立法會提交《條例草案》，進行首讀和二讀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796477-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796477-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796477-20250319.htm)
+
+---
+
+# 陳國基稱東莞一直是香港在經貿和航運緊密合作夥伴
+
+  
+
+政務司司長陳國基在香港東莞社團總會就職典禮致辭時表示，隨着粵港澳大灣區的發展進一步深化，香港與東莞的人流、物流和資金流往來更加頻繁，東莞一直是香港在經貿和航運上緊密的合作夥伴，並在近年大力發展新的產業支柱、引進大型科創企業落戶，以及致力優化科技創新生態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm)
+
+---
+
 # 教育局稱設專責小組全面檢視交流團安排　保障活動質量及師生安全
 
 ![教育局表示，在組織交流考察活動時，必以安全為首要考慮。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796474_1_20250319201646.jpg&q=90)
@@ -48,7 +94,7 @@
 
 # 科大廣州創校校長稱第三所醫學院計劃書包含與很多內地醫學院合作
 
-![倪明選表示，科大辦醫學院更重要是科技整合，例如人工智能技術利用在醫學方面，這兩個都是科大強項，亦是最大優勢。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796471_2_20250319200428.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796471_2_20250319200428.jpg&q=90)
   
 
 三所大學正爭取籌建本港第三間醫學院，當中包括香港科技大學。香港科技大學（廣州）創校校長倪明選表示，全力支持港科大辦第三所醫學院，已提交政府的計劃書包含與內地很多醫學院的合作。
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796289-20250318.htm)
-
----
-
-# 地產建設商會對李兆基辭世深感惋惜
-
-![香港地產建設商會對恒基兆業地產創辦人李兆基辭世深感惋惜。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796288_1_20250318212552.jpg&q=90)
-  
-
-香港地產建設商會對恒基兆業地產創辦人李兆基辭世深感惋惜，形容他是傑出的商界楷模、香港地產界的翹楚，他的卓越領導，為社會各界、房地產的發展作出了深遠和巨大的貢獻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm)
-
----
-
-# 李家超：香港續發揮「內聯外通」優勢與廣州等大灣區城市優勢互補
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796284_1_20250318200536.jpg&q=85)
-  
-
-行政長官李家超表示，香港會繼續發揮「內聯外通」的優勢，積極對接國家戰略，與廣州等大灣區城市優勢互補，共同推進高質量發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796284-20250318.htm)
 
 ---

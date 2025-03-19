@@ -1,3 +1,49 @@
+# 《火器及彈藥修訂條例草案》周五刊憲　下月提交立法會
+
+  
+
+政府將於星期五就《火器及彈藥修訂條例草案》刊憲，加強打擊非法製造和販運槍枝彈藥的跨國犯罪活動，並於下月2日向立法會提交《條例草案》，進行首讀和二讀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796477-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796477-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796477-20250319.htm)
+
+---
+
+# 陳國基稱東莞一直是香港在經貿和航運緊密合作夥伴
+
+  
+
+政務司司長陳國基在香港東莞社團總會就職典禮致辭時表示，隨着粵港澳大灣區的發展進一步深化，香港與東莞的人流、物流和資金流往來更加頻繁，東莞一直是香港在經貿和航運上緊密的合作夥伴，並在近年大力發展新的產業支柱、引進大型科創企業落戶，以及致力優化科技創新生態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm)
+
+---
+
 # 韓媒：尹錫悅彈劾案宣判日期或延至下周
 
 ![尹錫悅彈劾案的宣判日期可能延至下星期。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796475_1_20250319204938.jpg&q=90)
@@ -120,7 +166,7 @@
 
 # 科大廣州創校校長稱第三所醫學院計劃書包含與很多內地醫學院合作
 
-![倪明選表示，科大辦醫學院更重要是科技整合，例如人工智能技術利用在醫學方面，這兩個都是科大強項，亦是最大優勢。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796471_2_20250319200428.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796471_2_20250319200428.jpg&q=90)
   
 
 三所大學正爭取籌建本港第三間醫學院，當中包括香港科技大學。香港科技大學（廣州）創校校長倪明選表示，全力支持港科大辦第三所醫學院，已提交政府的計劃書包含與內地很多醫學院的合作。

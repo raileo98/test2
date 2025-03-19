@@ -1,6 +1,6 @@
 # 科大廣州創校校長稱第三所醫學院計劃書包含與很多內地醫學院合作
 
-![倪明選表示，科大辦醫學院更重要是科技整合，例如人工智能技術利用在醫學方面，這兩個都是科大強項，亦是最大優勢。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796471_2_20250319200428.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796471_2_20250319200428.jpg&q=90)
   
 
 三所大學正爭取籌建本港第三間醫學院，當中包括香港科技大學。香港科技大學（廣州）創校校長倪明選表示，全力支持港科大辦第三所醫學院，已提交政府的計劃書包含與內地很多醫學院的合作。
