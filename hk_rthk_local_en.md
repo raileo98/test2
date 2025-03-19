@@ -22,7 +22,7 @@ Ocean Park said on Wednesday its cable car services were suspended due to signal
 
 ---
 
-# Joint property management key for older buildings
+# 'Joint property management key for older buildings'
 
 ![Home and youth affairs chief Alice Mak says the joint property management scheme will help homeowners to better manage their properties. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796384_1_20250319120525.jpg&q=90)
   

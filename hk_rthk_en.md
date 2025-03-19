@@ -1,4 +1,28 @@
-# Joint property management key for older buildings
+# Ocean Park cable cars, upper park facilities closed
+
+![Ocean Park says no transport services are available between its lower and upper parks. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796396_1_20250319125104.jpg&q=55)
+  
+
+Ocean Park said on Wednesday its cable car services were suspended due to signal issues, and facilities at its upper park were closed temporarily.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm)
+
+---
+
+# 'Joint property management key for older buildings'
 
 ![Home and youth affairs chief Alice Mak says the joint property management scheme will help homeowners to better manage their properties. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796384_1_20250319120525.jpg&q=90)
   
@@ -1411,29 +1435,5 @@ Brands including Prada have cut ties with South Korean actor Kim Soo-hyun amid c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796076-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796076-20250317.htm)
-
----
-
-# Police raid Mong Kok building 'in murder probe'
-
-![Officers carry out their operation at King Hing Building in Mong Kok. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796085_1_20250317172150.jpg&q=85)
-  
-
-Police on Monday raided a building in Mong Kok, with sources saying the operation was linked to a murder case in Fo Tan the day before.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796085-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796085-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796085-20250317.htm)
 
 ---

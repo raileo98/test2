@@ -191,7 +191,7 @@
 
 # 政府向古洞北粉嶺北土地業權人付143億補償　餘169億未支付
 
-![甯漢豪指政府已向首階段發展及餘下階段的業權人，分別支付超過九成及兩成的土地補償，金額共143億元，當中利息近5000萬元。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796387_1_20250319121811.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796387_1_20250319132104.jpg&q=90)
   
 
 發展局局長甯漢豪表示，政府就古洞北及粉嶺北新發展區分階段收回數千幅私人用地，並已支付部份土地補償。
