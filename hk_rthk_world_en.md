@@ -1,3 +1,27 @@
+# UK demands probe of Israel strike on Gaza UN building
+
+![Palestinian kids watch as people search through the rubble for the bodies of their relatives after an Israeli airstrike targeted the al-Hattab family home, south of Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796520_1_20250320064412.jpg&q=85)
+  
+
+Britain's foreign minister David Lammy on Wednesday called for a transparent investigation into an Israeli air strike on a UN building in Gaza.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796520-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796520-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796520-20250320.htm)
+
+---
+
 # Trump suggests US takeover of Ukraine's power plants
 
 ![The White House said that during the call Trump (Left) had floated US "ownership" of Ukrainian power plants as it would be the "best protection" for them. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796505_1_20250320032202.jpg&q=90)
@@ -1413,29 +1437,5 @@ Rodrigo Duterte's first appearance at the International Criminal Court has been 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795667-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795667-20250314.htm)
-
----
-
-# Trump threatens tariffs on EU alcohol
-
-![President Trump's tariff threat could hit a market worth US$10 billion to EU producers in 2023, according to World Trade Organization figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795656_1_20250314055609.jpg&q=85)
-  
-
-US President Donald Trump on Thursday threatened to slap a 200 percent tariff on wine, cognac, and other alcohol imports from Europe.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm)
 
 ---

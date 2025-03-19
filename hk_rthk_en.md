@@ -1,3 +1,27 @@
+# UK demands probe of Israel strike on Gaza UN building
+
+![Palestinian kids watch as people search through the rubble for the bodies of their relatives after an Israeli airstrike targeted the al-Hattab family home, south of Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796520_1_20250320064412.jpg&q=85)
+  
+
+Britain's foreign minister David Lammy on Wednesday called for a transparent investigation into an Israeli air strike on a UN building in Gaza.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796520-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796520-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796520-20250320.htm)
+
+---
+
 # US stocks rise, Fed flags greater economic uncertainty
 
 ![The Dow Jones Industrial Average finished up 0.9 percent at 41,964. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796513_1_20250320055039.jpg&q=90)
@@ -1411,29 +1435,5 @@ A special admission scheme that makes it easier for guests from 10 Asean nations
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm)
-
----
-
-# Tech stocks boost Hong Kong stocks in early trading
-
-![The Hang Seng Tech Index climbed over 3 percent shortly after the opening. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796191_1_20250318102346.jpg&q=65)
-  
-
-The Hang Seng Index gained 533.78 points, or 2.21 percent, to open at 24,679.35 on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm)
 
 ---
