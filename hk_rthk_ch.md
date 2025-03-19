@@ -1,3 +1,72 @@
+# 首支的士車隊月底投入服務　政府於13地點設約80個專屬停車位
+
+  
+
+五間獲選的士車隊營辦商當中，首支車隊預計本月底將率先投入服務，其他車隊亦會於7月底前陸續開始營運。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796393-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796393-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796393-20250319.htm)
+
+---
+
+# 海洋公園登山纜車訊號問題暫停海洋列車正年檢　高峰樂園暫停開放
+
+  
+
+海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。而海洋列車亦正在進行年度檢查，現時無法接載訪客往返兩個園區。高峰樂園將暫停開放，直至另行通知，訪客現時可到訪山下園區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796392-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796392-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796392-20250319.htm)
+
+---
+
+# 理大稱對籌建第三間醫學院充滿信心
+
+  
+
+理工大學表示，充滿信心迎接籌建第三間醫學院的重任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm)
+
+---
+
 # 恒指半日升36點　小米績後升逾1%　小鵬汽車跌6%
 
 ![恒指半日收報24777點，升36點，升幅0.15%，主板成交額約1476億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796386_1_20250319120919.jpg&q=65)
@@ -1412,29 +1481,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm)
-
----
-
-# 小鵬：今年總銷量實現翻倍增長　第4季穩步走向盈利
-
-![小鵬稱通過技術降本及更大規模效應，汽車毛利率今年持續改善。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796312_1_20250318234128.jpg&q=90)
-  
-
-小鵬汽車去年汽車交付量上升34%至19萬輛，今年首兩個月交付量約6.1萬輛，預料首季交付量介乎9.1萬至9.3萬輛，按年升逾3倍；首季收入預測介乎150億元至157億元人民幣，按年升約1.3倍或以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm)
 
 ---

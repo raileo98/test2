@@ -1,3 +1,72 @@
+# 首支的士車隊月底投入服務　政府於13地點設約80個專屬停車位
+
+  
+
+五間獲選的士車隊營辦商當中，首支車隊預計本月底將率先投入服務，其他車隊亦會於7月底前陸續開始營運。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796393-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796393-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796393-20250319.htm)
+
+---
+
+# 海洋公園登山纜車訊號問題暫停海洋列車正年檢　高峰樂園暫停開放
+
+  
+
+海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。而海洋列車亦正在進行年度檢查，現時無法接載訪客往返兩個園區。高峰樂園將暫停開放，直至另行通知，訪客現時可到訪山下園區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796392-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796392-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796392-20250319.htm)
+
+---
+
+# 理大稱對籌建第三間醫學院充滿信心
+
+  
+
+理工大學表示，充滿信心迎接籌建第三間醫學院的重任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm)
+
+---
+
 # 政府向古洞北粉嶺北土地業權人付143億補償　餘169億未支付
 
 ![甯漢豪指政府已向首階段發展及餘下階段的業權人，分別支付超過九成及兩成的土地補償，金額共143億元，當中利息近5000萬元。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796387_1_20250319121811.jpg&q=90)
@@ -1363,77 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796201-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796201-20250318.htm)
-
----
-
-# 吳聲展稱要發現太空油吸食者主要非靠檢測而要教師觀察同學關心
-
-![吳聲展（左）認為要發現吸食者，主要並非靠檢測，而是要由教師觀察及同學們關心。伍家順（中）表示，學生如有吸毒問題，現時有很多外展或其他計劃協助。湯修齊（右）認為公眾要明白管有煙彈有極大的健康及法律風險。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796199_1_20250318110619.jpg&q=90)
-  
-
-當局指出，去年有300人被呈報吸食太空油毒品，當中七成半是21歲以下，其中北區、元朗及屯門有較多個案。屯門區中學校長會主席吳聲展在本台節目《千禧年代》表示，在三個地區的個案相對多，或與學生人數較多有關，教育界希望數字不要上升，已及早作出宣傳，而「健康校園計劃」亦有提供自願測檢及身心健康輔導，有一半學校參與，當中大埔區超過九成，屯門區就有逾八成半。他認為要發現吸食者，主要並非靠檢測，而是要由教師觀察及同學們關心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796199-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796199-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796199-20250318.htm)
-
----
-
-# 李家超要求啟德體育園管理層設應急機制　恆常向文體旅局匯報運作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_3_20250318120223.jpg&q=75)
-  
-
-行政長官李家超出席行政會議前回應提問時說，啟德體育園開園至今，部分安排不理想及出問題需要處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm)
-
----
-
-# 李家超：東盟十國特邀人士入境便利計劃今實施　專櫃處理簽證申請
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796196_1_20250318112419.jpg&q=90)
-  
-
-行政長官李家超出席行政會議前宣布，為東盟10國推行的特邀人士入境便利計劃今日實施，以主動邀請為香港經濟發展帶來相當貢獻，或者獲邀來港出席重要活動的東盟人士提供出入境便利，他們會獲得自助通關服務，並透過專櫃一站式處理自助通關和簽證申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796196-20250318.htm)
 
 ---
