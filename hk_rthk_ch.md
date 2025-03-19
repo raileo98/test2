@@ -1,3 +1,50 @@
+# 66名的士司機被記分涉拒載兜路等　無的士司機記15分取消資格
+
+  
+
+的士司機違例記分制自去年9月實施以來，截至本年3月，共有66名的士司機被記分。涉及濫收車資、拒載、兜路等。當中5名的士司機被記3分，12名的士司機被記5分，目前並無的士司機因為被記15分或以上而被取消資格。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796420-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796420-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796420-20250319.htm)
+
+---
+
+# 外交部談美俄領導人通話：樂見一切通往停火的努力
+
+![毛寧說，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796419_1_20250319154325.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧回應美俄領導人就俄烏戰事通話時表示，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力，認為這是實現和平的必要一步。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm)
+
+---
+
 # 林健鋒稱多國面對美國加徵關稅　籲港商沉著應戰勿自亂陣腳
 
   
@@ -23,6 +70,7 @@
 
 # 海洋公園停纜車有遊客感失望　有遊客稱園方可安排旅遊巴接載上山
 
+![海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796416_1_20250319154422.jpg&q=90)
   
 
 海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。而海洋列車亦正在進行年度檢查，現時無法接載訪客往返兩個園區。高峰樂園將暫停開放，直至另行通知，訪客現時可到訪山下園區。

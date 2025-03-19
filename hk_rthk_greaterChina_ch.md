@@ -1,3 +1,27 @@
+# 外交部談美俄領導人通話：樂見一切通往停火的努力
+
+![毛寧說，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796419_1_20250319154325.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧回應美俄領導人就俄烏戰事通話時表示，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力，認為這是實現和平的必要一步。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm)
+
+---
+
 # 理大籌建第三間醫學院專家諮詢委員會21人包括鍾南山及張文宏
 
 ![委員會成員包括中國工程院院士鍾南山（左）、國家傳染病醫學中心主任張文宏（中）、前食物及衞生局局長周一嶽（右）。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796410_2_20250319150727.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm)
-
----
-
-# 李慧琼指可考慮北都成為「特區中的一個特區」　賦予特別行政措施
-
-![李慧琼認為，可以考慮北部都會區成為「特區中的一個特區」。（電視節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795927_1_20250316140812.jpg&q=90)
-  
-
-全國人大常委李慧琼認為，可以考慮北部都會區成為「特區中的一個特區」，賦予它一個特別審批流程或者特別行政措施。她舉例稱，例如鐵路原本要10年後才建好，或者3年後才招標完成，但北都或河套區是否可一年就可完成招標。她說，以現時香港工作方式太慢，香港要突破自己框框。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795927-20250316.htm)
 
 ---

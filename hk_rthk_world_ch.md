@@ -1,3 +1,27 @@
+# 外交部談美俄領導人通話：樂見一切通往停火的努力
+
+![毛寧說，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796419_1_20250319154325.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧回應美俄領導人就俄烏戰事通話時表示，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力，認為這是實現和平的必要一步。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm)
+
+---
+
 # 林健鋒稱多國面對美國加徵關稅　籲港商沉著應戰勿自亂陣腳
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm)
-
----
-
-# 北馬其頓夜總會大火導致59死　20人懷疑涉案被捕
-
-![北馬其頓一間夜總會發生大火，導致59死逾150人受傷。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796123_1_20250317211005.jpg&q=75)
-  
-
-歐洲巴爾幹半島國家北馬其頓一間夜總會導致59人死亡的大火，全國今日起為遇難者哀悼7日。當局至今拘捕20名懷疑涉案人士，包括夜總會經理和政府官員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796123-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796123-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796123-20250317.htm)
 
 ---
