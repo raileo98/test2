@@ -1,3 +1,51 @@
+# 美元升幅收窄　聯儲局維持利率不變並料增長放緩
+
+![美元指數一度高見103.9，較早時報103.46，升幅逾0.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796512_1_20250320054805.jpg&q=85)
+  
+
+美元升幅收窄，因聯儲局維持利率不變，並預計美國經濟增長放緩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796512-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796512-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796512-20250320.htm)
+
+---
+
+# 美股高收近1%或以上　聯儲局料今年再減息兩次
+
+![道瓊斯指數在聯儲局公布議息結果後，升幅一度擴大至近600點，收市升幅收窄，報41964點，升383點，升幅0.9%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796511_1_20250320053757.jpg&q=90)
+  
+
+美股收市3大指數收市升近1%或以上，美國聯儲局一如市場預期維持利率不變，點陣圖顯示，聯儲局官員預計今年或減息兩次，每次0.25厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796511-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796511-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796511-20250320.htm)
+
+---
+
 # 也門胡塞武裝指美軍新一輪空襲造成至少7名婦孺受傷
 
   
@@ -141,7 +189,7 @@
 
 ---
 
-# 加沙衛生部門︰以軍過去一天空襲釀最少56人死亡
+# 以軍恢復在加沙部分地面行動　加沙衛生部︰以軍空襲釀最少56死
 
 ![加沙大量房屋在空襲中損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796501_1_20250320022841.jpg&q=85)
   
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796440-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796440-20250319.htm)
-
----
-
-# 中國疾控中心稱3月份是諾如病毒流行季節　籲勤洗手注意飲食安全
-
-![常昭瑞又不同意坊間所指，感染過一次諾如病毒後就不會再感染的說法，指感染產生的免疫保護作用持續時間較短，曾感染過的人士，之後仍有可能再次感染。(衛健委圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796439_1_20250319193816.jpg&q=90)
-  
-
-近日本港接連有參加内地交流團的學校師生出現急性腸胃炎徵狀，部分人對諾如病毒呈陽性反應。在北京，中國疾控中心研究員常昭瑞表示，3月份仍是諾如病毒流行季節，病毒可通過食用被污染的食物和水、間接接觸被污染的環境和物體表面等途徑傳播，呼籲勤洗手、注意飲食安全及做好消毒，學校及托兒機構等高風險場所要落實好日常防控措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm)
-
----
-
-# 林哲玄稱醫健通修例可確保有整全病歷　方保僑冀兩地做好私隱保障
-
-![林哲玄希望法例可以容許上載資料時，病人應有責任讓醫護查看醫健通資料；方保僑認為，市民要清楚有關機構取得資料後使用情況，留意免責條款。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796438_1_20250319170921.jpg&q=85)
-  
-
-政府建議修訂例，擴展及優化「醫健通」功能，賦權醫務衞生局局長可要求指明醫護提供者，將重要的指明健康資料存入已參與醫健通市民的個人戶口，便利市民掌控自己的重要健康資料。當局指，私營醫護提供者大部分已登記參加醫健通並經常在獲個別市民授權後取覽紀錄，但只有少數將提供服務的紀錄存入市民醫健通戶口。當局又建議，擴展可使用醫健通的專業人員至營養師、臨床心理學家及教育心理學家等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796438-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796438-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796438-20250319.htm)
 
 ---

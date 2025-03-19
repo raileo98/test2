@@ -1,3 +1,51 @@
+# 美元升幅收窄　聯儲局維持利率不變並料增長放緩
+
+![美元指數一度高見103.9，較早時報103.46，升幅逾0.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796512_1_20250320054805.jpg&q=85)
+  
+
+美元升幅收窄，因聯儲局維持利率不變，並預計美國經濟增長放緩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796512-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796512-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796512-20250320.htm)
+
+---
+
+# 美股高收近1%或以上　聯儲局料今年再減息兩次
+
+![道瓊斯指數在聯儲局公布議息結果後，升幅一度擴大至近600點，收市升幅收窄，報41964點，升383點，升幅0.9%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796511_1_20250320053757.jpg&q=90)
+  
+
+美股收市3大指數收市升近1%或以上，美國聯儲局一如市場預期維持利率不變，點陣圖顯示，聯儲局官員預計今年或減息兩次，每次0.25厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796511-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796511-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796511-20250320.htm)
+
+---
+
 # 鮑威爾：現時是減慢縮表好時機
 
 ![鮑威爾表示，現時是減慢縮表的好時機，而放慢縮表速度，亦意味著縮表持續時間更長。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796509_1_20250320042554.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796345-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796345-20250319.htm)
-
----
-
-# 港股ADR普遍向下　小米績後逆市升逾3%
-
-![港股ADR普遍向下，阿里巴巴跌逾3%，美團跌近2%。不過小米升逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796338_1_20250319062047.jpg&q=90)
-  
-
-港股美國預託證券(ADR)普遍向下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796338-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796338-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796338-20250319.htm)
-
----
-
-# 金價創新高　中東局勢緊張及美國關稅計劃推動避險需求
-
-![金價創新高，中東局勢及美國的關稅計劃，資金流入黃金避險。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796334_1_20250319054926.jpg&q=90)
-  
-
-金價創新高，中東局勢緊張，加上美國的關稅計劃導致不確定性上升，資金流入黃金避險，推動需求增加。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796334-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796334-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796334-20250319.htm)
 
 ---
