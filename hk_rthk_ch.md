@@ -1,5 +1,30 @@
+# 聯儲局下調今年美國經濟增長預測至1.7%　上調通脹預測
+
+![聯儲局將美國今年國內生產總值（GDP）增長預測下調至1.7%，並上調今年底個人消費開支（PCE）物價指數及核心指數預測增幅，分別至2.7%和2.8%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796502_1_20250320023215.jpg&q=85)
+  
+
+美國聯儲局官員對經濟數據的預測顯示，料今年美國經濟增長將會放緩，通脹率將持續高於2%的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796502-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796502-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796502-20250320.htm)
+
+---
+
 # 加沙衛生部門︰以軍過去一天空襲釀最少56人死亡
 
+![加沙大量房屋在空襲中損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796501_1_20250320022841.jpg&q=85)
   
 
 以色列軍方表示，已在加沙中部和南部開展有針對性的地面行動，並進一步擴大對內察里姆走廊的控制。加沙當局表示，以軍過去一天的空襲造成至少56人死亡。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796429-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796429-20250319.htm)
-
----
-
-# 財政部近日將於倫敦發行不多於60億元人民幣綠色主權債券
-
-![財政部近日將在倫敦發行人民幣綠色主權債券，規模不多於60億元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796428_1_20250319162504.jpg&q=90)
-  
-
-財政部表示，近日將在倫敦發行人民幣綠色主權債券，規模不多於60億元人民幣，將另行公布具體發行安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796428-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796428-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796428-20250319.htm)
 
 ---

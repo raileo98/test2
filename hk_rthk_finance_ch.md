@@ -1,3 +1,27 @@
+# 聯儲局下調今年美國經濟增長預測至1.7%　上調通脹預測
+
+![聯儲局將美國今年國內生產總值（GDP）增長預測下調至1.7%，並上調今年底個人消費開支（PCE）物價指數及核心指數預測增幅，分別至2.7%和2.8%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796502_1_20250320023215.jpg&q=85)
+  
+
+美國聯儲局官員對經濟數據的預測顯示，料今年美國經濟增長將會放緩，通脹率將持續高於2%的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796502-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796502-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796502-20250320.htm)
+
+---
+
 # 聯儲局點陣圖：預計今年再減息0.5厘
 
 ![反映聯儲局官員對未來利率走勢預測的點陣圖顯示，預測今年將減息0.5厘，明年將再減息0.5厘。（聯儲局圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796500_1_20250320022102.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796332-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796332-20250319.htm)
-
----
-
-# 美股向下　道指低收260點　納指挫1.7%
-
-![美股3大指數跌逾0.6%至近2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796330_1_20250319053229.jpg&q=90)
-  
-
-美股結束兩個交易日升勢，3大指數跌逾0.6%至近2%。投資者在聯儲局公布議息結果前保持謹慎，同時評估關稅政策的潛在影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796330-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796330-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796330-20250319.htm)
 
 ---
