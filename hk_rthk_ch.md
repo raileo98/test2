@@ -1,3 +1,26 @@
+# 美國白宮︰特朗普與澤連斯基就俄烏停止襲擊能源設施達成一致
+
+  
+
+美國白宮發表聲明，說總統特朗普與烏克蘭總統澤連斯基進行非常好的電話交談，雙方就俄烏停止襲擊能源設施達成一致，特朗普又同意幫助澤連斯基在歐洲部署防空系統。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796503-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796503-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796503-20250320.htm)
+
+---
+
 # 聯儲局下調今年美國經濟增長預測至1.7%　上調通脹預測
 
 ![聯儲局將美國今年國內生產總值（GDP）增長預測下調至1.7%，並上調今年底個人消費開支（PCE）物價指數及核心指數預測增幅，分別至2.7%和2.8%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796502_1_20250320023215.jpg&q=85)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm)
-
----
-
-# 海洋公園登山纜車及山上高峰樂園恢復運作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796429_1_20250319165516.jpg&q=40)
-  
-
-海洋公園在網站表示，早前一度暫停服務的登山纜車及山上高峰樂園，已於下午4時15分恢復運作，園方感謝受影響訪客的體諒。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796429-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796429-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796429-20250319.htm)
 
 ---

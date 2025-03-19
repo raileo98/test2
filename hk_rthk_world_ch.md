@@ -1,3 +1,26 @@
+# 美國白宮︰特朗普與澤連斯基就俄烏停止襲擊能源設施達成一致
+
+  
+
+美國白宮發表聲明，說總統特朗普與烏克蘭總統澤連斯基進行非常好的電話交談，雙方就俄烏停止襲擊能源設施達成一致，特朗普又同意幫助澤連斯基在歐洲部署防空系統。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796503-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796503-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796503-20250320.htm)
+
+---
+
 # 加沙衛生部門︰以軍過去一天空襲釀最少56人死亡
 
 ![加沙大量房屋在空襲中損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796501_1_20250320022841.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796174-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796174-20250318.htm)
-
----
-
-# 特朗普提名貝德福德擔任聯邦航空管理局局長
-
-![特朗普說，貝德福德擔任過多間航空公司高層，有30多年的航空和行政領導經驗。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796172_1_20250318080733.jpg&q=90)
-  
-
-美國總統特朗普提名共和航空 ( Republic Airways )行政總裁貝德福德擔任聯邦航空管理局局長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796172-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796172-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796172-20250318.htm)
 
 ---
