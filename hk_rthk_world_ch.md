@@ -1,5 +1,29 @@
+# 也門胡塞武裝指美軍新一輪空襲造成至少7名婦孺受傷
+
+  
+
+也門胡塞武裝控制的電視台報道，美軍當地星期三晚，對也門首都薩那等地的胡塞武裝目標發動新一輪空襲，造成至少7名婦女和2名兒童受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796510-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796510-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796510-20250320.htm)
+
+---
+
 # 澤連斯基︰與特朗普對話積極、非常實質和坦誠
 
+![澤連斯基說，烏克蘭相信，在美國領導下，今年就能實現持久和平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796504_1_20250320051222.jpg&q=90)
   
 
 烏克蘭總統澤連斯基表示，與美國總統特朗普進行了積極、非常實質和坦誠的對話，雙方一致認為烏美兩國應繼續共同努力，真正結束衝突，實現持久和平。烏克蘭相信，在美國領導下，今年就能實現持久和平。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796188-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796188-20250318.htm)
-
----
-
-# 以軍對加沙地帶發動大規模空襲
-
-![加沙地帶在早前以軍的持續空襲中，多座房屋被毀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796177_1_20250318085459.jpg&q=35)
-  
-
-以色列軍方說，正在對加沙地帶哈馬斯目標發動大規模空襲，據報造成傷亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796177-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796177-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796177-20250318.htm)
 
 ---

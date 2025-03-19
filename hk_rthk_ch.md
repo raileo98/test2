@@ -1,3 +1,26 @@
+# 也門胡塞武裝指美軍新一輪空襲造成至少7名婦孺受傷
+
+  
+
+也門胡塞武裝控制的電視台報道，美軍當地星期三晚，對也門首都薩那等地的胡塞武裝目標發動新一輪空襲，造成至少7名婦女和2名兒童受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796510-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796510-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796510-20250320.htm)
+
+---
+
 # 鮑威爾：現時是減慢縮表好時機
 
 ![鮑威爾表示，現時是減慢縮表的好時機，而放慢縮表速度，亦意味著縮表持續時間更長。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796509_1_20250320042554.jpg&q=90)
@@ -48,6 +71,7 @@
 
 # 澤連斯基︰與特朗普對話積極、非常實質和坦誠
 
+![澤連斯基說，烏克蘭相信，在美國領導下，今年就能實現持久和平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796504_1_20250320051222.jpg&q=90)
   
 
 烏克蘭總統澤連斯基表示，與美國總統特朗普進行了積極、非常實質和坦誠的對話，雙方一致認為烏美兩國應繼續共同努力，真正結束衝突，實現持久和平。烏克蘭相信，在美國領導下，今年就能實現持久和平。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796438-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796438-20250319.htm)
-
----
-
-# 特朗普與普京通話後　俄烏互相空襲對方基礎設施
-
-![俄羅斯以無人機空襲烏克蘭，有房屋受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796437_1_20250319171510.jpg&q=80)
-  
-
-美國總統特朗普與俄羅斯總統普京通電話後，俄羅斯和烏克蘭互相空襲對方的基礎設施，有房屋受損。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm)
 
 ---
