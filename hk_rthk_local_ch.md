@@ -1,3 +1,27 @@
+# 萬寶盛華：企業今年平均加薪3%　或採取更保守薪酬政策
+
+![調查顯示本港今年平均加薪幅度降至3%。徐玉珊說，企業或採取更保守的薪酬政策，但亦會視乎盈利及員工表現等。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796398_1_20250319130135.jpg&q=1)
+  
+
+人力資源服務供應商萬寶盛華大中華高級副總裁徐玉珊表示，本港就業市場保持平穩，醫療、科技等行業就業前景都有好轉，但全球經濟不明朗化，個別行業面對不同程度壓力，運輸及物流業招聘意欲相對低迷，相信與就國際貿易摩擦和關稅政策有關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796398-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796398-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796398-20250319.htm)
+
+---
+
 # 九巴大埔廣福邨對開失事撞欄　初步消息指8至9人受傷
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796212-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796212-20250318.htm)
-
----
-
-# 李家超稱目標本月內公布公營醫療收費調整方案細節
-
-![李家超表示已敦促醫務衞生局盡快完成檢討，目標本月內公布詳細內容。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796210_1_20250318123720.jpg&q=80)
-  
-
-行政長官李家超表示，目標本月內公布公營醫療收費調整方案的細節。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796210-20250318.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 利福中國料去年轉蝕不多於2300萬元人民幣
+
+![利福中國預料去年業績由盈轉虧，虧損不多於2300萬元人民幣。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796391_1_20250319123201.jpg&q=90)
+  
+
+利福中國發盈利警告，預料去年虧損不多於2300萬元人民幣，扭轉前年盈利約8770萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796391-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796391-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796391-20250319.htm)
+
+---
+
 # 安踏體育去年盈利升逾52%　末期息增加約3%
 
 ![安踏體育去年盈利約156億元人民幣，按年升逾52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796389_1_20250319122918.jpg&q=90)

@@ -1,3 +1,51 @@
+# 萬寶盛華：企業今年平均加薪3%　或採取更保守薪酬政策
+
+![調查顯示本港今年平均加薪幅度降至3%。徐玉珊說，企業或採取更保守的薪酬政策，但亦會視乎盈利及員工表現等。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796398_1_20250319130135.jpg&q=1)
+  
+
+人力資源服務供應商萬寶盛華大中華高級副總裁徐玉珊表示，本港就業市場保持平穩，醫療、科技等行業就業前景都有好轉，但全球經濟不明朗化，個別行業面對不同程度壓力，運輸及物流業招聘意欲相對低迷，相信與就國際貿易摩擦和關稅政策有關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796398-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796398-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796398-20250319.htm)
+
+---
+
+# 利福中國料去年轉蝕不多於2300萬元人民幣
+
+![利福中國預料去年業績由盈轉虧，虧損不多於2300萬元人民幣。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796391_1_20250319123201.jpg&q=90)
+  
+
+利福中國發盈利警告，預料去年虧損不多於2300萬元人民幣，扭轉前年盈利約8770萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796391-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796391-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796391-20250319.htm)
+
+---
+
 # 安踏體育去年盈利升逾52%　末期息增加約3%
 
 ![安踏體育去年盈利約156億元人民幣，按年升逾52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796389_1_20250319122918.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796235-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796235-20250318.htm)
-
----
-
-# 韓股全日升1點
-
-![首爾綜合指數收報2612點，升1點，升幅0.06%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796231_1_20250318143448.jpg&q=90)
-  
-
-南韓股市收市變動不大，首爾綜合指數收報2612點，升1點，升幅0.06%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796231-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796231-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796231-20250318.htm)
-
----
-
-# 日股高收1.2%　創近3星期新高
-
-![日經指數收市報37845點，升幅1.2%，創近3星期新高。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796230_1_20250318143329.jpg&q=75)
-  
-
-日股一度升穿38000點關口但未能企穩收市，日經指數收市報37845點，升448點，升幅1.2%，創近3星期新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796230-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796230-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796230-20250318.htm)
 
 ---
