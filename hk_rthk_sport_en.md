@@ -22,7 +22,7 @@ Sports chief Rosanna Law said on Wednesday that parties involved in the Hong Kon
 
 ---
 
-# HK's men's rugby squad unfazed by pressure at Sevens
+# HK men's rugby squad unfazed by pressure at Sevens
 
 ![The SAR's men's rugby captain, James Christie, will lead up-and-coming players at the upcoming Rugby Sevens. Photo courtesy of HKCR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796409_1_20250319143004.jpg&q=90)
   
