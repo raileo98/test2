@@ -1,3 +1,27 @@
+# Price adjustment can help those most in need: HA
+
+![Axel Siu (left), who chairs the Hospital Authority's Accident and Emergency Coordinating Committee, supports an adjustment of the emergency room fee. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796525_1_20250320073507.jpg&q=90)
+  
+
+The Hospital Authority said it hopes an increase in the Accident and Emergency (A&E) service fee would ensure resources are reserved for those most in need.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796525-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796525-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796525-20250320.htm)
+
+---
+
 # Edinburgh to host start of 2027 Tour de France
 
 ![The Red Bull–BORA–hansgrohe team at the 2024 Tour de France. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796524_1_20250320071819.jpg&q=90)
@@ -1411,29 +1435,5 @@ At least seven people were killed on Monday when a small plane crashed into the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm)
-
----
-
-# CE slams 'bullying tactics' amid ports deal concerns
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796206_1_20250318113232.jpg&q=75)
-  
-
-Chief Executive John Lee said concerns expressed over CK Hutchison’s deal to sell its global port operations to a US consortium are worthy of "serious attention," saying foreign governments should provide a fair environment for deal-making.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796206-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796206-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796206-20250318.htm)
 
 ---
