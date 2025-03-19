@@ -1,3 +1,26 @@
+# 特朗普與澤連斯基通電話　就俄烏停止襲擊能源設施達成一致
+
+  
+
+美國總統特朗普與烏克蘭總統澤連斯基通電話大約一小時，主要討論特朗普同俄羅斯總統普京前一日的通話。特朗普形容，與澤連斯基通話非常好和進展順利，目的是令俄羅斯和烏克蘭在要求和需求上達成一致。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796517-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796517-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796517-20250320.htm)
+
+---
+
 # 也門胡塞武裝指美軍新一輪空襲造成至少7名婦孺受傷
 
 ![也門首都薩那受到空襲，現場升起濃煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796510_1_20250320061623.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796197-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796197-20250318.htm)
-
----
-
-# 以軍大規模襲擊加沙據報造成數十人死亡
-
-![空襲造成大量傷亡，圖為救護車把傷者送院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796188_1_20250318094229.jpg&q=90)
-  
-
-以色列軍方向加沙地帶發動自1月19日停火生效以來最大規模的空襲，造成多人傷亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796188-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796188-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796188-20250318.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 港股美國預託證券與本港收市比較個別發展
+
+![滙控ADR與本港收市比較升近2%，但友邦偏軟。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796516_1_20250320060533.jpg&q=90)
+  
+
+港股美國預託證券（ADR）與本港收市比較個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796516-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796516-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796516-20250320.htm)
+
+---
+
+# 國際油價收市微升
+
+![倫敦布蘭特期和紐約期油收市升0.3%和約0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796515_1_20250320060014.jpg&q=90)
+  
+
+國際油價微升，數據顯示，雖然美國原油庫存增幅多過預期，但汽油和蒸餾油庫存下跌。而聯儲局維持利率不變，限制油價升幅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796515-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796515-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796515-20250320.htm)
+
+---
+
 # 現貨金再創新高　聯儲局年內或再減息兩次
 
 ![現貨金一度升至每盎司3051.99美元創新高，較早時報3046.84美元，升幅0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796514_1_20250320055329.jpg&q=80)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796348-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796348-20250319.htm)
-
----
-
-# 韓股初段升約0.7%
-
-![首爾綜合指數較早時報2629點，升17點，升幅0.67%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796349_1_20250319080900.jpg&q=90)
-  
-
-南韓股市初段上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796349-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796349-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796349-20250319.htm)
-
----
-
-# 中通快遞去年多賺近1%
-
-![中通快遞去年盈利88.2億元人民幣，按年升0.8%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796346_1_20250319074536.jpg&q=85)
-  
-
-中通快遞去年盈利88.2億元人民幣，按年升0.8%。經調整後盈利升12%至100.8億元。派息每股美國存託股及普通股0.35美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796346-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796346-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796346-20250319.htm)
 
 ---

@@ -1,3 +1,98 @@
+# 特朗普與澤連斯基通電話　就俄烏停止襲擊能源設施達成一致
+
+  
+
+美國總統特朗普與烏克蘭總統澤連斯基通電話大約一小時，主要討論特朗普同俄羅斯總統普京前一日的通話。特朗普形容，與澤連斯基通話非常好和進展順利，目的是令俄羅斯和烏克蘭在要求和需求上達成一致。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796517-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796517-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796517-20250320.htm)
+
+---
+
+# 港股美國預託證券與本港收市比較個別發展
+
+![滙控ADR與本港收市比較升近2%，但友邦偏軟。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796516_1_20250320060533.jpg&q=90)
+  
+
+港股美國預託證券（ADR）與本港收市比較個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796516-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796516-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796516-20250320.htm)
+
+---
+
+# 國際油價收市微升
+
+![倫敦布蘭特期和紐約期油收市升0.3%和約0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796515_1_20250320060014.jpg&q=90)
+  
+
+國際油價微升，數據顯示，雖然美國原油庫存增幅多過預期，但汽油和蒸餾油庫存下跌。而聯儲局維持利率不變，限制油價升幅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796515-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796515-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796515-20250320.htm)
+
+---
+
+# 現貨金再創新高　聯儲局年內或再減息兩次
+
+![現貨金一度升至每盎司3051.99美元創新高，較早時報3046.84美元，升幅0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796514_1_20250320055329.jpg&q=80)
+  
+
+金價再創歷史新高，聯儲局按兵不動，並暗示今年或再減息兩次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796514-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796514-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796514-20250320.htm)
+
+---
+
 # 美元升幅收窄　聯儲局維持利率不變並料增長放緩
 
 ![美元指數一度高見103.9，較早時報103.46，升幅逾0.1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796512_1_20250320054805.jpg&q=85)
@@ -1341,100 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm)
-
----
-
-# 雲從科技冀以港為據點拓海外市場　科大訊飛稱語音技術助政府辦公
-
-  
-
-內地多間創科民企代表參與本港一個大灣區創新科技論壇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm)
-
----
-
-# 梁振英：冀媒體商會等發揮好溝通功能　讓大家知道大灣區最新政策
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796441_1_20250319172302.jpg&q=90)
-  
-
-全國政協副主席梁振英在一個有關大灣區創新科技論壇致辭表示，希望媒體、商會、專業團體等，必須發揮好溝通功能，讓大家知道粵港澳大灣區城市最新政策和發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm)
-
----
-
-# 在岸人民幣兌美元低收147點子　觀望聯儲局議息聲明
-
-![在岸人民幣收報7.2363兌1美元，跌147點子，市場觀望聯儲局議息結果及會後坪明。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796436_1_20250319165944.jpg&q=80)
-  
-
-在岸人民幣收市報7.2363兌1美元，較昨日收市跌147點子，跌幅0.2%。全日波幅較窄，只有77點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796436-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796436-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796436-20250319.htm)
-
----
-
-# 煤氣去年純利跌約6%　業務核心利潤則升5%
-
-![中華煤氣去年盈利57.12億元，按年跌5.9%；核心利潤上升5%，達到59.55億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796440_1_20250319171438.jpg&q=90)
-  
-
-中華煤氣去年盈利57.12億元，按年跌5.9%，主要反映公司退出上海燃氣收取的非現金收益在2023年度入帳，去年並無這方面收益，導致純利下跌。扣除非經營損益及物業重估淨額，核心利潤上升5%，達到59.55億元。公司維持末期息每股23港仙，全年派息維持每股35港仙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796440-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796440-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796440-20250319.htm)
 
 ---
