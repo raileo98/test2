@@ -1,3 +1,27 @@
+# 韓媒：上月試圖闖入中國駐韓大使館男子被起訴
+
+![韓媒：上月試圖闖入中國駐韓大使館男子被起訴](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796443_1_20250319172903.jpg&q=90)
+  
+
+韓聯社引述當地法律界的消息指，上月身穿Marvel電影人物「美國隊長」服飾，試圖闖入中國駐韓大使館和當地警署的男子，已被逮捕起訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm)
+
+---
+
 # 特朗普與普京通話後　俄烏互相空襲對方基礎設施
 
 ![俄羅斯以無人機空襲烏克蘭，有房屋受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796437_1_20250319171510.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796145-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796145-20250318.htm)
-
----
-
-# 盧旺達宣布與比利時斷交
-
-![盧旺達被指支持剛果民主共和國的反政府武裝M23。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796144_1_20250318021211.jpg&q=85)
-  
-
-非洲國家盧旺達宣布，與曾經管治當地的比利時斷交，要求所有比利時外交官在48小時內離境。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796144-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796144-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796144-20250318.htm)
 
 ---
