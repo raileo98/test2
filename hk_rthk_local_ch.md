@@ -1,3 +1,27 @@
+# 海關在機場破獲三宗涉貨運及旅客販毒案　涉款約5840萬
+
+![海關在機場檢查48箱從泰國抵港的貨物，發現內藏約152公斤懷疑大麻花，估計市值約3900萬元。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796491_1_20250319234135.jpg&q=85)
+  
+
+海關星期二在香港機場破獲三宗涉及貨運及旅客販運毒品的案件，檢獲共約40公斤懷疑氯胺酮、約152公斤懷疑大麻花及約760克懷疑海洛英，估計市值共5840萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796491-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796491-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796491-20250319.htm)
+
+---
+
 # 羅淑佩見證馬會與中旅簽署備忘錄聯手推動賽馬旅遊
 
 ![文化體育及旅遊局局長羅淑佩（後排中），中聯辦經濟部副部長郭韶偉（後排左一）等見證下，馬會與香港中旅集團代表簽署合作備忘錄，加強在旅遊、體育、文化及青年發展的戰略合作。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796489_1_20250319230003.jpg&q=90)
@@ -97,6 +121,7 @@
 
 # 機電署要求海洋公園就纜車壓轆異常而暫停運行提交報告
 
+![機電署已要求海洋公園就事故提交報告，並會作出跟進，確認事故原因。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796478_1_20250319234228.jpg&q=60)
   
 
 海洋公園登山纜車出現訊號問題，一度需要暫停服務。機電工程署回覆查詢時表示，中午12時30分接獲海洋公園通報暫停開放纜車後，隨即派員到場，知悉海洋公園在纜車運行的例行檢查發現有塔台的壓轆出現異常，所以暫停纜車運行。署方表示，海洋公園檢查及調校相關壓轆，以及全面檢查其餘塔台的壓轆，在確認安全後，恢復纜車服務。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796306-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796306-20250318.htm)
-
----
-
-# 機場三跑項目分判商「工頭」向工人收賄約70萬判囚2年
-
-![機場三跑項目分判商「工頭」向工人收賄約70萬判囚2年](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796304_1_20250318225616.jpg&q=90)
-  
-
-機場三跑項目分判商有「工頭」因向多名工人收受賄款共約70萬元，遭廉署起訴。其中一名50歲「工頭」在區域法院判監2年，屬同類案件最高刑期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796304-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796304-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796304-20250318.htm)
 
 ---

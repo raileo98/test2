@@ -1,3 +1,27 @@
+# 海關在機場破獲三宗涉貨運及旅客販毒案　涉款約5840萬
+
+![海關在機場檢查48箱從泰國抵港的貨物，發現內藏約152公斤懷疑大麻花，估計市值約3900萬元。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796491_1_20250319234135.jpg&q=85)
+  
+
+海關星期二在香港機場破獲三宗涉及貨運及旅客販運毒品的案件，檢獲共約40公斤懷疑氯胺酮、約152公斤懷疑大麻花及約760克懷疑海洛英，估計市值共5840萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796491-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796491-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796491-20250319.htm)
+
+---
+
 # 俄方稱與烏方互相移交175名被俘人員
 
 ![普京在莫斯科出席總檢察院擴大會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796490_1_20250319230659.jpg&q=90)
@@ -169,6 +193,7 @@
 
 # 機電署要求海洋公園就纜車壓轆異常而暫停運行提交報告
 
+![機電署已要求海洋公園就事故提交報告，並會作出跟進，確認事故原因。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796478_1_20250319234228.jpg&q=60)
   
 
 海洋公園登山纜車出現訊號問題，一度需要暫停服務。機電工程署回覆查詢時表示，中午12時30分接獲海洋公園通報暫停開放纜車後，隨即派員到場，知悉海洋公園在纜車運行的例行檢查發現有塔台的壓轆出現異常，所以暫停纜車運行。署方表示，海洋公園檢查及調校相關壓轆，以及全面檢查其餘塔台的壓轆，在確認安全後，恢復纜車服務。
