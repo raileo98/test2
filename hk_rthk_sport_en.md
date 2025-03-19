@@ -1,3 +1,27 @@
+# Snooker tournament slips spur Rugby Sevens resolve
+
+![Rosanna Law said she and other officials from her bureau will go all out to ensure the first Rugby Sevens to be held at Kai Tak is a success. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796411_1_20250319143132.jpg&q=70)
+  
+
+Sports chief Rosanna Law said on Wednesday that parties involved in the Hong Kong Rugby Sevens tournament to be held later this month have to liaise and communicate closely for the Kai Tak event to be considered a success.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm)
+
+---
+
 # HK's men's rugby squad unfazed by pressure at Sevens
 
 ![The SAR's men's rugby captain, James Christie, will lead up-and-coming players at the upcoming Rugby Sevens. Photo courtesy of HKCR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796409_1_20250319143004.jpg&q=90)
@@ -1420,29 +1444,5 @@ LeBron James became the first player in NBA history to score 50,000 career point
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794431-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794431-20250305.htm)
-
----
-
-# More spectators expected at this year's LIV Golf HK
-
-![Andy Kwok, right, says he is looking forward to seeing people from Hong Kong and the Greater Bay Area at the event. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794408_1_20250305172956.jpg&q=90)
-  
-
-Andy Kwok, the captain of the Hong Kong Golf Club, on Wednesday said he expects a lot more spectators at the second edition of LIV Golf Hong Kong event in Fanling.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794408-20250305.htm)
 
 ---
