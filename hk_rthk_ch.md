@@ -1,3 +1,27 @@
+# 巴西央行再加息1厘　央行指未來加息步伐或放慢
+
+![巴西央行加息1厘。央行政策聲明表示，如果情況按預期發展，利率制定委員會預計下次會議調整幅度將較小。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796526_1_20250320074750.jpg&q=90)
+  
+
+巴西央行加息1厘，將指標利率上調至14.25厘，至2016年以來最高水平，符合市場預期，連續3次會議加息1厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796526-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796526-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796526-20250320.htm)
+
+---
+
 # 葵涌凌晨發生火警　55歲女子吸入濃煙不適送院
 
 ![葵涌凌晨發生火警　55歲女子吸入濃煙不適送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796523_1_20250320071504.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796450-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796450-20250319.htm)
-
----
-
-# 電能實業去年盈利升2%　全年派息維持2.82元
-
-![電能實業去年盈利61.2億元，按年升2%，全年派息維持2.82元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796445_1_20250319173222.jpg&q=90)
-  
-
-電能實業去年盈利61.2億元，按年升2%。末期息每股2元4仙，全年派息維持2.82元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796445-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796445-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796445-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 巴西央行再加息1厘　央行指未來加息步伐或放慢
+
+![巴西央行加息1厘。央行政策聲明表示，如果情況按預期發展，利率制定委員會預計下次會議調整幅度將較小。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796526_1_20250320074750.jpg&q=90)
+  
+
+巴西央行加息1厘，將指標利率上調至14.25厘，至2016年以來最高水平，符合市場預期，連續3次會議加息1厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796526-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796526-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796526-20250320.htm)
+
+---
+
 # 港股美國預託證券與本港收市比較個別發展
 
 ![滙控ADR與本港收市比較升近2%，但友邦偏軟。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796516_1_20250320060533.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796351-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796351-20250319.htm)
-
----
-
-# 日股初段變動不大
-
-![日經指數較早時報37852點，升7點。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796348_1_20250319080559.jpg&q=90)
-  
-
-東京股市初段變動不大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796348-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796348-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796348-20250319.htm)
 
 ---
