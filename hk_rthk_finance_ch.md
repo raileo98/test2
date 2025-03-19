@@ -431,6 +431,30 @@
 
 ---
 
+# 港股全日升30點　小米及比亞迪股份破頂
+
+![恒生指數午後觸及24874點，再創逾3年新高，收市報24771點，升30點，連升4日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796427_1_20250319161702.jpg&q=85)
+  
+
+港股反覆靠穩，恒生指數午後最多升逾130點，觸及24874點，再創逾3年新高，收市報24771點，升30點，升幅0.12%，連升4日，全日高低點數波幅逾270點。單日主板成交額約2719億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796427-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796427-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796427-20250319.htm)
+
+---
+
 # 歐力保險顧問公司兩度未能交審計表　被法庭判罰款2.6萬元
 
 ![被告違反《保險業條例》，在東區裁判法院被定罪，判處罰款26060元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796424_1_20250319161454.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm)
-
----
-
-# 小米：切入汽車業務後集團全生態戰略展現非常強協同效應
-
-![小米稱春節期間汽車訂單量大幅提升。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796307_1_20250318230208.jpg&q=90)
-  
-
-小米集團去年第4季整體利潤約90億元人民幣，按年升逾90%；經調整盈利升逾69%至83.2億元，創季度新高；收入升約49%至1090億元，首次單季突破千億元，創單季新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796307-20250318.htm)
 
 ---
