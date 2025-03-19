@@ -1,6 +1,29 @@
+# 保障關鍵基礎設施條例恢復二讀　多名議員支持稱有助提升香港形象
+
+  
+
+立法會恢復二讀辯論保護關鍵基礎設施的條例草案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796414-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796414-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796414-20250319.htm)
+
+---
+
 # 理大籌建第三間醫學院專家諮詢委員會21人包括鍾南山及張文宏
 
-![理大公布籌建第三間醫學院的專家諮詢委員會名單，合共有21人。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796410_1_20250319145148.jpg&q=90)
+![委員會成員包括中國工程院院士鍾南山（左）、國家傳染病醫學中心主任張文宏（中）、前食物及衞生局局長周一嶽（右）。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796410_2_20250319150727.jpg&q=90)
   
 
 本港三所大學正分別爭取籌建第三間醫學院，其中理大公布籌建第三間醫學院的專家諮詢委員會名單，合共有21人。
@@ -144,7 +167,7 @@
 
 # 林大輝：如開設新醫學院校方可負擔開支　現屆下屆政府可分毫不付
 
-![林大輝強調理大是肯承擔的大學，願意同政府投資未來、教育和醫療。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796395_1_20250319125630.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796395_1_20250319125630.jpg&q=85)
   
 
 理工大學是其中一間向政府提交籌建第三間醫學院建議書的大學，校方表示，充滿信心可迎接這個重任。
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796227-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796227-20250318.htm)
-
----
-
-# 有校長稱北區元朗屯門吸食太空油毒品年輕人較多或與學生人數有關
-
-![去年吸食太空油毒品的呈報個案，七成半是21歲以下的年輕人，北區、元朗及屯門區的個案相對較多。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796220_1_20250318122930.jpg&q=90)
-  
-
-去年吸食太空油毒品的呈報個案，七成半是21歲以下的年輕人，北區、元朗及屯門區的個案相對較多。屯門區中學校長會主席吳聲展說，或與三區學生人數較多有關，已及早宣傳教育，防止數字上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796220-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796220-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796220-20250318.htm)
 
 ---

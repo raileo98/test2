@@ -1,3 +1,27 @@
+# Snooker tournament slips spur Rugby Sevens resolve
+
+![Rosanna Law said she and other officials from her bureau will go all out to ensure the first Rugby Sevens to be held at Kai Tak is a success. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796411_1_20250319143132.jpg&q=70)
+  
+
+Sports chief Rosanna Law said on Wednesday that parties involved in the Hong Kong Rugby Sevens tournament to be held later this month have to liaise and communicate closely for the Kai Tak event to be considered a success.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm)
+
+---
+
 # PolyU 'to shoulder cost of third medical school'
 
 ![Polytechnic University has hailed its 45 years of experience in nurturing medical professionals as it states the case for its bid for the third medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796404_1_20250319133406.jpg&q=75)
@@ -1411,29 +1435,5 @@ The government's plan to cut 10,000 civil service positions over two years may n
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795601-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795601-20250313.htm)
-
----
-
-# 'No cryopreservation time limit helps the infertile'
-
-![An expert has expressed doubts on whether the proposed amendments on cryopreservation can help lift Hong Kong's declining birth rate. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795595_1_20250313182427.jpg&q=85)
-  
-
-A population expert on Thursday welcomed the government's proposed amendments to lift the storage period limits for frozen gametes and embryos, saying it would be helpful for those who are infertile.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795595-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795595-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795595-20250313.htm)
 
 ---

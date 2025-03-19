@@ -1,3 +1,27 @@
+# 內地股市反覆向下　滬股全日跌3點
+
+![內地股市反覆向下，上證指數收報3426點，跌3點，跌幅0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796415_1_20250319150905.jpg&q=90)
+  
+
+內地股市反覆向下，電力、貴金屬、銀行等股份造好，消費電子、電池股偏軟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796415-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796415-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796415-20250319.htm)
+
+---
+
 # 韓股高收0.62%　創近1個月新高
 
 ![首爾綜合指數收報2628點，升16點，升幅0.62%，創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796413_1_20250319143817.jpg&q=90)
@@ -307,30 +331,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796371-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796371-20250319.htm)
-
----
-
-# 周文港：大學收入無問題　劉智鵬：大學由日常開支儲備應對削款
-
-![周文港（左）重申大學收入並無問題。劉智鵬（右）表示，大學會由日常開支及儲備方面，應對現時政府的削減。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796369_1_20250319102807.jpg&q=90)
-  
-
-預算案提出，未來三年，每年削減教資會資助大學經常撥款2%，撥款額達681億。立法會教育事務委員會主席周文港於本台節目《千禧年代》指出，雖然每年削減2%撥款，但實際三年期會較原先撥款增加8%，因此不應裁員減薪。對於政府要求大學將一般及發展基金中退回其中40億，周文港表示，八大的整體儲備現時有1300多億，認為各大學可以充分利用，相信在提升教學方面無問題。政府資助只佔大學收入四至六成，而每年大學的恆常收入，亦包括非本地生及自資課程收入等，佔平均收入達四成，亦正不斷增加，而大學科研成果轉化為收入，亦按年增加近13%，連續兩年過百億，重申大學收入並無問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm)
 
 ---
 

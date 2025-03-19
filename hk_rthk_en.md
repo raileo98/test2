@@ -1,3 +1,51 @@
+# Snooker tournament slips spur Rugby Sevens resolve
+
+![Rosanna Law said she and other officials from her bureau will go all out to ensure the first Rugby Sevens to be held at Kai Tak is a success. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796411_1_20250319143132.jpg&q=70)
+  
+
+Sports chief Rosanna Law said on Wednesday that parties involved in the Hong Kong Rugby Sevens tournament to be held later this month have to liaise and communicate closely for the Kai Tak event to be considered a success.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm)
+
+---
+
+# HK's men's rugby squad unfazed by pressure at Sevens
+
+![The SAR's men's rugby captain, James Christie, will lead up-and-coming players at the upcoming Rugby Sevens. Photo courtesy of HKCR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796409_1_20250319143004.jpg&q=90)
+  
+
+The Hong Kong, China men’s rugby team on Wednesday said they are looking forward to feed off the energy from the home crowd when the Rugby Sevens are held for the first time later this month at Kai Tak Sports Park.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796409-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796409-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796409-20250319.htm)
+
+---
+
 # PolyU 'to shoulder cost of third medical school'
 
 ![Polytechnic University has hailed its 45 years of experience in nurturing medical professionals as it states the case for its bid for the third medical school. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796404_1_20250319133406.jpg&q=75)
@@ -1387,53 +1435,5 @@ Police said three people have been arrested for their alleged involvement in a m
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796114-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796114-20250317.htm)
-
----
-
-# Henderson Land founder Lee Shau-kee dies at 97
-
-![Property tycoon Lee Shau-kee passed away peacefully on Monday evening. Photo courtesy of Henderson Land](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796117_1_20250317202145.jpg&q=90)
-  
-
-One of Hong Kong's richest people, Henderson Land founder Lee Shau-kee, has died at the age of 97.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm)
-
----
-
-# Rwanda cuts diplomatic relations with Belgium
-
-![People gather next to some vehicles as they flee the Masisi territory following clashes between M23 rebels and government forces. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796111_1_20250317194926.jpg&q=90)
-  
-
-Belgium and Rwanda have announced the expulsion of each other's diplomats, as relations deteriorated over allegations about their respective roles in the conflict in eastern Democratic Republic of Congo.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796111-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796111-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796111-20250317.htm)
 
 ---
