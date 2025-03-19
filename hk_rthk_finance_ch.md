@@ -1,3 +1,26 @@
+# 煤氣：目前未到加價時間　會審慎與政府有關部門溝通
+
+  
+
+中華煤氣常務董事黃維義表示，公司過去數年每兩年加價一次，但與以往有別，目前處於高息環境，加上地緣政治複雜，多地受關稅影響，涉及供應鏈等成本因素。他表示，目前未到加價時間，會審慎與政府有關部門溝通。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm)
+
+---
+
 # 騰訊擬今年進一步增加資本開支於自家研發AI模型
 
 ![馬化騰稱AI生態仍處早期階段，相信各行各業都會受惠於AI普及。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796467_1_20250319185627.jpg&q=80)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm)
-
----
-
-# 地產建設商會對李兆基辭世深感惋惜
-
-![香港地產建設商會對恒基兆業地產創辦人李兆基辭世深感惋惜。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796288_1_20250318212552.jpg&q=90)
-  
-
-香港地產建設商會對恒基兆業地產創辦人李兆基辭世深感惋惜，形容他是傑出的商界楷模、香港地產界的翹楚，他的卓越領導，為社會各界、房地產的發展作出了深遠和巨大的貢獻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796288-20250318.htm)
 
 ---

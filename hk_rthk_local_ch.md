@@ -1,3 +1,26 @@
+# 煤氣：目前未到加價時間　會審慎與政府有關部門溝通
+
+  
+
+中華煤氣常務董事黃維義表示，公司過去數年每兩年加價一次，但與以往有別，目前處於高息環境，加上地緣政治複雜，多地受關稅影響，涉及供應鏈等成本因素。他表示，目前未到加價時間，會審慎與政府有關部門溝通。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm)
+
+---
+
 # 政府擬修例規定醫療機構須將重要健康紀錄存放至市民醫健通戶口
 
 ![當局又建議擴展更多專業人員可使用醫健通，包括臨床心理學家。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796464_1_20250319184336.jpg&q=90)
@@ -72,6 +95,7 @@
 
 # 立法會三讀通過保護關鍵基礎設施條例　鄧炳強重申沒有域外效力
 
+![立法會三讀通過《保護關鍵基礎設施條例草案》。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796455_1_20250319192356.jpg&q=80)
   
 
 《保護關鍵基礎設施條例草案》獲立法會三讀通過。多名議員都表示支持草案，認為如果香港不立法，就會落後於國際趨勢。
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796269-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796269-20250318.htm)
-
----
-
-# 李家超提出啟德體育園設發言人機制　學者料有助處理互相卸責情況
-
-![李家超表示，啟德體育園一些安排不理想，已經要求園方強化機制建設。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796268_1_20250318223231.jpg&q=85)
-  
-
-行政長官李家超出席行政會議前表示，啟德體育園一些安排不理想，已經要求園方強化機制建設。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796268-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796268-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796268-20250318.htm)
 
 ---
