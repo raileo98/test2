@@ -120,7 +120,7 @@ US Chief Justice John Roberts on Tuesday issued a rare public rebuke of Presiden
 
 # Netanyahu warns strikes on Gaza 'just the beginning'
 
-![The Israeli prime minister said in a video statement that "from now on, negotiations will take place only under fire." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796354_1_20250319085145.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796354_1_20250319085145.jpg&q=90)
   
 
 Israeli Prime Minister Benjamin Netanyahu warned on Tuesday that massive overnight strikes on Gaza were "only the beginning" and that future negotiations with Hamas "will take place only under fire".
@@ -168,7 +168,7 @@ The US National Archives on Tuesday released the final batch of files related to
 
 # Nasa astronauts Wilmore and Williams splash down
 
-![They arrived back on Earth nine months after their faulty Boeing Starliner craft upended what was to be a week-long stay on the ISS. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796336_2_20250319063556.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796336_2_20250319063556.jpg&q=90)
   
 
 Nasa astronauts Butch Wilmore and Suni Williams returned to Earth in a SpaceX capsule on Tuesday with a soft splashdown off Florida's coast, nine months after their faulty Boeing Starliner craft upended what was to be a week-long stay on the International Space Station.
