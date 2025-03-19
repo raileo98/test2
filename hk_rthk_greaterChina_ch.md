@@ -1,3 +1,26 @@
+# 北京U20球員郭嘉璇據報不治
+
+  
+
+內地傳媒報道，早前於西班牙集訓期間意外受傷、導致腦死亡的北京U20足球隊隊員郭嘉璇，星期三晚在北京天壇醫院去世，終年18歲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796494-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796494-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796494-20250320.htm)
+
+---
+
 # 科大廣州創校校長稱第三所醫學院計劃書包含與很多內地醫學院合作
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796471_2_20250319200428.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796020-20250317.htm)
-
----
-
-# 國家統計局：實現5%左右經濟增長目標絕非輕而易舉
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796016_1_20250317145323.jpg&q=90)
-  
-
-國家統計局新聞發言人、國民經濟綜合統計司司長付凌暉表示，隨著更加積極的財政政策和適度寬鬆的貨幣政策逐步落地，政策協同效應不斷增強。首兩個月生產供應穩定增長，市場需求逐步擴大，就業形勢保持總體穩定，發展新動能逐步壯大。他形容，今年經濟運行起步平穩，發展趨勢「向新向好」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796016-20250317.htm)
 
 ---

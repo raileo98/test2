@@ -1,3 +1,27 @@
+# 以軍在加沙中部和南部開展地面行動　否認襲擊聯合國設施
+
+![以軍對加沙發動空襲後，部分巴勒斯坦人逃離家園。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796493_1_20250320005641.jpg&q=80)
+  
+
+以色列軍方表示，已在加沙地帶中部和南部開展有針對性的地面行動，以擴大安全範圍，並在加沙地帶北部和南部之間建立部分緩衝區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796493-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796493-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796493-20250320.htm)
+
+---
+
 # 美烏總統通話約1小時　特朗普形容「非常好」
 
 ![特朗普表示，與澤連斯基進行了「非常好」的通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796492_1_20250320002157.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796163-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796163-20250318.htm)
-
----
-
-# 美國國防部：只要胡塞武裝停止襲擊　行動就會結束
-
-![美軍上周末向也門胡塞武裝據點發動空襲，包括從艦艇發射導彈。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796154_1_20250318053820.jpg&q=90)
-  
-
-也門胡塞武裝控制的電視台報道，美軍星期一晚再對也門西部荷台達省等地發動空襲，主要目標是紅海港口城市荷台達及周邊幾個地點，目前沒有傷亡報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796154-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796154-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796154-20250318.htm)
 
 ---

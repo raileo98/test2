@@ -1,3 +1,50 @@
+# 北京U20球員郭嘉璇據報不治
+
+  
+
+內地傳媒報道，早前於西班牙集訓期間意外受傷、導致腦死亡的北京U20足球隊隊員郭嘉璇，星期三晚在北京天壇醫院去世，終年18歲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796494-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796494-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796494-20250320.htm)
+
+---
+
+# 以軍在加沙中部和南部開展地面行動　否認襲擊聯合國設施
+
+![以軍對加沙發動空襲後，部分巴勒斯坦人逃離家園。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796493_1_20250320005641.jpg&q=80)
+  
+
+以色列軍方表示，已在加沙地帶中部和南部開展有針對性的地面行動，以擴大安全範圍，並在加沙地帶北部和南部之間建立部分緩衝區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796493-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796493-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796493-20250320.htm)
+
+---
+
 # 美烏總統通話約1小時　特朗普形容「非常好」
 
 ![特朗普表示，與澤連斯基進行了「非常好」的通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796492_1_20250320002157.jpg&q=90)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796420-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796420-20250319.htm)
-
----
-
-# 外交部談美俄領導人通話：樂見一切通往停火的努力
-
-![毛寧說，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796419_1_20250319154325.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧回應美俄領導人就俄烏戰事通話時表示，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力，認為這是實現和平的必要一步。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm)
-
----
-
-# 林健鋒稱多國面對美國加徵關稅　籲港商沉著應戰勿自亂陣腳
-
-![林建峰（中）呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796417_1_20250319160046.jpg&q=90)
-  
-
-行政會議成員、立法會商界議員林健鋒表示，現時不只中國面對美國加徵關稅的問題，即使是美國盟友，例如墨西哥、加拿大等都面對同樣問題，呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應戰，亦希望貿易戰盡快平息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm)
 
 ---
