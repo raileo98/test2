@@ -1,3 +1,26 @@
+# 煤氣：目前未到加價時間　會審慎與政府有關部門溝通
+
+  
+
+中華煤氣常務董事黃維義表示，公司過去數年每兩年加價一次，但與以往有別，目前處於高息環境，加上地緣政治複雜，多地受關稅影響，涉及供應鏈等成本因素。他表示，目前未到加價時間，會審慎與政府有關部門溝通。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm)
+
+---
+
 # 李強簽國務院令　國務院關於涉外知識產權糾紛處理規定5月起施行
 
 ![李強簽署國務院令，公布《國務院關於涉外知識產權糾紛處理的規定》，5月1日起施行。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796468_1_20250319191520.jpg&q=90)
