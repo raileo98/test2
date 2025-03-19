@@ -1,3 +1,27 @@
+# 教育局稱設專責小組全面檢視交流團安排　保障活動質量及師生安全
+
+![教育局表示，在組織交流考察活動時，必以安全為首要考慮。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796474_1_20250319201646.jpg&q=90)
+  
+
+教育局表示，在組織交流考察活動時，必以安全為首要考慮，所以出發前會安排學校簡介會和提供詳盡的指引，若遇到事故，亦會立即嚴肅跟進和處理。局方以近日的交流團出現腸胃炎徵狀事件舉例，指教育局已立刻聯繋衞生防護中心及內地相關部門密切跟進，並深入調查，雖然病源尚未核實，教育局為優化行程安排亦成立學生內地考察專責小組，直接與各內地部門單位保持密切溝通聯繫，全面檢視現時交流團的安排，保障交流團活動質量及師生安全。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796474-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796474-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796474-20250319.htm)
+
+---
+
 # 平保去年盈利升近48%　壽險及健康險利潤跌約2%
 
 ![平安保險去年盈利1266.1億元人民幣，按年增長近48%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796460_1_20250319182900.jpg&q=90)
