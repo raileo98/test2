@@ -1,3 +1,27 @@
+# 西班牙南部受風暴吹襲引發強風暴雨　據報最少3死
+
+![暴雨令部分街區水浸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796496_1_20250320014130.jpg&q=85)
+  
+
+西班牙南部地區受風暴勞倫斯吹襲，引發強風暴雨，洪水氾濫，最少3人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796496-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796496-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796496-20250320.htm)
+
+---
+
 # 佩斯科夫︰不排除普京與特朗普在沙特會晤可能性
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796169-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796169-20250318.htm)
-
----
-
-# 特朗普撤銷對拜登兒子亨特的特勤局保護
-
-![特朗普解釋，亨特長期受到特勤局保護，所有費用由美國納稅人支付，是太荒謬。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796164_1_20250318065042.jpg&q=90)
-  
-
-美國總統特朗普在社交平台貼文，宣布即日起，前總統拜登的兒子亨特及女兒阿什莉，將不再受到特勤局保護。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796164-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796164-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796164-20250318.htm)
 
 ---

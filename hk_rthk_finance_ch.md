@@ -1,3 +1,51 @@
+# 德意志銀行今年擬裁員近2000人　並大幅減少分行數量
+
+![德意志銀行計劃今年將在零售銀行部門裁員近2000人，並大幅減少分行數量。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796498_1_20250320015327.jpg&q=90)
+  
+
+德意志銀行首席執行官澤溫表示，該行今年將在零售銀行部門裁員近2000人，並大幅減少分行數量。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796498-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796498-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796498-20250320.htm)
+
+---
+
+# 歐股收市個別發展
+
+![歐洲主要股市收市個別發展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796497_1_20250320014337.jpg&q=90)
+  
+
+歐洲主要股市收市個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796497-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796497-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796497-20250320.htm)
+
+---
+
 # 羅淑佩見證馬會與中旅簽署備忘錄聯手推動賽馬旅遊
 
 ![文化體育及旅遊局局長羅淑佩（後排中），中聯辦經濟部副部長郭韶偉（後排左一）等見證下，馬會與香港中旅集團代表簽署合作備忘錄，加強在旅遊、體育、文化及青年發展的戰略合作。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796489_1_20250319230003.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm)
-
----
-
-# 香港小輪去年盈利跌14%　基礎溢利升10%
-
-![香港小輪去年收益約4.23億元，上升約13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796311_1_20250318232609.jpg&q=80)
-  
-
-香港小輪去年盈利約1.64億元，按年下跌14%，扣除投資物業公允價值變動，基礎溢利1.58億元，按年上升10%。末期息每股0.15元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796311-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796311-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796311-20250318.htm)
-
----
-
-# 美麗華酒店去年盈利跌約24%　基礎盈利升1.2%
-
-![美麗華酒店去年盈利7.47億元，按年下跌約24%；基礎盈利上升1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796310_1_20250318232353.jpg&q=90)
-  
-
-美麗華酒店去年盈利7.47億元，按年下跌約24%；扣除投資物業重新估值變動影響及其他非經常項目後，基礎盈利上升1.2%，達到8.3億元。末期息每股0.3元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796310-20250318.htm)
 
 ---
