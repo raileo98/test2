@@ -1,5 +1,29 @@
+# 佩斯科夫︰不排除普京與特朗普在沙特會晤可能性
+
+  
+
+美國中東問題特使威特科夫表示，有關達成結束俄烏戰爭相關協議的技術討論，將於下星期一在沙特阿拉伯展開，並認為停火協議可能最早在幾星期內達成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796495-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796495-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796495-20250320.htm)
+
+---
+
 # 北京U20球員郭嘉璇據報不治
 
+![北京U20球員郭嘉璇據報不治](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796494_1_20250320013337.jpg&q=90)
   
 
 內地傳媒報道，早前於西班牙集訓期間意外受傷、導致腦死亡的北京U20足球隊隊員郭嘉璇，星期三晚在北京天壇醫院去世，終年18歲。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796418-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796418-20250319.htm)
-
----
-
-# 66名的士司機被記分涉拒載兜路等　無的士司機記15分取消資格
-
-![政府表示，目前並無的士司機因為被記15分或以上而被取消資格。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796420_2_20250319180557.jpg&q=90)
-  
-
-的士司機違例記分制自去年9月實施以來，截至本年3月，共有66名的士司機被記分。涉及濫收車資、拒載、兜路等。當中5名的士司機被記3分，12名的士司機被記5分，目前並無的士司機因為被記15分或以上而被取消資格。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796420-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796420-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796420-20250319.htm)
 
 ---

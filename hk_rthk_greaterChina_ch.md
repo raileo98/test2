@@ -1,5 +1,6 @@
 # 北京U20球員郭嘉璇據報不治
 
+![北京U20球員郭嘉璇據報不治](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796494_1_20250320013337.jpg&q=90)
   
 
 內地傳媒報道，早前於西班牙集訓期間意外受傷、導致腦死亡的北京U20足球隊隊員郭嘉璇，星期三晚在北京天壇醫院去世，終年18歲。

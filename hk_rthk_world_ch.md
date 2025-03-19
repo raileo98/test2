@@ -1,3 +1,26 @@
+# 佩斯科夫︰不排除普京與特朗普在沙特會晤可能性
+
+  
+
+美國中東問題特使威特科夫表示，有關達成結束俄烏戰爭相關協議的技術討論，將於下星期一在沙特阿拉伯展開，並認為停火協議可能最早在幾星期內達成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796495-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796495-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796495-20250320.htm)
+
+---
+
 # 以軍在加沙中部和南部開展地面行動　否認襲擊聯合國設施
 
 ![以軍對加沙發動空襲後，部分巴勒斯坦人逃離家園。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796493_1_20250320005641.jpg&q=80)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796164-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796164-20250318.htm)
-
----
-
-# 特朗普期待與普京通話　稱烏克蘭問題最終協議很多內容已達成共識
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796163_1_20250318064615.jpg&q=90)
-  
-
-美國總統特朗普表示，期待今日稍後與俄羅斯總統普京通話，指出烏克蘭問題最終協議的很多內容已達成共識，但仍有很多未完成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796163-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796163-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796163-20250318.htm)
 
 ---
