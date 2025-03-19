@@ -1,3 +1,27 @@
+# Ukraine peace talks planned for Sunday in Saudi: US
+
+![US officials say talks aimed at a ceasefire in Ukraine would be held in the Saudi Arabian city of Jeddah on Sunday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796380_1_20250319110641.jpg&q=90)
+  
+
+Talks on a ceasefire in Russia's conflict with Ukraine will continue on Sunday in the Saudi Arabian city of Jeddah, US President Donald Trump's special envoy Steve Witkoff said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm)
+
+---
+
 # Kyiv sees air raids hours after Trump-Putin call
 
 ![Searchlights hunt for drones during a Russian raid in Kyiv after Donald Trump spoke with Vladimir Putin. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796372_1_20250319103135.jpg&q=90)
@@ -70,7 +94,7 @@ Hundreds of thousands of people were forced to flee climate disasters last year,
 
 ---
 
-# Supreme court chief chides Trump over impeachment call
+# Supreme Court chief chides Trump over impeachment call
 
 ![A brief statement from Chief Justice of the United States, John Roberts, said impeachment was not an appropriate response to disagreement. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796357_1_20250319090726.jpg&q=90)
   
@@ -1413,29 +1437,5 @@ A US judge on Wednesday extended his order blocking federal authorities from dep
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795530-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795530-20250313.htm)
-
----
-
-# China, EU vow countermeasures against US steel tariffs
-
-![The production line at a cold rolling plant at Baoshan Iron & Steel in Shanghai. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795512_1_20250313085844.jpg&q=90)
-  
-
-China and the EU vowed on Wednesday to strike back and defend their economic interests against sweeping new US steel and aluminium tariffs, moving Washington closer to an all-out trade war with two major partners.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm)
 
 ---

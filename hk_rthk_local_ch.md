@@ -1,5 +1,29 @@
+# 政府擬增可取覽醫健通專業人員類別　修例周五刊憲下周交立會首讀
+
+  
+
+電子健康紀錄互通系統修訂條例草案本周五刊憲，下星期提交立法會首讀。修訂是建議擴展及優化醫健通資料收集、互通、使用及保障機制，以推展基層醫療、提升流程效率，以及便利跨境服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796381-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796381-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796381-20250319.htm)
+
+---
+
 # 調查指3成香港僱主計劃來季增加人手
 
+![萬寶盛華大中華高級副總裁徐玉珊表示，香港就業市場正逐步回暖。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796379_1_20250319111508.jpg&q=90)
   
 
 人力資源服務供應商萬寶盛華大中華，發表今年第2季就業展望調查，受訪的525名香港僱主中，30%預算未來3個月將增加人手，19%表示會縮減人手，50%未有計劃在來季調整現時員工數目。
@@ -23,6 +47,7 @@
 
 # 姚柏良：增離境稅對航空業復蘇造成障礙　冀當局三思
 
+![姚柏良認為，大幅增加機場離境稅，會對航空業務的復蘇造成障礙，希望當局三思。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796378_1_20250319111627.jpg&q=90)
   
 
 《財政預算案》提出，將每名飛機乘客的離境稅由120元加至200元，立法會今日首讀及二讀相關修例草案。立法會旅遊界議員姚柏良表示，在本港的航點航班還沒有完全恢復的情況下，便大幅增加機場離境稅，會對航空業務的復蘇造成障礙，希望當局三思。
@@ -46,6 +71,7 @@
 
 # 麥美娟：「聯廈聯管」助三無大廈業主更好保養和管理物業
 
+![麥美娟表示，推出為期一年的「聯廈聯管」試驗計劃是希望為「三無大廈」業主提供一條龍服務。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796376_1_20250319112143.jpg&q=90)
   
 
 民政及青年事務局局長麥美娟表示，推出為期一年的「聯廈聯管」試驗計劃是希望為「三無大廈」業主提供一條龍服務，協助他們成立業主立案法團，以及尋找專業物管公司，協助更好保養和管理自己的物業。她說在物業管理問題上，政府角色是為業主提供支援，最重要始終是業主要覺醒，做好自己物業資產管理。
@@ -1408,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796193-20250318.htm)
-
----
-
-# 李家超宣布12月7日舉行第八屆立法會選舉
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796189_1_20250318095240.jpg&q=90)
-  
-
-行政長官李家超宣布，第8屆立法會選舉將定於12月7日舉行，選出90名議員；而在選舉前會舉行選委會界別分組補選，有關補選定於9月7日進行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796189-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796189-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796189-20250318.htm)
 
 ---

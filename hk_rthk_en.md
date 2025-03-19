@@ -1,3 +1,27 @@
+# Ukraine peace talks planned for Sunday in Saudi: US
+
+![US officials say talks aimed at a ceasefire in Ukraine would be held in the Saudi Arabian city of Jeddah on Sunday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796380_1_20250319110641.jpg&q=90)
+  
+
+Talks on a ceasefire in Russia's conflict with Ukraine will continue on Sunday in the Saudi Arabian city of Jeddah, US President Donald Trump's special envoy Steve Witkoff said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm)
+
+---
+
 # Nanjing to finally host athletics championships
 
 ![Armand Mondo Duplantis makes a run for the pole vault event during the Mondo Classic in Uppsala, Sweden, this month. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796377_1_20250319105616.jpg&q=90)
@@ -118,7 +142,7 @@ The Hang Seng Index lost 42.94 points, or 0.17 percent, to open at 24,697.63 on 
 
 ---
 
-# Supreme court chief chides Trump over impeachment call
+# Supreme Court chief chides Trump over impeachment call
 
 ![A brief statement from Chief Justice of the United States, John Roberts, said impeachment was not an appropriate response to disagreement. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796357_1_20250319090726.jpg&q=90)
   
@@ -1411,29 +1435,5 @@ Hikers attempting any of Mount Fuji's four main trails will be charged an entry 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm)
-
----
-
-# Trump and Putin to discuss Ukraine this week
-
-![US officials have expressed optimism that a Ukraine-Russia ceasefire deal could be reached in weeks. Photo combo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796061_1_20250317152607.jpg&q=90)
-  
-
-US President Donald Trump says he plans to speak to his Russian counterpart Vladimir Putin on Tuesday about ending the war in Ukraine, adding discussions are already ongoing about "dividing up certain assets" between the warring parties.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm)
 
 ---
