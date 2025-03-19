@@ -1,3 +1,51 @@
+# 韓股高收0.62%　創近1個月新高
+
+![首爾綜合指數收報2628點，升16點，升幅0.62%，創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796413_1_20250319143817.jpg&q=90)
+  
+
+南韓股市靠穩，首爾綜合指數收報2628點，升16點，升幅0.62%，創近1個月新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796413-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796413-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796413-20250319.htm)
+
+---
+
+# 日股跌近百點收市　於38000點得而復失
+
+![日經指數於38000點得而復失，收市報37751點，跌93點，跌幅0.25%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796412_1_20250319143634.jpg&q=85)
+  
+
+日股先升後回，於38000點得而復失。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796412-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796412-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796412-20250319.htm)
+
+---
+
 # 台股低收1.4%　跌穿22000點
 
 ![加權指數回落至22000點以下，收報21960點，跌310點，跌幅1.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796407_1_20250319142027.jpg&q=90)
@@ -115,30 +163,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796389-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796389-20250319.htm)
-
----
-
-# 林大輝：如開設新醫學院校方可負擔開支　現屆下屆政府可分毫不付
-
-![林大輝強調理大是肯承擔的大學，願意同政府投資未來、教育和醫療。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796395_1_20250319125630.jpg&q=85)
-  
-
-理工大學是其中一間向政府提交籌建第三間醫學院建議書的大學，校方表示，充滿信心可迎接這個重任。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796395-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796395-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796395-20250319.htm)
 
 ---
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796246-20250318.htm)
-
----
-
-# 黃英豪稱結合中醫實力與生物科技優勢　浸大申辦醫學院具競爭力
-
-![黃英豪（左）表示，浸大有自己的特色，作為全港第一間中醫院的營辦機構，過去培育了很多中醫人才。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796239_1_20250318153111.jpg&q=90)
-  
-
-已就本港興建第三所醫學院提交建議書的浸會大學，校長衞炳江出席一個活動後表示，將努力為與籌備工作組會面作出準備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm)
 
 ---

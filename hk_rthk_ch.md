@@ -1,5 +1,54 @@
+# 韓股高收0.62%　創近1個月新高
+
+![首爾綜合指數收報2628點，升16點，升幅0.62%，創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796413_1_20250319143817.jpg&q=90)
+  
+
+南韓股市靠穩，首爾綜合指數收報2628點，升16點，升幅0.62%，創近1個月新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796413-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796413-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796413-20250319.htm)
+
+---
+
+# 日股跌近百點收市　於38000點得而復失
+
+![日經指數於38000點得而復失，收市報37751點，跌93點，跌幅0.25%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796412_1_20250319143634.jpg&q=85)
+  
+
+日股先升後回，於38000點得而復失。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796412-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796412-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796412-20250319.htm)
+
+---
+
 # 理大籌建第三間醫學院專家諮詢委員會21人包括鍾南山及張文宏
 
+![理大公布籌建第三間醫學院的專家諮詢委員會名單，合共有21人。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796410_1_20250319145148.jpg&q=90)
   
 
 本港三所大學正分別爭取籌建第三間醫學院，其中理大公布籌建第三間醫學院的專家諮詢委員會名單，合共有21人。
@@ -21,8 +70,9 @@
 
 ---
 
-# 九巴74X失事撞欄　11名乘客及車長受傷
+# 九巴74X疑失事撞欄　11名乘客及車長受傷
 
+![一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796408_1_20250319145230.jpg&q=75)
   
 
 一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄。
