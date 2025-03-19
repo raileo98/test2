@@ -1,3 +1,73 @@
+# 「醫健通」修訂使用機制擬私營機構須將重要紀錄存放至市民戶口
+
+  
+
+政府建議，修訂「醫健通」使用機制，包括賦權醫務衞生局局長可要求指明醫護，包括私營機構，必須將重要電子健康紀錄，例如病人敏感及藥物不良反應、化驗及放射報告等，存放至市民的醫健通戶口。如果不遵從，可被定額罰款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796464-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796464-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796464-20250319.htm)
+
+---
+
+# 騰訊去年及上季資本開支急升　加大對GPU投入
+
+![劉熾平指，騰訊計劃今年進一步增加資本開支，預計資本開支佔收入比例將達到低雙位數。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796463_1_20250319183659.jpg&q=80)
+  
+
+騰訊去年資本開支767.6億元人民幣，按年升2.2倍。單計第4季資本開支365.8億元，按年升約3.9倍，按季升1.1倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796463-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796463-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796463-20250319.htm)
+
+---
+
+# 林大輝：新醫學院搬入牛潭尾校區前　理大可負擔所有財政開支
+
+  
+
+本港三間大學正分別爭取負責籌建第三間醫學院。其中理工大學表示，充滿信心可迎接此項重任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm)
+
+---
+
 # 陳國基稱預計年中向立法會提交有關簡樸房條例草案
 
   

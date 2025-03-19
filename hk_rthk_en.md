@@ -1,3 +1,27 @@
+# New law passed to protect infrastructure cybersecurity
+
+![Chris Tang stressed the new law won't affect people's personal information or confidential business information.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796453_1_20250319181710.jpg&q=90)
+  
+
+Lawmakers on Wednesday passed a bill that aims to protect the cybersecurity of critical infrastructure in several sectors.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796453-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796453-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796453-20250319.htm)
+
+---
+
 # Stocks end up as winning streak continues
 
 ![Stocks end up as winning streak continues](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796461_1_20250319182952.jpg&q=80)
@@ -1411,29 +1435,5 @@ Wall Street stocks rose for the second straight day on Monday following better U
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm)
-
----
-
-# Boxing is here to stay in the 2028 Olympics: IOC
-
-![Germany's Nelvie Tiafack, left, in action against Bakhodir Jalolov of Uzbekistan at the Paris Olympics. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796158_1_20250318055329.jpg&q=90)
-  
-
-International Olympic Committee (IOC) chief Thomas Bach has announced that boxing is set to be among the sports at the 2028 Los Angeles Olympics after a new governing body is selected.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm)
 
 ---

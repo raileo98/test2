@@ -1,3 +1,26 @@
+# 澤連斯基質疑俄方誠意　中方強調停火進程不應由第三方強加
+
+  
+
+烏克蘭總統澤連斯基質疑俄羅斯對停火的誠意，並拒絕接受俄羅斯總統普京提出，外國要停止向烏克蘭提供軍事援助和情報的要求。澤連斯基表明，如果談判沒有烏克蘭參與，不會有成果。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796465-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796465-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796465-20250319.htm)
+
+---
+
 # 兩名美國太空人乘SpaceX飛船返抵地球　結束逾九個月滯留
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796148-20250318.htm)
-
----
-
-# 剛果民主共和國反政府武裝M23決定不參與和談
-
-![M23運動批評，某些國際機構故意破壞和平努力，圖為M23武裝份子。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796146_1_20250318032819.jpg&q=80)
-  
-
-被指獲盧旺達支持的剛果民主共和國反政府武裝M23運動決定，不參加星期二在安哥拉首都羅安達舉行的和平談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796146-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796146-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796146-20250318.htm)
 
 ---

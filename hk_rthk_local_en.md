@@ -1,3 +1,27 @@
+# New law passed to protect infrastructure cybersecurity
+
+![Chris Tang stressed the new law won't affect people's personal information or confidential business information.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796453_1_20250319181710.jpg&q=90)
+  
+
+Lawmakers on Wednesday passed a bill that aims to protect the cybersecurity of critical infrastructure in several sectors.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796453-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796453-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796453-20250319.htm)
+
+---
+
 # Shau Kei Wan community living room opens
 
 ![Eric Chan says he hopes families will visit the Shau Kei Wan community living room regularly. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796434_1_20250319165113.jpg&q=80)
@@ -1411,29 +1435,5 @@ Some parents at a primary school that won't get public funding to operate first-
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm)
-
----
-
-# Sleep vital for a healthy body and mind: expert
-
-![Children learn about correct sleep postures during class in China. Experts say good sleeping patterns are essential to health and mental well-being. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795692_1_20250314113237.jpg&q=85)
-  
-
-People around the globe marked World Sleep Day on Friday, an annual event that serves as a reminder of the importance of sleep to one's well-being and health.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795692-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795692-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795692-20250314.htm)
 
 ---

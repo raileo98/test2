@@ -1,3 +1,26 @@
+# 「醫健通」修訂使用機制擬私營機構須將重要紀錄存放至市民戶口
+
+  
+
+政府建議，修訂「醫健通」使用機制，包括賦權醫務衞生局局長可要求指明醫護，包括私營機構，必須將重要電子健康紀錄，例如病人敏感及藥物不良反應、化驗及放射報告等，存放至市民的醫健通戶口。如果不遵從，可被定額罰款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796464-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796464-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796464-20250319.htm)
+
+---
+
 # 林大輝：新醫學院搬入牛潭尾校區前　理大可負擔所有財政開支
 
   
@@ -1404,29 +1427,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796268-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796268-20250318.htm)
-
----
-
-# 法庭拒絕非公開聆訊申請　下令許家印前妻需向恒大清盤人支付訟費
-
-![法官指，為確保清盤過程公開透明，保障公眾利益及司法公正，拒絕非公開聆訊申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796278_1_20250318181939.jpg&q=80)
-  
-
-中國恒大去年被清盤人接管後，入稟向恒大創辦人許家印、前妻丁玉梅、前行政總裁夏海鈞以及前首席財務官潘大榮等，追討合共約468億港元股息及酬金，其後成功申請禁制令，阻止他們處理名下全球600億港元資產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796278-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796278-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796278-20250318.htm)
 
 ---
