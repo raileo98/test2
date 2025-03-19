@@ -1,3 +1,27 @@
+# 日圓兌美元曾失守150　分析料長期資金或支撐日圓重新轉強
+
+![王良享預料，日本退休基金等長期資金或增持日債配置，日圓短線兌美元介乎145至151。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796449_1_20250319175251.jpg&q=65)
+  
+
+日本央行維持短期利率目標0.5厘不變，日圓一度跌穿150兌1美元，較早時報149.7水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796449-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796449-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796449-20250319.htm)
+
+---
+
 # 煤氣：目前未到加價時間　會審慎與政府有關部門溝通
 
   
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm)
-
----
-
-# 羅淑佩：啟德體育園啟用有助增強香港體育事業競爭力
-
-![羅淑佩（中）表示，特區政府會持續投放資源，與社會各界攜手建立熱愛體育的文化。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796290_1_20250318212726.jpg&q=80)
-  
-
-文化體育及旅遊局局長羅淑佩表示，特區政府會持續投放資源，與社會各界攜手建立熱愛體育的文化，隨著啟德體育園啟用，相信將會進一步提升相關人才的場地管理、裁判、訓練和盛事統籌能力，有助增強香港體育事業的競爭力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796290-20250318.htm)
 
 ---
