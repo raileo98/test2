@@ -1,3 +1,27 @@
+# Trump suggests US takeover of Ukraine's power plants
+
+![The White House said that during the call Trump (Left) had floated US "ownership" of Ukrainian power plants as it would be the "best protection" for them. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796505_1_20250320032202.jpg&q=90)
+  
+
+US President Donald Trump hailed a "very good" call with Ukraine's Volodymyr Zelensky on Wednesday, a day after Russia's Vladimir Putin agreed to temporarily halt attacks on Kyiv's power plants.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796505-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796505-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796505-20250320.htm)
+
+---
+
 # Malaysia agrees terms for resumption of MH370 search
 
 ![Very little of the doomed Malaysian Airlines plane has ever been found. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796487_1_20250319224244.jpg&q=90)
@@ -1413,29 +1437,5 @@ US President Donald Trump on Thursday threatened to slap a 200 percent tariff on
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795656-20250314.htm)
-
----
-
-# Pro-Palestinian protesters fill NY's Trump Tower
-
-![Police officers detain a protester inside Trump Tower during a rally against the ICE detention of Palestinian activist and Columbia University graduate student Mahmoud Khalil. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795650_1_20250314053853.jpg&q=90)
-  
-
-Scores of people poured into the lobby of Trump Tower in New York City on Thursday to protest the arrest and detention of Columbia University student Mahmoud Khalil, whom the Trump administration aims to deport over his pro-Palestinian activism.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795650-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795650-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795650-20250314.htm)
 
 ---
