@@ -1,3 +1,51 @@
+# 聯儲局點陣圖：預計今年再減息0.5厘
+
+![反映聯儲局官員對未來利率走勢預測的點陣圖顯示，預測今年將減息0.5厘，明年將再減息0.5厘。（聯儲局圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796500_1_20250320022102.jpg&q=90)
+  
+
+反映聯儲局官員對未來利率走勢預測的點陣圖顯示，預計今年底聯邦基金利率為3.9%，明年底為3.4%，兩者均與之前估計一致，意味著聯儲局官員預測今年將減息0.5厘，明年將再減息0.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796500-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796500-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796500-20250320.htm)
+
+---
+
+# 美國聯儲局維持利率不變　議息聲明：經濟面臨不確定性加大
+
+![美國聯儲局一如市場預期，維持聯邦基金利率目標區間於4.25至4.5厘不變。議息聲明表示，經濟面臨的不確定性加大。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796499_1_20250320020641.jpg&q=90)
+  
+
+美國聯儲局一如市場預期，維持聯邦基金利率目標區間於4.25至4.5厘不變，連續兩次會議按兵不動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796499-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796499-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796499-20250320.htm)
+
+---
+
 # 德意志銀行今年擬裁員近2000人　並大幅減少分行數量
 
 ![德意志銀行計劃今年將在零售銀行部門裁員近2000人，並大幅減少分行數量。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796498_1_20250320015327.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796330-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796330-20250319.htm)
-
----
-
-# 歐洲3大指數上升　德股升近1%　議會批准大幅增加支出計劃
-
-![德國DAX指數收報23380點，升226點，升幅0.98%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796329_1_20250319052207.jpg&q=80)
-  
-
-歐洲3大指數上升，德股升近1%。德國議會批准大幅增加支出的計劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796329-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796329-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796329-20250319.htm)
-
----
-
-# 小鵬：今年總銷量實現翻倍增長　第4季穩步走向盈利
-
-![小鵬稱通過技術降本及更大規模效應，汽車毛利率今年持續改善。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796312_1_20250318234128.jpg&q=90)
-  
-
-小鵬汽車去年汽車交付量上升34%至19萬輛，今年首兩個月交付量約6.1萬輛，預料首季交付量介乎9.1萬至9.3萬輛，按年升逾3倍；首季收入預測介乎150億元至157億元人民幣，按年升約1.3倍或以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796312-20250318.htm)
 
 ---

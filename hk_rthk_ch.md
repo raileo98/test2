@@ -1,3 +1,51 @@
+# 聯儲局點陣圖：預計今年再減息0.5厘
+
+![反映聯儲局官員對未來利率走勢預測的點陣圖顯示，預測今年將減息0.5厘，明年將再減息0.5厘。（聯儲局圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796500_1_20250320022102.jpg&q=90)
+  
+
+反映聯儲局官員對未來利率走勢預測的點陣圖顯示，預計今年底聯邦基金利率為3.9%，明年底為3.4%，兩者均與之前估計一致，意味著聯儲局官員預測今年將減息0.5厘，明年將再減息0.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796500-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796500-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796500-20250320.htm)
+
+---
+
+# 美國聯儲局維持利率不變　議息聲明：經濟面臨不確定性加大
+
+![美國聯儲局一如市場預期，維持聯邦基金利率目標區間於4.25至4.5厘不變。議息聲明表示，經濟面臨的不確定性加大。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796499_1_20250320020641.jpg&q=90)
+  
+
+美國聯儲局一如市場預期，維持聯邦基金利率目標區間於4.25至4.5厘不變，連續兩次會議按兵不動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796499-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796499-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796499-20250320.htm)
+
+---
+
 # 德意志銀行今年擬裁員近2000人　並大幅減少分行數量
 
 ![德意志銀行計劃今年將在零售銀行部門裁員近2000人，並大幅減少分行數量。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796498_1_20250320015327.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796425-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796425-20250319.htm)
-
----
-
-# 港股全日升30點　小米及比亞迪股份破頂
-
-![恒生指數午後觸及24874點，再創逾3年新高，收市報24771點，升30點，連升4日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796427_1_20250319161702.jpg&q=85)
-  
-
-港股反覆靠穩，恒生指數午後最多升逾130點，觸及24874點，再創逾3年新高，收市報24771點，升30點，升幅0.12%，連升4日，全日高低點數波幅逾270點。單日主板成交額約2719億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796427-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796427-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796427-20250319.htm)
-
----
-
-# 外交部駐港公署：強烈不滿澳方為反中亂港分子撐腰打氣
-
-![發言人說，中方敦促澳方停止為犯罪分子提供「庇護所」。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796426_1_20250319160822.jpg&q=90)
-  
-
-外交部駐港公署發言人說，澳洲個別政客對所謂「香港警方在澳洲開展執法行動」表達關切，公然為反中亂港分子撐腰打氣，栽贓抹黑香港特區政府，公署表示強烈不滿和堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm)
 
 ---

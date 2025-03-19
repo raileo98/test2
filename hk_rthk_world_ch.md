@@ -1,3 +1,26 @@
+# 加沙衛生部門︰以軍過去一天空襲釀最少56人死亡
+
+  
+
+以色列軍方表示，已在加沙中部和南部開展有針對性的地面行動，並進一步擴大對內察里姆走廊的控制。加沙當局表示，以軍過去一天的空襲造成至少56人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796501-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796501-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796501-20250320.htm)
+
+---
+
 # 西班牙南部受風暴吹襲引發強風暴雨　據報最少3死
 
 ![暴雨令部分街區水浸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796496_1_20250320014130.jpg&q=85)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796172-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796172-20250318.htm)
-
----
-
-# 《環看天下》：特朗普下令大規模空襲也門　胡塞武裝誓言報復
-
-![美軍據報包括透過部署在紅海的軍艦，向也門胡塞武裝目標發動空襲。( 路透社 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796169_1_20250318074628.jpg&q=90)
-  
-
-美國向也門胡塞武裝發動一系列空襲，警告直至對方停止襲擊紅海一帶西方國家商船後，才會停止。胡塞武裝批評美軍連日來襲擊目標包括平民區，造成大量死傷，揚言會將報復升級。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796169-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796169-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796169-20250318.htm)
 
 ---
