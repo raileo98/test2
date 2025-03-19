@@ -1,5 +1,30 @@
+# 謝展寰前往北京拜訪國家海關總署　就保障供港食物供應等議題交流
+
+![謝展寰下午啟程前赴北京，訪京期間將拜訪包括國家海關總署。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796373_1_20250319104528.jpg&q=90)
+  
+
+環境及生態局局長謝展寰今日下午啟程前赴北京，訪京期間將拜訪國家海關總署，就保障供港食物供應、便利香港製造食品輸入內地的通關安排，以及加強食品貿易方面的合作等議題進行交流。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm)
+
+---
+
 # 周文港：大學收入無問題　劉智鵬：大學由日常開支儲備應對削款
 
+![周文港（左）重申大學收入並無問題。劉智鵬（右）表示，大學會由日常開支及儲備方面，應對現時政府的削減。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796369_1_20250319102807.jpg&q=90)
   
 
 預算案提出，未來三年，每年削減教資會資助大學經常撥款2%，撥款額達681億。立法會教育事務委員會主席周文港於本台節目《千禧年代》指出，雖然每年削減2%撥款，但實際三年期會較原先撥款增加8%，因此不應裁員減薪。對於政府要求大學將一般及發展基金中退回其中40億，周文港表示，八大的整體儲備現時有1300多億，認為各大學可以充分利用，相信在提升教學方面無問題。政府資助只佔大學收入四至六成，而每年大學的恆常收入，亦包括非本地生及自資課程收入等，佔平均收入達四成，亦正不斷增加，而大學科研成果轉化為收入，亦按年增加近13%，連續兩年過百億，重申大學收入並無問題。
@@ -1410,30 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm)
-
----
-
-# 兩名香港代表獲選第六批國家級非物質文化遺產代表性傳承人
-
-![黃大仙信俗的代表、嗇色園黃大仙祠監院（義覺）道長李耀輝都獲入傳承人名單。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796135_1_20250317232046.jpg&q=90)
-![西貢坑口客家舞麒麟的代表劉錦棠在名單之內。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796135_2_20250317232046.jpg&q=90)
-  
-
-西貢坑口客家舞麒麟傳承人劉錦棠以及黃大仙信俗文化傳承人李耀輝，獲選為第六批「國家級非物質文化遺產代表性傳承人」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796135-20250317.htm)
 
 ---

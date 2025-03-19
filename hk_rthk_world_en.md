@@ -1,3 +1,51 @@
+# Kyiv sees air raids hours after Trump-Putin call
+
+![Searchlights hunt for drones during a Russian raid in Kyiv after Donald Trump spoke with Vladimir Putin. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796372_1_20250319103135.jpg&q=90)
+  
+
+Ukraine on Wednesday accused Russia of effectively rejecting a US-backed ceasefire proposal, reporting a barrage of strikes on civilian infrastructure hours after Moscow agreed only to pause attacks on the energy grid.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796372-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796372-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796372-20250319.htm)
+
+---
+
+# Trump to unveil reciprocal tariffs on April 2
+
+![US Treasury Secretary Scott Bessent said if countries stop their practices, the US would not put up the tariff wall. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796362_1_20250319092836.jpg&q=90)
+  
+
+Washington is expected to present US trading partners on April 2 with a number representing their tariff and other barriers, as it unveils reciprocal levies tailored to each country, US Treasury Secretary Scott Bessent said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm)
+
+---
+
 # Record numbers forced to flee climate disasters: UN
 
 ![A man starts to rebuild his home in a shanty town destroyed by Cyclone Chido on the French Indian Ocean territory of Mayotte in January. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796360_1_20250319091826.jpg&q=85)
@@ -1389,53 +1437,5 @@ China and the EU vowed on Wednesday to strike back and defend their economic int
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm)
-
----
-
-# Duterte in custody of International Criminal Court
-
-![Supporters of former Philippine President Rodrigo Duterte wait for his arrival at the Scheveningen Prison in The Hague, Netherlands. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795510_1_20250313085050.jpg&q=90)
-  
-
-Former Philippine President Rodrigo Duterte was turned over on Wednesday to the custody of the International Criminal Court, following his arrest on a warrant accusing him of crimes against humanity over deadly anti-drugs crackdowns he oversaw while in office.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795510-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795510-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795510-20250313.htm)
-
----
-
-# Nasa launches SPHEREx to study universe's origin
-
-![The megaphone-shaped telescope will collect data on more than 450 million galaxies, as well as more than 100 million stars in the Milky Way during its planned two-year mission. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795461_1_20250312212209.jpg&q=85)
-  
-
-A Nasa telescope was launched into space from California on Tuesday for a mission to explore the origins of the universe and to search the Milky Way galaxy for hidden reservoirs of water, a key ingredient for life.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795461-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795461-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795461-20250313.htm)
 
 ---

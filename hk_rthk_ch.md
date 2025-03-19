@@ -1,3 +1,75 @@
+# 日股半日升近0.7%
+
+![日經指數半日收報38107點，升261點，升幅0.69%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796374_1_20250319103312.jpg&q=90)
+  
+
+東京股市先低後高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796374-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796374-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796374-20250319.htm)
+
+---
+
+# 謝展寰前往北京拜訪國家海關總署　就保障供港食物供應等議題交流
+
+![謝展寰下午啟程前赴北京，訪京期間將拜訪包括國家海關總署。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796373_1_20250319104528.jpg&q=90)
+  
+
+環境及生態局局長謝展寰今日下午啟程前赴北京，訪京期間將拜訪國家海關總署，就保障供港食物供應、便利香港製造食品輸入內地的通關安排，以及加強食品貿易方面的合作等議題進行交流。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm)
+
+---
+
+# 日本央行維持利率不變　符合預期
+
+![日本央行維持短期利率目標在0.5厘不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796371_1_20250319102937.jpg&q=75)
+  
+
+日本央行公布議息結果，維持短期利率目標在0.5厘不變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796371-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796371-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796371-20250319.htm)
+
+---
+
 # 國際奧委會第144次全會在古奧林匹亞開幕
 
 ![國際奧委會第144次全會當地星期二在希臘古奧林匹亞開幕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796370_1_20250319101452.jpg&q=85)
@@ -25,6 +97,7 @@
 
 # 周文港：大學收入無問題　劉智鵬：大學由日常開支儲備應對削款
 
+![周文港（左）重申大學收入並無問題。劉智鵬（右）表示，大學會由日常開支及儲備方面，應對現時政府的削減。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796369_1_20250319102807.jpg&q=90)
   
 
 預算案提出，未來三年，每年削減教資會資助大學經常撥款2%，撥款額達681億。立法會教育事務委員會主席周文港於本台節目《千禧年代》指出，雖然每年削減2%撥款，但實際三年期會較原先撥款增加8%，因此不應裁員減薪。對於政府要求大學將一般及發展基金中退回其中40億，周文港表示，八大的整體儲備現時有1300多億，認為各大學可以充分利用，相信在提升教學方面無問題。政府資助只佔大學收入四至六成，而每年大學的恆常收入，亦包括非本地生及自資課程收入等，佔平均收入達四成，亦正不斷增加，而大學科研成果轉化為收入，亦按年增加近13%，連續兩年過百億，重申大學收入並無問題。
@@ -1363,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm)
-
----
-
-# 美股開市後下跌　納指初段跌逾1%
-
-![美股下跌，投資者等候本周聯儲局議息結果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796299_1_20250318214833.jpg&q=90)
-  
-
-紐約股市下跌。投資者等候本周聯儲局議息結果，以及憂慮關稅戰對經濟的影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796299-20250318.htm)
-
----
-
-# 北角聖公會聖米迦勒小學西安交流時5名學生急性腸胃炎
-
-![5名患者的病徵與諾如病毒感染吻合。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796295_1_20250318212850.jpg&q=80)
-  
-
-再有學生交流團爆發腸胃炎，衞生防護中心正調查一宗急性腸胃炎的爆發個案，涉及北角區的聖公會聖米迦勒小學，5名學生受影響，全部患者的病徵與諾如病毒感染吻合。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796295-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796295-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796295-20250318.htm)
-
----
-
-# 世界知識產權組織數據指中國是國際專利申請最大來源國
-
-![世界知識產權組織數據指中國是國際專利申請最大來源國。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796294_1_20250318210928.jpg&q=90)
-  
-
-世界知識產權組織數據顯示，中國是國際專利申請最大來源國。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm)
 
 ---

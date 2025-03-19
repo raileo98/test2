@@ -1,3 +1,51 @@
+# Kyiv sees air raids hours after Trump-Putin call
+
+![Searchlights hunt for drones during a Russian raid in Kyiv after Donald Trump spoke with Vladimir Putin. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796372_1_20250319103135.jpg&q=90)
+  
+
+Ukraine on Wednesday accused Russia of effectively rejecting a US-backed ceasefire proposal, reporting a barrage of strikes on civilian infrastructure hours after Moscow agreed only to pause attacks on the energy grid.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796372-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796372-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796372-20250319.htm)
+
+---
+
+# Trump to unveil reciprocal tariffs on April 2
+
+![US Treasury Secretary Scott Bessent said if countries stop their practices, the US would not put up the tariff wall. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796362_1_20250319092836.jpg&q=90)
+  
+
+Washington is expected to present US trading partners on April 2 with a number representing their tariff and other barriers, as it unveils reciprocal levies tailored to each country, US Treasury Secretary Scott Bessent said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm)
+
+---
+
 # Record numbers forced to flee climate disasters: UN
 
 ![A man starts to rebuild his home in a shanty town destroyed by Cyclone Chido on the French Indian Ocean territory of Mayotte in January. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796360_1_20250319091826.jpg&q=85)
@@ -1387,53 +1435,5 @@ The Philippine Senate said on Monday it will conduct a formal probe of ex-presid
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm)
-
----
-
-# New transit route 'needs to seamlessly link Kai Tak'
-
-![The proposed mass transit system will connect the Kai Tak MTR Station with the Kai Tak Cruise Terminal with six stations in total. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796048_1_20250317132335.jpg&q=85)
-  
-
-A think tank on Monday urged the government to give full play to undeveloped land along the planned elevated mass transit system in Kai Tak to connect the line "seamlessly" with buildings in the neighbourhood.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796048-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796048-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796048-20250317.htm)
-
----
-
-# 'Makeup primers may affect hormone levels'
-
-![The Consumer Council says only three makeup bases that offer protection from the sun do not contain potential endocrine disruptors. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796050_1_20250317133301.jpg&q=90)
-  
-
-The Consumer Council on Monday warned that some makeup bases can affect hormone levels, and people who are pregnant or are breastfeeding should avoid such products.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796050-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796050-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796050-20250317.htm)
 
 ---

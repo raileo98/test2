@@ -1,5 +1,54 @@
+# 日股半日升近0.7%
+
+![日經指數半日收報38107點，升261點，升幅0.69%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796374_1_20250319103312.jpg&q=90)
+  
+
+東京股市先低後高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796374-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796374-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796374-20250319.htm)
+
+---
+
+# 日本央行維持利率不變　符合預期
+
+![日本央行維持短期利率目標在0.5厘不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796371_1_20250319102937.jpg&q=75)
+  
+
+日本央行公布議息結果，維持短期利率目標在0.5厘不變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796371-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796371-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796371-20250319.htm)
+
+---
+
 # 周文港：大學收入無問題　劉智鵬：大學由日常開支儲備應對削款
 
+![周文港（左）重申大學收入並無問題。劉智鵬（右）表示，大學會由日常開支及儲備方面，應對現時政府的削減。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796369_1_20250319102807.jpg&q=90)
   
 
 預算案提出，未來三年，每年削減教資會資助大學經常撥款2%，撥款額達681億。立法會教育事務委員會主席周文港於本台節目《千禧年代》指出，雖然每年削減2%撥款，但實際三年期會較原先撥款增加8%，因此不應裁員減薪。對於政府要求大學將一般及發展基金中退回其中40億，周文港表示，八大的整體儲備現時有1300多億，認為各大學可以充分利用，相信在提升教學方面無問題。政府資助只佔大學收入四至六成，而每年大學的恆常收入，亦包括非本地生及自資課程收入等，佔平均收入達四成，亦正不斷增加，而大學科研成果轉化為收入，亦按年增加近13%，連續兩年過百億，重申大學收入並無問題。
@@ -1386,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm)
-
----
-
-# 港股半日升435點　科技及汽車股造好　長和系偏軟
-
-![港股連升3日，恒生指數創逾3年新高，高見24680點，中午報24580點，升435點，升幅1.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796213_1_20250318121840.jpg&q=90)
-  
-
-港股連升3日，恒生指數創逾3年新高，最多升逾530點，高見24680點，中午報24580點，升435點，升幅1.8%，半日主板成交額約1531億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796213-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796213-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796213-20250318.htm)
-
----
-
-# 滬深股市半日靠穩
-
-![上證指數半日收報3429點，升3點，升幅0.09%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796207_1_20250318114054.jpg&q=90)
-  
-
-滬深股市靠穩。有色金屬、醫療股上升，遊戲、農業、白酒股下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796207-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796207-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796207-20250318.htm)
 
 ---
