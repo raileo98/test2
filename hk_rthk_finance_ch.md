@@ -1,3 +1,99 @@
+# 日本2月出口按年增長11.4%　連升5個月
+
+![日本2月出口按年增長11.4%，連續第5個月增長。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796350_1_20250319081626.jpg&q=85)
+  
+
+日本2月出口按年增長11.4%，連續第5個月增長，但增幅低於市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796350-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796350-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796350-20250319.htm)
+
+---
+
+# 日本1月核心機械訂單按月下跌3.5%　差過預期
+
+![日本1月核心機械訂單按月下跌3.5%，差過市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796351_1_20250319082011.jpg&q=80)
+  
+
+日本1月核心機械訂單按月下跌3.5%，跌幅大於市場預期的0.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796351-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796351-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796351-20250319.htm)
+
+---
+
+# 日股初段變動不大
+
+![日經指數較早時報37852點，升7點。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796348_1_20250319080559.jpg&q=90)
+  
+
+東京股市初段變動不大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796348-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796348-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796348-20250319.htm)
+
+---
+
+# 韓股初段升約0.7%
+
+![首爾綜合指數較早時報2629點，升17點，升幅0.67%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796349_1_20250319080900.jpg&q=90)
+  
+
+南韓股市初段上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796349-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796349-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796349-20250319.htm)
+
+---
+
 # 中通快遞去年多賺近1%
 
 ![中通快遞去年盈利88.2億元人民幣，按年升0.8%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796346_1_20250319074536.jpg&q=85)
@@ -1342,101 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796183-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796183-20250318.htm)
-
----
-
-# 人民幣中間價下調近50點子
-
-![人民幣中間價報7.1733兌1美元，較上日中間價下調45點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796182_1_20250318091955.jpg&q=75)
-  
-
-人民幣中間價報7.1733兌1美元，較上日中間價下調45點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796182-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796182-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796182-20250318.htm)
-
----
-
-# 台股初段升逾0.6%
-
-![加權指數較早時報22259點，升141點，升幅0.64%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796179_1_20250318090431.jpg&q=90)
-  
-
-台灣股市初段上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796179-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796179-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796179-20250318.htm)
-
----
-
-# 日股初段升近500點
-
-![日經指數較早時報37893點，升497點，升幅1.33%。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796171_1_20250318080710.jpg&q=85)
-  
-
-東京股市初段升近500點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796171-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796171-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796171-20250318.htm)
-
----
-
-# 韓股初段升近1%
-
-![首爾綜合指數較早時報2634點，升23點，升幅0.89%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796173_1_20250318080857.jpg&q=90)
-  
-
-南韓股市初段升近1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796173-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796173-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796173-20250318.htm)
 
 ---

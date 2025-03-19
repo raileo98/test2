@@ -1,3 +1,51 @@
+# 美聯邦法官暫緩執行特朗普阻止跨性別人士軍隊服役禁令
+
+![法官認為特朗普的命令可能違反美國憲法中禁止性别歧視的規定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796352_1_20250319083942.jpg&q=90)
+  
+
+美國一名聯邦法官以平等原則為由，暫緩執行特朗普政府阻止跨性別人士在軍隊服役的禁令。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796352-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796352-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796352-20250319.htm)
+
+---
+
+# 巴勒斯坦要求就以軍空襲加沙召開阿盟理事會特別會議
+
+![以軍發出疏散令後，在加沙地帶北部的巴勒斯坦民眾被迫撤離。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796347_1_20250319075132.jpg&q=85)
+  
+
+針對以軍對加沙地帶發動空襲，巴勒斯坦要求召開阿拉伯國家聯盟理事會特別會議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796347-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796347-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796347-20250319.htm)
+
+---
+
 # 普京同意暫停襲擊烏國能源設施　美俄同意俄烏衝突要長久和平結束
 
 ![美國總統特朗普與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796341_1_20250319064806.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796091-20250317.htm)
-
----
-
-# 日本靜岡縣將向每名攀登富士山人士收取4千日圓登山費
-
-![富士山2013年入選聯合國教科文組織世界文化遺產名錄。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796089_1_20250317173732.jpg&q=90)
-  
-
-日本靜岡縣議會批准今年夏天開始，向每名攀登富士山的人士，收取4千日圓，即約208港元登山費，同時限制登山入口開放時間。屆時，富士山4條常用登山路線將統一收費標準。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796089-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796089-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796089-20250317.htm)
-
----
-
-# 外交部：中方決不接受七國集團甩鍋推責　堅決反對污蔑抹黑中國
-
-![毛寧說，中方決不接受七國集團甩鍋推責。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796086_1_20250317172225.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧說，七國集團外長會聯合聲明及有關宣言罔顧事實，顛倒黑白，污蔑抹黑中國，干涉中國內政。中方強烈不滿、堅決反對，已向有關國家提出嚴正交涉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm)
 
 ---

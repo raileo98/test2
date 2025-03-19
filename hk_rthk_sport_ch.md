@@ -24,7 +24,7 @@
 
 # 32歲之年齡首度入選　英格蘭中堅丹般稱可擔任領袖角色
 
-![英格蘭中堅丹般說，會好好把握這次入選機會，協助球隊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796343_1_20250319071930.jpg&q=90)
+![英格蘭中堅丹般說，會好好把握這次入選機會，協助球隊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796343_2_20250319080911.jpg&q=90)
   
 
 英格蘭正備戰世界盃歐洲區兩場外圍賽，中堅丹般以32歲之年齡首度入選。他說，可以在球場內及球場外擔任領袖角色。

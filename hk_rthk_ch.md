@@ -1,3 +1,171 @@
+# 美聯邦法官暫緩執行特朗普阻止跨性別人士軍隊服役禁令
+
+![法官認為特朗普的命令可能違反美國憲法中禁止性别歧視的規定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796352_1_20250319083942.jpg&q=90)
+  
+
+美國一名聯邦法官以平等原則為由，暫緩執行特朗普政府阻止跨性別人士在軍隊服役的禁令。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796352-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796352-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796352-20250319.htm)
+
+---
+
+# 日本2月出口按年增長11.4%　連升5個月
+
+![日本2月出口按年增長11.4%，連續第5個月增長。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796350_1_20250319081626.jpg&q=85)
+  
+
+日本2月出口按年增長11.4%，連續第5個月增長，但增幅低於市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796350-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796350-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796350-20250319.htm)
+
+---
+
+# 日本1月核心機械訂單按月下跌3.5%　差過預期
+
+![日本1月核心機械訂單按月下跌3.5%，差過市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796351_1_20250319082011.jpg&q=80)
+  
+
+日本1月核心機械訂單按月下跌3.5%，跌幅大於市場預期的0.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796351-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796351-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796351-20250319.htm)
+
+---
+
+# 日股初段變動不大
+
+![日經指數較早時報37852點，升7點。（日本交易所JPX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796348_1_20250319080559.jpg&q=90)
+  
+
+東京股市初段變動不大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796348-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796348-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796348-20250319.htm)
+
+---
+
+# 韓股初段升約0.7%
+
+![首爾綜合指數較早時報2629點，升17點，升幅0.67%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796349_1_20250319080900.jpg&q=90)
+  
+
+南韓股市初段上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796349-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796349-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796349-20250319.htm)
+
+---
+
+# 巴勒斯坦要求就以軍空襲加沙召開阿盟理事會特別會議
+
+![以軍發出疏散令後，在加沙地帶北部的巴勒斯坦民眾被迫撤離。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796347_1_20250319075132.jpg&q=85)
+  
+
+針對以軍對加沙地帶發動空襲，巴勒斯坦要求召開阿拉伯國家聯盟理事會特別會議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796347-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796347-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796347-20250319.htm)
+
+---
+
+# 中通快遞去年多賺近1%
+
+![中通快遞去年盈利88.2億元人民幣，按年升0.8%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796346_1_20250319074536.jpg&q=85)
+  
+
+中通快遞去年盈利88.2億元人民幣，按年升0.8%。經調整後盈利升12%至100.8億元。派息每股美國存託股及普通股0.35美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796346-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796346-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796346-20250319.htm)
+
+---
+
 # 據報摩根士丹利擬本月裁員約2000人
 
 ![據報摩根士丹利計劃在本月裁員約2000人，佔公司員工總數2%至3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796345_1_20250319072806.jpg&q=90)
@@ -48,7 +216,7 @@
 
 # 32歲之年齡首度入選　英格蘭中堅丹般稱可擔任領袖角色
 
-![英格蘭中堅丹般說，會好好把握這次入選機會，協助球隊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796343_1_20250319071930.jpg&q=90)
+![英格蘭中堅丹般說，會好好把握這次入選機會，協助球隊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796343_2_20250319080911.jpg&q=90)
   
 
 英格蘭正備戰世界盃歐洲區兩場外圍賽，中堅丹般以32歲之年齡首度入選。他說，可以在球場內及球場外擔任領袖角色。
@@ -1268,173 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796283-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796283-20250318.htm)
-
----
-
-# 孫東稱冀與業界促進新來港上市企業與本地大學開展創科合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796281_1_20250318200433.jpg&q=80)
-  
-
-創新科技及工業局局長孫東出席「香港新型工業發展聯盟」成立典禮。他致辭時說，聯盟的成立正是香港新型工業發展又一個重要的里程碑，熱切期待聯盟未來能積極促進各創科持份者的緊密協作，包括提供融資機會、促進新來港上市企業與本地大學開展創科合作等，推動香港新型工業化的全面發展，讓創新鏈和產業鏈無縫對接。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm)
-
----
-
-# 與前妻討論再婚擔心公屋被奪斬傷對方　男子承認意圖傷人候判
-
-![法官認為，案件不受藥物影響，需時考慮，押後至本周五判刑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796280_1_20250318183127.jpg&q=80)
-  
-
-六旬男保安員與妻子離婚三年後討論再婚，保安員怕被前妻搶走公屋單位而拒絕，兩人再次討論再婚時男方勃然大怒，飲紅酒及服用安眠藥後持刀斬妻。男保安員承認一項有意圖而傷人罪，辯方求情時指他多年來遭前妻虐待，是受酒精及藥物影響下無預謀犯案，又認為前妻現時已原諒他，高等法院法官陳慶偉則認為，辯方的想法「太樂觀」，案件不受藥物影響，需時考慮而押後至本周五判刑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796280-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796280-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796280-20250318.htm)
-
----
-
-# 廉署拘捕十多名銀行前線職員涉助中介公司騙取按揭貸款轉介費
-
-![廉署拘捕22人，包括18名銀行前線職員，涉嫌協助一間中介公司騙取銀行按揭貸款的轉介費。（彭冠中攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796270_1_20250318223305.jpg&q=80)
-  
-
-廉署拘捕22人，包括18名銀行前線職員，涉嫌協助一間中介公司騙取銀行按揭貸款的轉介費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796270-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796270-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796270-20250318.htm)
-
----
-
-# 天文台料今年約5至8個熱帶氣旋進入本港500公里範圍
-
-![天文台預測，今年約有5至8個熱帶氣旋進入本港500公里範圍內。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796269_1_20250318223109.jpg&q=55)
-  
-
-天文台預測，今年約有5至8個熱帶氣旋進入本港500公里範圍內，可能在6月或之前踏入風季，10月或之後結束。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796269-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796269-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796269-20250318.htm)
-
----
-
-# 李家超提出啟德體育園設發言人機制　學者料有助處理互相卸責情況
-
-![李家超表示，啟德體育園一些安排不理想，已經要求園方強化機制建設。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796268_1_20250318223231.jpg&q=85)
-  
-
-行政長官李家超出席行政會議前表示，啟德體育園一些安排不理想，已經要求園方強化機制建設。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796268-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796268-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796268-20250318.htm)
-
----
-
-# 法庭拒絕非公開聆訊申請　下令許家印前妻需向恒大清盤人支付訟費
-
-![法官指，為確保清盤過程公開透明，保障公眾利益及司法公正，拒絕非公開聆訊申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796278_1_20250318181939.jpg&q=80)
-  
-
-中國恒大去年被清盤人接管後，入稟向恒大創辦人許家印、前妻丁玉梅、前行政總裁夏海鈞以及前首席財務官潘大榮等，追討合共約468億港元股息及酬金，其後成功申請禁制令，阻止他們處理名下全球600億港元資產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796278-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796278-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796278-20250318.htm)
-
----
-
-# 被問日本地震傳言　天文台：地震難預測不會建議市民是否去某地方
-
-![陳栢緯說，人工智能技術相對傳統模式，較能成功捕捉颱風的生成，但對於熱帶氣旋強度的預測仍有偏差。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796275_1_20250318183756.jpg&q=80)
-  
-
-對於近期有傳言指日本將發生大地震，會否建議市民改往其他地方旅遊。天文台台長陳栢緯說，不會建議市民去不去甚麼地方，地震是無法預測，天文台會密切注意當地氣象部門相關最新預測。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796275-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796275-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796275-20250318.htm)
 
 ---
