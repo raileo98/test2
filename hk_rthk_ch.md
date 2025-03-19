@@ -1,5 +1,53 @@
+# 林大輝：如開設新醫學院校方可負擔開支　現屆下屆政府可分毫不付
+
+  
+
+理工大學是其中一間向政府提交籌建第三間醫學院建議書的大學，校方表示，充滿信心可迎接這個重任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796395-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796395-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796395-20250319.htm)
+
+---
+
+# 周五起招標工務工程新樓一半須用金屬棚架　發展局稱不涉外牆維修
+
+![發展局指今次措施未有要求工務工程的樓宇外牆維修合約必須採用金屬棚架，承建商可因應相關維修工程工地的需要，選擇採用竹棚架或金屬棚架。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796394_1_20250319125138.jpg&q=85)
+  
+
+發展局表示，為推廣在工務工程應用金屬棚架，發展局要求在本星期五起招標的工務工程新建樓宇工程合約中，有50%要採用金屬棚架，預計今年只會涉及一至兩個新建樓宇的工務工程合約。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796394-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796394-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796394-20250319.htm)
+
+---
+
 # 首支的士車隊月底投入服務　政府於13地點設約80個專屬停車位
 
+![五間獲選的士車隊營辦商當中，首支車隊預計本月底將率先投入服務。（運輸署社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796393_1_20250319125108.jpg&q=90)
   
 
 五間獲選的士車隊營辦商當中，首支車隊預計本月底將率先投入服務，其他車隊亦會於7月底前陸續開始營運。
@@ -23,6 +71,7 @@
 
 # 海洋公園登山纜車訊號問題暫停海洋列車正年檢　高峰樂園暫停開放
 
+![海洋公園登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796392_1_20250319125048.jpg&q=55)
   
 
 海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。而海洋列車亦正在進行年度檢查，現時無法接載訪客往返兩個園區。高峰樂園將暫停開放，直至另行通知，訪客現時可到訪山下園區。
@@ -46,6 +95,7 @@
 
 # 理大稱對籌建第三間醫學院充滿信心
 
+![理工大學表示，充滿信心迎接籌建第三間醫學院的重任。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796390_1_20250319125028.jpg&q=85)
   
 
 理工大學表示，充滿信心迎接籌建第三間醫學院的重任。

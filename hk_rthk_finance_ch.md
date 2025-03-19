@@ -1,3 +1,50 @@
+# 林大輝：如開設新醫學院校方可負擔開支　現屆下屆政府可分毫不付
+
+  
+
+理工大學是其中一間向政府提交籌建第三間醫學院建議書的大學，校方表示，充滿信心可迎接這個重任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796395-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796395-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796395-20250319.htm)
+
+---
+
+# 理大稱對籌建第三間醫學院充滿信心
+
+![理工大學表示，充滿信心迎接籌建第三間醫學院的重任。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796390_1_20250319125028.jpg&q=85)
+  
+
+理工大學表示，充滿信心迎接籌建第三間醫學院的重任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm)
+
+---
+
 # 恒指半日升36點　小米績後升逾1%　小鵬汽車跌6%
 
 ![恒指半日收報24777點，升36點，升幅0.15%，主板成交額約1476億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796386_1_20250319120919.jpg&q=65)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796229-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796229-20250318.htm)
-
----
-
-# 特步去年多賺約20%
-
-![特步去年盈利12.4億元人民幣，按年升20.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796226_1_20250318132451.jpg&q=90)
-  
-
-特步去年盈利12.4億元人民幣，按年升20.2%，創新高。派末期息每股9.5港仙，按年升約19%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796226-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796226-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796226-20250318.htm)
-
----
-
-# 恒指下午初段升逾400點
-
-![恒指較早時報24558點，升412點，升幅1.71%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796225_1_20250318131349.jpg&q=65)
-  
-
-港股下午初段升逾400點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796225-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796225-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796225-20250318.htm)
 
 ---
