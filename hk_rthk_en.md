@@ -1,3 +1,27 @@
+# Over 60 cabbies penalised under demerit points system
+
+![Authorities say none of the penalised taxi drivers under the demerit system have racked up enough points to be disqualified. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796466_1_20250319184126.jpg&q=80)
+  
+
+Sixty-six taxi drivers have been slapped with demerit points for overcharging, refusing passengers and not taking the most direct route under a new penalty points system that was implemented around half a year ago.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm)
+
+---
+
 # Tencent posts better-than-expected Q4 results
 
 ![Tencent posts strong fourth quarter financial performances, bolstered by its gaming and advertising businesses. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796452_1_20250319182448.jpg&q=90)
@@ -1411,29 +1435,5 @@ Lionel Messi will miss two World Cup qualifiers after he was left out of the Arg
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm)
-
----
-
-# Carney says Canada must reduce reliance on US
-
-![Canada's Prime Minister Mark Carney speaks during a bilateral meeting with Britain's Prime Minister. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796162_1_20250318063858.jpg&q=90)
-  
-
-Canadian Prime Minister Mark Carney on Monday warned his country must reduce its reliance on the United States and would turn towards its "reliable" European allies instead on his first trip abroad.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm)
 
 ---

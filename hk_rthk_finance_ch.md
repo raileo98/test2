@@ -1,9 +1,9 @@
-# 騰訊去年及上季資本開支急升　加大對GPU投入
+# 騰訊擬今年進一步增加資本開支於自家研發AI模型
 
-![劉熾平指，騰訊計劃今年進一步增加資本開支，預計資本開支佔收入比例將達到低雙位數。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796463_1_20250319183659.jpg&q=80)
+![馬化騰稱AI生態仍處早期階段，相信各行各業都會受惠於AI普及。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796467_1_20250319185627.jpg&q=80)
   
 
-騰訊去年資本開支767.6億元人民幣，按年升2.2倍。單計第4季資本開支365.8億元，按年升約3.9倍，按季升1.1倍。
+騰訊上季盈利513.2億元人民幣，按年增長90%，按季則跌4%。經調整盈利553.1億元，按年升30%，按季則跌8%。
 
   
 
@@ -11,19 +11,20 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796463-20250319.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1796467-20250319.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796463-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796463-20250319.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796467-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796467-20250319.htm)
 
 ---
 
 # 長建去年盈利升1%　全年派息升0.8%
 
+![長江基建去年盈利81.15億元，升1%，全年派息每股2.58元，升0.8%，連續28年增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796450_1_20250319185947.jpg&q=90)
   
 
 長江基建去年盈利81.15億元，按年升1%。營業額389.85億元，按年升1%。末期息每股1.86元，全年派息每股2.58元，按年升0.8%，集團自1996年上市28年來，股息一直增長。

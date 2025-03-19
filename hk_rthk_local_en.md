@@ -1,3 +1,27 @@
+# Over 60 cabbies penalised under demerit points system
+
+![Authorities say none of the penalised taxi drivers under the demerit system have racked up enough points to be disqualified. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796466_1_20250319184126.jpg&q=80)
+  
+
+Sixty-six taxi drivers have been slapped with demerit points for overcharging, refusing passengers and not taking the most direct route under a new penalty points system that was implemented around half a year ago.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm)
+
+---
+
 # New law passed to protect infrastructure cybersecurity
 
 ![Chris Tang stressed the new law won't affect people's personal information or confidential business information.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796453_1_20250319181710.jpg&q=90)
@@ -1411,29 +1435,5 @@ Tourist arrivals hit 8.4 million in the first two months of the year, a seven pe
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795725-20250314.htm)
-
----
-
-# Parents express concern over possible school closures
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795696_1_20250314120146.jpg&q=85)
-  
-
-Some parents at a primary school that won't get public funding to operate first-year classes in the next academic year said on Friday they're shocked by the development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795696-20250314.htm)
 
 ---
