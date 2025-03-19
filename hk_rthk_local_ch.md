@@ -1,5 +1,29 @@
+# 歐力保險顧問公司兩度未能交審計表　被法庭判罰款2.6萬元
+
+  
+
+保險業監管局作出首宗刑事檢控，持牌經紀公司歐力保險顧問有限公司因兩度未能在財政年度結束後6個月內，向保險業監管局提交經審計財務報表，違反《保險業條例》，在東區裁判法院被定罪，判處罰款26060元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796424-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796424-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796424-20250319.htm)
+
+---
+
 # 66名的士司機被記分涉拒載兜路等　無的士司機記15分取消資格
 
+![陳美寶回覆立法會議員書面質詢，交代記分制執行情況。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796420_1_20250319160108.jpg&q=90)
   
 
 的士司機違例記分制自去年9月實施以來，截至本年3月，共有66名的士司機被記分。涉及濫收車資、拒載、兜路等。當中5名的士司機被記3分，12名的士司機被記5分，目前並無的士司機因為被記15分或以上而被取消資格。
@@ -23,6 +47,7 @@
 
 # 林健鋒稱多國面對美國加徵關稅　籲港商沉著應戰勿自亂陣腳
 
+![林建峰（中）呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796417_1_20250319160046.jpg&q=90)
   
 
 行政會議成員、立法會商界議員林健鋒表示，現時不只中國面對美國加徵關稅的問題，即使是美國盟友，例如墨西哥、加拿大等都面對同樣問題，呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應戰，亦希望貿易戰盡快平息。
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796239-20250318.htm)
-
----
-
-# 天文台料今年6月或之前踏入風季　約5至8個熱帶氣旋影響本港
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796238_1_20250318152550.jpg&q=80)
-  
-
-天文台預測，本港今年有機會在6月或之前踏入風季，10月或之後風季結束；進入本港500公里範圍內的熱帶氣旋數目屬「正常至偏多」，約5至8個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796238-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796238-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796238-20250318.htm)
 
 ---

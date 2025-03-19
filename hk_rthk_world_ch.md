@@ -1,3 +1,27 @@
+# 中方促美方立即停止封鎖制裁古巴　多做有利美古關係改善事情
+
+![毛寧說， 所謂「強迫勞動」已成為美國打壓異己的完美藉口和霸權工具。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796423_1_20250319155848.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧表示，中方反對濫施脅迫外交，敦促美方立即停止打著任何旗號，對古巴實施封鎖制裁，把古巴從支恐國家名單中移除，多做有利美古關係改善的事情，多做真正幫助加勒比國家的實事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm)
+
+---
+
 # 外交部談美俄領導人通話：樂見一切通往停火的努力
 
 ![毛寧說，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796419_1_20250319154325.jpg&q=90)
@@ -24,6 +48,7 @@
 
 # 林健鋒稱多國面對美國加徵關稅　籲港商沉著應戰勿自亂陣腳
 
+![林建峰（中）呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796417_1_20250319160046.jpg&q=90)
   
 
 行政會議成員、立法會商界議員林健鋒表示，現時不只中國面對美國加徵關稅的問題，即使是美國盟友，例如墨西哥、加拿大等都面對同樣問題，呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應戰，亦希望貿易戰盡快平息。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796138-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796138-20250318.htm)
-
----
-
-# 中方：有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的回應
-
-![外交部稱，中方有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的堅決回應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796128_1_20250317214401.jpg&q=80)
-  
-
-在北京，外交部回應有關解放軍今日在台海附近開展軍事演習的提問，發言人毛寧說，中方有關軍事行動是捍衛國家主權、安全和領土完整的必要、合法、正當之舉，是對外部勢力執意縱容支持「台獨」行徑的堅決回應，是對「台獨」分裂勢力倒行逆施的嚴正警告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm)
 
 ---

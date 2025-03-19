@@ -1,3 +1,27 @@
+# 中方促美方立即停止封鎖制裁古巴　多做有利美古關係改善事情
+
+![毛寧說， 所謂「強迫勞動」已成為美國打壓異己的完美藉口和霸權工具。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796423_1_20250319155848.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧表示，中方反對濫施脅迫外交，敦促美方立即停止打著任何旗號，對古巴實施封鎖制裁，把古巴從支恐國家名單中移除，多做有利美古關係改善的事情，多做真正幫助加勒比國家的實事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm)
+
+---
+
 # 外交部談美俄領導人通話：樂見一切通往停火的努力
 
 ![毛寧說，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796419_1_20250319154325.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795929-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795929-20250316.htm)
-
----
-
-# 李慧琼指立法會議員應多「落場踢」　要促成甚至成為參與者
-
-![李慧琼提到，立法會議員可以透過他們的網絡帶企業來港，推薦人才給政府。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795928_1_20250316151601.jpg&q=80)
-  
-
-全國人大常委李慧琼表示，終審法院近日就支聯會拒交資料案的判決，顯示終審法院處理國安法案件的門檻相當高，因此要對法庭有信心。她認為這是一個實施細則的事情，還沒到釋法的層面，國安法在實施的過程中，需要不斷完善。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795928-20250316.htm)
 
 ---
