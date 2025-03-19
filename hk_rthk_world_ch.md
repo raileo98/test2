@@ -1,3 +1,26 @@
+# 澤連斯基︰與特朗普對話積極、非常實質和坦誠
+
+  
+
+烏克蘭總統澤連斯基表示，與美國總統特朗普進行了積極、非常實質和坦誠的對話，雙方一致認為烏美兩國應繼續共同努力，以實現戰爭的真正結束和持久和平，雙方團隊近期將在沙特阿拉伯舉行會談，繼續協調邁向和平的步驟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796504-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796504-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796504-20250320.htm)
+
+---
+
 # 美國白宮︰特朗普與澤連斯基就俄烏停止襲擊能源設施達成一致
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796177-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796177-20250318.htm)
-
----
-
-# 突尼斯海岸警衛隊發現18具偷渡客遺體
-
-![突尼斯海岸警衛隊發現18具偷渡客遺體](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796174_1_20250318083108.jpg&q=90)
-  
-
-突尼斯海岸警衛隊說，在地中海沿岸海域數次行動中，解救612名偷渡客，並發現18具偷渡客遺體。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796174-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796174-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796174-20250318.htm)
 
 ---

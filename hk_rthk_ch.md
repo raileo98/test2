@@ -1,3 +1,26 @@
+# 澤連斯基︰與特朗普對話積極、非常實質和坦誠
+
+  
+
+烏克蘭總統澤連斯基表示，與美國總統特朗普進行了積極、非常實質和坦誠的對話，雙方一致認為烏美兩國應繼續共同努力，以實現戰爭的真正結束和持久和平，雙方團隊近期將在沙特阿拉伯舉行會談，繼續協調邁向和平的步驟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796504-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796504-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796504-20250320.htm)
+
+---
+
 # 美國白宮︰特朗普與澤連斯基就俄烏停止襲擊能源設施達成一致
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796432-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796432-20250319.htm)
-
----
-
-# 外交部：中方冀日方能正視歷史　推動中日關係健康穩定向前發展
-
-![毛寧說，中方希望日方能本着正視歷史、開闢未來的精神，推動中日關係健康穩定向前發展。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796430_1_20250319164255.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧回應美日元首上月共同宣布，將反對以武力或脅迫手段單方面改變台海現狀時表示，台灣問題是中國的內政，不容任何外部干涉。日本曾經對台灣殖民統治，對中國人民負有歷史罪責，所以尤其應當謹言慎行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm)
 
 ---
