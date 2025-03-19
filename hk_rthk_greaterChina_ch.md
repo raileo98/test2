@@ -1,3 +1,27 @@
+# 李強簽國務院令　國務院關於涉外知識產權糾紛處理規定5月起施行
+
+![李強簽署國務院令，公布《國務院關於涉外知識產權糾紛處理的規定》，5月1日起施行。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796468_1_20250319191520.jpg&q=90)
+  
+
+國務院總理李強簽署國務院令，公布《國務院關於涉外知識產權糾紛處理的規定》，今年5月1日起施行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796468-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796468-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796468-20250319.htm)
+
+---
+
 # 雲從科技冀以港為據點拓海外市場　科大訊飛稱語音技術助政府辦公
 
   
@@ -1410,30 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795996-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795996-20250317.htm)
-
----
-
-# 澳門區人大及政協相信澳門政策吻合國家策略可發揮貢獻
-
-![崔世平認為，只要澳門做好自身接待能力，再爭取聯通軌道網絡，未來在深化國際交往合作上可以發揮更大作用。 （鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795991_1_20250317085236.jpg&q=75)
-![高錦輝認為，港澳在現代教育實踐的經驗，可為內地教育改革做貢獻。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795991_2_20250317085236.jpg&q=85)
-  
-
-在上星期出席完今年全國兩會的澳區人大代表和政協委員，回澳後正忙於向社會各界展開傳達今年兩會精神。澳門區全國人大代表團副團長崔世平說，在國務院總理李強的政府工作報告中，除了顯示國家繼續大力支持港澳發展，也表明要深化國際交往合作，他形容如為澳門度身訂造，吻合澳門一直定位的國際旅遊休閒城市，以及成為中國與葡語國家經貿合作平台等的角色。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795991-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795991-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795991-20250317.htm)
 
 ---
