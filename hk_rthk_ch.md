@@ -1,5 +1,29 @@
+# 澤連斯基質疑俄方誠意　中方強調停火進程不應由第三方強加
+
+  
+
+烏克蘭總統澤連斯基質疑俄羅斯對停火的誠意，並拒絕接受俄羅斯總統普京提出，外國要停止向烏克蘭提供軍事援助和情報的要求。澤連斯基表明，如果談判沒有烏克蘭參與，不會有成果。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796465-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796465-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796465-20250319.htm)
+
+---
+
 # 「醫健通」修訂使用機制擬私營機構須將重要紀錄存放至市民戶口
 
+![當局又建議擴展更多專業人員可使用醫健通，包括臨床心理學家。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796464_1_20250319184336.jpg&q=90)
   
 
 政府建議，修訂「醫健通」使用機制，包括賦權醫務衞生局局長可要求指明醫護，包括私營機構，必須將重要電子健康紀錄，例如病人敏感及藥物不良反應、化驗及放射報告等，存放至市民的醫健通戶口。如果不遵從，可被定額罰款。
@@ -186,6 +210,7 @@
 
 # 兩名美國太空人乘SpaceX飛船返抵地球　結束逾九個月滯留
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796457_1_20250319184548.jpg&q=85)
   
 
 兩名美國太空人威廉姆斯和威爾莫爾，滯留國際太空站逾九個月後，乘坐SpaceX的龍飛船返抵地球，於本港時間早上近6時降落美國佛羅里達州對出海面。
@@ -1358,7 +1383,7 @@
 
 # 理大稱對籌建第三間醫學院充滿信心
 
-![理工大學表示，充滿信心迎接籌建第三間醫學院的重任。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796390_1_20250319125028.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796390_1_20250319125028.jpg&q=85)
   
 
 理工大學表示，充滿信心迎接籌建第三間醫學院的重任。

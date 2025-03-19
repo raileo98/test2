@@ -23,6 +23,7 @@
 
 # 兩名美國太空人乘SpaceX飛船返抵地球　結束逾九個月滯留
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796457_1_20250319184548.jpg&q=85)
   
 
 兩名美國太空人威廉姆斯和威爾莫爾，滯留國際太空站逾九個月後，乘坐SpaceX的龍飛船返抵地球，於本港時間早上近6時降落美國佛羅里達州對出海面。
