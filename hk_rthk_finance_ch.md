@@ -1,3 +1,27 @@
+# 鮑威爾：通脹升溫部分原因受關稅影響
+
+![聯儲局主席鮑威爾在議息會議後記者會上表示，要準確評估有幾多通脹是來自關稅政策是非常困難，但相信其中很大部分是來自關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796508_1_20250320035832.jpg&q=90)
+  
+
+美國聯儲局上調對今年通脹率的預測，市場關注美國總統特朗普的關稅政策，對美國通脹帶來幾大影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796508-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796508-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796508-20250320.htm)
+
+---
+
 # 聯儲局下調今年美國經濟增長預測至1.7%　上調通脹預測
 
 ![聯儲局將美國今年國內生產總值（GDP）增長預測下調至1.7%，並上調今年底個人消費開支（PCE）物價指數及核心指數預測增幅，分別至2.7%和2.8%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796502_1_20250320023215.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796335-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796335-20250319.htm)
-
----
-
-# 油價跌約1%　美俄元首討論結束俄烏衝突
-
-![油價下跌，美俄元首討論結束俄烏衝突，不過市場亦關注中東局勢緊張。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796332_1_20250319054219.jpg&q=90)
-  
-
-原油期貨價格下跌。美國總統特朗普和俄羅斯總統普京討論結束俄烏衝突，市場認為可能會放鬆針對俄羅斯燃料出口制裁。不過市場亦關注中東局勢緊張。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796332-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796332-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796332-20250319.htm)
 
 ---

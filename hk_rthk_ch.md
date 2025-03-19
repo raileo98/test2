@@ -1,3 +1,27 @@
+# 鮑威爾：通脹升溫部分原因受關稅影響
+
+![聯儲局主席鮑威爾在議息會議後記者會上表示，要準確評估有幾多通脹是來自關稅政策是非常困難，但相信其中很大部分是來自關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796508_1_20250320035832.jpg&q=90)
+  
+
+美國聯儲局上調對今年通脹率的預測，市場關注美國總統特朗普的關稅政策，對美國通脹帶來幾大影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796508-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796508-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796508-20250320.htm)
+
+---
+
 # 澤連斯基︰與特朗普對話積極、非常實質和坦誠
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796435-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796435-20250319.htm)
-
----
-
-# 騰訊去年多賺近70%　擬回購最少800億港元股份
-
-![騰訊去年盈利1940.73億元人民幣，按年增長68%，經調整盈利約2227.03億元，上升41%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796432_1_20250319164726.jpg&q=90)
-  
-
-騰訊去年盈利1940.73億元人民幣，按年增長68%。非國際財務報告準則計，經調整盈利約2227.03億元，上升41%。派發末期股息每股4.5港元，按年增逾32%，並計劃今年至少回購價值800億港元股份。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796432-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796432-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796432-20250319.htm)
 
 ---
