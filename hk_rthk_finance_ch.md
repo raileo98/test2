@@ -1,3 +1,49 @@
+# 調查指3成香港僱主計劃來季增加人手
+
+  
+
+人力資源服務供應商萬寶盛華大中華，發表今年第2季就業展望調查，受訪的525名香港僱主中，30%預算未來3個月將增加人手，19%表示會縮減人手，50%未有計劃在來季調整現時員工數目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm)
+
+---
+
+# 姚柏良：增離境稅對航空業復蘇造成障礙　冀當局三思
+
+  
+
+《財政預算案》提出，將每名飛機乘客的離境稅由120元加至200元，立法會今日首讀及二讀相關修例草案。立法會旅遊界議員姚柏良表示，在本港的航點航班還沒有完全恢復的情況下，便大幅增加機場離境稅，會對航空業務的復蘇造成障礙，希望當局三思。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796378-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796378-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796378-20250319.htm)
+
+---
+
 # 日股半日升近0.7%
 
 ![日經指數半日收報38107點，升261點，升幅0.69%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796374_1_20250319103312.jpg&q=90)
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796222-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796222-20250318.htm)
-
----
-
-# 外電指內地監管部門評估長和出售海外港口業務交易
-
-![彭博引述消息人士指，中國有關部門開始評估長和出售海外港口業務的交易。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796218_1_20250318121750.jpg&q=75)
-  
-
-彭博引述消息人士指，中國有關部門開始評估長和出售海外港口業務的交易。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796218-20250318.htm)
-
----
-
-# 李家超︰須重視社會對長和擬向美國財團出售巴拿馬運河港口關切
-
-![長和計劃向美國財團出售巴拿馬運河兩端港口等資產。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796219_1_20250318122902.jpg&q=80)
-  
-
-長和計劃向美國財團出售巴拿馬運河兩端港口等資產，行政長官李家超回應指，社會有很多議論，這些關切值得重視。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796219-20250318.htm)
 
 ---

@@ -1,3 +1,96 @@
+# 調查指3成香港僱主計劃來季增加人手
+
+  
+
+人力資源服務供應商萬寶盛華大中華，發表今年第2季就業展望調查，受訪的525名香港僱主中，30%預算未來3個月將增加人手，19%表示會縮減人手，50%未有計劃在來季調整現時員工數目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm)
+
+---
+
+# 姚柏良：增離境稅對航空業復蘇造成障礙　冀當局三思
+
+  
+
+《財政預算案》提出，將每名飛機乘客的離境稅由120元加至200元，立法會今日首讀及二讀相關修例草案。立法會旅遊界議員姚柏良表示，在本港的航點航班還沒有完全恢復的情況下，便大幅增加機場離境稅，會對航空業務的復蘇造成障礙，希望當局三思。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796378-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796378-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796378-20250319.htm)
+
+---
+
+# 麥美娟：「聯廈聯管」助三無大廈業主更好保養和管理物業
+
+  
+
+民政及青年事務局局長麥美娟表示，推出為期一年的「聯廈聯管」試驗計劃是希望為「三無大廈」業主提供一條龍服務，協助他們成立業主立案法團，以及尋找專業物管公司，協助更好保養和管理自己的物業。她說在物業管理問題上，政府角色是為業主提供支援，最重要始終是業主要覺醒，做好自己物業資產管理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796376-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796376-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796376-20250319.htm)
+
+---
+
+# 食安中心指從膳食攝入T-2、HT-2和4,15-毒素機會不大
+
+![食物安全中心公布有關食物中T-2毒素、HT-2毒素和4,15-二乙酰藨草鐮刀烯醇的風險評估研究。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796375_1_20250319105447.jpg&q=90)
+  
+
+食物安全中心公布有關食物中T-2毒素、HT-2毒素和4,15-二乙酰藨草鐮刀烯醇的風險評估研究。研究結果顯示，本港成年人和較年輕群組，從膳食中攝入這些霉菌毒素而影響健康的機會不大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796375-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796375-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796375-20250319.htm)
+
+---
+
 # 日股半日升近0.7%
 
 ![日經指數半日收報38107點，升261點，升幅0.69%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796374_1_20250319103312.jpg&q=90)
@@ -1340,101 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796306-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796306-20250318.htm)
-
----
-
-# 機場三跑項目分判商「工頭」向工人收賄約70萬判囚2年
-
-![機場三跑項目分判商「工頭」向工人收賄約70萬判囚2年](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796304_1_20250318225616.jpg&q=90)
-  
-
-機場三跑項目分判商有「工頭」因向多名工人收受賄款共約70萬元，遭廉署起訴。其中一名50歲「工頭」在區域法院判監2年，屬同類案件最高刑期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796304-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796304-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796304-20250318.htm)
-
----
-
-# 王毅就北馬其頓日前一場火災造成重大傷亡向當地官員致慰問電
-
-![王毅對遇難者表示深切哀悼，向遇難者家屬致以誠摯慰問。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796302_1_20250318222358.jpg&q=85)
-  
-
-中共中央政治局委員、外交部長王毅就北馬其頓火災造成人員傷亡，向北馬其頓外交和對外貿易部長穆聰斯基致慰問電。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796302-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796302-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796302-20250318.htm)
-
----
-
-# 教育局要求內地交流團承辦機構暫停供應生冷食品燒味及貝類海鮮
-
-![教育局表明，已要求承辦學生內地交流計劃的承辦機構暫停供應生冷食品、燒味及貝類海鮮等食物。(「薪火相傳」國民教育活動系列網頁截圖 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796301_1_20250318223416.jpg&q=90)
-  
-
-接連有學校參加內地交流團時爆發急性腸胃炎，根據教育局轄下「薪火相傳」國民教育活動系列網站，教育局表明，已要求承辦學生內地交流計劃的承辦機構暫停供應生冷食品、燒味及貝類海鮮等食物。當局亦提醒，學校舉行學生內地交流活動時，應避免提供有關高危食物。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796301-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796301-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796301-20250318.htm)
-
----
-
-# 被問是否調查長和出售港口　外交部稱中方反對霸凌損害他國權益
-
-![毛寧被重申中方堅決反對經濟脅迫、霸凌等損害他國權益。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796298_1_20250318222759.jpg&q=90)
-  
-
-長和計劃向美國財團出售巴拿馬運河兩端港口等資產，彭博引述消息人士指，內地有關部門開始評估長和出售海外港口業務的交易，研究是否存在國家安全漏洞或反壟斷違規行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm)
 
 ---

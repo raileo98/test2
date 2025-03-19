@@ -1,3 +1,27 @@
+# Nanjing to finally host athletics championships
+
+![Armand Mondo Duplantis makes a run for the pole vault event during the Mondo Classic in Uppsala, Sweden, this month. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796377_1_20250319105616.jpg&q=90)
+  
+
+Armand 'Mondo' Duplantis headlines a stellar cast in Nanjing for a world indoor athletics championships delayed three times by the Covid-19 pandemic.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796377-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796377-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796377-20250319.htm)
+
+---
+
 # Kyiv sees air raids hours after Trump-Putin call
 
 ![Searchlights hunt for drones during a Russian raid in Kyiv after Donald Trump spoke with Vladimir Putin. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796372_1_20250319103135.jpg&q=90)
@@ -99,7 +123,7 @@ The Hang Seng Index lost 42.94 points, or 0.17 percent, to open at 24,697.63 on 
 ![A brief statement from Chief Justice of the United States, John Roberts, said impeachment was not an appropriate response to disagreement. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796357_1_20250319090726.jpg&q=90)
   
 
-US Supreme Court Justice John Roberts on Tuesday issued a rare public rebuke of President Donald Trump, over his call for the impeachment of a federal judge, in an extraordinary display of conflict between the executive and judiciary branches.
+US Chief Justice John Roberts on Tuesday issued a rare public rebuke of President Donald Trump, over his call for the impeachment of a federal judge, in an extraordinary display of conflict between the executive and judiciary branches.
 
   
 
@@ -1411,29 +1435,5 @@ US President Donald Trump says he plans to speak to his Russian counterpart Vlad
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm)
-
----
-
-# Philippines Senate to probe Duterte handover
-
-![Imee Marcos is the one who set the wheels in motion for the senate probe.  Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796060_1_20250317151836.jpg&q=90)
-  
-
-The Philippine Senate said on Monday it will conduct a formal probe of ex-president Rodrigo Duterte's arrest and swift handover last week to the International Criminal Court, which is to try him for alleged crimes against humanity.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm)
 
 ---

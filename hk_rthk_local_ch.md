@@ -1,3 +1,96 @@
+# 調查指3成香港僱主計劃來季增加人手
+
+  
+
+人力資源服務供應商萬寶盛華大中華，發表今年第2季就業展望調查，受訪的525名香港僱主中，30%預算未來3個月將增加人手，19%表示會縮減人手，50%未有計劃在來季調整現時員工數目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm)
+
+---
+
+# 姚柏良：增離境稅對航空業復蘇造成障礙　冀當局三思
+
+  
+
+《財政預算案》提出，將每名飛機乘客的離境稅由120元加至200元，立法會今日首讀及二讀相關修例草案。立法會旅遊界議員姚柏良表示，在本港的航點航班還沒有完全恢復的情況下，便大幅增加機場離境稅，會對航空業務的復蘇造成障礙，希望當局三思。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796378-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796378-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796378-20250319.htm)
+
+---
+
+# 麥美娟：「聯廈聯管」助三無大廈業主更好保養和管理物業
+
+  
+
+民政及青年事務局局長麥美娟表示，推出為期一年的「聯廈聯管」試驗計劃是希望為「三無大廈」業主提供一條龍服務，協助他們成立業主立案法團，以及尋找專業物管公司，協助更好保養和管理自己的物業。她說在物業管理問題上，政府角色是為業主提供支援，最重要始終是業主要覺醒，做好自己物業資產管理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796376-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796376-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796376-20250319.htm)
+
+---
+
+# 食安中心指從膳食攝入T-2、HT-2和4,15-毒素機會不大
+
+![食物安全中心公布有關食物中T-2毒素、HT-2毒素和4,15-二乙酰藨草鐮刀烯醇的風險評估研究。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796375_1_20250319105447.jpg&q=90)
+  
+
+食物安全中心公布有關食物中T-2毒素、HT-2毒素和4,15-二乙酰藨草鐮刀烯醇的風險評估研究。研究結果顯示，本港成年人和較年輕群組，從膳食中攝入這些霉菌毒素而影響健康的機會不大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796375-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796375-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796375-20250319.htm)
+
+---
+
 # 謝展寰前往北京拜訪國家海關總署　就保障供港食物供應等議題交流
 
 ![謝展寰下午啟程前赴北京，訪京期間將拜訪包括國家海關總署。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796373_1_20250319104528.jpg&q=90)
@@ -1339,101 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796189-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796189-20250318.htm)
-
----
-
-# 大熊貓「家姐」「細佬」周六首與媽媽「盈盈」一起與見公眾
-
-![大熊貓龍鳳胎「家姐」、「細佬」將於本周六起，與媽媽「盈盈」一起在「大熊貓之旅」展館與公眾見面。（海洋公園社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796181_1_20250318092746.jpg&q=85)
-  
-
-海洋公園表示，大熊貓龍鳳胎「家姐」、「細佬」將於本周六起，與媽媽「盈盈」一起在「大熊貓之旅」展館與公眾見面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796181-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796181-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796181-20250318.htm)
-
----
-
-# 蔡若蓮感謝李兆基令無數學生受惠　麥美娟感謝捐地建青年宿舍
-
-![李兆基基金向保良局捐贈元朗地皮，由政府全數資助興建大規模青年宿舍「保良局李兆基青年綠洲」，圖為青年綠洲正式開幕儀式。（恒基圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796139_1_20250318001358.jpg&q=85)
-  
-
-恒基地產創辦人李兆基在離世，享年97歲。特區政府多名司局長表示哀悼，並對他家人致以深切慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796139-20250318.htm)
-
----
-
-# 國泰本月30日恢復往返印度海德拉巴直航客運航班
-
-![劉凱詩（左四）表示，印度具有重要戰略意義。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796137_1_20250317234235.jpg&q=80)
-  
-
-國泰航空將於本月30日恢復往返印度海德拉巴直航客運航班，亦是國泰宣布今年新增6個新航點中的首個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796137-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796137-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796137-20250317.htm)
-
----
-
-# 陳茂波：李兆基的仁愛與溫情會繼續照亮社會
-
-![陳茂波表示，驚悉李兆基博士離世，心裡無比沉重。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796136_2_20250317235316.jpg&q=80)
-  
-
-財政司司長陳茂波表示，驚悉李兆基博士離世，心裡無比沉重，向他的家人致以最深切的慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796136-20250317.htm)
 
 ---
