@@ -1,3 +1,27 @@
+# 韓媒：尹錫悅彈劾案宣判日期或延至下周
+
+![尹錫悅彈劾案的宣判日期可能延至下星期。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796475_1_20250319204938.jpg&q=90)
+  
+
+南韓憲法法院今天未有公布總統尹錫悅彈劾案的宣判日期，宣判日期可能延至下星期。韓聯社報道，憲法法院法官今天亦有進行評議工作，但未得出結論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796475-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796475-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796475-20250319.htm)
+
+---
+
 # 教育局稱設專責小組全面檢視交流團安排　保障活動質量及師生安全
 
 ![教育局表示，在組織交流考察活動時，必以安全為首要考慮。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796474_1_20250319201646.jpg&q=90)

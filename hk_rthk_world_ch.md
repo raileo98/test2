@@ -1,3 +1,27 @@
+# 韓媒：尹錫悅彈劾案宣判日期或延至下周
+
+![尹錫悅彈劾案的宣判日期可能延至下星期。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796475_1_20250319204938.jpg&q=90)
+  
+
+南韓憲法法院今天未有公布總統尹錫悅彈劾案的宣判日期，宣判日期可能延至下星期。韓聯社報道，憲法法院法官今天亦有進行評議工作，但未得出結論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796475-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796475-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796475-20250319.htm)
+
+---
+
 # 澤連斯基稱將與特朗普通話　指責俄羅斯對烏克蘭發動新一輪攻擊
 
 ![澤連斯基說，稍後將同美國總統特朗普通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796473_1_20250319195840.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796150-20250318.htm)
-
----
-
-# 美俄元首稍後通電話　澤連斯基強調俄方須停止提出停火附加條件
-
-![美國總統特朗普今日稍後將會與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796149_1_20250318044754.jpg&q=90)
-  
-
-美國總統特朗普今日稍後將會與俄羅斯總統普京通電話，克里姆林宮說，主要話題會是調解烏克蘭問題，今次通話亦是為了恢復兩國關係定下基調的重要一步。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796149-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796149-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796149-20250318.htm)
 
 ---
