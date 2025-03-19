@@ -1,3 +1,27 @@
+# Tencent posts better-than-expected Q4 results
+
+![Tencent posts strong fourth quarter financial performances, bolstered by its gaming and advertising businesses. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796452_1_20250319182448.jpg&q=90)
+  
+
+Tech giant Tencent on Wednesday reported a stronger than expected fourth-quarter growth, boosted by a surge in gaming and advertising revenue.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796452-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796452-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796452-20250319.htm)
+
+---
+
 # New law passed to protect infrastructure cybersecurity
 
 ![Chris Tang stressed the new law won't affect people's personal information or confidential business information.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796453_1_20250319181710.jpg&q=90)
@@ -1411,29 +1435,5 @@ Canadian Prime Minister Mark Carney on Monday warned his country must reduce its
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm)
-
----
-
-# US stocks rise ahead of Fed meeting
-
-![Wall Street expects the US central bank is widely expected to keep interest rates unchanged. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796161_1_20250318063244.jpg&q=85)
-  
-
-Wall Street stocks rose for the second straight day on Monday following better US retail sales data as markets awaited a Federal Reserve decision later this week.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm)
 
 ---
