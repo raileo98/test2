@@ -1,3 +1,27 @@
+# 港隊足球友誼賽2:0挫澳門
+
+![港隊足球友誼賽2:0挫澳門。（中國香港足球總會社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796521_1_20250320071157.jpg&q=90)
+  
+
+港隊為備戰下周作客新加坡的亞洲盃外圍賽，昨晚與澳門隊在旺角場進行友誼賽，結果淨勝兩球。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm)
+
+---
+
 # 海關在機場破獲三宗涉貨運及旅客販毒案　涉款約5840萬
 
 ![海關在機場檢查48箱從泰國抵港的貨物，發現內藏約152公斤懷疑大麻花，估計市值約3900萬元。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796491_1_20250319234135.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796309-20250318.htm)
-
----
-
-# 古洞北/粉嶺北新發展區餘下住戶須於5月起分批於遷出
-
-![發展局人員向受影響住戶派發單張。（發展局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796306_1_20250318225558.jpg&q=55)
-  
-
-發展局表示，古洞北/粉嶺北新發展區餘下階段的首批受影響住戶，須於5月起分批於遷出。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796306-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796306-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796306-20250318.htm)
 
 ---
