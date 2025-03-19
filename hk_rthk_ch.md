@@ -1,3 +1,122 @@
+# 香港場外結算公司接受在岸國債及政策性金融債作為履約抵押品
+
+![境外投資者本周五起可使用債券通持倉中在岸國債和政策性金融債作為所有衍生品交易履約抵押品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796431_1_20250319164608.jpg&q=90)
+  
+
+港交所旗下香港場外結算公司本周五起，接受境外投資者使用債券通持倉中在岸國債和政策性金融債，作為所有衍生品交易履約抵押品。場外結算公司自1月起已接受有關債券，作為北向互換通履約抵押品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm)
+
+---
+
+# 雲從科技冀以港為據點拓海外市場　科大訊飛稱語音技術助政府辦公
+
+  
+
+內地多間創科民企代表參與本港一個大灣區創新科技論壇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm)
+
+---
+
+# 梁振英：冀媒體商會等發揮好溝通功能　讓大家知道大灣區最新政策
+
+![梁振英說，希望媒體、商會、專業團體等，必須發揮好溝通功能，讓大家知道粵港澳大灣區城市最新政策和發展。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796441_1_20250319172302.jpg&q=90)
+  
+
+全國政協副主席梁振英在一個有關大灣區創新科技論壇致辭表示，希望媒體、商會、專業團體等，必須發揮好溝通功能，讓大家知道粵港澳大灣區城市最新政策和發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm)
+
+---
+
+# 在岸人民幣兌美元低收147點子　觀望聯儲局議息聲明
+
+![在岸人民幣收報7.2363兌1美元，跌147點子，市場觀望聯儲局議息結果及會後坪明。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796436_1_20250319165944.jpg&q=80)
+  
+
+在岸人民幣收市報7.2363兌1美元，較昨日收市跌147點子，跌幅0.2%。全日波幅較窄，只有77點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796436-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796436-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796436-20250319.htm)
+
+---
+
+# 煤氣去年盈利跌約6%　末期息每股0.23元
+
+![中華煤氣去年盈利57.12億元，按年跌5.9%；核心利潤上升5%，達到59.55億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796440_1_20250319171438.jpg&q=90)
+  
+
+中華煤氣去年盈利57.12億元，按年跌5.9%；未計非經營損益及物業重估淨額，核心利潤上升5%，達到59.55億元。維持末期息每股23港仙，全年派息維持每股35港仙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796440-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796440-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796440-20250319.htm)
+
+---
+
 # 中國疾控中心稱3月份是諾如病毒流行季節　籲勤洗手注意飲食安全
 
   
@@ -47,9 +166,10 @@
 
 # 特朗普與普京通話後　俄烏互相空襲對方基礎設施
 
+![俄羅斯以無人機空襲烏克蘭，有房屋受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796437_1_20250319171510.jpg&q=80)
   
 
-美國總統特朗普與俄羅斯總統普京通電話後，俄羅斯和烏克蘭互相空襲對方的基礎設施。
+美國總統特朗普與俄羅斯總統普京通電話後，俄羅斯和烏克蘭互相空襲對方的基礎設施，有房屋受損。
 
   
 

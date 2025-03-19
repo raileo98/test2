@@ -1,3 +1,50 @@
+# 雲從科技冀以港為據點拓海外市場　科大訊飛稱語音技術助政府辦公
+
+  
+
+內地多間創科民企代表參與本港一個大灣區創新科技論壇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm)
+
+---
+
+# 梁振英：冀媒體商會等發揮好溝通功能　讓大家知道大灣區最新政策
+
+![梁振英說，希望媒體、商會、專業團體等，必須發揮好溝通功能，讓大家知道粵港澳大灣區城市最新政策和發展。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796441_1_20250319172302.jpg&q=90)
+  
+
+全國政協副主席梁振英在一個有關大灣區創新科技論壇致辭表示，希望媒體、商會、專業團體等，必須發揮好溝通功能，讓大家知道粵港澳大灣區城市最新政策和發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm)
+
+---
+
 # 中國疾控中心稱3月份是諾如病毒流行季節　籲勤洗手注意飲食安全
 
   
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795991-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795991-20250317.htm)
-
----
-
-# 內地推提振消費專項行動方案　涉增加收入、住房及生育等
-
-![內地公布《提振消費專項行動方案》，以大力提振消費，全方位擴大國內需求等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795984_1_20250317074822.jpg&q=90)
-  
-
-內地公布《提振消費專項行動方案》，涉及8方面30項重點任務，包括住房、汽車、生育、醫療等多方面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795984-20250317.htm)
-
----
-
-# 短道速滑世錦賽　中國隊獲男子5000米接力銀牌
-
-![中國隊獲銀後在場館內慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795962_1_20250316222432.jpg&q=90)
-  
-
-在北京，國際滑聯短道速滑世錦賽最後一天賽事，中國獲男子5000米接力銀牌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm)
 
 ---

@@ -1,3 +1,98 @@
+# 香港場外結算公司接受在岸國債及政策性金融債作為履約抵押品
+
+![境外投資者本周五起可使用債券通持倉中在岸國債和政策性金融債作為所有衍生品交易履約抵押品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796431_1_20250319164608.jpg&q=90)
+  
+
+港交所旗下香港場外結算公司本周五起，接受境外投資者使用債券通持倉中在岸國債和政策性金融債，作為所有衍生品交易履約抵押品。場外結算公司自1月起已接受有關債券，作為北向互換通履約抵押品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm)
+
+---
+
+# 雲從科技冀以港為據點拓海外市場　科大訊飛稱語音技術助政府辦公
+
+  
+
+內地多間創科民企代表參與本港一個大灣區創新科技論壇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm)
+
+---
+
+# 在岸人民幣兌美元低收147點子　觀望聯儲局議息聲明
+
+![在岸人民幣收報7.2363兌1美元，跌147點子，市場觀望聯儲局議息結果及會後坪明。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796436_1_20250319165944.jpg&q=80)
+  
+
+在岸人民幣收市報7.2363兌1美元，較昨日收市跌147點子，跌幅0.2%。全日波幅較窄，只有77點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796436-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796436-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796436-20250319.htm)
+
+---
+
+# 煤氣去年盈利跌約6%　末期息每股0.23元
+
+![中華煤氣去年盈利57.12億元，按年跌5.9%；核心利潤上升5%，達到59.55億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796440_1_20250319171438.jpg&q=90)
+  
+
+中華煤氣去年盈利57.12億元，按年跌5.9%；未計非經營損益及物業重估淨額，核心利潤上升5%，達到59.55億元。維持末期息每股23港仙，全年派息維持每股35港仙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796440-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796440-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796440-20250319.htm)
+
+---
+
 # 許正宇稱增離境稅將為政府帶來16億元收入但對乘客影響輕微
 
 ![許正宇表示，飛機乘客離境稅由120元增至200元，增幅對飛機乘客整體出行成本影響十分輕微。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796435_1_20250319165449.jpg&q=90)
@@ -1339,101 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796281-20250318.htm)
-
----
-
-# 李家超有信心香港與東莞優勢互補為建設國際一流灣區作貢獻
-
-![李家超與東莞市委書記韋皓（左）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796274_1_20250318183731.jpg&q=90)
-  
-
-行政長官李家超與東莞市委書記韋皓會面，就深化香港和東莞市合作及推動粵港澳大灣區高質量發展交流意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm)
-
----
-
-# 新地悼念李兆基　讚揚李兆基與郭得勝開創地產業輝煌一頁
-
-![新鴻基地產悼念前副主席李兆基昨日辭世。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796273_1_20250318183627.jpg&q=80)
-  
-
-新鴻基地產悼念前副主席、恒基集團創辦人李兆基昨日辭世。新地表示，李兆基與新地淵源深厚，不僅是新地創辦人兼前主席郭得勝的摯友，更是共同創立新鴻基地產的緊密夥伴，他們攜手奠定新地的穩固基石，開創香港地產業輝煌新一頁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796273-20250318.htm)
-
----
-
-# 在岸人民幣兌美元高收172點子　創逾4個月新高
-
-![在岸人民幣收市報7.2216兌1美元，較昨日收市價升172點子，創逾4個月新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796264_1_20250318172613.jpg&q=80)
-  
-
-在岸人民幣收市報7.2216兌1美元，較昨日收市價升172點子，升幅0.24%，創逾4個月新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796264-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796264-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796264-20250318.htm)
-
----
-
-# 工貿署料調整基金對中小企資助比例及首期撥款可減少問題個案
-
-![廖廣翔表示，基金秘書處審核申請和確保符合要求後，會再將申請交由跨部門小組審閱，而獲批企業亦須定期繳交報告。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796265_2_20250318175213.jpg&q=90)
-  
-
-為支援中小企發展，《財政預算案》宣布向「發展品牌、升級轉型及拓展內銷市場的專項基金」，即「BUD專項基金」以及「市場推廣及工商機構支援基金」合共注資15億元，但兩個基金向中小企的資助比例，由以往政府和企業1比1調整至1比3；首期撥款亦由以往先批出資助額的75%，調整至20%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796265-20250318.htm)
 
 ---

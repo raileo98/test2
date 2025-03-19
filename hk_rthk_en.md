@@ -1,3 +1,27 @@
+# Shau Kei Wan community living room opens
+
+![Eric Chan says he hopes families will visit the Shau Kei Wan community living room regularly. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796434_1_20250319165113.jpg&q=80)
+  
+
+Authorities on Wednesday launched its first community living room on Hong Kong Island, with the Shau Kei Wan facility expected to serve households from more than 300 subdivided flats.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796434-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796434-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796434-20250319.htm)
+
+---
+
 # Ocean Park swings back into full action
 
 ![Some visitors are disappointed with the temporary suspension of cable car services and upper section facilities. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796433_1_20250319164747.jpg&q=75)
@@ -1411,29 +1435,5 @@ Northern Ireland's Rory McIlroy cruised to a St. Patrick's Day victory at the Pl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm)
-
----
-
-# RTHK to show giant panda documentary
-
-![RTHK is set to premiere the documentary "The Panda Adventure" in April.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796118_1_20250317202335.jpg&q=85)
-  
-
-RTHK has been granted free broadcasting rights for a documentary that explores the world of giant pandas and the nation's dedicated conservation efforts to protect these beloved creatures.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796118-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796118-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796118-20250317.htm)
 
 ---
