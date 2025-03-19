@@ -1,3 +1,27 @@
+# Malaysia agrees terms for resumption of MH370 search
+
+![Very little of the doomed Malaysian Airlines plane has ever been found. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796487_1_20250319224244.jpg&q=90)
+  
+
+Malaysia has agreed to the terms and conditions of an agreement with exploration firm Ocean Infinity to resume the search for the wreckage of the missing Malaysia Airlines flight MH370, its transport minister said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm)
+
+---
+
 # 'New Israeli strikes on Gaza dramatic step backwards'
 
 ![Palestinians flee their homes after the Israeli army issued evacuation orders for a number of neighborhoods following heavy strikes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796484_1_20250319222238.jpg&q=90)
@@ -1413,29 +1437,5 @@ Scores of people poured into the lobby of Trump Tower in New York City on Thursd
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795650-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795650-20250314.htm)
-
----
-
-# Putin agrees to ceasefire but raises 'questions'
-
-![Putin makes his first comments on the plan, saying he's "for" the proposed ceasefire, but he has "serious questions" about how it would work. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795644_1_20250314025202.jpg&q=90)
-  
-
-Russian President Vladimir Putin said on Thursday he had "serious questions" about Washington's plan for a 30-day ceasefire in Ukraine, but Moscow was ready to discuss it with US President Donald Trump.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795644-20250314.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Malaysia agrees terms for resumption of MH370 search
+
+![Very little of the doomed Malaysian Airlines plane has ever been found. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796487_1_20250319224244.jpg&q=90)
+  
+
+Malaysia has agreed to the terms and conditions of an agreement with exploration firm Ocean Infinity to resume the search for the wreckage of the missing Malaysia Airlines flight MH370, its transport minister said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm)
+
+---
+
 # 'King's Park site will still be used for healthcare'
 
 ![The government says the King's Park site, currently home to Queen Elizabeth Hospital, will be retained for healthcare purposes. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796481_1_20250319221730.jpg&q=80)
@@ -1411,29 +1435,5 @@ Irish mixed martial arts fighter Conor McGregor, who has been found liable of se
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796184-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796184-20250318.htm)
-
----
-
-# Stranded astronauts set to return after nine months
-
-![Nasa livestream shows a Crew-10 member greeting International Space Station crew shortly after docking on Sunday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796180_1_20250318090524.jpg&q=90)
-  
-
-After more than nine months aboard the International Space Station, a pair of astronauts are finally set to depart for Earth early Tuesday, ending a prolonged mission that has captivated global attention.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm)
 
 ---
