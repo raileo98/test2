@@ -1,3 +1,27 @@
+# Complete eHealth database 'key for treating patients'
+
+![Sam Hui said it's still up to patients whether they want to use eHealth at all or which healthcare provider can access their medical record. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796581_1_20250320122653.jpg&q=80)
+  
+
+Healthcare officials said on Thursday that patients should not get to pick the medical record to be stored on a government-run electronic platform.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796581-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796581-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796581-20250320.htm)
+
+---
+
 # Low-altitude economy a new growth engine: CE
 
 ![Chief Executive John Lee visits a booth showcasing the use of drones for deliveries. Photo courtesy of John Lee's social media page](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796579_1_20250320122305.jpg&q=85)
@@ -1411,29 +1435,5 @@ The Centre for Health Protection (CHP) on Friday called on members of the public
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795787-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795787-20250314.htm)
-
----
-
-# Man arrested for allegedly assaulting a nurse
-
-![Kwong Wah Hospital says the male nurse sustained injuries to his arm. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795779_1_20250314214019.jpg&q=90)
-  
-
-A male visitor at Kwong Wah Hospital has been arrested for allegedly assaulting a nurse.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795779-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795779-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795779-20250314.htm)
 
 ---
