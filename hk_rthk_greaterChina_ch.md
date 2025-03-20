@@ -1,5 +1,7 @@
 # 香港航空客機行李架起火　片段顯示機艙服務員用樽裝水向行李淋水
 
+![多名機艙服務員和乘客打開行李架後，不斷用樽裝水和飲品向冒煙的行李淋水。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796614_1_20250320165136.jpg&q=90)
+![行李架內部及頂部部份位置被薰黑。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796614_2_20250320165136.jpg&q=90)
   
 
 香港航空一架由杭州飛往香港的客機，飛行期間機艙的行李架起火，改道安全降落於福州長樂國際機場，火勢已撲滅。
