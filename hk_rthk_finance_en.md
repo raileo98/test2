@@ -1,3 +1,27 @@
+# White House promises 'big tariffs' on April 2
+
+![White House Press Secretary Karoline Leavitt says America "has been ripped off by every country around the world." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796689_1_20250321011627.jpg&q=90)
+  
+
+The White House on Thursday vowed to impose "big tariffs" on April 2 when US President Donald Trump is to unveil reciprocal levies in a major escalation of his trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm)
+
+---
+
 # Inflation pace eases in February
 
 ![City's inflation eased last month, with prices for clothing and footwear products dropping by about two percent year on year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796632_1_20250320173703.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong stocks ended higher on Wednesday, with the benchmark Hang Seng Index u
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794398-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794398-20250305.htm)
-
----
-
-# Chinese firms double down on tech: Xiaomi, Haier
-
-![Zhou Yunjie, chairman of home appliances firm Haier, says technological innovation is a key factor to enable enterprises become international brands. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794332_2_20250305112824.jpg&q=90)
-  
-
-Chinese companies are doubling down on innovation as part of efforts to contribute to the national drive of developing "new quality productive forces", with leaders convening in Beijing for the annual Two Sessions meetings.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm)
 
 ---

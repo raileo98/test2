@@ -1,3 +1,27 @@
+# White House promises 'big tariffs' on April 2
+
+![White House Press Secretary Karoline Leavitt says America "has been ripped off by every country around the world." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796689_1_20250321011627.jpg&q=90)
+  
+
+The White House on Thursday vowed to impose "big tariffs" on April 2 when US President Donald Trump is to unveil reciprocal levies in a major escalation of his trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm)
+
+---
+
 # Hamas fires at Tel Aviv in response to Israeli strikes
 
 ![Gaza's civil defence agency says more than 500 Palestinians have been killed by Israeli strikes this week. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796687_1_20250321005439.jpg&q=85)
@@ -1413,29 +1437,5 @@ UK premier Keir Starmer said on Saturday that Russian President Vladimir Putin w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm)
-
----
-
-# Cuba suffers fourth nationwide blackout in five months
-
-![People gather in a neighbourhood during a national electrical grid collapse in Havana, Cuba. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795833_1_20250315115602.jpg&q=90)
-  
-
-Cuba suffered a general blackout on Friday caused by a crash of its national electricity grid, officials said, the fourth major power outage on the cash-strapped communist island in five months.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm)
 
 ---

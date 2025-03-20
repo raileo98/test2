@@ -1,3 +1,27 @@
+# 中國奧委會祝賀考文垂當選國際奧委會主席
+
+![中方祝賀考文垂當選國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796692_1_20250321015604.jpg&q=90)
+  
+
+中國奧委會祝賀考文垂當選國際奧委會主席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796692-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796692-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796692-20250321.htm)
+
+---
+
 # 歐盟向烏克蘭再提供10億歐元貸款
 
 ![馮德萊恩（左）強調，歐盟正幫助烏克蘭經濟保持正常運轉，重建被破壞的關鍵基礎設施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796691_1_20250321015522.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796626-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796626-20250320.htm)
-
----
-
-# 在岸人民幣兌美元低收20點子
-
-![在岸人民幣收報7.2383兌1美元，較上日收市價下跌20點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796624_1_20250320171332.jpg&q=90)
-  
-
-在岸人民幣收報7.2383兌1美元，較上日收市價下跌20點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796624-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796624-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796624-20250320.htm)
 
 ---
