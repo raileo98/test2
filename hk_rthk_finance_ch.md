@@ -1,3 +1,120 @@
+# 李家超：低空經濟潛力巨大應用場景廣闊　成未來經濟新增長引擎
+
+  
+
+行政長官李家超出席低空經濟「監管沙盒」試點項目啟動禮，表示低空經濟是國家戰略性新興產業，亦是發展新質生產力的範例，對香港經濟和社會發展很有幫助和禆益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm)
+
+---
+
+# 港股半日跌293點　結束4日升勢
+
+![港股結束4連升，恒指一度跌逾400點，半日收報24477點，跌293點，跌幅約1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796576_1_20250320121710.jpg&q=75)
+  
+
+港股結束4連升，恒指一度跌逾400點，低見24344點，半日收報24477點，跌293點，跌幅約1.2%，主板成交額約1575億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796576-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796576-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796576-20250320.htm)
+
+---
+
+# 陳茂波前赴北京將出席中國發展高層論壇　與中央部委討論加強合作
+
+  
+
+財政司司長陳茂波傍晚啟程到北京訪問，稍後會出席中國發展高層論壇，並在其中一場專題研討會發言。他亦會與相關的中央部委和機構人員會面和討論加強合作，並到訪企業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm)
+
+---
+
+# 滙豐銀行維持最優惠利率在5.25厘不變
+
+![滙豐銀行宣布維持最優惠利率在5.25厘不變。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796573_1_20250320121142.jpg&q=90)
+  
+
+美國聯儲局一如市場預期維持利率不變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796573-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796573-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796573-20250320.htm)
+
+---
+
+# 監管沙盒公司試行無人機全自動操作　有公司以無人機助送醫療物資
+
+  
+
+在今次首批低空經濟「監管沙盒」試點項目當中，有人工智能初創公司利用無人機技術，協助物業管理；亦有通訊營辦商利用新通訊技術，建立無人機感知網絡，協助在醫院運送醫療物資。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796571-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796571-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796571-20250320.htm)
+
+---
+
 # 「裕澤香江」高峰論壇下周三舉行　蔡崇信、蓋茲基金會高層等出席
 
 ![「裕澤香江」高峰論壇，將於下周三舉行，以「香港—為全球，向世界」為主題。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796568_1_20250320115839.jpg&q=85)
@@ -70,6 +187,29 @@
 
 ---
 
+# 中關村論壇年會月底北京舉行　突出科技前沿圍繞AI大模型等領域
+
+  
+
+中關村論壇年會本月27日至31日在北京舉行，今屆以「新質生產力與全球科技合作」為主題，逾百個國家和地區、上千名嘉賓參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm)
+
+---
+
 # 金管局：本港利率或仍處於較高水平　市民要小心管理利率風險
 
 ![金管局表示，本港利率於可見一段時間內仍可能會處於較高水平，市民在作出置業、按揭或其他借貸決定時，應繼續小心考慮及管理利率風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796561_1_20250320112103.jpg&q=55)
@@ -123,7 +263,7 @@
 ![李家超重申，低空經濟不但可以衍生一系列產業，應用場景亦非常廣闊，潛力巨大。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796560_1_20250320113400.jpg&q=90)
   
 
-政府公布首批低空經濟「監管沙盒」試點項目，行政長官李家超於啟動禮致辭表示，低空經濟是國家戰略性新興產業，亦是發展新質新產力的範例，特區政府積極投入和推動低空經濟，去年的施政報告提出要制訂低空經濟發展的策略和行動計劃，重申低空經濟不但可以衍生一系列產業，應用場景亦非常廣闊，潛力巨大，除了能夠提升城市管理和商業效率，更可以為市民帶來智慧生活的新體驗，成為經濟的新增長引擎。
+政府公布首批低空經濟「監管沙盒」試點項目，行政長官李家超於啟動禮致辭表示，低空經濟是國家戰略性新興產業，亦是發展新質生產力的範例，特區政府積極投入和推動低空經濟，去年的施政報告提出要制訂低空經濟發展的策略和行動計劃，重申低空經濟不但可以衍生一系列產業，應用場景亦非常廣闊，潛力巨大，除了能夠提升城市管理和商業效率，更可以為市民帶來智慧生活的新體驗，成為經濟的新增長引擎。
 
   
 
@@ -1032,6 +1172,54 @@ Nvidia首席執行官黃仁勳表示，公司沒有收到關於收購英特爾�
 
 ---
 
+# 林大輝：新醫學院搬入牛潭尾校區前　理大可負擔所有財政開支
+
+![林大輝強調理大是肯承擔的大學，願意同政府投資未來、教育和醫療。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796462_1_20250319192157.jpg&q=85)
+  
+
+本港三間大學正分別爭取負責籌建第三間醫學院。其中理工大學表示，充滿信心可迎接此項重任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm)
+
+---
+
+# 消息：簡樸房認證須收費早登記或可豁免　有條件接納向天井分間房
+
+![消息指，為鼓勵業主盡早為分間房作認證，或會推出優惠措施，就每間簡樸房認證，房屋局或會收取數千元行政等費用，若業主愈早認證，則有機會費用全免。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796458_1_20250319182155.jpg&q=90)
+  
+
+消息指，政府已大致完成規管簡樸房方案的框架細節，為鼓勵業主盡早為分間房作認證，或會推出優惠措施，就每間簡樸房認證，房屋局或會收取數千元行政等費用，若業主愈早認證，則有機會費用全免。不過，有關認證費收費，以及最終是否免費，仍要諮詢財庫局意見後，再作決定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm)
+
+---
+
 # 長建去年盈利升1%　全年派息升0.8%
 
 ![長江基建去年盈利81.15億元，升1%，全年派息每股2.58元，升0.8%，連續28年增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796450_1_20250319185947.jpg&q=90)
@@ -1245,197 +1433,5 @@ Nvidia首席執行官黃仁勳表示，公司沒有收到關於收購英特爾�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796428-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796428-20250319.htm)
-
----
-
-# 印尼維持利率不變
-
-![印尼央行維持利率不變，7日期逆回購利率繼續是5.75厘。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796425_1_20250319160814.jpg&q=90)
-  
-
-印尼央行維持利率不變，7日期逆回購利率繼續是5.75厘，符合大多數分析員預期，其餘預期會減息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796425-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796425-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796425-20250319.htm)
-
----
-
-# 港股全日升30點　小米及比亞迪股份破頂
-
-![恒生指數午後觸及24874點，再創逾3年新高，收市報24771點，升30點，連升4日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796427_1_20250319161702.jpg&q=85)
-  
-
-港股反覆靠穩，恒生指數午後最多升逾130點，觸及24874點，再創逾3年新高，收市報24771點，升30點，升幅0.12%，連升4日，全日高低點數波幅逾270點。單日主板成交額約2719億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796427-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796427-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796427-20250319.htm)
-
----
-
-# 歐力保險顧問公司兩度未能交審計表　被法庭判罰款2.6萬元
-
-![被告違反《保險業條例》，在東區裁判法院被定罪，判處罰款26060元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796424_1_20250319161454.jpg&q=75)
-  
-
-保險業監管局作出首宗刑事檢控，持牌經紀公司歐力保險顧問有限公司因兩度未能在財政年度結束後6個月內，向保險業監管局提交經審計財務報表，違反《保險業條例》，在東區裁判法院被定罪，判處罰款26060元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796424-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796424-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796424-20250319.htm)
-
----
-
-# 中方促美方立即停止封鎖制裁古巴　多做有利美古關係改善事情
-
-![毛寧說， 所謂「強迫勞動」已成為美國打壓異己的完美藉口和霸權工具。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796423_1_20250319155848.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧表示，中方反對濫施脅迫外交，敦促美方立即停止打著任何旗號，對古巴實施封鎖制裁，把古巴從支恐國家名單中移除，多做有利美古關係改善的事情，多做真正幫助加勒比國家的實事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm)
-
----
-
-# 植田和男：日本經濟仍有疲軟跡象　海外經濟不確定性增加
-
-![植田和男表示，必須仔細審視薪酬趨勢，又指薪酬上升勢頭強勁，並延伸至小型企業。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796418_1_20250319154153.jpg&q=90)
-  
-
-日本央行總裁植田和男表示，日本經濟正在溫和復蘇，但仍有一些疲軟跡象，日本經濟及物價、全球貿易政策趨勢的不確定仍很高，美國關稅政策仍有很大不確定，海外經濟不確定性比1月上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796418-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796418-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796418-20250319.htm)
-
----
-
-# 林健鋒稱多國面對美國加徵關稅　籲港商沉著應戰勿自亂陣腳
-
-![林建峰（中）呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796417_1_20250319160046.jpg&q=90)
-  
-
-行政會議成員、立法會商界議員林健鋒表示，現時不只中國面對美國加徵關稅的問題，即使是美國盟友，例如墨西哥、加拿大等都面對同樣問題，呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應戰，亦希望貿易戰盡快平息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm)
-
----
-
-# 內地股市反覆向下　滬股全日跌3點
-
-![內地股市反覆向下，上證指數收報3426點，跌3點，跌幅0.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796415_1_20250319150905.jpg&q=90)
-  
-
-內地股市反覆向下，電力、貴金屬、銀行等股份造好，消費電子、電池股偏軟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796415-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796415-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796415-20250319.htm)
-
----
-
-# 保障關鍵基礎設施條例恢復二讀　多名議員支持稱有助提升香港形象
-
-![立法會恢復二讀辯論保護關鍵基礎設施的條例草案。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796414_1_20250319152315.jpg&q=80)
-  
-
-立法會恢復二讀辯論保護關鍵基礎設施的條例草案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796414-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796414-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796414-20250319.htm)
 
 ---

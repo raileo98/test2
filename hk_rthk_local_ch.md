@@ -1,3 +1,119 @@
+# 李家超：低空經濟潛力巨大應用場景廣闊　成未來經濟新增長引擎
+
+  
+
+行政長官李家超出席低空經濟「監管沙盒」試點項目啟動禮，表示低空經濟是國家戰略性新興產業，亦是發展新質生產力的範例，對香港經濟和社會發展很有幫助和禆益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm)
+
+---
+
+# 醫管局冀透過調整收費引導非緊急病人用急症室以外醫療服務
+
+  
+
+醫管局表示，全港18間公立醫院急症室，每年服務量近200萬人次，超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令緊急病人的服務承諾達標率只有7成多，形容情況不理想，希望透過調整收費，引導非緊急病人使用急症室以外的醫療服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796578-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796578-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796578-20250320.htm)
+
+---
+
+# 當局倡精簡同意上載資料至醫健通機制　市民仍可決定是否容許閱覽
+
+  
+
+政府建議修例，精簡市民同意醫護將病人資料上載至醫健通戶口的機制，又賦權醫務衞生局局長可要求包括私營機構，必須將重要電子健康紀錄上載至市民的醫健通戶口。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796577-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796577-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796577-20250320.htm)
+
+---
+
+# 國家出入境管理局提供雙證關聯檢驗服務　李慧琼稱便利內地港人
+
+![李慧琼說，感謝中央政府公布的新措施，將進一步便利在內地的本港居民。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796575_1_20250320122746.jpg&q=80)
+  
+
+國家出入境管理局宣布，即日起為有需要的港澳台居民，例如遺失回鄉證或損毀等，簽發臨時通行證，以及提供通行證與居住證「雙證關聯」檢驗服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm)
+
+---
+
+# 陳茂波前赴北京將出席中國發展高層論壇　與中央部委討論加強合作
+
+  
+
+財政司司長陳茂波傍晚啟程到北京訪問，稍後會出席中國發展高層論壇，並在其中一場專題研討會發言。他亦會與相關的中央部委和機構人員會面和討論加強合作，並到訪企業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm)
+
+---
+
 # 監管沙盒公司試行無人機全自動操作　有公司以無人機助送醫療物資
 
   
@@ -98,7 +214,7 @@
 ![李家超重申，低空經濟不但可以衍生一系列產業，應用場景亦非常廣闊，潛力巨大。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796560_1_20250320113400.jpg&q=90)
   
 
-政府公布首批低空經濟「監管沙盒」試點項目，行政長官李家超於啟動禮致辭表示，低空經濟是國家戰略性新興產業，亦是發展新質新產力的範例，特區政府積極投入和推動低空經濟，去年的施政報告提出要制訂低空經濟發展的策略和行動計劃，重申低空經濟不但可以衍生一系列產業，應用場景亦非常廣闊，潛力巨大，除了能夠提升城市管理和商業效率，更可以為市民帶來智慧生活的新體驗，成為經濟的新增長引擎。
+政府公布首批低空經濟「監管沙盒」試點項目，行政長官李家超於啟動禮致辭表示，低空經濟是國家戰略性新興產業，亦是發展新質生產力的範例，特區政府積極投入和推動低空經濟，去年的施政報告提出要制訂低空經濟發展的策略和行動計劃，重申低空經濟不但可以衍生一系列產業，應用場景亦非常廣闊，潛力巨大，除了能夠提升城市管理和商業效率，更可以為市民帶來智慧生活的新體驗，成為經濟的新增長引擎。
 
   
 
@@ -1317,125 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796400-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796400-20250319.htm)
-
----
-
-# 萬寶盛華：企業今年平均加薪3%　或採取更保守薪酬政策
-
-![調查顯示本港今年平均加薪幅度降至3%。徐玉珊說，企業或採取更保守的薪酬政策，但亦會視乎盈利及員工表現等。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796398_1_20250319130135.jpg&q=90)
-  
-
-人力資源服務供應商萬寶盛華大中華高級副總裁徐玉珊表示，本港就業市場保持平穩，醫療、科技等行業就業前景都有好轉，但全球經濟不明朗化，個別行業面對不同程度壓力，運輸及物流業招聘意欲相對低迷，相信與就國際貿易摩擦和關稅政策有關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796398-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796398-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796398-20250319.htm)
-
----
-
-# 九巴大埔吐露港公路失事撞欄　初步消息指8至9人受傷
-
-![一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796397_1_20250319131144.jpg&q=90)
-  
-
-一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄，初步消息指車上有8至9人受傷，九巴司機已被救出，他報稱腰部受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796397-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796397-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796397-20250319.htm)
-
----
-
-# 林大輝：如開設新醫學院校方可負擔開支　現屆下屆政府可分毫不付
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796395_1_20250319125630.jpg&q=85)
-  
-
-理工大學是其中一間向政府提交籌建第三間醫學院建議書的大學，校方表示，充滿信心可迎接這個重任。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796395-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796395-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796395-20250319.htm)
-
----
-
-# 周五起招標工務工程新樓一半須用金屬棚架　發展局稱不涉外牆維修
-
-![發展局指今次措施未有要求工務工程的樓宇外牆維修合約必須採用金屬棚架，承建商可因應相關維修工程工地的需要，選擇採用竹棚架或金屬棚架。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796394_1_20250319125138.jpg&q=85)
-  
-
-發展局表示，為推廣在工務工程應用金屬棚架，發展局要求在本星期五起招標的工務工程新建樓宇工程合約中，有50%要採用金屬棚架，預計今年只會涉及一至兩個新建樓宇的工務工程合約。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796394-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796394-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796394-20250319.htm)
-
----
-
-# 首支的士車隊月底投入服務　政府於13地點設約80個專屬停車位
-
-![五間獲選的士車隊營辦商當中，首支車隊預計本月底將率先投入服務。（運輸署社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796393_1_20250319125108.jpg&q=90)
-  
-
-五間獲選的士車隊營辦商當中，首支車隊預計本月底將率先投入服務，其他車隊亦會於7月底前陸續開始營運。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796393-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796393-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796393-20250319.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 國家出入境管理局提供雙證關聯檢驗服務　李慧琼稱便利內地港人
+
+![李慧琼說，感謝中央政府公布的新措施，將進一步便利在內地的本港居民。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796575_1_20250320122746.jpg&q=80)
+  
+
+國家出入境管理局宣布，即日起為有需要的港澳台居民，例如遺失回鄉證或損毀等，簽發臨時通行證，以及提供通行證與居住證「雙證關聯」檢驗服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm)
+
+---
+
+# 陳茂波前赴北京將出席中國發展高層論壇　與中央部委討論加強合作
+
+  
+
+財政司司長陳茂波傍晚啟程到北京訪問，稍後會出席中國發展高層論壇，並在其中一場專題研討會發言。他亦會與相關的中央部委和機構人員會面和討論加強合作，並到訪企業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm)
+
+---
+
 # 北京U20球員郭嘉璇離世　北京足協感痛心組專家分析訓練賽視頻
 
   
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm)
-
----
-
-# 北京：做相互成就的夥伴　實現「龍象共舞」是中印唯一正確選擇
-
-![毛寧說，中方讚賞印度總理莫迪近日就中印關係作出積極表態。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796069_1_20250317164026.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧說，中方讚賞印度總理莫迪近日就中印關係作出積極表態，毛寧指出，做相互成就的夥伴，實現「龍象共舞」是中印唯一正確的選擇。中方願同印方共同努力，深入落實好兩國領導人的重要共識，以今年中印建交75周年為契機，推進交流合作，推動中印關係沿著健康穩定的軌道向前發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796069-20250317.htm)
-
----
-
-# 外交部：中方反對任何加劇紅海局勢升級的行動
-
-![毛寧：中方反對任何加劇紅海局勢升級的行動。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796066_1_20250317164104.jpg&q=90)
-  
-
-也門胡塞武裝說，美軍自上周六以來對也門的空襲已造成53人死亡，包括婦女和兒童，另有98人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796066-20250317.htm)
 
 ---
