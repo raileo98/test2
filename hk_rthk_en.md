@@ -1,3 +1,27 @@
+# Indonesia passes controversial military law revisions
+
+![The law's detractors fear the changes will take Indonesia back to the days when military officers dominated civilian affairs. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796583_1_20250320123337.jpg&q=80)
+  
+
+Indonesia's parliament on Thursday passed contentious revisions to the country's military law, which will allocate more civilian posts for military officers, and street protests against the changes are expected to take place.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm)
+
+---
+
 # Temporary e-permit to assist HKers on the mainland
 
 ![HKers who lose their travel permits can apply for a temporary electronic permit one, allowing them to board flights and trains within the mainland. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796562_1_20250320122843.jpg&q=90)
@@ -1411,29 +1435,5 @@ China on Tuesday jailed the former boss of state-owned banking giant Everbright 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796277-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796277-20250318.htm)
-
----
-
-# Hong Kong's jobless numbers edge up
-
-![The jobless rate rises were mostly seen in food and beverage, transport, construction and professional and business services, excluding cleaning. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796260_2_20250318175643.jpg&q=85)
-  
-
-Hong Kong's jobless rate has increased slightly as authorities warned about the "uncertainties" caused by US trade protection measures going forward.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm)
 
 ---

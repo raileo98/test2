@@ -1,3 +1,27 @@
+# Indonesia passes controversial military law revisions
+
+![The law's detractors fear the changes will take Indonesia back to the days when military officers dominated civilian affairs. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796583_1_20250320123337.jpg&q=80)
+  
+
+Indonesia's parliament on Thursday passed contentious revisions to the country's military law, which will allocate more civilian posts for military officers, and street protests against the changes are expected to take place.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm)
+
+---
+
 # Canadian farmers fear 'devastating tariffs impact'
 
 ![China has traditionally been one of Canada's biggest export markets for canola, grown on farms in such places as Alberta. File photo: Artur Widak/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796564_1_20250320112443.jpg&q=80)
@@ -1413,29 +1437,5 @@ UK police on Friday again extended the detention of the captain of a cargo ship 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795780-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795780-20250314.htm)
-
----
-
-# Lunar eclipse brings 'bloody' marvellous spectacle
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795743_1_20250314164944.jpg&q=90)
-  
-
-Stargazers across a swathe of the world marvelled at a dramatic red "Blood Moon" during a rare total lunar eclipse in the early hours of Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm)
 
 ---

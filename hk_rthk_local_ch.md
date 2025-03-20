@@ -1,3 +1,27 @@
+# 中銀維持港元最優惠利率於5.25厘不變
+
+![中銀香港宣布，港元最優惠利率維持於5.25厘不變。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796585_1_20250320123618.jpg&q=90)
+  
+
+中銀香港宣布，港元最優惠利率維持於5.25厘不變，戶口結餘在5000元及以上的活期儲蓄存款利率維持於0.25厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796585-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796585-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796585-20250320.htm)
+
+---
+
 # 慢病共治計劃下周五起包括血脂檢查　4月中起增逾20個服務點
 
   
@@ -20,6 +44,7 @@
 
 # 李家超：低空經濟潛力巨大應用場景廣闊　成未來經濟新增長引擎
 
+![李家超參觀部份試點項目的展示區，並與不同展示區的負責人交流。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796580_1_20250320123851.jpg&q=85)
   
 
 行政長官李家超出席低空經濟「監管沙盒」試點項目啟動禮，表示低空經濟是國家戰略性新興產業，亦是發展新質生產力的範例，對香港經濟和社會發展很有幫助和禆益。
@@ -1407,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796408-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796408-20250319.htm)
-
----
-
-# 羅淑佩稱啟德體育園公司已積極找發言人　冀七欖消息發放得更好
-
-![羅淑佩指政府下達要求後，啟德體育園公司已積極尋找發言人，會建立相關制度。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796405_1_20250319141721.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩表示，就啟德體育園啟用初期的情況，已向營運公司管理層表達高度關注，並指示要迅速調整體制，包括優化決策、溝通及處理突發事件機制，亦要求改善員工的敏感度及向外發放信息的安排，包括設立專職發言人，以加強公眾對啟德體育園的認知和信心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796405-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796405-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796405-20250319.htm)
 
 ---
