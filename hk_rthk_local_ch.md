@@ -1,3 +1,26 @@
+# 2月份整體消費物價按年升1.4%　升幅收窄因去年比較基數較高
+
+  
+
+政府統計處公布，2月份整體消費物價按年升1.4%，較1月份的2%升幅為低，升幅收窄主要是由於去年農曆新年在2月份，導致比較基數較高，尤其是食品價格及旅遊費用。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796613-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796613-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796613-20250320.htm)
+
+---
+
 # 仲量聯行：本港2月甲級寫字樓錄正吸納量　整體租金持續下跌
 
 ![截至2月底本港寫字樓空置率保持13.3%，中環空置率升至11.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796609_1_20250320160302.jpg&q=80)
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm)
-
----
-
-# 中國疾控中心稱3月份是諾如病毒流行季節　籲勤洗手注意飲食安全
-
-![常昭瑞又不同意坊間所指，感染過一次諾如病毒後就不會再感染的說法，指感染產生的免疫保護作用持續時間較短，曾感染過的人士，之後仍有可能再次感染。(衛健委圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796439_1_20250319193816.jpg&q=90)
-  
-
-近日本港接連有參加内地交流團的學校師生出現急性腸胃炎徵狀，部分人對諾如病毒呈陽性反應。在北京，中國疾控中心研究員常昭瑞表示，3月份仍是諾如病毒流行季節，病毒可通過食用被污染的食物和水、間接接觸被污染的環境和物體表面等途徑傳播，呼籲勤洗手、注意飲食安全及做好消毒，學校及托兒機構等高風險場所要落實好日常防控措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm)
 
 ---

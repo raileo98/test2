@@ -1,3 +1,26 @@
+# 2月份整體消費物價按年升1.4%　升幅收窄因去年比較基數較高
+
+  
+
+政府統計處公布，2月份整體消費物價按年升1.4%，較1月份的2%升幅為低，升幅收窄主要是由於去年農曆新年在2月份，導致比較基數較高，尤其是食品價格及旅遊費用。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796613-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796613-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796613-20250320.htm)
+
+---
+
 # 仲量聯行：本港2月甲級寫字樓錄正吸納量　整體租金持續下跌
 
 ![截至2月底本港寫字樓空置率保持13.3%，中環空置率升至11.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796609_1_20250320160302.jpg&q=80)
