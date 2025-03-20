@@ -1,3 +1,27 @@
+# 本港多間銀行最優惠利率不變　恒生維持在5.25厘
+
+![美國聯儲局維持利率不變，本港多間銀行跟隨按兵不動，包括恒生。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796599_2_20250320141204.jpg&q=90)
+  
+
+美國聯儲局維持利率不變，本港多間大型銀行跟隨按兵不動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796599-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796599-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796599-20250320.htm)
+
+---
+
 # 王美鳳料下半年港元最優惠利率減0.25厘　並完成減息周期
 
 ![王美鳳預計，美國下半年將重新減息，港元最優惠利率將下調0.25厘並完成減息周期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796591_2_20250320133435.jpg&q=75)
@@ -406,7 +430,7 @@
 
 ---
 
-# 李家超：監管沙盒涵蓋多個領域　讓公眾看得見、摸得到低空經濟
+# 首批監管沙盒項目公布　李家超：讓公眾看得見、摸得到低空經濟
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796560_1_20250320113400.jpg&q=90)
   
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm)
-
----
-
-# 歐力保險顧問公司兩度未能交審計表　被法庭判罰款2.6萬元
-
-![被告違反《保險業條例》，在東區裁判法院被定罪，判處罰款26060元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796424_1_20250319161454.jpg&q=75)
-  
-
-保險業監管局作出首宗刑事檢控，持牌經紀公司歐力保險顧問有限公司因兩度未能在財政年度結束後6個月內，向保險業監管局提交經審計財務報表，違反《保險業條例》，在東區裁判法院被定罪，判處罰款26060元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796424-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796424-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796424-20250319.htm)
 
 ---
