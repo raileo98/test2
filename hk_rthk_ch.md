@@ -1,3 +1,27 @@
+# 香港航空杭州往香港航班因行李架起火轉飛福州安全降落
+
+![香港航空杭州往香港航班，因為行李架起火轉飛福州。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796606_1_20250320154103.jpg&q=90)
+  
+
+香港航空一架由杭州飛往香港的HX115航班，今日因行李架起火而改道，並安全降落於福州長樂國際機場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796606-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796606-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796606-20250320.htm)
+
+---
+
 # 滬股低收0.5%　險守3400點　創業板指數跌1%
 
 ![上證指數險守3400點水平，收報3408點，跌17點，跌幅0.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796604_1_20250320150420.jpg&q=90)

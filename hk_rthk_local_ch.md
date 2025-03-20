@@ -1,3 +1,27 @@
+# 香港航空杭州往香港航班因行李架起火轉飛福州安全降落
+
+![香港航空杭州往香港航班，因為行李架起火轉飛福州。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796606_1_20250320154103.jpg&q=90)
+  
+
+香港航空一架由杭州飛往香港的HX115航班，今日因行李架起火而改道，並安全降落於福州長樂國際機場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796606-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796606-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796606-20250320.htm)
+
+---
+
 # 港股跌幅一度擴大至逾500點　科指跌約3%
 
 ![恒生指數一度跌逾500點，較早時報24303點，跌467點，跌幅約1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796603_1_20250320144934.jpg&q=15)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796435-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796435-20250319.htm)
-
----
-
-# 海洋公園登山纜車及山上高峰樂園恢復運作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796429_1_20250319165516.jpg&q=40)
-  
-
-海洋公園在網站表示，早前一度暫停服務的登山纜車及山上高峰樂園，已於下午4時15分恢復運作，園方感謝受影響訪客的體諒。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796429-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796429-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796429-20250319.htm)
 
 ---

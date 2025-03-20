@@ -70,6 +70,30 @@ Chile said on Wednesday it was reviewing an agreement for the construction of a 
 
 ---
 
+# Malaysia agrees terms for resumption of MH370 search
+
+![Very little of the doomed Malaysian Airlines plane has ever been found. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796487_1_20250319224244.jpg&q=90)
+  
+
+Malaysia has agreed to the terms and conditions of an agreement with exploration firm Ocean Infinity to resume the search for the wreckage of the missing Malaysia Airlines flight MH370, its transport minister said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm)
+
+---
+
 # 'Stable China-US trade ties benefit global firms'
 
 ![Wang Shouwen holds talks with Ramon Laguarta in Beijing. Photo courtesy of Commerce Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796422_1_20250319154955.jpg&q=90)
@@ -1412,29 +1436,5 @@ President Xi Jinping on Thursday underscored the role of education in advancing 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794640-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794640-20250307.htm)
-
----
-
-# Visit GBA for National Games: Guangdong governor
-
-![Guangdong deputies to the National People's Congress hold a plenary meeting in Beijing. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794598_1_20250306183409.jpg&q=90)
-  
-
-A senior Guangdong official on Thursday said the province will work closely with Hong Kong and Macau to host the National Games this year, and strengthen technological cooperation to build a world-class Greater Bay Area.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794598-20250306.htm)
 
 ---
