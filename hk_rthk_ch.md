@@ -1,3 +1,120 @@
+# 羅淑佩：啟德桌球賽逐客事件低級錯誤　非罪無可恕須經一事長一智
+
+  
+
+啟德體育園開幕以來先後發生桌球賽「逐客風波」以及無票者「後門入場」事件。文化體育及旅遊局長羅淑佩接受《明報》專訪時形容是「低級錯誤」，她認為事件是由於賽事主辦方與園方的溝通「唔係好對到嘴」，但並非「罪無可恕」，只要事前有良好應變計劃就可避免重蹈覆轍，最重要是「經一事長一智」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm)
+
+---
+
+# 恒指一度跌逾400點　騰訊及平保績後股價受壓
+
+![恒指較早時報24498點，跌272點，跌幅逾1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796550_1_20250320102340.jpg&q=10)
+  
+
+港股向下，恒指曾低見24344點，跌逾400點，其後收復部分失地，較早時報24498點，跌272點，跌幅逾1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796550-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796550-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796550-20250320.htm)
+
+---
+
+# 醫健通修例　林永和稱私家醫生未能上載資或涉系統更新問題
+
+  
+
+政府建議修訂醫健通使用機制，除精簡同意上載病人資料的程序外，亦賦權醫務衞生局局長可要求醫護，包括私營機構，必須將重要電子健康紀錄，存放至市民的醫健通戶口。如不遵從，可被定額罰款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796549-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796549-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796549-20250320.htm)
+
+---
+
+# 習近平到雲南省麗江考察調研
+
+![習近平到雲南省麗江考察調研。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796548_1_20250320101958.jpg&q=75)
+  
+
+中共總書記習近平昨日下午在雲南省麗江考察調研。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796548-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796548-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796548-20250320.htm)
+
+---
+
+# 臨時通行證有效7天　在內地可用於民航及鐵路安檢乘機乘車
+
+  
+
+國家出入境管理局表示，港澳台居民如果遇到遺失損毀或忘記攜帶通行證等突發情況，但急需乘搭飛機、火車，即日起可以申請臨時通行證。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796547-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796547-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796547-20250320.htm)
+
+---
+
 # 梵蒂岡：方濟各病情持續改善　晚上毋須使用呼吸機
 
 ![88歲的方濟各因肺炎留醫近5個星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796545_1_20250320100512.jpg&q=90)
@@ -24,6 +141,7 @@
 
 # 醫健通修例　醫衞局稱私營醫護上載紀錄未夠積極冀透過修訂推進
 
+![許澤森指，六成閱覽者都是私營醫護，但上載醫療紀錄的卻九成九來自公營醫護系統，認為私營醫護在這方面或未夠積極。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796544_1_20250320103011.jpg&q=90)
   
 
 政府建議修例，精簡市民同意醫護將病人資料上載至醫健通戶口的機制，日後只要市民按下系統中的「參與同意」，便等於同意公私營醫護將健康資料存入戶口，毋須再逐次處理。修例亦賦權醫務衞生局局長可要求包括私營機構，必須將重要電子健康紀錄，上載至市民的醫健通戶口。
@@ -1316,125 +1434,5 @@ Nvidia首席執行官黃仁勳表示，公司沒有收到關於收購英特爾�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796475-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796475-20250319.htm)
-
----
-
-# 教育局稱設專責小組全面檢視交流團安排　保障活動質量及師生安全
-
-![教育局表示，在組織交流考察活動時，必以安全為首要考慮。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796474_1_20250319201646.jpg&q=90)
-  
-
-教育局表示，在組織交流考察活動時，必以安全為首要考慮，所以出發前會安排學校簡介會和提供詳盡的指引，若遇到事故，亦會立即嚴肅跟進和處理。局方以近日的交流團出現腸胃炎徵狀事件舉例，指教育局已立刻聯繋衞生防護中心及內地相關部門密切跟進，並深入調查，雖然病源尚未核實，教育局為優化行程安排亦成立學生內地考察專責小組，直接與各內地部門單位保持密切溝通聯繫，全面檢視現時交流團的安排，保障交流團活動質量及師生安全。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796474-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796474-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796474-20250319.htm)
-
----
-
-# 平保去年盈利升近48%　壽險及健康險利潤跌約2%
-
-![平安保險去年盈利1266.1億元人民幣，按年增長近48%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796460_1_20250319182900.jpg&q=90)
-  
-
-平安保險去年盈利1266.1億元人民幣，按年增長近48%。派末期息每股1.62元；全年派息2.55元，按年升5%。以營運利潤計，派息比率37.9%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796460-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796460-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796460-20250319.htm)
-
----
-
-# 澤連斯基稱將與特朗普通話　指責俄羅斯對烏克蘭發動新一輪攻擊
-
-![澤連斯基說，稍後將同美國總統特朗普通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796473_1_20250319195840.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基指責俄羅斯對烏克蘭發動新一輪攻擊，認為俄羅斯總統普京的言論與現實嚴重不符。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm)
-
----
-
-# 公務員學院辦「習近平文化思想」講座　約160名政府中高層出席
-
-![公務員學院在政府總部舉辦「習近平文化思想」講座。圖示國家行政學院副院長李文堂主講。(政府新聞處圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796472_1_20250319195203.jpg&q=90)
-  
-
-公務員學院在政府總部舉辦「習近平文化思想」講座，由國家行政學院副院長李文堂主講，有約160名政治委任官員、首長級和中高級公務員出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796472-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796472-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796472-20250319.htm)
-
----
-
-# 科大廣州創校校長稱第三所醫學院計劃書包含與很多內地醫學院合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796471_2_20250319200428.jpg&q=90)
-  
-
-三所大學正爭取籌建本港第三間醫學院，當中包括香港科技大學。香港科技大學（廣州）創校校長倪明選表示，全力支持港科大辦第三所醫學院，已提交政府的計劃書包含與內地很多醫學院的合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm)
 
 ---

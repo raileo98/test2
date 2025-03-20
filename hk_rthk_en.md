@@ -1,3 +1,27 @@
+# White House attacks courts for 'usurping' powers
+
+![Karoline Leavitt in a press briefing at the White House. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796546_1_20250320101240.jpg&q=90)
+  
+
+The White House accused judges of "usurping" executive power in its latest broadside against federal courts whose rulings have gone against President Donald Trump's administration.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm)
+
+---
+
 # Trump to sign order to dismantle Education Department
 
 ![A protester stands near the US Department of Education headquarters after the agency said it would lay off nearly half its staff. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796539_1_20250320092913.jpg&q=90)
@@ -1411,29 +1435,5 @@ The foreign ministers of South Korea, China and Japan will hold a meeting in Tok
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm)
-
----
-
-# Vaping devices ban sought to stop space oil drug use
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796211_1_20250318120907.jpg&q=90)
-  
-
-The chairman of the Hong Kong Council on Smoking and Health on Tuesday called on the government to ban the possession of e-cigarettes devices.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796211-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796211-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796211-20250318.htm)
 
 ---

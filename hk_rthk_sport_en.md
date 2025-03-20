@@ -1,3 +1,27 @@
+# Kyrgios wins first match since 2022
+
+![Nick Kyrgios hits a running shot against Mackenzie McDonald in Miami Open action at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796553_1_20250320103836.jpg&q=90)
+  
+
+Australian Nick Kyrgios came from behind to defeat Mackenzie McDonald 3-6 6-3 6-4 in the first round of the Miami Open to earn his first win since October 2022.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm)
+
+---
+
 # Edinburgh to host start of 2027 Tour de France
 
 ![The Red Bull–BORA–hansgrohe team at the 2024 Tour de France. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796524_1_20250320071819.jpg&q=90)
@@ -1419,30 +1443,5 @@ Donovan Mitchell scored 26 points as the Cleveland Cavaliers punched their ticke
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794516-20250306.htm)
-
----
-
-# Liverpool stun PSG in Champions League; Barca cruise
-
-![Liverpool's Harvey Elliott and goalkeeper Alisson embrace as they celebrate their side's 1-0 victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_1_20250306071920.jpg&q=90)
-![Raphinha's goal in the 61st minute proved to be the winner for Barcelona. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794478_2_20250306071920.jpg&q=90)
-  
-
-Liverpool snatched a late winner to beat Paris Saint-Germain away 1-0 in the first leg of their heavyweight Champions League last-16 tie, as Barcelona claimed a 1-0 win at Benfica despite the Catalan giants playing most of the game with 10 men.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794478-20250306.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 習近平到雲南省麗江考察調研
+
+![習近平到雲南省麗江考察調研。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796548_1_20250320101958.jpg&q=75)
+  
+
+中共總書記習近平昨日下午在雲南省麗江考察調研。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796548-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796548-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796548-20250320.htm)
+
+---
+
+# 臨時通行證有效7天　在內地可用於民航及鐵路安檢乘機乘車
+
+  
+
+國家出入境管理局表示，港澳台居民如果遇到遺失損毀或忘記攜帶通行證等突發情況，但急需乘搭飛機、火車，即日起可以申請臨時通行證。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796547-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796547-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796547-20250320.htm)
+
+---
+
 # 港澳台居民即日起可網上辦理電子臨時通行證
 
 ![內地出入境管理局即日起實施兩項便利港澳台居民措施。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796536_1_20250320094625.jpg&q=85)
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm)
-
----
-
-# 國家統計局：新屋銷售基本穩定　但部分地區樓市仍在調整
-
-![國家統計局表示，新屋銷售基本穩定，一線城市樓價有所回穩，但部分地區樓市仍處於調整，市場回穩仍存在壓力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796034_1_20250317123519.jpg&q=90)
-  
-
-內地今年首兩個月新建商品房銷售面積及銷售額按年跌幅，分別大幅收窄至5.1%和2.6%，扭轉去年全年的雙位數跌幅；兩者去年同期的跌幅都超過兩成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796034-20250317.htm)
-
----
-
-# 內地首兩個月主要經濟數據符合或好過市場預期
-
-![內地今年首兩個月主要經濟數據符合或好於市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796030_2_20250317123810.jpg&q=90)
-  
-
-內地今年首兩個月主要經濟數據符合或好於市場預期，新建商品房銷售按年跌幅亦顯著收窄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796030-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796030-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796030-20250317.htm)
 
 ---

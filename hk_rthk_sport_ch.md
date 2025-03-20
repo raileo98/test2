@@ -1,3 +1,26 @@
+# 羅淑佩：啟德桌球賽逐客事件低級錯誤　非罪無可恕須經一事長一智
+
+  
+
+啟德體育園開幕以來先後發生桌球賽「逐客風波」以及無票者「後門入場」事件。文化體育及旅遊局長羅淑佩接受《明報》專訪時形容是「低級錯誤」，她認為事件是由於賽事主辦方與園方的溝通「唔係好對到嘴」，但並非「罪無可恕」，只要事前有良好應變計劃就可避免重蹈覆轍，最重要是「經一事長一智」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm)
+
+---
+
 # 歐國聯率領法國撼克羅地亞　麥巴比：為國家取勝最重要
 
 ![麥巴比在賽前記者會自我批評，承認上仗表現不好。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796522_1_20250320071427.jpg&q=90)
@@ -1428,29 +1451,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794320-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794320-20250305.htm)
-
----
-
-# 全國兩會｜辦好全運會和世界運動會　開展全民健身運動
-
-![報告提到要辦好第十五屆全國運動會和第十二屆世界運動會。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794315_1_20250305103449.jpg&q=90)
-  
-
-在北京，國務院總理李強發表政府工作報告，報告提到要辦好第十五屆全國運動會和第十二屆世界運動會，積極發展冰雪運動和冰雪經濟，推進群眾身邊的運動場地設施建設，廣泛開展全民健身運動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794315-20250305.htm)
 
 ---

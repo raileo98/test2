@@ -1,5 +1,75 @@
+# 羅淑佩：啟德桌球賽逐客事件低級錯誤　非罪無可恕須經一事長一智
+
+  
+
+啟德體育園開幕以來先後發生桌球賽「逐客風波」以及無票者「後門入場」事件。文化體育及旅遊局長羅淑佩接受《明報》專訪時形容是「低級錯誤」，她認為事件是由於賽事主辦方與園方的溝通「唔係好對到嘴」，但並非「罪無可恕」，只要事前有良好應變計劃就可避免重蹈覆轍，最重要是「經一事長一智」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm)
+
+---
+
+# 醫健通修例　林永和稱私家醫生未能上載資或涉系統更新問題
+
+  
+
+政府建議修訂醫健通使用機制，除精簡同意上載病人資料的程序外，亦賦權醫務衞生局局長可要求醫護，包括私營機構，必須將重要電子健康紀錄，存放至市民的醫健通戶口。如不遵從，可被定額罰款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796549-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796549-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796549-20250320.htm)
+
+---
+
+# 臨時通行證有效7天　在內地可用於民航及鐵路安檢乘機乘車
+
+  
+
+國家出入境管理局表示，港澳台居民如果遇到遺失損毀或忘記攜帶通行證等突發情況，但急需乘搭飛機、火車，即日起可以申請臨時通行證。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796547-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796547-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796547-20250320.htm)
+
+---
+
 # 醫健通修例　醫衞局稱私營醫護上載紀錄未夠積極冀透過修訂推進
 
+![許澤森指，六成閱覽者都是私營醫護，但上載醫療紀錄的卻九成九來自公營醫護系統，認為私營醫護在這方面或未夠積極。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796544_1_20250320103011.jpg&q=90)
   
 
 政府建議修例，精簡市民同意醫護將病人資料上載至醫健通戶口的機制，日後只要市民按下系統中的「參與同意」，便等於同意公私營醫護將健康資料存入戶口，毋須再逐次處理。修例亦賦權醫務衞生局局長可要求包括私營機構，必須將重要電子健康紀錄，上載至市民的醫健通戶口。
@@ -1365,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm)
-
----
-
-# 姚柏良：增離境稅對航空業復蘇造成障礙　冀當局三思
-
-![姚柏良認為，大幅增加機場離境稅，會對航空業務的復蘇造成障礙，希望當局三思。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796378_1_20250319111627.jpg&q=90)
-  
-
-《財政預算案》提出，將每名飛機乘客的離境稅由120元加至200元，立法會今日首讀及二讀相關修例草案。立法會旅遊界議員姚柏良表示，在本港的航點航班還沒有完全恢復的情況下，便大幅增加機場離境稅，會對航空業務的復蘇造成障礙，希望當局三思。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796378-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796378-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796378-20250319.htm)
-
----
-
-# 麥美娟：「聯廈聯管」助三無大廈業主更好保養和管理物業
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796376_1_20250319112143.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟表示，推出為期一年的「聯廈聯管」試驗計劃是希望為「三無大廈」業主提供一條龍服務，協助他們成立業主立案法團，以及尋找專業物管公司，協助更好保養和管理自己的物業。她說在物業管理問題上，政府角色是為業主提供支援，最重要始終是業主要覺醒，做好自己物業資產管理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796376-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796376-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796376-20250319.htm)
-
----
-
-# 食安中心指從膳食攝入T-2、HT-2和4,15-毒素機會不大
-
-![食物安全中心公布有關食物中T-2毒素、HT-2毒素和4,15-二乙酰藨草鐮刀烯醇的風險評估研究。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796375_1_20250319105447.jpg&q=90)
-  
-
-食物安全中心公布有關食物中T-2毒素、HT-2毒素和4,15-二乙酰藨草鐮刀烯醇的風險評估研究。研究結果顯示，本港成年人和較年輕群組，從膳食中攝入這些霉菌毒素而影響健康的機會不大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796375-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796375-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796375-20250319.htm)
 
 ---

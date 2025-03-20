@@ -1,3 +1,27 @@
+# White House attacks courts for 'usurping' powers
+
+![Karoline Leavitt in a press briefing at the White House. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796546_1_20250320101240.jpg&q=90)
+  
+
+The White House accused judges of "usurping" executive power in its latest broadside against federal courts whose rulings have gone against President Donald Trump's administration.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm)
+
+---
+
 # Trump to sign order to dismantle Education Department
 
 ![A protester stands near the US Department of Education headquarters after the agency said it would lay off nearly half its staff. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796539_1_20250320092913.jpg&q=90)
@@ -1413,29 +1437,5 @@ An American Airlines plane caught fire after landing at Denver International Air
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm)
-
----
-
-# Japanese duo pay for Great Wall buttocks 'prank'
-
-![The two Japanese were caught soon after their stunt at the Great Wall. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795690_1_20250314111711.jpg&q=90)
-  
-
-Two Japanese tourists in their 20s were detained for two weeks in China then deported for taking photos showing exposed buttocks at the Great Wall, local media reported.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm)
 
 ---
