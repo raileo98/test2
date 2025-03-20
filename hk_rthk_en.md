@@ -148,7 +148,7 @@ Drones will be tasked with carrying out services ranging from power line inspect
 
 # HK Airlines flight diverts to Fuzhou after cabin fire
 
-![Passengers on board the flight shared videos and photos on social media, showing cabin crew and passengers pouring bottles of water into a charred overhead compartment. Photo: Xiaohongshu](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796611_1_20250320162509.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796611_1_20250320162509.jpg&q=90)
   
 
 A Hong Kong Airlines flight was forced to make an emergency landing in Fuzhou after a fire broke out in the cabin on Thursday afternoon.

@@ -1,3 +1,51 @@
+# 涉參與暴動後移居日本　27歲男子回港探親被捕暴動罪囚45個月
+
+![被告承認一項暴動罪，在區域法院被判監禁45個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796643_1_20250320181325.jpg&q=80)
+  
+
+一名27歲男子涉嫌於2019年8月31日在灣仔參與暴動，他其後離港移居日本，2023年回港探親時被捕。他上星期承認一項暴動罪，今日在區域法院被判監禁45個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796643-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796643-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796643-20250320.htm)
+
+---
+
+# 元朗洪水橋兩地延至7月截標　象徵式租金租10年取代無償轉讓
+
+![發展局說，是次調整招標條款，正是政府因應市場意見從善如流的例子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796641_1_20250320181044.jpg&q=90)
+  
+
+政府公布，現正招標、分別位於洪水橋及元朗的兩幅多層現代產業大樓用地，將修訂招標條款，並延長招標期限至今年7月25日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm)
+
+---
+
 # 全球金融中心指數香港排第三　政府：彰顯作為國際金融中心實力
 
 ![許正宇在社交平台表示，香港在最新一期指數中穩居全球前三，充分彰顯作為國際金融中心的實力與優勢。（財庫局社交平台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796638_1_20250320175935.jpg&q=90)

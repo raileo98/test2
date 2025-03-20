@@ -1,3 +1,51 @@
+# 涉參與暴動後移居日本　27歲男子回港探親被捕暴動罪囚45個月
+
+![被告承認一項暴動罪，在區域法院被判監禁45個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796643_1_20250320181325.jpg&q=80)
+  
+
+一名27歲男子涉嫌於2019年8月31日在灣仔參與暴動，他其後離港移居日本，2023年回港探親時被捕。他上星期承認一項暴動罪，今日在區域法院被判監禁45個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796643-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796643-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796643-20250320.htm)
+
+---
+
+# 元朗洪水橋兩地延至7月截標　象徵式租金租10年取代無償轉讓
+
+![發展局說，是次調整招標條款，正是政府因應市場意見從善如流的例子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796641_1_20250320181044.jpg&q=90)
+  
+
+政府公布，現正招標、分別位於洪水橋及元朗的兩幅多層現代產業大樓用地，將修訂招標條款，並延長招標期限至今年7月25日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm)
+
+---
+
 # 全球金融中心指數香港排第三　政府：彰顯作為國際金融中心實力
 
 ![許正宇在社交平台表示，香港在最新一期指數中穩居全球前三，充分彰顯作為國際金融中心的實力與優勢。（財庫局社交平台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796638_1_20250320175935.jpg&q=90)
@@ -1398,53 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm)
-
----
-
-# 政府擬修例規定醫療機構須將重要健康紀錄存放至市民醫健通戶口
-
-![當局又建議擴展更多專業人員可使用醫健通，包括臨床心理學家。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796464_1_20250319184336.jpg&q=90)
-  
-
-政府建議，修訂「醫健通」使用機制，包括賦權醫務衞生局局長可要求指明醫護，包括私營機構，必須將重要電子健康紀錄，例如病人敏感及藥物不良反應、化驗及放射報告等，存放至市民的醫健通戶口。如果不遵從，可被定額罰款。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796464-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796464-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796464-20250319.htm)
-
----
-
-# 林大輝：新醫學院搬入牛潭尾校區前　理大可負擔所有財政開支
-
-![林大輝強調理大是肯承擔的大學，願意同政府投資未來、教育和醫療。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796462_1_20250319192157.jpg&q=85)
-  
-
-本港三間大學正分別爭取負責籌建第三間醫學院。其中理工大學表示，充滿信心可迎接此項重任。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm)
 
 ---
