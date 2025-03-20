@@ -1,3 +1,26 @@
+# 羅淑佩對填詞人盧國沾辭世表示哀悼　形容是香港文化界重大損失
+
+  
+
+文化體育及旅遊局局長羅淑佩對香港著名填詞人盧國沾辭世表示哀悼，並向他的家人致以深切慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796608-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796608-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796608-20250320.htm)
+
+---
+
 # 香港航空杭州往香港航班因行李架起火轉飛福州安全降落
 
 ![香港航空杭州往香港航班，因為行李架起火轉飛福州。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796606_1_20250320154103.jpg&q=90)

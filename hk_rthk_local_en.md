@@ -72,7 +72,7 @@ Chief Executive John Lee on Thursday said the low-altitude economy will be a new
 
 # Temporary e-permit to assist HKers on the mainland
 
-![HKers who lose their travel permits can apply for a temporary electronic permit one, allowing them to board flights and trains within the mainland. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796562_1_20250320122843.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796562_1_20250320122843.jpg&q=90)
   
 
 Hongkongers who are travelling and living in mainland China can now apply for a temporary digital permit to travel by air and train within mainland cities if they lose, damage, or forget their permit.

@@ -1,3 +1,26 @@
+# 羅淑佩對填詞人盧國沾辭世表示哀悼　形容是香港文化界重大損失
+
+  
+
+文化體育及旅遊局局長羅淑佩對香港著名填詞人盧國沾辭世表示哀悼，並向他的家人致以深切慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796608-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796608-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796608-20250320.htm)
+
+---
+
 # 香港航空杭州往香港航班因行李架起火轉飛福州安全降落
 
 ![香港航空杭州往香港航班，因為行李架起火轉飛福州。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796606_1_20250320154103.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796438-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796438-20250319.htm)
-
----
-
-# 許正宇稱增離境稅將為政府帶來16億元收入但對乘客影響輕微
-
-![許正宇表示，飛機乘客離境稅由120元增至200元，增幅對飛機乘客整體出行成本影響十分輕微。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796435_1_20250319165449.jpg&q=90)
-  
-
-財經事務及庫務局局長許正宇在立法會動議二讀多項與財政預算案相關的修例草案，包括修訂印花稅條例、稅務寬免條例、飛機乘客離境稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796435-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796435-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796435-20250319.htm)
 
 ---
