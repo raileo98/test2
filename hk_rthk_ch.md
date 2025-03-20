@@ -1,3 +1,27 @@
+# 現貨金破頂後回落
+
+![現貨金破頂後回落，一度高見3057.21美元再創歷史新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796709_1_20250321073319.jpg&q=90)
+  
+
+現貨金破頂後回落，一度高見3057.21美元再創歷史新高，受到避險需求支持，其後回軟，較早時報3044.41美元，跌幅約0.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796709-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796709-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796709-20250321.htm)
+
+---
+
 # 歐國聯8強西班牙逼和荷蘭　德國反勝意大利　法國葡萄牙均敗陣
 
 ![美連奴93分鐘取得入球，協助西班牙逼和荷蘭。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796708_1_20250321071009.jpg&q=75)
@@ -6,7 +30,7 @@
 ![有基斯坦奴朗拿度壓陣的葡萄牙同樣吃敗仗。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796708_4_20250321071009.jpg&q=90)
   
 
-歐國聯8強首回合，多支傳統勁於對碰，西班牙逼和荷蘭2:2，德國反勝意大利2:1，但法國和葡萄牙就分別被落敗。
+歐國聯8強首回合，多支傳統勁旅對碰，西班牙逼和荷蘭2:2，德國反勝意大利2:1，但法國和葡萄牙就分別落敗。
 
   
 
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm)
-
----
-
-# 全球金融中心指數香港排第三　政府：彰顯作為國際金融中心實力
-
-![《全球金融中心指數》報告，香港的整體評分上升11分至760分。政府表示，報告充分肯定香港作為國際金融中心的領先地位與實力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796638_1_20250320190827.jpg&q=85)
-  
-
-英國Z/Yen集團與中國（深圳）綜合開發研究院公布的《全球金融中心指數》報告，香港的整體評分上升11分至760分，與首位的評分差距略為收窄，總排名維持全球第三位，並在亞太區繼續居首。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm)
 
 ---

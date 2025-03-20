@@ -1,3 +1,27 @@
+# 現貨金破頂後回落
+
+![現貨金破頂後回落，一度高見3057.21美元再創歷史新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796709_1_20250321073319.jpg&q=90)
+  
+
+現貨金破頂後回落，一度高見3057.21美元再創歷史新高，受到避險需求支持，其後回軟，較早時報3044.41美元，跌幅約0.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796709-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796709-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796709-20250321.htm)
+
+---
+
 # 港股美國預託證券普遍較本港收市下跌
 
 ![滙控ADR較本港收市跌約0.3%，友邦跌約0.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796705_1_20250321061333.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796576-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796576-20250320.htm)
-
----
-
-# 陳茂波前赴北京將出席中國發展高層論壇　與中央部委討論加強合作
-
-![陳茂波傍晚啟程到北京訪問，稍後會出席中國發展高層論壇。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796574_1_20250320123054.jpg&q=90)
-  
-
-財政司司長陳茂波傍晚啟程到北京訪問，稍後會出席中國發展高層論壇，並在其中一場專題研討會發言。他亦會與相關的中央部委和機構人員會面和討論加強合作，並到訪企業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm)
 
 ---
