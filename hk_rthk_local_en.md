@@ -1,3 +1,27 @@
+# HK ranked Asia's top financial centre, third globally
+
+![Hong Kong retains its spot as Asia's top financial centre, having only reclaimed it from Singapore in September 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796664_1_20250320203327.jpg&q=90)
+  
+
+Hong Kong remains Asia's top financial hub, and third in the world behind New York and London, according to a half-yearly index of global financial centres.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm)
+
+---
+
 # Drone trials to provide diverse services in Hong Kong
 
 ![People attend the launch event for the Low-altitude Economy Regulatory Sandbox. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_5_20250320164211.jpg&q=80)
@@ -1415,29 +1439,5 @@ The Consumer Council has so far received 12 complaints involving around HK$5,000
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm)
-
----
-
-# 'Provide mental health support to students early'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795855_1_20250315154300.jpg&q=90)
-  
-
-Executive Councillor Lam Ching-choi sounded the alarm on youth mental health in Hong Kong on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795855-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795855-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795855-20250315.htm)
 
 ---
