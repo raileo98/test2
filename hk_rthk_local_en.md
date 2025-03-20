@@ -48,7 +48,7 @@ Healthcare officials said on Thursday that patients should not get to pick the m
 
 # Low-altitude economy a new growth engine: CE
 
-![Chief Executive John Lee visits a booth showcasing the use of drones for deliveries. Photo courtesy of John Lee's social media page](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796579_1_20250320122305.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796579_1_20250320122305.jpg&q=85)
   
 
 Chief Executive John Lee on Thursday said the low-altitude economy will be a new growth engine, with a trial programme on drone operations set to help such activities take off and "fly steadily and far".
