@@ -1,3 +1,30 @@
+# 歐國聯8強西班牙逼和荷蘭　德國反勝意大利　法國葡萄牙均敗陣
+
+![美連奴93分鐘取得入球，協助西班牙逼和荷蘭。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796708_1_20250321071009.jpg&q=75)
+![德國反勝意大利。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796708_2_20250321071009.jpg&q=85)
+![克羅地亞兩球淨勝法國。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796708_3_20250321071009.jpg&q=90)
+![有基斯坦奴朗拿度壓陣的葡萄牙同樣吃敗仗。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796708_4_20250321071009.jpg&q=90)
+  
+
+歐國聯8強首回合，多支傳統勁於對碰，西班牙逼和荷蘭2:2，德國反勝意大利2:1，但法國和葡萄牙就分別被落敗。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796708-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796708-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796708-20250321.htm)
+
+---
+
 # 考文垂當選國際奧委會主席　是首名非洲人及女性擔任此職位
 
 ![考文垂將在6月接替巴赫，成為首位女性及來自非洲的國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796707_1_20250321063949.jpg&q=90)
@@ -1410,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm)
-
----
-
-# 外交部：經貿分歧應透過對話協商解決而非讓全球經濟承擔代價
-
-![毛寧說，無論外部環境如何變化，中方將堅持對外開放，與世界各國共同發展，互利共贏。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796637_1_20250320175602.jpg&q=90)
-  
-
-經濟合作暨發展組織最新發布的中期經濟展望報告下調全球的經濟增長預期，認為一些國家近期採取的貿易壁壘措施將影響世界經濟的增速，導致通脹上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm)
 
 ---
