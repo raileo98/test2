@@ -1,3 +1,51 @@
+# 證監會暫時吊銷一名金融網紅牌照16個月
+
+![證監會稱投資者利用金融網紅分享的資訊時，應保持警覺和謹慎行事。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796675_1_20250320215637.jpg&q=80)
+  
+
+證監會暫時吊銷黃明忠牌照16個月，由本周三至明年7月18日。證監會說，黃明忠是名為Franky Wong的金融網紅，亦是謝氏膺暉證券持牌代表，早前被裁定未領有牌照而在Telegram建立及管理一個接受訂閱的聊天群組並提供投資意見，刑事罪名成立。證監會認為他並非繼續獲發牌進行受規管活動適當人選。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796675-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796675-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796675-20250320.htm)
+
+---
+
+# 美國2月二手樓銷售按月升4.2%
+
+![美國2月二手房屋銷售按月上升4.2%，以年率計達到426萬間，多過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796680_1_20250320224340.jpg&q=50)
+  
+
+美國2月二手房屋銷售按月上升4.2%，以年率計達到426萬間，多過市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796680-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796680-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796680-20250320.htm)
+
+---
+
 # 深水埗有大廈梯間雜物起火　４人吸入濃煙送院約100人疏散
 
   
@@ -406,6 +454,7 @@
 
 # 習近平到雲南考察　強調在中國式現代化進程中開創雲南發展新局面
 
+![習近平到麗江古城考察，了解商舖的經營狀況。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796660_1_20250320225330.jpg&q=75)
   
 
 中共總書記習近平在雲南考察時強調，雲南要認真落實黨中央關於西部大開發和長江經濟帶發展的戰略部署，完整準確全面貫徹新發展理念，堅持穩中求進工作總基調，著力推動高質量發展，解放思想、改革創新，奮發進取、真抓實幹，在中國式現代化進程中開創雲南發展新局面。
