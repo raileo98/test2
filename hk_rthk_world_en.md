@@ -51,7 +51,7 @@ Ex-Formula 1 team owner and media personality Eddie Jordan has died, according t
 ![Relatives of passengers on board the missing MH370 leave after taking part in a demonstration outside the Malaysian embassy in Beijing on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796601_1_20250320142559.jpg&q=75)
   
 
-Malaysia’s government has given final approval for a Texas-based marine robotics company to renew the search for Malaysia Airlines Flight 370, which is believed to have crashed in the southern Indian Ocean more than a decade ago.
+Malaysia’s government has given final approval for a Texas-based marine robotics company to renew the search for Malaysia Airlines flight 370, which is believed to have crashed in the southern Indian Ocean more than a decade ago.
 
   
 
