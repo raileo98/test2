@@ -1,3 +1,51 @@
+# 港股下午初段跌逾1%　吉利汽車績後靠穩
+
+![恒生指數較早時報24486點，跌284點，跌幅1.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796589_1_20250320130332.jpg&q=90)
+  
+
+港股下午初段持續偏軟，恒生指數較早時報24486點，跌284點，跌幅1.15%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796589-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796589-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796589-20250320.htm)
+
+---
+
+# 吉利汽車去年盈利升2.1倍　撇除一次性因素盈利升52%
+
+![吉利汽車將今年銷量目標定於271萬輛，按年升約25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796584_1_20250320123410.jpg&q=90)
+  
+
+吉利汽車去年盈利166.3億元人民幣，按年急升2.1倍。派末期息每股0.33港元，按年升50%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796584-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796584-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796584-20250320.htm)
+
+---
+
 # 渣打香港：港元最優惠貸款利率維持5.5厘
 
 ![渣打香港表示，港元最優惠貸款利率維持於5.5厘。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796588_1_20250320125149.jpg&q=90)
@@ -73,6 +121,9 @@
 # 慢病共治計劃下周五起包括血脂檢查　4月中起增逾20個服務點
 
   
+
+醫務衞生局公布「慢性疾病共同治理先導計劃」由3月28日起，擴展至提供血脂檢查。此外，由4月15日起，全港亦會增設超過20個服務點，為沒有參加「慢病共治計劃」的康健中心會員，提供包括個人化慢性疾病管理、痛症管理及復康等服務。
+
   
 
 
