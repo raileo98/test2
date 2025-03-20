@@ -1,3 +1,27 @@
+# 謝展寰在北京到訪國家海關總署及國家生態環境部等機構
+
+![謝展寰展參觀中國農業科學院的蔬菜花卉研究所溫室。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796681_1_20250320231718.jpg&q=70)
+  
+
+環境及生態局局長謝展寰展開北京訪問行程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm)
+
+---
+
 # 李家超：港珠澳大橋去年客流車流按年增七成　推進粵港「硬聯通」
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796670_1_20250320213054.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796125-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796125-20250317.htm)
-
----
-
-# 丘應樺冀「香港研發+東莞轉化」領域會有更多合作項目
-
-![丘應樺表示，香港與東莞兩地同處粵港澳大灣區的核心地帶，地緣相近、人文相親，港莞兩地一直合作無間，成果非常顯著。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796113_1_20250317223603.jpg&q=80)
-  
-
-商務及經濟發展局局長丘應樺出席莞港產業合作交流會致辭時表示，香港與東莞兩地同處粵港澳大灣區的核心地帶，地緣相近、人文相親，港莞兩地一直合作無間，成果非常顯著。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796113-20250317.htm)
 
 ---

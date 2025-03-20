@@ -1,3 +1,51 @@
+# 調查：近4成受訪僱主指曾因外傭借貸遭受追債滋擾
+
+![民建聯上月以問卷訪問超過240名外傭僱主，近4成僱主指曾因外傭借貸遭受追債滋擾。(伍榮笙攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796682_1_20250320231504.jpg&q=90)
+  
+
+有調查發現，過半數受訪外傭僱主曾向外傭提供直接借款，約3成半僱主指外傭曾向財務機構借貸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm)
+
+---
+
+# 謝展寰在北京到訪國家海關總署及國家生態環境部等機構
+
+![謝展寰展參觀中國農業科學院的蔬菜花卉研究所溫室。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796681_1_20250320231718.jpg&q=70)
+  
+
+環境及生態局局長謝展寰展開北京訪問行程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm)
+
+---
+
 # 深水埗有大廈梯間雜物起火　４人吸入濃煙送院約100人疏散
 
   
@@ -1396,53 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796557-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796557-20250320.htm)
-
----
-
-# 羅淑佩：啟德桌球賽逐客事件低級錯誤　非罪無可恕須經一事長一智
-
-![羅淑佩認為，事件是由於賽事主辦方與園方的溝通「唔係好對到嘴」，但並非「罪無可恕」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796551_1_20250320110201.jpg&q=80)
-  
-
-啟德體育園開幕以來先後發生桌球賽「逐客風波」以及無票者「後門入場」事件。文化體育及旅遊局長羅淑佩接受《明報》專訪時形容是「低級錯誤」，她認為事件是由於賽事主辦方與園方的溝通「唔係好對到嘴」，但並非「罪無可恕」，只要事前有良好應變計劃就可避免重蹈覆轍，最重要是「經一事長一智」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm)
-
----
-
-# 醫健通修例　林永和稱私家醫生未能上載資或涉系統更新問題
-
-![林永和說，據他了解，現時不少私家醫生使用的電子病歷系統仍未能銜接到醫健通。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796549_1_20250320105241.jpg&q=90)
-  
-
-政府建議修訂醫健通使用機制，除精簡同意上載病人資料的程序外，亦賦權醫務衞生局局長可要求醫護，包括私營機構，必須將重要電子健康紀錄，存放至市民的醫健通戶口。如不遵從，可被定額罰款。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796549-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796549-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796549-20250320.htm)
 
 ---

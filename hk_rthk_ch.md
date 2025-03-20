@@ -1,3 +1,51 @@
+# 調查：近4成受訪僱主指曾因外傭借貸遭受追債滋擾
+
+![民建聯上月以問卷訪問超過240名外傭僱主，近4成僱主指曾因外傭借貸遭受追債滋擾。(伍榮笙攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796682_1_20250320231504.jpg&q=90)
+  
+
+有調查發現，過半數受訪外傭僱主曾向外傭提供直接借款，約3成半僱主指外傭曾向財務機構借貸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm)
+
+---
+
+# 謝展寰在北京到訪國家海關總署及國家生態環境部等機構
+
+![謝展寰展參觀中國農業科學院的蔬菜花卉研究所溫室。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796681_1_20250320231718.jpg&q=70)
+  
+
+環境及生態局局長謝展寰展開北京訪問行程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm)
+
+---
+
 # 證監會暫時吊銷一名金融網紅牌照16個月
 
 ![證監會稱投資者利用金融網紅分享的資訊時，應保持警覺和謹慎行事。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796675_1_20250320215637.jpg&q=80)
@@ -574,7 +622,7 @@
 
 ---
 
-# 中移動料未來2-3年總投資規模將保持穩中有降
+# 中移動：未來2-3年總投資規模將保持穩中有降
 
 ![楊杰（中）期望6G能形成全球統一標準，中移動已直接參與標準制定。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796654_1_20250320184914.jpg&q=90)
   
