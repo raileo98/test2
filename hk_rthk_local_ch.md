@@ -288,7 +288,7 @@
 
 # 李慧琼稱臨時通行證提高人流便捷度　黃國盼擴展至用於出入境
 
-![李慧琼（左）說，新措施將進一步便利在內地的本港居民；黃國（右）歡迎新措施，認為積極回應香港市民多方面的訴求。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796575_2_20250320124530.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796575_2_20250320124530.jpg&q=80)
   
 
 國家出入境管理局宣布，即日起為有需要的港澳台居民簽發臨時電子通行證，以及提供通行證與居住證「雙證關聯」檢驗服務。
