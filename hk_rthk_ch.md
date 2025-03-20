@@ -1,5 +1,30 @@
+# 陳美寶爭取為今年內推出「粤車南下」計劃作好準備
+
+![運輸及物流局局長陳美寶今日與珠海市市長吳澤桐會面，就兩個城市在物流、航空及陸路運輸等方面的合作交流意見。（運輸及物流局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796678_1_20250320220414.jpg&q=85)
+  
+
+運輸及物流局局長陳美寶與珠海市市長吳澤桐會面，就兩個城市在物流、航空及陸路運輸等方面的合作交流意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796678-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796678-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796678-20250320.htm)
+
+---
+
 # 九巴：所有車長工作安排均符合運輸署指引
 
+![九巴強調，所有車長的工作安排均符合運輸署的「巴士車長工作、休息及用膳時間指引」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796676_1_20250320221559.jpg&q=85)
   
 
 九巴表示，管理層今日與工會代表會面，討論有關車長的工作安排。
