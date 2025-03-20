@@ -1,3 +1,27 @@
+# Low-altitude economy a new growth engine: CE
+
+![Chief Executive John Lee visits a booth showcasing the use of drones for deliveries. Photo courtesy of John Lee's social media page](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796579_1_20250320122305.jpg&q=85)
+  
+
+Chief Executive John Lee on Thursday said the low-altitude economy will be a new growth engine, with a trial programme on drone operations set to help such activities take off and "fly steadily and far".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm)
+
+---
+
 # Temporary e-permit to assist HKers on the mainland
 
 ![HKers who lose their travel permits can apply for a temporary electronic permit one, allowing them to board flights and trains within the mainland. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796562_1_20250320122843.jpg&q=90)
@@ -1411,29 +1435,5 @@ A male visitor at Kwong Wah Hospital has been arrested for allegedly assaulting 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795779-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795779-20250314.htm)
-
----
-
-# Drop in pupil numbers 'structural and would worsen'
-
-![Christine Choi says measures are needed to ensure the stable and sustainable development of the education sector. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795759_1_20250314180708.jpg&q=80)
-  
-
-Education minister Christine Choi said on Friday the government was left with little choice but to change rules on how local schools can continue to operate, as Hong Kong faces a dwindling pupil population.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm)
 
 ---

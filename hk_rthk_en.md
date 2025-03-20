@@ -1,3 +1,27 @@
+# Low-altitude economy a new growth engine: CE
+
+![Chief Executive John Lee visits a booth showcasing the use of drones for deliveries. Photo courtesy of John Lee's social media page](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796579_1_20250320122305.jpg&q=85)
+  
+
+Chief Executive John Lee on Thursday said the low-altitude economy will be a new growth engine, with a trial programme on drone operations set to help such activities take off and "fly steadily and far".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm)
+
+---
+
 # Indonesia passes controversial military law revisions
 
 ![The law's detractors fear the changes will take Indonesia back to the days when military officers dominated civilian affairs. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796583_1_20250320123337.jpg&q=80)
@@ -1411,29 +1435,5 @@ Formula One boss Stefano Domenicali held talks with Thailand's prime minister on
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796287-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796287-20250318.htm)
-
----
-
-# Ex-Everbright boss sentenced to 15 years for bribes
-
-![Li Xiaopeng, pictured in 2018, is sentenced to 15 years for accepting bribes worth more than 60 million yuan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796277_1_20250318181930.jpg&q=90)
-  
-
-China on Tuesday jailed the former boss of state-owned banking giant Everbright Group for bribery, state media said, the latest official to fall foul of President Xi Jinping's decade-long corruption crackdown.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796277-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796277-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796277-20250318.htm)
 
 ---
