@@ -1,3 +1,26 @@
+# 考文垂當選國際奧委會主席　是首名非洲人及女性擔任此職位
+
+  
+
+津巴布韋體育部長考文垂當選國際奧委會主席，將在6月接替巴赫，成為首位女性及來自非洲的國際奧委會主席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796707-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796707-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796707-20250321.htm)
+
+---
+
 # 特朗普正式簽署行政令推動關閉教育部
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796321-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796321-20250319.htm)
-
----
-
-# 白宮：美俄元首認為實現和平將從能源和基礎設施停火開始
-
-![白宮發表聲明說，兩國元首同意俄烏衝突需要以持久和平結束。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796320_1_20250319022112.jpg&q=90)
-  
-
-美國總統特朗普與俄羅斯總統普京的通話結束。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796320-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796320-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796320-20250319.htm)
 
 ---

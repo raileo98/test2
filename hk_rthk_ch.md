@@ -1,3 +1,26 @@
+# 考文垂當選國際奧委會主席　是首名非洲人及女性擔任此職位
+
+  
+
+津巴布韋體育部長考文垂當選國際奧委會主席，將在6月接替巴赫，成為首位女性及來自非洲的國際奧委會主席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796707-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796707-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796707-20250321.htm)
+
+---
+
 # 港股美國預託證券普遍較本港收市下跌
 
 ![滙控ADR較本港收市跌約0.3%，友邦跌約0.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796705_1_20250321061333.jpg&q=90)
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm)
-
----
-
-# 外交部：中國對不同國籍被告一視同仁　加方應停止干涉中國司法
-
-![毛寧說，中國對不同國籍的被告人一視同仁，依法保障當事人的合法權利。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796636_1_20250320175303.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧表示，打擊毒品犯罪是各國的共同責任，中國是法治國家，對不同國籍的被告人一視同仁，嚴格依法公正處理，依法保障當事人的合法權利和加拿大方面的領事權利。加方應尊重法治精神，停止干涉中國的司法主權。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm)
 
 ---
