@@ -1,3 +1,51 @@
+# 歐盟國防白皮書提出到2030年歐洲擁有強大和充份國防能力
+
+![卡拉斯指出，國際秩序正經歷1945年以來前所未有的巨大變化。這是歐洲安全的關鍵時刻。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796528_1_20250320082408.jpg&q=90)
+  
+
+歐盟委員會發表國防白皮書，提出通過增加對國防工業的投資、鼓勵聯合採購、提高軍工產能等措施，令歐洲到2030年擁有強大和充份的國防能力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796528-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796528-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796528-20250320.htm)
+
+---
+
+# 韓股初段上升　日股休市
+
+![首爾綜合指數較早時報2642點，升14點，升幅0.54%。日本股市假期休市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796527_1_20250320081126.jpg&q=90)
+  
+
+南韓股市在開市初段上升，首爾綜合指數較早時報2642點，升14點，升幅0.54%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796527-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796527-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796527-20250320.htm)
+
+---
+
 # 巴西央行再加息1厘　央行指未來加息步伐或放慢
 
 ![巴西央行加息1厘。央行政策聲明表示，如果情況按預期發展，利率制定委員會預計下次會議調整幅度將較小。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796526_1_20250320074750.jpg&q=90)
@@ -72,7 +120,7 @@
 
 # 對緊急病人服務承諾未如理想　醫管局稱合適時候檢視急症室收費
 
-![醫管局表示，公立醫院急症室對屬於緊急病人的服務承諾達標率只有7成多，形容情況不理想。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796519_1_20250320064251.jpg&q=80)
+![黃立己希望透過調整收費，引導非緊急病人使用急症室以外的醫療服務，令他們能夠集中資源照顧緊急病人。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796519_2_20250320083645.jpg&q=80)
   
 
 醫管局質素及安全總監黃立己表示，全港18間公立醫院急症室，每年服務量近200萬人次，當中超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令對屬於緊急病人的服務承諾達標率只有7成多，形容情況不理想，希望可透過調整急症室收費，引導非緊急病人使用急症室以外的其他醫療服務。
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm)
-
----
-
-# 兩名美國太空人乘SpaceX飛船返抵地球　結束逾九個月滯留
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796457_1_20250319184548.jpg&q=85)
-  
-
-兩名美國太空人威廉姆斯和威爾莫爾，滯留國際太空站逾九個月後，乘坐SpaceX的龍飛船返抵地球，於本港時間早上近6時降落美國佛羅里達州對出海面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796457-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796457-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796457-20250319.htm)
-
----
-
-# 長建去年盈利升1%　全年派息升0.8%
-
-![長江基建去年盈利81.15億元，升1%，全年派息每股2.58元，升0.8%，連續28年增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796450_1_20250319185947.jpg&q=90)
-  
-
-長江基建去年盈利81.15億元，按年升1%。營業額389.85億元，按年升1%。末期息每股1.86元，全年派息每股2.58元，按年升0.8%，集團自1996年上市28年來，股息一直增長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796450-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796450-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796450-20250319.htm)
 
 ---

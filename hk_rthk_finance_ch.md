@@ -1,3 +1,27 @@
+# 韓股初段上升　日股休市
+
+![首爾綜合指數較早時報2642點，升14點，升幅0.54%。日本股市假期休市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796527_1_20250320081126.jpg&q=90)
+  
+
+南韓股市在開市初段上升，首爾綜合指數較早時報2642點，升14點，升幅0.54%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796527-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796527-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796527-20250320.htm)
+
+---
+
 # 巴西央行再加息1厘　央行指未來加息步伐或放慢
 
 ![巴西央行加息1厘。央行政策聲明表示，如果情況按預期發展，利率制定委員會預計下次會議調整幅度將較小。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796526_1_20250320074750.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796350-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796350-20250319.htm)
-
----
-
-# 日本1月核心機械訂單按月下跌3.5%　差過預期
-
-![日本1月核心機械訂單按月下跌3.5%，差過市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796351_1_20250319082011.jpg&q=80)
-  
-
-日本1月核心機械訂單按月下跌3.5%，跌幅大於市場預期的0.5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796351-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796351-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796351-20250319.htm)
 
 ---
