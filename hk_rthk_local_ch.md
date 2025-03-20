@@ -1,3 +1,26 @@
+# 監管沙盒公司試行無人機全自動操作　有公司以無人機助送醫療物資
+
+  
+
+在今次首批低空經濟「監管沙盒」試點項目當中，有人工智能初創公司利用無人機技術，協助物業管理；亦有通訊營辦商利用新通訊技術，建立無人機感知網絡，協助在醫院運送醫療物資。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796571-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796571-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796571-20250320.htm)
+
+---
+
 # 「裕澤香江」高峰論壇下周三舉行　蔡崇信、蓋茲基金會高層等出席
 
 ![「裕澤香江」高峰論壇，將於下周三舉行，以「香港—為全球，向世界」為主題。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796568_1_20250320115839.jpg&q=85)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796393-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796393-20250319.htm)
-
----
-
-# 海洋公園登山纜車訊號問題暫停海洋列車正年檢　山上高峰樂園停開
-
-![海洋公園登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796392_1_20250319125048.jpg&q=55)
-  
-
-海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。而海洋列車亦正在進行年度檢查，現時無法接載訪客往返兩個園區。登山纜車與高峰樂園今日暫停開放，直至另行通知，沒有訪客被困，至於訪客現時可到訪山下園區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796392-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796392-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796392-20250319.htm)
 
 ---
