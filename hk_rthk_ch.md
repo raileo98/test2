@@ -1,3 +1,27 @@
+# 香港報業評議會上年度接獲投訴按年增逾兩倍　九成涉及失實
+
+![香港報業評議會召開會員大會，改選新一屆執行委員會。(香港報業評議會提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796688_1_20250321010509.jpg&q=90)
+  
+
+香港報業評議會上年度接獲涉及報章及網站新聞內容的投訴有240宗投訴，按年增加逾兩倍。當中九成涉及失實，有217宗；其餘涉及誤導、偏頗、私隱、淫褺不雅或血腥暴力等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796688-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796688-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796688-20250321.htm)
+
+---
+
 # 俄方稱周一與美會談　澤連斯基︰烏美代表將同日在沙特會談
 
 ![澤連斯基表示，烏美代表團周一將在沙特阿拉伯會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796686_1_20250321010823.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm)
-
----
-
-# 中移動去年盈利升5%
-
-![中國移動去年盈利近1384億元人民幣，按年增5% 。派發末期息每股2.49港元，全年派息率達73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796623_1_20250320171308.jpg&q=90)
-  
-
-中國移動去年盈利近1384億元人民幣，按年增5% 。派發末期息每股2.49港元，連同中期息，全年派5.09港元，按年增長5.4%，全年派息率達73%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796623-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796623-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796623-20250320.htm)
 
 ---

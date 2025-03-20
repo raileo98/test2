@@ -1,3 +1,27 @@
+# 香港報業評議會上年度接獲投訴按年增逾兩倍　九成涉及失實
+
+![香港報業評議會召開會員大會，改選新一屆執行委員會。(香港報業評議會提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796688_1_20250321010509.jpg&q=90)
+  
+
+香港報業評議會上年度接獲涉及報章及網站新聞內容的投訴有240宗投訴，按年增加逾兩倍。當中九成涉及失實，有217宗；其餘涉及誤導、偏頗、私隱、淫褺不雅或血腥暴力等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796688-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796688-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796688-20250321.htm)
+
+---
+
 # 香港航空乘客憶述行李架著火時感到害怕　自費坐其他公司航機返港
 
 ![受訪乘客拍攝的片段所見，該格行李架被燒至熏黑。（乘客提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796683_1_20250320235720.jpg&q=90)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm)
-
----
-
-# 首批監管沙盒項目公布　李家超：讓公眾看得見、摸得到低空經濟
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796560_1_20250320113400.jpg&q=90)
-  
-
-政府公布首批低空經濟「監管沙盒」試點項目，行政長官李家超於啟動禮致辭表示，低空經濟是國家戰略性新興產業，亦是發展新質生產力的範例，特區政府積極投入和推動低空經濟，去年的施政報告提出要制訂低空經濟發展的策略和行動計劃，重申低空經濟不但可以衍生一系列產業，應用場景亦非常廣闊，潛力巨大，除了能夠提升城市管理和商業效率，更可以為市民帶來智慧生活的新體驗，成為經濟的新增長引擎。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm)
 
 ---
