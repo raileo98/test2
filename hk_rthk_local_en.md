@@ -1,3 +1,51 @@
+# HK Airlines flight diverts to Fuzhou after cabin fire
+
+![Passengers on board the flight shared videos and photos on social media, showing cabin crew and passengers pouring bottles of water into a charred overhead compartment. Photo: Xiaohongshu](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796611_1_20250320162509.jpg&q=90)
+  
+
+A Hong Kong Airlines flight was forced to make an emergency landing in Fuzhou after a fire broke out in the cabin on Thursday afternoon.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm)
+
+---
+
+# Ride-hailing drivers 'should face cabbie-style test'
+
+![Lawmaker Hoey Simon Lee says regulations on ride-hailing services should be 'not too tight but not too loose.' Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796607_1_20250320154245.jpg&q=90)
+  
+
+The government should draw up "an appropriate level" of regulations for ride-hailing platforms, such as by making it mandatory for drivers to take a licensing exam similar to that for cabbies, a lawmaker said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm)
+
+---
+
 # Local rates to be at high level for some time: HKMA
 
 ![The Hong Kong Monetary Authority says that the extent and pace of future rate cuts are subject to considerable uncertainty. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796590_1_20250320130629.jpg&q=85)
@@ -24,7 +72,7 @@ The city's de facto central bank has cautioned that local borrowing costs will r
 
 # Complete eHealth database 'key for treating patients'
 
-![Sam Hui said it's still up to patients whether they want to use eHealth at all or which healthcare provider can access their medical record. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796581_1_20250320122653.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796581_1_20250320122653.jpg&q=80)
   
 
 Healthcare officials said on Thursday that patients should not get to pick the medical record to be stored on a government-run electronic platform.
@@ -1387,53 +1435,5 @@ The Hong Kong Rugby Sevens, one of the city's most popular and highly anticipate
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm)
-
----
-
-# 'Govt can do more to promote internationalisation'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795830_1_20250315105816.jpg&q=85)
-  
-
-Hong Kong’s sole delegate to the nation’s top legislature, Starry Lee, on Saturday called on the government to continue to coordinate with other major cities around the world to further strengthen the SAR's position across fields.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm)
-
----
-
-# 'New private sector law must be rolled out gradually'
-
-![Last week, legislators tabled the private economy promotion law, which is aimed at creating a fairer business environment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795827_2_20250315105255.jpg&q=85)
-  
-
-An economist has said that the new law proposed by Beijing to protect and enhance the country's private sector could help address "grey areas" facing private business, but cautioned that it should be gradually rolled out to avoid stifling opportunities.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm)
 
 ---

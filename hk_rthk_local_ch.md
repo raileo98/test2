@@ -1,5 +1,30 @@
+# 仲量聯行：本港2月甲級寫字樓錄正吸納量　整體租金持續下跌
+
+![截至2月底本港寫字樓空置率保持13.3%，中環空置率升至11.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796609_1_20250320160302.jpg&q=80)
+  
+
+物業顧問仲量聯行報告指出，本港2月整體寫字樓租賃市場錄得7200平方呎淨吸納量。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796609-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796609-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796609-20250320.htm)
+
+---
+
 # 羅淑佩對填詞人盧國沾辭世表示哀悼　形容是香港文化界重大損失
 
+![文化體育及旅遊局指，盧國沾是香港詞壇與樂壇的翹楚，以筆為舟，承載香江歲月的滄桑與情懷。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796608_1_20250320161508.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩對香港著名填詞人盧國沾辭世表示哀悼，並向他的家人致以深切慰問。
@@ -407,10 +432,14 @@
 
 # 監管沙盒公司AI配合無人機檢查公屋外牆　電訊商助配送醫療物資
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796571_1_20250320123129.jpg&q=90)
+![人工智能初創公司Alpha AI，正協助包括房協等機構進行外牆檢查，利用配有高清鏡頭的無人機，拍攝公共屋邨外牆。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796571_2_20250320162049.jpg&q=80)
+![何進一說，今次參與監管沙盒就可以試行全自動操作，除可節省人手亦可以增加巡查頻率。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796571_3_20250320162049.jpg&q=90)
+![中國移動DICT中心主管助理曾曉文表示，在監管沙盒中，會利用相關技術在瑪嘉烈醫院協助無人機配送病人樣本、血液等醫療物資。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796571_4_20250320162049.jpg&q=90)
   
 
 在今次首批低空經濟「監管沙盒」試點項目當中，有人工智能初創公司利用無人機技術，協助物業管理；亦有通訊營辦商利用新通訊技術，建立無人機感知網絡，協助在醫院運送醫療物資。
+  
+![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1796571_2_L_20250320162049.jpg)
 
   
 
@@ -1413,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm)
-
----
-
-# 林哲玄稱醫健通修例可確保有整全病歷　方保僑冀兩地做好私隱保障
-
-![林哲玄希望法例可以容許上載資料時，病人應有責任讓醫護查看醫健通資料；方保僑認為，市民要清楚有關機構取得資料後使用情況，留意免責條款。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796438_1_20250319170921.jpg&q=85)
-  
-
-政府建議修訂例，擴展及優化「醫健通」功能，賦權醫務衞生局局長可要求指明醫護提供者，將重要的指明健康資料存入已參與醫健通市民的個人戶口，便利市民掌控自己的重要健康資料。當局指，私營醫護提供者大部分已登記參加醫健通並經常在獲個別市民授權後取覽紀錄，但只有少數將提供服務的紀錄存入市民醫健通戶口。當局又建議，擴展可使用醫健通的專業人員至營養師、臨床心理學家及教育心理學家等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796438-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796438-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796438-20250319.htm)
 
 ---

@@ -1,5 +1,30 @@
+# 恒指全日挫551點　科技及中資金融股受壓
+
+![恒指收報24219點，跌551點，跌幅2.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796610_1_20250320161821.jpg&q=40)
+  
+
+港股午後跌幅擴大，恒指一度跌逾580點，低見24186點，收報24219點，跌551點，跌幅2.23%，結束4日升勢，成交額增至近2949億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796610-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796610-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796610-20250320.htm)
+
+---
+
 # 羅淑佩對填詞人盧國沾辭世表示哀悼　形容是香港文化界重大損失
 
+![文化體育及旅遊局指，盧國沾是香港詞壇與樂壇的翹楚，以筆為舟，承載香江歲月的滄桑與情懷。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796608_1_20250320161508.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩對香港著名填詞人盧國沾辭世表示哀悼，並向他的家人致以深切慰問。
@@ -718,10 +743,14 @@
 
 # 監管沙盒公司AI配合無人機檢查公屋外牆　電訊商助配送醫療物資
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796571_1_20250320123129.jpg&q=90)
+![人工智能初創公司Alpha AI，正協助包括房協等機構進行外牆檢查，利用配有高清鏡頭的無人機，拍攝公共屋邨外牆。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796571_2_20250320162049.jpg&q=80)
+![何進一說，今次參與監管沙盒就可以試行全自動操作，除可節省人手亦可以增加巡查頻率。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796571_3_20250320162049.jpg&q=90)
+![中國移動DICT中心主管助理曾曉文表示，在監管沙盒中，會利用相關技術在瑪嘉烈醫院協助無人機配送病人樣本、血液等醫療物資。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796571_4_20250320162049.jpg&q=90)
   
 
 在今次首批低空經濟「監管沙盒」試點項目當中，有人工智能初創公司利用無人機技術，協助物業管理；亦有通訊營辦商利用新通訊技術，建立無人機感知網絡，協助在醫院運送醫療物資。
+  
+![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1796571_2_L_20250320162049.jpg)
 
   
 

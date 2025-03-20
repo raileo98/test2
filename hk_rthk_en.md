@@ -1,3 +1,27 @@
+# Ride-hailing drivers 'should face cabbie-style test'
+
+![Lawmaker Hoey Simon Lee says regulations on ride-hailing services should be 'not too tight but not too loose.' Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796607_1_20250320154245.jpg&q=90)
+  
+
+The government should draw up "an appropriate level" of regulations for ride-hailing platforms, such as by making it mandatory for drivers to take a licensing exam similar to that for cabbies, a lawmaker said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm)
+
+---
+
 # Malaysia gives green light for new MH370 search
 
 ![Relatives of passengers on board the missing MH370 leave after taking part in a demonstration outside the Malaysian embassy in Beijing on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796601_1_20250320142559.jpg&q=75)
@@ -72,7 +96,7 @@ The city's de facto central bank has cautioned that local borrowing costs will r
 
 # Complete eHealth database 'key for treating patients'
 
-![Sam Hui said it's still up to patients whether they want to use eHealth at all or which healthcare provider can access their medical record. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796581_1_20250320122653.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796581_1_20250320122653.jpg&q=80)
   
 
 Healthcare officials said on Thursday that patients should not get to pick the medical record to be stored on a government-run electronic platform.
@@ -1411,29 +1435,5 @@ US President Donald Trump and Russian President Vladimir Putin agreed on Tuesday
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796323-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796323-20250319.htm)
-
----
-
-# Pain, anger grip N Macedonia town after fire tragedy
-
-![People light candles in tribute to the victims of a massive night club fire in Skopje. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796305_1_20250318224701.jpg&q=85)
-  
-
-Despair mixed with anger in Kocani, North Macedonia on Tuesday in the wake of a horrific nightclub fire that left dozens dead and even more injured, prompting demands for justice.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm)
 
 ---
