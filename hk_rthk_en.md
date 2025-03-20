@@ -1,3 +1,27 @@
+# Kyrgios wins first match since 2022
+
+![Nick Kyrgios hits a running shot against Mackenzie McDonald in Miami Open action at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796553_1_20250320103836.jpg&q=90)
+  
+
+Australian Nick Kyrgios came from behind to defeat Mackenzie McDonald 3-6 6-3 6-4 in the first round of the Miami Open to earn his first win since October 2022.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm)
+
+---
+
 # White House attacks courts for 'usurping' powers
 
 ![Karoline Leavitt in a press briefing at the White House. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796546_1_20250320101240.jpg&q=90)
@@ -1411,29 +1435,5 @@ The Hong Kong, China women’s rugby team on Tuesday said they are ready to take
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm)
-
----
-
-# Wang Yi headed for Tokyo trilateral meeting
-
-![Wang Yi, right, hosts South Korean Foreign Minister Cho Tae-yul in Beijing in May. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796232_1_20250318145011.jpg&q=90)
-  
-
-The foreign ministers of South Korea, China and Japan will hold a meeting in Tokyo on Saturday, Seoul's foreign ministry said on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm)
 
 ---
