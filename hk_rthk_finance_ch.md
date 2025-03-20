@@ -1,3 +1,27 @@
+# 美國上周初領失業援助人數較預期少
+
+![美國上周新申領失業援助人數增加2千人，增至22.3萬人，少過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796666_1_20250320204511.jpg&q=80)
+  
+
+美國上周新申領失業援助人數增加2千人，增至22.3萬人，少過市場預期；4周平均新申領失業援助人數增加750人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796666-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796666-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796666-20250320.htm)
+
+---
+
 # 商務部稱中方願同日方共同努力　推動經濟高層對話取得務實成果
 
 ![商務部稱中日經濟高層對話時隔六年重啟，具有重要意義。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796612_1_20250320164133.jpg&q=75)
@@ -116,7 +140,7 @@
 
 ---
 
-# 證監會要求券商對新股孖展融資最多只能借90%
+# 證監會要求認購新股借貸券商最少收取10%認購資金
 
 ![證監會向持牌法團發指引，未繳足資金的新股認購，應向客戶收取最低相等於認購金額10%的預付資金。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796655_1_20250320190309.jpg&q=90)
   

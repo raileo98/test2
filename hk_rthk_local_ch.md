@@ -1,6 +1,29 @@
+# 慢病共治計劃將提供血脂檢查　彭飛舟：如有家族病史應及早檢查
+
+  
+
+醫務衞生局公布「慢性疾病共同治理先導計劃」由3月28日起，擴展至提供血脂檢查。此外，由4月15日起，全港亦會增設超過20個服務點，為沒有參加「慢病共治計劃」的康健中心會員，提供包括個人化慢性疾病管理、痛症管理及復康等服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm)
+
+---
+
 # 夏寶龍會見香港歐洲商會　稱全力支持香港長期保持獨特地位和優勢
 
-![夏寶龍表示，全力支持香港長期保持獨特地位和優勢，鞏固國際金融、航運、貿易中心地位，維護自由開放規範的營商環境。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796663_1_20250320203336.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796663_1_20250320203336.jpg&q=90)
   
 
 在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見香港歐洲商會訪京團。
@@ -92,7 +115,7 @@
 
 ---
 
-# 證監會要求券商對新股孖展融資最多只能借90%
+# 證監會要求認購新股借貸券商最少收取10%認購資金
 
 ![證監會向持牌法團發指引，未繳足資金的新股認購，應向客戶收取最低相等於認購金額10%的預付資金。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796655_1_20250320190309.jpg&q=90)
   
@@ -118,6 +141,8 @@
 
 # 57人投訴付款訂購結婚戒指後未能收貨　警拘一婚戒公司董事
 
+![海關商品說明調查科署理高級貿易管制主任伍慧明表示，涉案婚戒設計公司近期多次以各種理由不斷延遲交付客人所訂購的結婚戒指，至本月初更失去聯絡及結業。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796657_1_20250320203907.jpg&q=80)
+![涉案婚戒設計公司本月初突然結業（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796657_2_20250320203907.jpg&q=90)
   
 
 一間婚戒設計公司本月初突然結業，海關拘捕公司唯一董事，涉嫌於銷售貨物時，作出不當地接受付款的營業行為，違反《商品說明條例》。
@@ -1418,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796523-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796523-20250320.htm)
-
----
-
-# 急症室逾半病人屬次緊急非緊急　醫管局稱合適時候檢視收費
-
-![蕭粵中表示，醫管局一直有完善的分流指引，前線護士經過訓練，會按病人的病情病歷，維生指數等，為病人作出分類（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796519_3_20250320083834.jpg&q=80)
-  
-
-醫管局質素及安全總監黃立己表示，全港18間公立醫院急症室，每年服務量近200萬人次，當中超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令對屬於緊急病人的服務承諾達標率只有七成多，形容情況不理想，希望可透過調整急症室收費，引導非緊急病人使用急症室以外的其他醫療服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796519-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796519-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796519-20250320.htm)
 
 ---

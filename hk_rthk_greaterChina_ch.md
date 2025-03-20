@@ -1,6 +1,30 @@
+# 李強到福建調研　強調要深入貫徹習近平在全國兩會期間講話精神
+
+![李強在福建調研時說，要深入貫徹習近平總書記在全國兩會期間的重要講話精神，加快構建高水平對外開放新優勢。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796665_1_20250320204447.jpg&q=90)
+  
+
+中共中央政治局常委、國務院總理李強周二起一連三日在福建調研。他說，要深入貫徹中共中央總書記習近平在全國兩會期間的重要講話精神，認真落實兩會明確的各項任務，以開拓創新精神做好穩外貿工作，加快構建高水平對外開放新優勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm)
+
+---
+
 # 夏寶龍會見香港歐洲商會　稱全力支持香港長期保持獨特地位和優勢
 
-![夏寶龍表示，全力支持香港長期保持獨特地位和優勢，鞏固國際金融、航運、貿易中心地位，維護自由開放規範的營商環境。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796663_1_20250320203336.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796663_1_20250320203336.jpg&q=90)
   
 
 在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見香港歐洲商會訪京團。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796110-20250317.htm)
-
----
-
-# 外交部：祖國完全統一勢不可擋　「倚外謀獨」終是絕路
-
-![外交部稱，祖國完全統一勢不可擋，「倚外謀獨」終是絕路。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796107_1_20250317192325.jpg&q=80)
-  
-
-在北京，外交部發言人毛寧表示，祖國完全統一勢不可擋，「倚外謀獨」終是絕路。希望有關國家認清台灣當局險惡用心，以實際行動嚴格恪守一個中國原則，切實維護雙邊關係政治基礎。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796107-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796107-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796107-20250317.htm)
 
 ---

@@ -1,6 +1,77 @@
+# 慢病共治計劃將提供血脂檢查　彭飛舟：如有家族病史應及早檢查
+
+  
+
+醫務衞生局公布「慢性疾病共同治理先導計劃」由3月28日起，擴展至提供血脂檢查。此外，由4月15日起，全港亦會增設超過20個服務點，為沒有參加「慢病共治計劃」的康健中心會員，提供包括個人化慢性疾病管理、痛症管理及復康等服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm)
+
+---
+
+# 美國上周初領失業援助人數較預期少
+
+![美國上周新申領失業援助人數增加2千人，增至22.3萬人，少過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796666_1_20250320204511.jpg&q=80)
+  
+
+美國上周新申領失業援助人數增加2千人，增至22.3萬人，少過市場預期；4周平均新申領失業援助人數增加750人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796666-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796666-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796666-20250320.htm)
+
+---
+
+# 李強到福建調研　強調要深入貫徹習近平在全國兩會期間講話精神
+
+![李強在福建調研時說，要深入貫徹習近平總書記在全國兩會期間的重要講話精神，加快構建高水平對外開放新優勢。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796665_1_20250320204447.jpg&q=90)
+  
+
+中共中央政治局常委、國務院總理李強周二起一連三日在福建調研。他說，要深入貫徹中共中央總書記習近平在全國兩會期間的重要講話精神，認真落實兩會明確的各項任務，以開拓創新精神做好穩外貿工作，加快構建高水平對外開放新優勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm)
+
+---
+
 # 夏寶龍會見香港歐洲商會　稱全力支持香港長期保持獨特地位和優勢
 
-![夏寶龍表示，全力支持香港長期保持獨特地位和優勢，鞏固國際金融、航運、貿易中心地位，維護自由開放規範的營商環境。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796663_1_20250320203336.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796663_1_20250320203336.jpg&q=90)
   
 
 在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見香港歐洲商會訪京團。
@@ -187,7 +258,7 @@
 
 ---
 
-# 證監會要求券商對新股孖展融資最多只能借90%
+# 證監會要求認購新股借貸券商最少收取10%認購資金
 
 ![證監會向持牌法團發指引，未繳足資金的新股認購，應向客戶收取最低相等於認購金額10%的預付資金。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796655_1_20250320190309.jpg&q=90)
   
@@ -213,6 +284,8 @@
 
 # 57人投訴付款訂購結婚戒指後未能收貨　警拘一婚戒公司董事
 
+![海關商品說明調查科署理高級貿易管制主任伍慧明表示，涉案婚戒設計公司近期多次以各種理由不斷延遲交付客人所訂購的結婚戒指，至本月初更失去聯絡及結業。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796657_1_20250320203907.jpg&q=80)
+![涉案婚戒設計公司本月初突然結業（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796657_2_20250320203907.jpg&q=90)
   
 
 一間婚戒設計公司本月初突然結業，海關拘捕公司唯一董事，涉嫌於銷售貨物時，作出不當地接受付款的營業行為，違反《商品說明條例》。
