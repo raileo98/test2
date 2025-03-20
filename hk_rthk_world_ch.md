@@ -1,3 +1,26 @@
+# 施紀賢︰若俄烏達成和平協議　英國及盟友須迅速反應
+
+  
+
+英國首相施紀賢與來自20多個國家的高級軍方領袖舉行會議，集中討論「自願聯盟」支持烏克蘭的具體方案。英國傳媒報道，會議可能標誌著建立「烏克蘭維和部隊」進入行動階段。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796690-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796690-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796690-20250321.htm)
+
+---
+
 # 俄方稱周一與美會談　澤連斯基︰烏美代表將同日在沙特會談
 
 ![澤連斯基表示，烏美代表團周一將在沙特阿拉伯會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796686_1_20250321010823.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796315-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796315-20250319.htm)
-
----
-
-# 王毅：中歐透過磋商解決具體經貿摩擦具重要與正面意義
-
-![中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796313_1_20250318235236.jpg&q=90)
-  
-
-中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm)
 
 ---
