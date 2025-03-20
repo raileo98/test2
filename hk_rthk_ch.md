@@ -1,3 +1,26 @@
+# 特朗普正式簽署行政令推動關閉教育部
+
+  
+
+美國總統特朗普在白宮簽署行政命令，要求教育部長麥克馬洪採取一切必要措施，推動關閉教育部，將教育管理權歸還各州。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796698-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796698-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796698-20250321.htm)
+
+---
+
 # 歐盟對美關稅反制措施將推遲至下月中旬統一實施
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796633-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796633-20250320.htm)
-
----
-
-# 習近平到雲南麗江考察　強調文旅產業要走一條持續、健康發展之路
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796630_1_20250320183940.jpg&q=90)
-  
-
-中共總書記習近平到雲南考察，昨日下午到位於雲南北部的麗江市，先後考察麗江現代花卉產業園和麗江古城，了解當地因地制宜發展特色農業、加強歷史文化遺產保護利用等情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm)
 
 ---

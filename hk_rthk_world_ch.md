@@ -1,3 +1,26 @@
+# 特朗普正式簽署行政令推動關閉教育部
+
+  
+
+美國總統特朗普在白宮簽署行政命令，要求教育部長麥克馬洪採取一切必要措施，推動關閉教育部，將教育管理權歸還各州。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796698-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796698-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796698-20250321.htm)
+
+---
+
 # 歐盟對美關稅反制措施將推遲至下月中旬統一實施
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796320-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796320-20250319.htm)
-
----
-
-# 克宮：俄烏周三互換被俘人員　普京同意俄烏暫停攻擊對方能源設施
-
-![克里姆林宮表示，兩國總統在通話期間就烏克蘭局勢詳細和坦誠交換意見。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796319_1_20250319015052.jpg&q=90)
-  
-
-美國總統特朗普與俄羅斯總統普京的通話結束。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796319-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796319-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796319-20250319.htm)
 
 ---
