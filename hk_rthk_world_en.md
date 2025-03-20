@@ -24,7 +24,7 @@ Malaysia’s government has given final approval for a Texas-based marine roboti
 
 # Indonesia passes controversial military law revisions
 
-![Minister of Defense Sjafrie Sjamsoeddin speaks in the House of Representatives ahead of law revisions' passage. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796583_2_20250320134731.jpg&q=80)
+![Defence Minister Sjafrie Sjamsoeddin speaks in the House of Representatives ahead of law revisions' passage. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796583_2_20250320134731.jpg&q=80)
   
 
 Indonesia's parliament on Thursday passed contentious revisions to the country's military law, which will allocate more civilian posts for military officers, and street protests against the changes are expected to take place.
