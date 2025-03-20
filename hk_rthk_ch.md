@@ -1,3 +1,27 @@
+# 澳門司警收到9人報稱疑遭婚戒公司詐騙共12萬
+
+![澳門司警表示，高度重視案件，已經透過警務合作渠道通報香港警方。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796658_1_20250320192723.jpg&q=90)
+  
+
+香港婚戒公司突然結業，澳門司警表示，至今收到9名事主舉報，合共損失12萬澳門元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796658-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796658-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796658-20250320.htm)
+
+---
+
 # 載通去年盈利跌53%　九巴稅後盈利升逾10倍
 
 ![九龍巴士去年除稅後盈利1.27億元，增長逾10倍，因車費收入增加。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796656_1_20250320191216.jpg&q=85)
@@ -43,6 +67,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm)
+
+---
+
+# 57人投訴付款訂購結婚戒指後未能收貨　警拘一婚戒公司董事
+
+  
+
+一間婚戒設計公司本月初突然結業，海關拘捕公司唯一董事，涉嫌於銷售貨物時，作出不當地接受付款的營業行為，違反《商品說明條例》。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm)
 
 ---
 
