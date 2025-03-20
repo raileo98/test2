@@ -1,3 +1,27 @@
+# 滬股低收0.5%　險守3400點　創業板跌1%
+
+![上證指數險守3400點水平，收報3408點，跌17點，跌幅0.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796604_1_20250320150420.jpg&q=90)
+  
+
+內地股市尾市跌幅擴大，保險、遊戲、白酒股下跌，風電設備、頁岩氣、煤炭、深海科技概念股上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796604-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796604-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796604-20250320.htm)
+
+---
+
 # 韓股高收0.32%　連升4日
 
 ![首爾綜合指數收報2637點，升幅0.32%，連升4日，再創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796602_1_20250320143435.jpg&q=85)
