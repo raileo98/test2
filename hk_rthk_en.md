@@ -1,3 +1,27 @@
+# Net profit at CK Hutchison down 27pc
+
+![CK Hutchison posts a 2024 net profit of HK$17 billion. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796631_1_20250320173808.jpg&q=90)
+  
+
+CK Hutchison has reported a 27 percent drop in net profit.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796631-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796631-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796631-20250320.htm)
+
+---
+
 # Legendary F1 team owner Eddie Jordan dies
 
 ![Eddie Jordan had been undergoing treatment for what he had called 'quite aggressive' cancer of the bladder and prostate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796629_1_20250320172623.jpg&q=85)
@@ -1415,29 +1439,5 @@ Shohei Ohtani admitted he was "nervous" playing in front of a packed Tokyo crowd
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm)
-
----
-
-# US stocks end lower on geopolitical concerns
-
-![Stocks had risen the last two days in a partial rebound from declines in recent weeks. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796340_1_20250319064754.jpg&q=90)
-  
-
-Wall Street stocks resumed their downward slide on Tuesday as worries over the Ukraine and Middle East conflicts added to unease over President Trump's aggressive trade agenda.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm)
 
 ---

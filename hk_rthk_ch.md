@@ -1,6 +1,58 @@
-# 陪審團一致裁定42歲男子謀殺3歲女兒罪成
+# 瑞士央行減息0.25厘　通脹下行風險加大
+
+![瑞士央行表示，經濟前景變得不確定，通脹下行風險加大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796621_1_20250320171104.jpg&q=90)
+  
+
+瑞士央行減息0.25厘，符合市場預期，指標利率降至0.25厘，央行自去年3月開始減息以來，連續5次會議減息。
 
   
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796621-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796621-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796621-20250320.htm)
+
+---
+
+# 長實去年盈利跌20%　已確認物業銷售收入減少24%
+
+![長實去年盈利136.6億元，按年跌20%。派末期息每股1.35元，按年減少近17%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796628_1_20250320172413.jpg&q=85)
+  
+
+長實去年盈利136.6億元，按年跌21%。末期息每股1.35元，全年派息1.74元，按年分別減少近17%及15%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm)
+
+---
+
+# 陪審團一致裁定42歲男子謀殺3歲女兒罪成
+
+![高等法院陪審團退庭商議近3小時後，一致裁定被告謀殺罪成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796633_1_20250320174600.jpg&q=80)
+  
+
+42歲男子多次虐待3歲女兒，包括猛烈搖晃導致腦出血死亡，高等法院4男3女陪審團退庭商議近3小時後，一致裁定被告謀殺罪成。
+
   
 
 
