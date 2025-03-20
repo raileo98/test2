@@ -1,3 +1,27 @@
+# Chile reviews Chinese observatory plans
+
+![Chile is home to the world's darkest skies and numerous other observatories. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796533_1_20250320084807.jpg&q=90)
+  
+
+Chile said on Wednesday it was reviewing an agreement for the construction of a Chinese astronomical observatory on its soil, a project that has drawn criticism from Washington as it jostles with Beijing for influence in Latin America.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm)
+
+---
+
 # 'Stable China-US trade ties benefit global firms'
 
 ![Wang Shouwen holds talks with Ramon Laguarta in Beijing. Photo courtesy of Commerce Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796422_1_20250319154955.jpg&q=90)
@@ -1412,29 +1436,5 @@ Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantage
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm)
-
----
-
-# Chinese PhD student convicted of raping 10 women
-
-![UK police say Zou Zhenhao used online platforms and dating apps to meet women who he invited to his home under the pretext of having drinks or studying before he drugged them. Photo: Metropolitan Police via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794530_1_20250306130805.jpg&q=90)
-  
-
-A PhD student from China was found guilty on Wednesday in a London court of drugging and raping 10 women in China and the UK, as British police warned there could be more than 50 other victims.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794530-20250306.htm)
 
 ---

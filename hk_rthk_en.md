@@ -1,3 +1,51 @@
+# Chile reviews Chinese observatory plans
+
+![Chile is home to the world's darkest skies and numerous other observatories. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796533_1_20250320084807.jpg&q=90)
+  
+
+Chile said on Wednesday it was reviewing an agreement for the construction of a Chinese astronomical observatory on its soil, a project that has drawn criticism from Washington as it jostles with Beijing for influence in Latin America.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm)
+
+---
+
+# Japan marks 30 years since subway sarin attack
+
+![A commuter is treated after being exposed to sarin gas fumes on the Tokyo Metro system on March 20, 1995. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796530_1_20250320083940.jpg&q=90)
+  
+
+Japan on Thursday marked the 30th anniversary of the sarin gas attack on Tokyo's subway that killed more than a dozen people and injured more than 5,800.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm)
+
+---
+
 # Price adjustment can help those most in need: HA
 
 ![Axel Siu (left), who chairs the Hospital Authority's Accident and Emergency Coordinating Committee, supports an adjustment of the emergency room fee. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796525_1_20250320073507.jpg&q=90)
@@ -1387,53 +1435,5 @@ Chief Executive John Lee announced on Tuesday that the Legislative Council gener
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796209-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796209-20250318.htm)
-
----
-
-# 'Changes in checkpoints for drivers need coordination'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796214_1_20250318121204.jpg&q=90)
-  
-
-Chief Executive John Lee on Tuesday said any changes to cross-border driving arrangements must prioritise traffic management and require careful coordination with mainland authorities.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796214-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796214-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796214-20250318.htm)
-
----
-
-# Small plane crash off Honduras island kills at least 7
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796215_1_20250318121302.jpg&q=90)
-  
-
-At least seven people were killed on Monday when a small plane crashed into the sea while taking off from the Honduras Caribbean island of Roatan.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm)
 
 ---

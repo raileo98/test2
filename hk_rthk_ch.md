@@ -1,3 +1,146 @@
+# 港澳台居民即日起可網上辦理電子臨時通行證
+
+  
+
+內地出入境管理局公布，即日起港澳台居民可網上辦理電子臨時通行證。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm)
+
+---
+
+# 人行維持3月貸款市場報價利率不變
+
+![人民銀行公布，1年期LPR為3.1厘，5年期以上為3.6厘，均連續5個月維持不變。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796535_1_20250320091311.jpg&q=75)
+  
+
+人民銀行維持3月貸款市場報價利率（LPR）不變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796535-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796535-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796535-20250320.htm)
+
+---
+
+# 台股初段升逾1%
+
+![台灣加權指數較早時報22261點，升300點，升幅1.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796534_1_20250320090756.jpg&q=90)
+  
+
+台灣股市在開市初段升逾1%，加權指數較早時報22261點，升300點，升幅1.37%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796534-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796534-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796534-20250320.htm)
+
+---
+
+# 保誠去年新業務利潤增加11%　料提早至今年底完成回購
+
+![保誠去年新業務利潤增加11%至30.8億美元，經調整稅後經營溢利增加7%至25.8億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796532_1_20250320084359.jpg&q=90)
+  
+
+保誠公布，去年盈利近22.9億美元，按年升34%。派第2次中期股息每股普通股16.29美仙，全年派息23.13美仙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796532-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796532-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796532-20250320.htm)
+
+---
+
+# 黃仁勳：Nvidia沒有收到邀請合組財團入股英特爾
+
+![黃仁勳表示，Nvidia沒有收到邀請合組財團入股英特爾。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796531_1_20250320084124.jpg&q=90)
+  
+
+Nvidia首席執行官黃仁勳表示，公司沒有收到關於收購英特爾股份的接洽。他在Nvidia年度開發者大會新聞發布會上，被問及Nvidia是否與台積電組成聯合財團收購英特爾，他指，沒有人邀請公司加入聯合財團。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796531-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796531-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796531-20250320.htm)
+
+---
+
+# 住建部：從供求兩端持續發力推動房地產市場止跌回穩
+
+![住建部近日召開會議指出，要堅決穩住樓市，從供求兩端持續發力，推動房地產市場止跌回穩。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796529_1_20250320082422.jpg&q=90)
+  
+
+內地住房和城鄉建設部近日召開會議指出，要堅決穩住樓市，繼續打好保交房攻堅戰，加力實施城中村和危舊房改造、推進收購存量商品房、加快構建房地產發展新模式，從供求兩端持續發力，推動房地產市場止跌回穩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm)
+
+---
+
 # 歐盟國防白皮書提出到2030年歐洲擁有強大和充份國防能力
 
 ![卡拉斯指出，國際秩序正經歷1945年以來前所未有的巨大變化。這是歐洲安全的關鍵時刻。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796528_1_20250320082408.jpg&q=90)
@@ -118,12 +261,13 @@
 
 ---
 
-# 對緊急病人服務承諾未如理想　醫管局稱合適時候檢視急症室收費
+# 急症室逾半病人屬次緊急非緊急　醫管局稱合適時候檢視收費
 
 ![黃立己希望透過調整收費，引導非緊急病人使用急症室以外的醫療服務，令他們能夠集中資源照顧緊急病人。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796519_2_20250320083645.jpg&q=80)
+![蕭粵中表示，醫管局一直有完善的分流指引，前線護士經過訓練，會按病人的病情病歷，維生指數等，為病人作出分類（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796519_3_20250320083834.jpg&q=80)
   
 
-醫管局質素及安全總監黃立己表示，全港18間公立醫院急症室，每年服務量近200萬人次，當中超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令對屬於緊急病人的服務承諾達標率只有7成多，形容情況不理想，希望可透過調整急症室收費，引導非緊急病人使用急症室以外的其他醫療服務。
+醫管局質素及安全總監黃立己表示，全港18間公立醫院急症室，每年服務量近200萬人次，當中超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令對屬於緊急病人的服務承諾達標率只有七成多，形容情況不理想，希望可透過調整急症室收費，引導非緊急病人使用急症室以外的其他醫療服務。
 
   
 
@@ -1292,149 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796464-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796464-20250319.htm)
-
----
-
-# 林大輝：新醫學院搬入牛潭尾校區前　理大可負擔所有財政開支
-
-![林大輝強調理大是肯承擔的大學，願意同政府投資未來、教育和醫療。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796462_1_20250319192157.jpg&q=85)
-  
-
-本港三間大學正分別爭取負責籌建第三間醫學院。其中理工大學表示，充滿信心可迎接此項重任。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm)
-
----
-
-# 陳國基稱預計年中向立法會提交有關簡樸房條例草案
-
-![陳國基主持筲箕灣社區客廳開幕典禮。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796456_1_20250319192036.jpg&q=80)
-  
-
-政務司司長陳國基透露，位於高山道的社區客廳將於下月開幕，令今年啟用的社區客廳總數，增加至5間，超出去年提出的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm)
-
----
-
-# 立法會三讀通過保護關鍵基礎設施條例　鄧炳強重申沒有域外效力
-
-![立法會三讀通過《保護關鍵基礎設施條例草案》。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796455_1_20250319192356.jpg&q=80)
-  
-
-《保護關鍵基礎設施條例草案》獲立法會三讀通過。多名議員都表示支持草案，認為如果香港不立法，就會落後於國際趨勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm)
-
----
-
-# 羅淑佩高度關注啟德體育園啟用初期情況　稱緊密溝通辦好七欖賽事
-
-![羅淑佩稱，政府下達要求後，啟德體育園公司已積極尋找發言人，會建立相關制度。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796454_1_20250319191833.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩表示，就啟德體育園啟用初期的情況，已向營運公司管理層表達高度關注，並指示營運公司在體制上迅速作出調整，改善員工的敏感度，以及向外發放信息的安排，包括設立專職的發言人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm)
-
----
-
-# 海洋公園登山纜車及高峰樂園一度暫停開放　有遊客表示失望
-
-![海洋公園登山纜車及高峰樂園一度暫停開放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796451_1_20250319191725.jpg&q=55)
-  
-
-海洋公園登山纜車出現訊號問題，需要暫停服務，而接載訪客往返兩個園區的海洋列車，亦正進行年檢，在沒有交通工具的情況下，高峰樂園一度暫停開放，只有山下園區開放。直至下午4時許，登山纜車及高峰樂園恢復運作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796451-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796451-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796451-20250319.htm)
-
----
-
-# 消息：簡樸房認證須收費早登記或可豁免　有條件接納向天井分間房
-
-![消息指，為鼓勵業主盡早為分間房作認證，或會推出優惠措施，就每間簡樸房認證，房屋局或會收取數千元行政等費用，若業主愈早認證，則有機會費用全免。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796458_1_20250319182155.jpg&q=90)
-  
-
-消息指，政府已大致完成規管簡樸房方案的框架細節，為鼓勵業主盡早為分間房作認證，或會推出優惠措施，就每間簡樸房認證，房屋局或會收取數千元行政等費用，若業主愈早認證，則有機會費用全免。不過，有關認證費收費，以及最終是否免費，仍要諮詢財庫局意見後，再作決定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm)
 
 ---

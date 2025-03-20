@@ -1,3 +1,26 @@
+# 港澳台居民即日起可網上辦理電子臨時通行證
+
+  
+
+內地出入境管理局公布，即日起港澳台居民可網上辦理電子臨時通行證。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm)
+
+---
+
 # 葵涌凌晨發生火警　55歲女子吸入濃煙不適送院
 
 ![葵涌凌晨發生火警　55歲女子吸入濃煙不適送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796523_1_20250320071504.jpg&q=90)
@@ -22,12 +45,13 @@
 
 ---
 
-# 對緊急病人服務承諾未如理想　醫管局稱合適時候檢視急症室收費
+# 急症室逾半病人屬次緊急非緊急　醫管局稱合適時候檢視收費
 
 ![黃立己希望透過調整收費，引導非緊急病人使用急症室以外的醫療服務，令他們能夠集中資源照顧緊急病人。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796519_2_20250320083645.jpg&q=80)
+![蕭粵中表示，醫管局一直有完善的分流指引，前線護士經過訓練，會按病人的病情病歷，維生指數等，為病人作出分類（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796519_3_20250320083834.jpg&q=80)
   
 
-醫管局質素及安全總監黃立己表示，全港18間公立醫院急症室，每年服務量近200萬人次，當中超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令對屬於緊急病人的服務承諾達標率只有7成多，形容情況不理想，希望可透過調整急症室收費，引導非緊急病人使用急症室以外的其他醫療服務。
+醫管局質素及安全總監黃立己表示，全港18間公立醫院急症室，每年服務量近200萬人次，當中超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令對屬於緊急病人的服務承諾達標率只有七成多，形容情況不理想，希望可透過調整急症室收費，引導非緊急病人使用急症室以外的其他醫療服務。
 
   
 
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm)
-
----
-
-# 兩機電署監工涉收供應商百萬元禮物　供應商多次中標訂單逾千萬元
-
-![3人涉嫌於機電署採購維修零件時，以貪污不法手段令涉案供應商於7年間多次中標，並誇大購貨訂單的購買物品數量及價格。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796367_1_20250319095519.jpg&q=90)
-  
-
-廉政公署落案起訴兩名機電署監工及一名供應商，3人涉嫌於機電署採購維修零件時，以貪污不法手段令涉案供應商於7年間多次中標，並誇大購貨訂單的購買物品數量及價格，訂單金額合共超過1360萬元。3人被控告串謀詐騙，今日將在西九龍裁判法院應訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796367-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796367-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796367-20250319.htm)
 
 ---

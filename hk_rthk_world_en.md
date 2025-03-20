@@ -1,3 +1,51 @@
+# Chile reviews Chinese observatory plans
+
+![Chile is home to the world's darkest skies and numerous other observatories. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796533_1_20250320084807.jpg&q=90)
+  
+
+Chile said on Wednesday it was reviewing an agreement for the construction of a Chinese astronomical observatory on its soil, a project that has drawn criticism from Washington as it jostles with Beijing for influence in Latin America.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm)
+
+---
+
+# Japan marks 30 years since subway sarin attack
+
+![A commuter is treated after being exposed to sarin gas fumes on the Tokyo Metro system on March 20, 1995. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796530_1_20250320083940.jpg&q=90)
+  
+
+Japan on Thursday marked the 30th anniversary of the sarin gas attack on Tokyo's subway that killed more than a dozen people and injured more than 5,800.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm)
+
+---
+
 # UK demands probe of Israel strike on Gaza UN building
 
 ![Palestinian kids watch as people search through the rubble for the bodies of their relatives after an Israeli airstrike targeted the al-Hattab family home, south of Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796520_1_20250320064412.jpg&q=85)
@@ -1389,53 +1437,5 @@ Australia is reviewing an American influencer’s visa after she posted video of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm)
-
----
-
-# Johns Hopkins University to cut thousands of jobs
-
-![President Trump signed an executive order in January demanding a freeze on all US foreign aid to allow time to assess overseas expenses. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795666_1_20250314084123.jpg&q=90)
-  
-
-The prestigious Johns Hopkins University said on Thursday it was being forced to lay off more than 2,000 employees in the aftermath of the Trump administration's massive reduction in foreign aid funding.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795666-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795666-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795666-20250314.htm)
-
----
-
-# Duterte's first court appearance set for Friday
-
-![People protest against former Philippine president Rodrigo Duterte in front of the ICC in the Hague. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795667_1_20250314085246.jpg&q=80)
-  
-
-Rodrigo Duterte's first appearance at the International Criminal Court has been set for Friday, the court said, as the former Philippines president faces crimes against humanity charges over his deadly war on drugs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795667-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795667-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795667-20250314.htm)
 
 ---

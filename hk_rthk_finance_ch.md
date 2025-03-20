@@ -1,3 +1,123 @@
+# 人行維持3月貸款市場報價利率不變
+
+![人民銀行公布，1年期LPR為3.1厘，5年期以上為3.6厘，均連續5個月維持不變。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796535_1_20250320091311.jpg&q=75)
+  
+
+人民銀行維持3月貸款市場報價利率（LPR）不變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796535-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796535-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796535-20250320.htm)
+
+---
+
+# 台股初段升逾1%
+
+![台灣加權指數較早時報22261點，升300點，升幅1.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796534_1_20250320090756.jpg&q=90)
+  
+
+台灣股市在開市初段升逾1%，加權指數較早時報22261點，升300點，升幅1.37%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796534-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796534-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796534-20250320.htm)
+
+---
+
+# 保誠去年新業務利潤增加11%　料提早至今年底完成回購
+
+![保誠去年新業務利潤增加11%至30.8億美元，經調整稅後經營溢利增加7%至25.8億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796532_1_20250320084359.jpg&q=90)
+  
+
+保誠公布，去年盈利近22.9億美元，按年升34%。派第2次中期股息每股普通股16.29美仙，全年派息23.13美仙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796532-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796532-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796532-20250320.htm)
+
+---
+
+# 黃仁勳：Nvidia沒有收到邀請合組財團入股英特爾
+
+![黃仁勳表示，Nvidia沒有收到邀請合組財團入股英特爾。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796531_1_20250320084124.jpg&q=90)
+  
+
+Nvidia首席執行官黃仁勳表示，公司沒有收到關於收購英特爾股份的接洽。他在Nvidia年度開發者大會新聞發布會上，被問及Nvidia是否與台積電組成聯合財團收購英特爾，他指，沒有人邀請公司加入聯合財團。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796531-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796531-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796531-20250320.htm)
+
+---
+
+# 住建部：從供求兩端持續發力推動房地產市場止跌回穩
+
+![住建部近日召開會議指出，要堅決穩住樓市，從供求兩端持續發力，推動房地產市場止跌回穩。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796529_1_20250320082422.jpg&q=90)
+  
+
+內地住房和城鄉建設部近日召開會議指出，要堅決穩住樓市，繼續打好保交房攻堅戰，加力實施城中村和危舊房改造、推進收購存量商品房、加快構建房地產發展新模式，從供求兩端持續發力，推動房地產市場止跌回穩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm)
+
+---
+
 # 韓股初段上升　日股休市
 
 ![首爾綜合指數較早時報2642點，升14點，升幅0.54%。日本股市假期休市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796527_1_20250320081126.jpg&q=90)
@@ -1316,125 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796361-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796361-20250319.htm)
-
----
-
-# 人民幣中間價上升
-
-![人民幣中間價報7.1697兌1美元，較上日中間價上調36點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796359_1_20250319092426.jpg&q=80)
-  
-
-人民幣中間價報7.1697兌1美元，較上日中間價上調36點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796359-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796359-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796359-20250319.htm)
-
----
-
-# 《環看天下》：卡尼訪問英法兩國   分析：與歐洲盟友展現團結
-
-![加拿大總理卡尼日前分别前往法國及英國訪問。( 路透社 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796358_1_20250319091755.jpg&q=90)
-  
-
-加拿大總理卡尼日前正式宣誓就任，隨即分别前往法國及英國訪問。這兩個國家都與加拿大有深厚的歷史淵源。英法兩國領袖都分别向卡尼保證，維持雙方緊密的盟友關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm)
-
----
-
-# 台股初段偏軟
-
-![加權指數較早時報22231點，跌40點，跌幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796356_1_20250319090533.jpg&q=90)
-  
-
-台灣股市初段偏軟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796356-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796356-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796356-20250319.htm)
-
----
-
-# 新奧能源停牌
-
-![新奧能源今早9時起停牌，待公布內幕消息公告。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796355_1_20250319090340.jpg&q=80)
-  
-
-新奧能源今早9時起停牌，待公布內幕消息公告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796355-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796355-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796355-20250319.htm)
-
----
-
-# 日本2月出口按年增長11.4%　連升5個月
-
-![日本2月出口按年增長11.4%，連續第5個月增長。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796350_1_20250319081626.jpg&q=85)
-  
-
-日本2月出口按年增長11.4%，連續第5個月增長，但增幅低於市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796350-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796350-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796350-20250319.htm)
 
 ---
