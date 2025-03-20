@@ -1,3 +1,27 @@
+# 內地2月不包括在校生16至24歲青年失業率升至16.9%
+
+![內地2月不包括在校生16至24歲青年失業率升至16.9%，比1月上升0.8個百分點，創4個月新高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796569_1_20250320120233.jpg&q=85)
+  
+
+國家統計局數據顯示，2月全國城鎮不包括在校生的16至24歲勞動力失業率升至16.9%，比1月上升0.8個百分點，創4個月新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796569-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796569-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796569-20250320.htm)
+
+---
+
 # 李慧琼稱臨時通行證提高人流便捷度　黃國盼擴展至用於出入境
 
 ![李慧琼（左）說，新措施將進一步便利在內地的本港居民；黃國（右）歡迎新措施，認為積極回應香港市民多方面的訴求。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796575_2_20250320124530.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm)
-
----
-
-# 人行：將會同有關部門研究出台金融支持擴大消費專門文件
-
-![人行表示，將會同有關部門研究出台金融支持擴大消費專門文件，引導金融機構積極滿足各類主體多樣化資金需求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796070_1_20250317171515.jpg&q=80)
-  
-
-人民銀行表示，下一步將會同有關部門研究出台金融支持擴大消費專門文件，引導金融機構從消費供應及需求，積極滿足各類主體多樣化資金需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796070-20250317.htm)
 
 ---

@@ -1,3 +1,143 @@
+# 青少年護齒計劃展開　政府資助200元參加者支付共付額
+
+  
+
+「青少年護齒共同治理先導計劃」今日開展服務，合資格青少年可於每年接受一次資助服務，政府會就每次服務向每名青少年提供200元資助，而參加者須自行支付所選牙醫釐定的共付額，政府就每次資助服務建議的共付額為200元。截至昨日，已獲衞生署接納申請的註冊牙醫數目為約270名，共有超過370個服務點，當中逾67%收取200元或以下的共付診金，最低為50元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796595-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796595-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796595-20250320.htm)
+
+---
+
+# 內地2月不包括在校生16至24歲青年失業率升至16.9%
+
+![內地2月不包括在校生16至24歲青年失業率升至16.9%，比1月上升0.8個百分點，創4個月新高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796569_1_20250320120233.jpg&q=85)
+  
+
+國家統計局數據顯示，2月全國城鎮不包括在校生的16至24歲勞動力失業率升至16.9%，比1月上升0.8個百分點，創4個月新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796569-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796569-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796569-20250320.htm)
+
+---
+
+# 監管沙盒試點包括科學園上空配送食品　嘗試跨越城門河到馬鞍山
+
+  
+
+運輸及房屋局局長陳美寶表示，首批低空經濟「監管沙盒」試點項目，部份將會在科學園和數碼港試驗，將物資由園區配送到離島，當局亦期望在第二季之內修例，放寬無人機的負重限制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796594-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796594-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796594-20250320.htm)
+
+---
+
+# 銅鑼灣醫衞醫療中心撤銷牌照　衞生署指違多項守則對病人構成風險
+
+  
+
+衞生署宣布，撤銷銅鑼灣醫衞醫療中心的牌照。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796593-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796593-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796593-20250320.htm)
+
+---
+
+# 社企藉活動改善青年長者精神健康　匯豐基金撥1800萬助辦活動
+
+  
+
+匯豐慈善基金今年再撥出1800萬元，供全港18區不同慈善機構舉辦活動，以創造跨代連繫的生活環境，希望減少長者的社交孤獨感。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796592-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796592-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796592-20250320.htm)
+
+---
+
+# 華潤電力去年盈利升約31%　派息率降至40%
+
+![華潤電力去年全年派息1.19港元，派息率40%，按年下降22個百分點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796587_1_20250320124906.jpg&q=80)
+  
+
+華潤電力去年盈利143.9億港元，按年升約31%。派末期息每股0.691元，全年派息1.19元；派息率40%，按年下降22個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796587-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796587-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796587-20250320.htm)
+
+---
+
 # 港股下午初段跌逾1%　吉利汽車績後靠穩
 
 ![恒生指數較早時報24486點，跌284點，跌幅1.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796589_1_20250320130332.jpg&q=90)
@@ -453,7 +593,7 @@
 
 # 外籍人士墮投資虛擬貨幣騙案失逾7千萬元　警破45案涉1.9億
 
-![警方偵破45宗詐騙及洗黑錢案件，總損失金額高達1億9千4百萬港元。（彭冠中攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796565_1_20250320113913.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796565_1_20250320113913.jpg&q=90)
   
 
 警方偵破45宗詐騙及洗黑錢案件，總損失金額高達1億9千4百萬港元，行動中拘捕54人。

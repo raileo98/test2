@@ -1,3 +1,95 @@
+# 青少年護齒計劃展開　政府資助200元參加者支付共付額
+
+  
+
+「青少年護齒共同治理先導計劃」今日開展服務，合資格青少年可於每年接受一次資助服務，政府會就每次服務向每名青少年提供200元資助，而參加者須自行支付所選牙醫釐定的共付額，政府就每次資助服務建議的共付額為200元。截至昨日，已獲衞生署接納申請的註冊牙醫數目為約270名，共有超過370個服務點，當中逾67%收取200元或以下的共付診金，最低為50元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796595-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796595-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796595-20250320.htm)
+
+---
+
+# 監管沙盒試點包括科學園上空配送食品　嘗試跨越城門河到馬鞍山
+
+  
+
+運輸及房屋局局長陳美寶表示，首批低空經濟「監管沙盒」試點項目，部份將會在科學園和數碼港試驗，將物資由園區配送到離島，當局亦期望在第二季之內修例，放寬無人機的負重限制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796594-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796594-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796594-20250320.htm)
+
+---
+
+# 銅鑼灣醫衞醫療中心撤銷牌照　衞生署指違多項守則對病人構成風險
+
+  
+
+衞生署宣布，撤銷銅鑼灣醫衞醫療中心的牌照。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796593-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796593-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796593-20250320.htm)
+
+---
+
+# 社企藉活動改善青年長者精神健康　匯豐基金撥1800萬助辦活動
+
+  
+
+匯豐慈善基金今年再撥出1800萬元，供全港18區不同慈善機構舉辦活動，以創造跨代連繫的生活環境，希望減少長者的社交孤獨感。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796592-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796592-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796592-20250320.htm)
+
+---
+
 # 渣打香港：港元最優惠貸款利率維持5.5厘
 
 ![渣打香港表示，港元最優惠貸款利率維持於5.5厘。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796588_1_20250320125149.jpg&q=90)
@@ -239,7 +331,7 @@
 
 # 外籍人士墮投資虛擬貨幣騙案失逾7千萬元　警破45案涉1.9億
 
-![警方偵破45宗詐騙及洗黑錢案件，總損失金額高達1億9千4百萬港元。（彭冠中攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796565_1_20250320113913.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796565_1_20250320113913.jpg&q=90)
   
 
 警方偵破45宗詐騙及洗黑錢案件，總損失金額高達1億9千4百萬港元，行動中拘捕54人。
@@ -1341,101 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796420-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796420-20250319.htm)
-
----
-
-# 林健鋒稱多國面對美國加徵關稅　籲港商沉著應戰勿自亂陣腳
-
-![林建峰（中）呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796417_1_20250319160046.jpg&q=90)
-  
-
-行政會議成員、立法會商界議員林健鋒表示，現時不只中國面對美國加徵關稅的問題，即使是美國盟友，例如墨西哥、加拿大等都面對同樣問題，呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應戰，亦希望貿易戰盡快平息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm)
-
----
-
-# 海洋公園停纜車有遊客感失望　有遊客稱園方可安排旅遊巴接載上山
-
-![海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796416_1_20250319154422.jpg&q=90)
-  
-
-海洋公園表示，由於登山纜車出現訊號問題，為確保安全，纜車需暫停服務以進行詳細檢查。而海洋列車亦正在進行年度檢查，現時無法接載訪客往返兩個園區。高峰樂園將暫停開放，直至另行通知，訪客現時可到訪山下園區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796416-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796416-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796416-20250319.htm)
-
----
-
-# 保障關鍵基礎設施條例恢復二讀　多名議員支持稱有助提升香港形象
-
-![立法會恢復二讀辯論保護關鍵基礎設施的條例草案。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796414_1_20250319152315.jpg&q=80)
-  
-
-立法會恢復二讀辯論保護關鍵基礎設施的條例草案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796414-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796414-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796414-20250319.htm)
-
----
-
-# 理大籌建第三間醫學院專家諮詢委員會21人包括鍾南山及張文宏
-
-![委員會成員包括中國工程院院士鍾南山（左）、國家傳染病醫學中心主任張文宏（中）、前食物及衞生局局長周一嶽（右）。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796410_2_20250319150727.jpg&q=90)
-  
-
-本港三所大學正分別爭取籌建第三間醫學院，其中理大公布籌建第三間醫學院的專家諮詢委員會名單，合共有21人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm)
 
 ---
