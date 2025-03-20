@@ -1,3 +1,50 @@
+# 商務部稱中方願同日方共同努力　推動經濟高層對話取得務實成果
+
+![商務部稱中日經濟高層對話時隔六年重啟，具有重要意義。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796612_1_20250320164133.jpg&q=75)
+  
+
+第六次中日經濟高層對話本月22日將在日本東京舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm)
+
+---
+
+# 習近平到雲南考察　強調在中國式現代化進程中開創雲南發展新局面
+
+  
+
+中共總書記習近平在雲南考察時強調，雲南要認真落實黨中央關於西部大開發和長江經濟帶發展的戰略部署，完整準確全面貫徹新發展理念，堅持穩中求進工作總基調，著力推動高質量發展，解放思想、改革創新，奮發進取、真抓實幹，在中國式現代化進程中開創雲南發展新局面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm)
+
+---
+
 # 澳門司警收到9人報稱疑遭婚戒公司詐騙共12萬
 
 ![澳門司警表示，高度重視案件，已經透過警務合作渠道通報香港警方。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796658_1_20250320192723.jpg&q=90)
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796106-20250317.htm)
-
----
-
-# 就澤連斯基稱重建冀獲中國援助　國合署：願提供力所能及幫助
-
-![澤連斯基早前表示，希望能夠在烏克蘭停止戰爭、恢復和平以及未來重建過程中得到中國的援助。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796103_1_20250317203049.jpg&q=90)
-  
-
-中國國家國際發展合作署新聞發言人李明表示，烏克蘭危機爆發以來，中國共向烏克蘭提供四批人道主義援助。中方將繼續做維護世界和平穩定的積極力量，捍衛全球公平正義的進步力量。願繼續根據當事方的意願，提供力所能及的幫助。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796103-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796103-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796103-20250317.htm)
-
----
-
-# 藍田五邑司徒浩中學6名學生上周廈門交流時急性腸胃炎　曾食團餐
-
-![衞生防護中心正調查一宗中學交流團出現急性腸胃炎徵狀個案群組，涉及6名上星期參加交流團到廈門的學生。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796102_1_20250317184421.jpg&q=80)
-  
-
-再有中學訪內地交流團的學生急性腸胃炎，最新的個案涉及藍田五邑司徒浩中學，36名師生在上周四至周六日參加交流團到廈門，期間6名學生在上周五晚9時至翌日早上約7時，陸續出現急性腸胃炎病徵，包括嘔吐、腹瀉和發燒。其中5人在當地求醫，全部無需留院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm)
 
 ---

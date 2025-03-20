@@ -1,3 +1,26 @@
+# 全球金融中心指數報告香港評分升全球排第三　陳茂波稱令人鼓舞
+
+  
+
+英國Z/Yen集團與中國（深圳）綜合開發研究院，今日發布最新《全球金融中心指數》報告，香港的整體評分上升11分至760分，總排名維持全球第三位，並在亞太區繼續居首。紐約及倫敦繼續分別位居於首位及第二。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm)
+
+---
+
 # 載通去年盈利跌53%　九巴稅後盈利升逾10倍
 
 ![九龍巴士去年除稅後盈利1.27億元，增長逾10倍，因車費收入增加。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796656_1_20250320191216.jpg&q=85)
@@ -1420,30 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796491-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796491-20250319.htm)
-
----
-
-# 羅淑佩見證馬會與中旅簽署備忘錄聯手推動賽馬旅遊
-
-![文化體育及旅遊局局長羅淑佩（後排中），中聯辦經濟部副部長郭韶偉（後排左一）等見證下，馬會與香港中旅集團代表簽署合作備忘錄，加強在旅遊、體育、文化及青年發展的戰略合作。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796489_1_20250319230003.jpg&q=90)
-![雙方將聯手推動賽馬旅遊，將馬會的跑馬地馬場、沙田馬場，以及將於明年開始舉辦常規性賽事的廣州從化馬場，納入中旅的旅遊路線。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796489_2_20250319230003.jpg&q=60)
-  
-
-文化體育及旅遊局局長羅淑佩見證馬會與中旅集團簽署備忘錄。羅淑佩表示，高興看到馬會與中旅攜手推廣具香港特色的旅遊產品，包括賽馬旅遊及海島旅遊，並在旅遊、體育和文化方面加強合作，進一步向外展示香港作為世界級旅遊目的地的魅力，吸引旅客來港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm)
 
 ---

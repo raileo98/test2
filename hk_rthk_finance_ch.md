@@ -1,3 +1,97 @@
+# 商務部稱中方願同日方共同努力　推動經濟高層對話取得務實成果
+
+![商務部稱中日經濟高層對話時隔六年重啟，具有重要意義。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796612_1_20250320164133.jpg&q=75)
+  
+
+第六次中日經濟高層對話本月22日將在日本東京舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm)
+
+---
+
+# 全球金融中心指數報告香港評分升全球排第三　陳茂波稱令人鼓舞
+
+  
+
+英國Z/Yen集團與中國（深圳）綜合開發研究院，今日發布最新《全球金融中心指數》報告，香港的整體評分上升11分至760分，總排名維持全球第三位，並在亞太區繼續居首。紐約及倫敦繼續分別位居於首位及第二。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm)
+
+---
+
+# 英國維持利率不變
+
+![英倫銀行貨幣政策委員會以8票對1票，維持指標利率4.5厘不變。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796659_1_20250320201122.jpg&q=90)
+  
+
+英倫銀行宣布維持利率不變，貨幣政策委員會以8票對1票，維持指標利率在4.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796659-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796659-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796659-20250320.htm)
+
+---
+
+# 習近平到雲南考察　強調在中國式現代化進程中開創雲南發展新局面
+
+  
+
+中共總書記習近平在雲南考察時強調，雲南要認真落實黨中央關於西部大開發和長江經濟帶發展的戰略部署，完整準確全面貫徹新發展理念，堅持穩中求進工作總基調，著力推動高質量發展，解放思想、改革創新，奮發進取、真抓實幹，在中國式現代化進程中開創雲南發展新局面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm)
+
+---
+
 # 載通去年盈利跌53%　九巴稅後盈利升逾10倍
 
 ![九龍巴士去年除稅後盈利1.27億元，增長逾10倍，因車費收入增加。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796656_1_20250320191216.jpg&q=85)
@@ -91,6 +185,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm)
+
+---
+
+# 第六次中日經濟高層對話後天東京舉行　時隔六年重啟
+
+![何咏前說，當前中日關係呈現改善發展的良好積極勢頭。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796651_1_20250320183913.jpg&q=90)
+  
+
+第六次中日經濟高層對話本月22日將在日本東京舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm)
 
 ---
 
@@ -214,6 +332,30 @@
 
 ---
 
+# 外交部：經貿分歧應透過對話協商解決而非讓全球經濟承擔代價
+
+![毛寧說，無論外部環境如何變化，中方將堅持對外開放，與世界各國共同發展，互利共贏。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796637_1_20250320175602.jpg&q=90)
+  
+
+經濟合作暨發展組織最新發布的中期經濟展望報告下調全球的經濟增長預期，認為一些國家近期採取的貿易壁壘措施將影響世界經濟的增速，導致通脹上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm)
+
+---
+
 # 李澤鉅：香港及內地一直是集團重要市場
 
 ![李澤鉅在長實業績報告提到，香港及內地一直是集團重要市場，謹慎應對多變挑戰及不明朗宏觀經濟因素。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796634_1_20250320174525.jpg&q=80)
@@ -283,6 +425,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm)
+
+---
+
+# 習近平到雲南麗江考察　強調文旅產業要走一條持續、健康發展之路
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796630_1_20250320183940.jpg&q=90)
+  
+
+中共總書記習近平到雲南考察，昨日下午到位於雲南北部的麗江市，先後考察麗江現代花卉產業園和麗江古城，了解當地因地制宜發展特色農業、加強歷史文化遺產保護利用等情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm)
 
 ---
 
@@ -1389,149 +1555,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796535-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796535-20250320.htm)
-
----
-
-# 台股初段升逾1%
-
-![台灣加權指數較早時報22261點，升300點，升幅1.37%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796534_1_20250320090756.jpg&q=90)
-  
-
-台灣股市在開市初段升逾1%，加權指數較早時報22261點，升300點，升幅1.37%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796534-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796534-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796534-20250320.htm)
-
----
-
-# 保誠去年新業務利潤增加11%　料提早至今年底完成回購
-
-![保誠去年新業務利潤增加11%至30.8億美元，經調整稅後經營溢利增加7%至25.8億美元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796532_1_20250320084359.jpg&q=90)
-  
-
-保誠公布，去年盈利近22.9億美元，按年升34%。派第2次中期股息每股普通股16.29美仙，全年派息23.13美仙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796532-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796532-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796532-20250320.htm)
-
----
-
-# 黃仁勳：Nvidia沒有收到邀請合組財團入股英特爾
-
-![黃仁勳表示，Nvidia沒有收到邀請合組財團入股英特爾。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796531_1_20250320084124.jpg&q=90)
-  
-
-Nvidia首席執行官黃仁勳表示，公司沒有收到關於收購英特爾股份的接洽。他在Nvidia年度開發者大會新聞發布會上，被問及Nvidia是否與台積電組成聯合財團收購英特爾，他指，沒有人邀請公司加入聯合財團。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796531-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796531-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796531-20250320.htm)
-
----
-
-# 住建部：從供求兩端持續發力推動房地產市場止跌回穩
-
-![住建部近日召開會議指出，要堅決穩住樓市，從供求兩端持續發力，推動房地產市場止跌回穩。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796529_1_20250320082422.jpg&q=90)
-  
-
-內地住房和城鄉建設部近日召開會議指出，要堅決穩住樓市，繼續打好保交房攻堅戰，加力實施城中村和危舊房改造、推進收購存量商品房、加快構建房地產發展新模式，從供求兩端持續發力，推動房地產市場止跌回穩。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm)
-
----
-
-# 韓股初段上升　日股休市
-
-![首爾綜合指數較早時報2642點，升14點，升幅0.54%。日本股市假期休市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796527_1_20250320081126.jpg&q=90)
-  
-
-南韓股市在開市初段上升，首爾綜合指數較早時報2642點，升14點，升幅0.54%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796527-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796527-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796527-20250320.htm)
-
----
-
-# 巴西央行再加息1厘　央行指未來加息步伐或放慢
-
-![巴西央行加息1厘。央行政策聲明表示，如果情況按預期發展，利率制定委員會預計下次會議調整幅度將較小。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796526_1_20250320074750.jpg&q=90)
-  
-
-巴西央行加息1厘，將指標利率上調至14.25厘，至2016年以來最高水平，符合市場預期，連續3次會議加息1厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796526-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796526-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796526-20250320.htm)
 
 ---

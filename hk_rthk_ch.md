@@ -1,3 +1,97 @@
+# 商務部稱中方願同日方共同努力　推動經濟高層對話取得務實成果
+
+![商務部稱中日經濟高層對話時隔六年重啟，具有重要意義。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796612_1_20250320164133.jpg&q=75)
+  
+
+第六次中日經濟高層對話本月22日將在日本東京舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm)
+
+---
+
+# 全球金融中心指數報告香港評分升全球排第三　陳茂波稱令人鼓舞
+
+  
+
+英國Z/Yen集團與中國（深圳）綜合開發研究院，今日發布最新《全球金融中心指數》報告，香港的整體評分上升11分至760分，總排名維持全球第三位，並在亞太區繼續居首。紐約及倫敦繼續分別位居於首位及第二。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm)
+
+---
+
+# 英國維持利率不變
+
+![英倫銀行貨幣政策委員會以8票對1票，維持指標利率4.5厘不變。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796659_1_20250320201122.jpg&q=90)
+  
+
+英倫銀行宣布維持利率不變，貨幣政策委員會以8票對1票，維持指標利率在4.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796659-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796659-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796659-20250320.htm)
+
+---
+
+# 習近平到雲南考察　強調在中國式現代化進程中開創雲南發展新局面
+
+  
+
+中共總書記習近平在雲南考察時強調，雲南要認真落實黨中央關於西部大開發和長江經濟帶發展的戰略部署，完整準確全面貫徹新發展理念，堅持穩中求進工作總基調，著力推動高質量發展，解放思想、改革創新，奮發進取、真抓實幹，在中國式現代化進程中開創雲南發展新局面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm)
+
+---
+
 # 澳門司警收到9人報稱疑遭婚戒公司詐騙共12萬
 
 ![澳門司警表示，高度重視案件，已經透過警務合作渠道通報香港警方。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796658_1_20250320192723.jpg&q=90)
