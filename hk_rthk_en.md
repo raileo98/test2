@@ -1,3 +1,51 @@
+# Japan first team to qualify for 2026 World Cup
+
+![Daichi Kamada's ninth goal for Japan sends the 60,000-strong crowd wild. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796672_1_20250320214131.jpg&q=75)
+  
+
+Japan became the first team to qualify for the 2026 World Cup after second-half goals from Daichi Kamada and Takefusa Kubo gave them a 2-0 win over Bahrain on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm)
+
+---
+
+# HK ranked Asia's top financial centre, third globally
+
+![Hong Kong retains its spot as Asia's top financial centre, having only reclaimed it from Singapore in September 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796664_1_20250320203327.jpg&q=90)
+  
+
+Hong Kong remains Asia's top financial hub, and third in the world behind New York and London, according to a half-yearly index of global financial centres.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm)
+
+---
+
 # Zelensky, EU leaders discuss support for Ukraine
 
 ![Ukrainian President Volodymyr Zelensky was set to address the summit by video link. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796668_1_20250320205411.jpg&q=90)
@@ -1391,53 +1439,5 @@ Hundreds of thousands of people were forced to flee climate disasters last year,
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm)
-
----
-
-# Hong Kong stocks open flat ahead of Fed decision
-
-![The Fed on Wednesday is expected to maintain current interest rates. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796365_1_20250319093927.jpg&q=90)
-  
-
-The Hang Seng Index lost 42.94 points, or 0.17 percent, to open at 24,697.63 on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm)
-
----
-
-# Supreme Court chief chides Trump over impeachment call
-
-![A brief statement from Chief Justice of the United States, John Roberts, said impeachment was not an appropriate response to disagreement. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796357_1_20250319090726.jpg&q=90)
-  
-
-US Chief Justice John Roberts on Tuesday issued a rare public rebuke of President Donald Trump, over his call for the impeachment of a federal judge, in an extraordinary display of conflict between the executive and judiciary branches.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm)
 
 ---

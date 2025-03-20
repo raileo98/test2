@@ -1,3 +1,51 @@
+# 美股開市後下跌
+
+![聯儲局警告經濟前景不明朗，投資者憂慮關稅戰拖累經濟，打擊美股開市表現。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796673_1_20250320213933.jpg&q=90)
+  
+
+紐約股市下跌。美國聯儲局警告經濟前景不明朗，投資者憂慮關稅戰拖累經濟，打擊股市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796673-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796673-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796673-20250320.htm)
+
+---
+
+# 李家超：港珠澳大橋去年客流車流按年增七成　推進粵港「硬聯通」
+
+![李家超在廣東省在港舉行的春茗致辭說，香港與廣東同根同源，一起攜手推進大灣區發展，開創新格局。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796670_1_20250320213054.jpg&q=90)
+  
+
+行政長官李家超表示，香港與廣東同根同源，一起攜手推進大灣區發展，開創新格局，去年港珠澳大橋的客流和車流，分別超過2700萬人次和555萬輛次，按年分別增長超過70%，創歷史新高，進一步推進粵港「硬聯通」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm)
+
+---
+
 # 長和：持續地緣政治風險影響全球貿易
 
   
@@ -45,6 +93,54 @@
 
 ---
 
+# 李強到福建調研　強調要深入貫徹習近平在全國兩會期間講話精神
+
+![李強在福建調研時說，要深入貫徹習近平總書記在全國兩會期間的重要講話精神，加快構建高水平對外開放新優勢。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796665_1_20250320204447.jpg&q=90)
+  
+
+中共中央政治局常委、國務院總理李強周二起一連三日在福建調研。他說，要深入貫徹中共中央總書記習近平在全國兩會期間的重要講話精神，認真落實兩會明確的各項任務，以開拓創新精神做好穩外貿工作，加快構建高水平對外開放新優勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm)
+
+---
+
+# 夏寶龍會見香港歐洲商會　稱全力支持香港長期保持獨特地位和優勢
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796663_1_20250320203336.jpg&q=90)
+  
+
+在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見香港歐洲商會訪京團。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm)
+
+---
+
 # 商務部稱中方願同日方共同努力　推動經濟高層對話取得務實成果
 
 ![商務部稱中日經濟高層對話時隔六年重啟，具有重要意義。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796612_1_20250320164133.jpg&q=75)
@@ -71,6 +167,7 @@
 
 # 全球金融中心指數報告香港評分升全球排第三　陳茂波稱令人鼓舞
 
+![香港總排名維持全球第三位。（陳茂波社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796661_1_20250320214014.jpg&q=90)
   
 
 英國Z/Yen集團與中國（深圳）綜合開發研究院，今日發布最新《全球金融中心指數》報告，香港的整體評分上升11分至760分，總排名維持全球第三位，並在亞太區繼續居首。紐約及倫敦繼續分別位居於首位及第二。
@@ -1529,78 +1626,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796538-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796538-20250320.htm)
-
----
-
-# 人民幣兌美元中間價創2個月低位
-
-![人民幣中間價報7.1754兌1美元，較上日中間價跌57點子，創2個月低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796537_1_20250320092205.jpg&q=80)
-  
-
-人民幣中間價報7.1754兌1美元，較上日中間價跌57點子，創2個月低位，與市場預測偏離擴至近650點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796537-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796537-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796537-20250320.htm)
-
----
-
-# 港澳台居民即日起可網上辦理電子臨時通行證
-
-![內地出入境管理局即日起實施兩項便利港澳台居民措施。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796536_1_20250320094625.jpg&q=85)
-![港澳台居民因遺失損毀或忘記攜帶通行證，需緊急乘坐交通工具，可通過手機登錄中國出入境管理局政務服務平台，即時申請有效期為7日的電子臨時通行證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796536_2_20250320094928.jpg&q=85)
-  
-
-內地出入境管理局公布，即日起港澳台居民可網上辦理電子臨時通行證。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm)
-
----
-
-# 人行3月貸款市場報價利率維持不變
-
-![人民銀行公布，1年期LPR為3.1厘，5年期以上為3.6厘，均連續5個月維持不變。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796535_1_20250320091311.jpg&q=75)
-  
-
-人民銀行維持3月貸款市場報價利率（LPR）不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796535-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796535-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796535-20250320.htm)
 
 ---

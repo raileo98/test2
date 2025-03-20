@@ -1,3 +1,27 @@
+# Japan first team to qualify for 2026 World Cup
+
+![Daichi Kamada's ninth goal for Japan sends the 60,000-strong crowd wild. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796672_1_20250320214131.jpg&q=75)
+  
+
+Japan became the first team to qualify for the 2026 World Cup after second-half goals from Daichi Kamada and Takefusa Kubo gave them a 2-0 win over Bahrain on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm)
+
+---
+
 # Legendary F1 team owner Eddie Jordan dies
 
 ![Eddie Jordan had been undergoing treatment for what he had called 'quite aggressive' cancer of the bladder and prostate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796629_1_20250320172623.jpg&q=85)
@@ -1418,29 +1442,5 @@ Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europ
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm)
-
----
-
-# Ireland's Doris fit to face France in Six Nations
-
-![Irish captain Caelan Doris will earn his 50th cap in Saturday's crucial match against France in Dublin. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794627_1_20250306222902.jpg&q=90)
-  
-
-Irish captain Caelan Doris is fit and will face France, handing a massive boost to Ireland ahead of their potential Six Nations title decider in Dublin on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794627-20250306.htm)
 
 ---

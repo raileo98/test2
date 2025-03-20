@@ -1,3 +1,27 @@
+# 美股開市後下跌
+
+![聯儲局警告經濟前景不明朗，投資者憂慮關稅戰拖累經濟，打擊美股開市表現。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796673_1_20250320213933.jpg&q=90)
+  
+
+紐約股市下跌。美國聯儲局警告經濟前景不明朗，投資者憂慮關稅戰拖累經濟，打擊股市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796673-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796673-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796673-20250320.htm)
+
+---
+
 # 澤連斯基稱特朗普對扎波羅熱核電站表現出興趣但烏克蘭無意轉讓
 
 ![扎波羅熱核電站是歐洲最大核電站之一，現時由俄羅斯控制。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796669_1_20250320211950.jpg&q=90)
@@ -239,6 +263,7 @@
 
 # 全球金融中心指數報告香港評分升全球排第三　陳茂波稱令人鼓舞
 
+![香港總排名維持全球第三位。（陳茂波社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796661_1_20250320214014.jpg&q=90)
   
 
 英國Z/Yen集團與中國（深圳）綜合開發研究院，今日發布最新《全球金融中心指數》報告，香港的整體評分上升11分至760分，總排名維持全球第三位，並在亞太區繼續居首。紐約及倫敦繼續分別位居於首位及第二。
