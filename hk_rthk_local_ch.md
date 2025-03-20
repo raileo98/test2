@@ -1,3 +1,26 @@
+# 「裕澤香江」高峰論壇下周三舉行　蔡崇信、蓋茲基金會高層等出席
+
+  
+
+由政府舉辦的「裕澤香江」高峰論壇，將於下周三舉行，以「香港—為全球，向世界」為主題，聚焦藝術文化、慈善傳承、科技與人工智能投資三大議題，多名講者及家族辦公室決策人會出席，探討如何善用香港獨特優勢，塑造前景及建立可傳承的財富。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796568-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796568-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796568-20250320.htm)
+
+---
+
 # 外籍人士墮投資虛擬貨幣騙案失逾7千萬元　警破45案涉1.9億
 
 ![警方偵破45宗詐騙及洗黑錢案件，總損失金額高達1億9千4百萬港元。（彭冠中攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796565_1_20250320113913.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796392-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796392-20250319.htm)
-
----
-
-# 理大稱對籌建第三間醫學院充滿信心
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796390_1_20250319125028.jpg&q=85)
-  
-
-理工大學表示，充滿信心迎接籌建第三間醫學院的重任。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm)
 
 ---
