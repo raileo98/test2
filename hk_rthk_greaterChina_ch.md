@@ -1,27 +1,3 @@
-# 澳門司警收到9人報稱疑遭婚戒公司詐騙共12萬
-
-![澳門司警表示，高度重視案件，已經透過警務合作渠道通報香港警方。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796657_1_20250320192052.jpg&q=90)
-  
-
-香港婚戒公司突然結業，澳門司警表示，至今收到9名事主舉報，合共損失12萬澳門元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm)
-
----
-
 # 西藏原黨委書記吳英杰承認受賄　法庭擇期宣判
 
 ![西藏原黨委書記吳英杰承認受賄　法庭擇期宣判](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796653_1_20250320184254.jpg&q=90)
@@ -1437,5 +1413,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796102-20250317.htm)
+
+---
+
+# 發改委：部門要落實促進居民「增收減負」及處理「加班文化」問題
+
+![發改委稱《提振消費專項行動方案》是「牽頭管總」文件，每個部門都要抓好貫徹落實。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796097_1_20250317192823.jpg&q=85)
+  
+
+國家發展和改革委員會副主任李春臨表示，中央印發的《提振消費專項行動方案》，是一份「牽頭管總」的綜合性文件，每個部門都要抓好貫徹落實，包括促進居民「增收減負」，處理「加班文化」盛行的問題等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm)
 
 ---

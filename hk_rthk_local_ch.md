@@ -1,3 +1,74 @@
+# 載通去年盈利跌53%　九巴稅後盈利升逾10倍
+
+![九龍巴士去年除稅後盈利1.27億元，增長逾10倍，因車費收入增加。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796656_1_20250320191216.jpg&q=85)
+  
+
+九巴母公司載通去年盈利1.87億元，下跌逾53%；撇除投資物業及發展中投資物業公平價值變動，基礎盈利逾2.65億元，增長逾1.3倍，受到專營公共巴士業務表現改善，但部分上市債務證券預期信貸虧損抵銷部分盈利。末期息維持每股0.5元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796656-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796656-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796656-20250320.htm)
+
+---
+
+# 證監會要求券商對新股孖展融資最多只能借90%
+
+![證監會向持牌法團發指引，未繳足資金的新股認購，應向客戶收取最低相等於認購金額10%的預付資金。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796655_1_20250320190309.jpg&q=90)
+  
+
+證監會就首次公開招股（IPO）認購及融資服務，向持牌法團提供額外指引，以加強風險管理，保護投資者免受過度財務風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm)
+
+---
+
+# 57人投訴付款訂購結婚戒指後未能收貨　警拘一婚戒公司董事
+
+  
+
+一間婚戒設計公司本月初突然結業，海關拘捕公司唯一董事，涉嫌於銷售貨物時，作出不當地接受付款的營業行為，違反《商品說明條例》。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm)
+
+---
+
 # 港澳台居民即日起可網上辦理臨時通行證　李慧琼：提高人流便捷度
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796652_1_20250320184711.jpg&q=90)
@@ -1374,77 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm)
-
----
-
-# 九巴指涉大埔交通意外車長昨日休息　工會質疑與工作安排失當有關
-
-![九巴表示，根據記錄，昨天為相關車長的休息日，公司會配合警方調查事件起因。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796486_1_20250319233952.jpg&q=80)
-  
-
-一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄。11人受傷，包括車長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796486-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796486-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796486-20250319.htm)
-
----
-
-# 發展局：金屬棚架不會大幅提高工程造價　佔工程合約金額2%
-
-![發展局說，金屬棚架因使用標準組件，更能保障棚架上工作人員的安全。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796485_1_20250319222511.jpg&q=75)
-  
-
-發展局表示，為進一步推廣應用金屬棚架，本月21日或以後招標的工務工程新建樓宇工程合約的半數，要採用金屬棚架，但不包括樓宇外牆維修合約。以今年的新建樓宇工務工程合約計，半數只涉及一至兩個新建樓宇工程項目。局方強調，金屬棚架不會大幅提高工程造價，整體開支大約佔樓宇建造工程合約金額的2%，而使用竹棚架則為1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796485-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796485-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796485-20250319.htm)
-
----
-
-# 醫務衞生局稱現無計劃將京士柏用地改作醫療以外其他用途
-
-![伊利沙伯醫院多項服務，預計明年初陸續搬遷至位於啟德新急症醫院。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796482_1_20250319233554.jpg&q=75)
-  
-
-伊利沙伯醫院多項服務，預計明年初陸續搬遷至位於啟德新急症醫院。醫務衞生局回覆傳媒查詢時表示，政府現階段並無計劃將伊利沙伯醫院所在的京士柏用地，改作醫療以外的其他用途，當局檢視第二個醫院發展計劃時，會一併考慮京士柏用地，未來的醫療用途及發展計劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796482-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796482-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796482-20250319.htm)
 
 ---
