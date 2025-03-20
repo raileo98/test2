@@ -1,3 +1,27 @@
+# US stocks edge lower as Fed rally falters
+
+![The Dow Jones Industrial Average closed down less than 0.1 percent at 41,953. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796704_1_20250321061012.jpg&q=75)
+  
+
+US stocks closed lower on Thursday, as a Fed-related rally lost steam, and traders looked ahead to the prospect of additional tariffs next month.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm)
+
+---
+
 # White House promises 'big tariffs' on April 2
 
 ![White House Press Secretary Karoline Leavitt says America "has been ripped off by every country around the world." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796689_1_20250321011627.jpg&q=90)
@@ -1411,29 +1435,5 @@ US stocks climbed on Wednesday after US President Donald Trump pulled back on so
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm)
-
----
-
-# Hong Kong stocks finish higher
-
-![The Hang Seng Index finished up 2.8 percent at 23,594. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794398_1_20250305164913.jpg&q=60)
-  
-
-Hong Kong stocks ended higher on Wednesday, with the benchmark Hang Seng Index up 2.8 percent at 23,594.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794398-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794398-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794398-20250305.htm)
 
 ---

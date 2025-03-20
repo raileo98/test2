@@ -1,3 +1,51 @@
+# 美元上升　聯儲局表示不急於減息
+
+![美元指數一度重上104水平，其後升幅收窄，在紐約尾市報103.81，升幅0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796702_1_20250321060106.jpg&q=85)
+  
+
+美元上升，美國聯儲局表示，關稅政策存在不確定性，今年不急於減息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796702-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796702-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796702-20250321.htm)
+
+---
+
+# 法德股市低收近1%或以上
+
+![德國DAX指數報22999點，跌288點，跌幅1.24%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796700_1_20250321054416.jpg&q=90)
+  
+
+歐洲主要股市收市下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796700-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796700-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796700-20250321.htm)
+
+---
+
 # 美股反覆低收　中概股指數跌近4%
 
 ![道瓊斯指數反覆低收，一度升近290點，收市報41953點，跌11點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796699_1_20250321054044.jpg&q=90)
@@ -1384,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm)
-
----
-
-# 瑞士央行減息0.25厘　通脹下行風險加大
-
-![瑞士央行表示，經濟前景變得不確定，通脹下行風險加大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796621_1_20250320171104.jpg&q=90)
-  
-
-瑞士央行減息0.25厘，符合市場預期，指標利率降至0.25厘，央行自去年3月開始減息以來，連續5次會議減息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796621-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796621-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796621-20250320.htm)
-
----
-
-# 長實去年盈利跌20%　已確認物業銷售收入減少24%
-
-![長實去年盈利136.6億元，按年跌20%。派末期息每股1.35元，按年減少近17%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796628_1_20250320172413.jpg&q=85)
-  
-
-長實去年盈利136.6億元，按年跌21%。末期息每股1.35元，全年派息1.74元，按年分別減少近17%及15%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm)
 
 ---

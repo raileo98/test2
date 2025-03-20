@@ -1,3 +1,27 @@
+# US stocks edge lower as Fed rally falters
+
+![The Dow Jones Industrial Average closed down less than 0.1 percent at 41,953. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796704_1_20250321061012.jpg&q=75)
+  
+
+US stocks closed lower on Thursday, as a Fed-related rally lost steam, and traders looked ahead to the prospect of additional tariffs next month.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm)
+
+---
+
 # NBA's Boston Celtics sold for record US$6.1 billion
 
 ![The US$6.1 billion sale of the Boston Celtics is a record price among US-based sports teams. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796701_1_20250321055144.jpg&q=80)
@@ -1415,29 +1439,5 @@ Eleven people including the driver were injured when a bus hit an exit ramp road
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm)
-
----
-
-# Govt moves to boost healthcare data sharing
-
-![The government hopes healthcare providers will proactively upload their patients' records onto the "eHealth" platform. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796401_2_20250319135402.jpg&q=75)
-  
-
-The government said it plans to amend the law to help boost the development of its one-stop “eHealth” platform.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm)
 
 ---

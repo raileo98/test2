@@ -1,3 +1,51 @@
+# 美元上升　聯儲局表示不急於減息
+
+![美元指數一度重上104水平，其後升幅收窄，在紐約尾市報103.81，升幅0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796702_1_20250321060106.jpg&q=85)
+  
+
+美元上升，美國聯儲局表示，關稅政策存在不確定性，今年不急於減息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796702-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796702-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796702-20250321.htm)
+
+---
+
+# 法德股市低收近1%或以上
+
+![德國DAX指數報22999點，跌288點，跌幅1.24%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796700_1_20250321054416.jpg&q=90)
+  
+
+歐洲主要股市收市下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796700-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796700-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796700-20250321.htm)
+
+---
+
 # 美股反覆低收　中概股指數跌近4%
 
 ![道瓊斯指數反覆低收，一度升近290點，收市報41953點，跌11點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796699_1_20250321054044.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796568-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796568-20250320.htm)
-
----
-
-# 內地股市半日窄幅偏軟
-
-![上證指數半日收報3424點，跌2點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796567_1_20250320114334.jpg&q=75)
-  
-
-滬深股市窄幅偏軟，保險、白酒及醫藥等股份下跌，煤炭、中航系股份上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796567-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796567-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796567-20250320.htm)
-
----
-
-# 分析料聯儲局5月恢復減息　關注滯脹風險及關稅不確定影響
-
-![溫灼培表示，不排除聯儲局5月恢復減息，早過市場預期，但亦要留意多了委員支持今年維持息率不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796563_1_20250320112946.jpg&q=80)
-  
-
-聯儲局再度維持利率不變，點陣圖顯示今明兩年各減息0.5厘，但19名委員中，有4名委員傾向今年不減息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796563-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796563-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796563-20250320.htm)
 
 ---
