@@ -1,3 +1,27 @@
+# Israel resumes ground attacks in Gaza
+
+![Palestinians flee Beit Hanoun, northern Gaza, after Israel issued evacuation orders for some neighbourhoods. Photo: Abd Elhkeem Khaled/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796554_1_20250320110026.jpg&q=90)
+  
+
+Israel resumed ground operations in Gaza and issued what it called a "last warning" for Palestinians to return hostages and remove Hamas from power.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796554-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796554-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796554-20250320.htm)
+
+---
+
 # Kyrgios wins first match since 2022
 
 ![Nick Kyrgios hits a running shot against Mackenzie McDonald in Miami Open action at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796553_1_20250320103836.jpg&q=90)
@@ -144,7 +168,7 @@ Japan on Thursday marked the 30th anniversary of the sarin gas attack on Tokyo's
 
 # Price adjustment can help those most in need: HA
 
-![Axel Siu (left), who chairs the Hospital Authority's Accident and Emergency Coordinating Committee, supports an adjustment of the emergency room fee. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796525_1_20250320073507.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796525_1_20250320073507.jpg&q=90)
   
 
 The Hospital Authority said it hopes an increase in the Accident and Emergency (A&E) service fee would ensure resources are reserved for those most in need.
@@ -1411,29 +1435,5 @@ The ICAC on Tuesday said 22 people have been arrested on suspicion of accepting 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm)
-
----
-
-# SAR women's rugby squad 'keen to deliver on home soil'
-
-![The SAR women's rugby squad looks to build on last year's success, when they were runners-up in the Melrose Claymores competition. Photo courtesy of HKCR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796233_4_20250318154756.jpg&q=90)
-  
-
-The Hong Kong, China women’s rugby team on Tuesday said they are ready to take their game to the next level at the upcoming Rugby Sevens, to be held at the Kai Tak Sports Park for the first time this month.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm)
 
 ---

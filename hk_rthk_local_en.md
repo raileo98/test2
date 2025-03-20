@@ -1,6 +1,6 @@
 # Price adjustment can help those most in need: HA
 
-![Axel Siu (left), who chairs the Hospital Authority's Accident and Emergency Coordinating Committee, supports an adjustment of the emergency room fee. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796525_1_20250320073507.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796525_1_20250320073507.jpg&q=90)
   
 
 The Hospital Authority said it hopes an increase in the Accident and Emergency (A&E) service fee would ensure resources are reserved for those most in need.

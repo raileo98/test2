@@ -1,3 +1,27 @@
+# Israel resumes ground attacks in Gaza
+
+![Palestinians flee Beit Hanoun, northern Gaza, after Israel issued evacuation orders for some neighbourhoods. Photo: Abd Elhkeem Khaled/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796554_1_20250320110026.jpg&q=90)
+  
+
+Israel resumed ground operations in Gaza and issued what it called a "last warning" for Palestinians to return hostages and remove Hamas from power.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796554-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796554-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796554-20250320.htm)
+
+---
+
 # White House attacks courts for 'usurping' powers
 
 ![Karoline Leavitt in a press briefing at the White House. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796546_1_20250320101240.jpg&q=90)
@@ -1413,29 +1437,5 @@ China urged an end to "illegal" sanctions on Iran as it hosted diplomats from th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm)
-
----
-
-# 12 injured in Denver B737 engine fire
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795700_1_20250314123046.jpg&q=90)
-  
-
-An American Airlines plane caught fire after landing at Denver International Airport, prompting slides to be deployed so passengers could evacuate quickly.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795700-20250314.htm)
 
 ---
