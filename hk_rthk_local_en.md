@@ -1,3 +1,27 @@
+# Local rates to be at high level for some time: HKMA
+
+![The Hong Kong Monetary Authority says that the extent and pace of future rate cuts are subject to considerable uncertainty. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796590_1_20250320130629.jpg&q=85)
+  
+
+The city's de facto central bank has cautioned that local borrowing costs will remain at a relatively high level for some time as it kept its key interest rate unchanged at 4.75 percent.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm)
+
+---
+
 # Complete eHealth database 'key for treating patients'
 
 ![Sam Hui said it's still up to patients whether they want to use eHealth at all or which healthcare provider can access their medical record. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796581_1_20250320122653.jpg&q=80)
@@ -1411,29 +1435,5 @@ An economist has said that the new law proposed by Beijing to protect and enhanc
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm)
-
----
-
-# CHP urges caution as Saudi Arabia sees more MERS cases
-
-![The Centre for Health Protection says people should avoid direct contact with dromedary camels. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795787_2_20250314222716.jpg&q=85)
-  
-
-The Centre for Health Protection (CHP) on Friday called on members of the public to exercise caution when travelling to the Middle East.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795787-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795787-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795787-20250314.htm)
 
 ---

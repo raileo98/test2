@@ -1,3 +1,27 @@
+# Local rates to be at high level for some time: HKMA
+
+![The Hong Kong Monetary Authority says that the extent and pace of future rate cuts are subject to considerable uncertainty. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796590_1_20250320130629.jpg&q=85)
+  
+
+The city's de facto central bank has cautioned that local borrowing costs will remain at a relatively high level for some time as it kept its key interest rate unchanged at 4.75 percent.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm)
+
+---
+
 # Complete eHealth database 'key for treating patients'
 
 ![Sam Hui said it's still up to patients whether they want to use eHealth at all or which healthcare provider can access their medical record. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796581_1_20250320122653.jpg&q=80)
@@ -1411,29 +1435,5 @@ Education authorities on Tuesday stressed that plans to slash funding for univer
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796300-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796300-20250318.htm)
-
----
-
-# 'Hamas chose war by refusing to release hostages'
-
-![Palestinians flee their homes after the Israeli army issues evacuation orders. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796296_1_20250318213006.jpg&q=85)
-  
-
-The United States on Tuesday said that Hamas had chosen war by refusing to release hostages, as Israel unleashed its most intense strikes since a ceasefire, killing more than 400 people, and vowed to continue fighting until all hostages are returned.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796296-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796296-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796296-20250318.htm)
 
 ---

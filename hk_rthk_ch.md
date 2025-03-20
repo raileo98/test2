@@ -1,3 +1,27 @@
+# 王美鳳料下半年港元最優惠利率減0.25厘　並完成減息周期
+
+![王美鳳預計，美國下半年將重新減息，港元最優惠利率將下調0.25厘並完成減息周期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796591_2_20250320133435.jpg&q=75)
+  
+
+美國聯儲局維持利率不變，本港三間發鈔行的港元最優惠利率亦維持不變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796591-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796591-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796591-20250320.htm)
+
+---
+
 # 青少年護齒計劃展開　政府資助200元參加者支付共付額
 
   
