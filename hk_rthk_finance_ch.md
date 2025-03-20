@@ -1,5 +1,78 @@
+# 金管局：本港利率或仍處於較高水平　市民要小心管理利率風險
+
+![金管局表示，本港利率於可見一段時間內仍可能會處於較高水平，市民在作出置業、按揭或其他借貸決定時，應繼續小心考慮及管理利率風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796561_1_20250320112103.jpg&q=55)
+  
+
+美國聯儲局議息後維持利率不變。香港金管局表示，聯儲局的決定符合市場預期，點陣圖顯示局方今年內可能再減息合共50個基點，但觀乎近期各項經濟數據變化及市場預期的波動，未來減息步伐仍有較大變數，取決於美國通脹和就業數據走勢，以及美國政府財政和經濟貿易政策對經濟活動的影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm)
+
+---
+
+# 據報證監會擬限制新股孖展最多90%　短期或刊發相關通函
+
+![本地媒體報道指，證監會正諮詢業界關於新股孖展意見，包括回復以往一般收取10%按金做法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796556_2_20250320112011.jpg&q=90)
+  
+
+過去一段時間，本港有多隻新股超額認購數百倍，甚至數千倍，據報有券商向客戶提供逾百倍孖展作認購。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796556-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796556-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796556-20250320.htm)
+
+---
+
+# 李家超：監管沙盒涵蓋多個領域　讓公眾看得見、摸得到低空經濟
+
+![李家超重申，低空經濟不但可以衍生一系列產業，應用場景亦非常廣闊，潛力巨大。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796560_1_20250320113400.jpg&q=90)
+  
+
+政府公布首批低空經濟「監管沙盒」試點項目，行政長官李家超於啟動禮致辭表示，低空經濟是國家戰略性新興產業，亦是發展新質新產力的範例，特區政府積極投入和推動低空經濟，去年的施政報告提出要制訂低空經濟發展的策略和行動計劃，重申低空經濟不但可以衍生一系列產業，應用場景亦非常廣闊，潛力巨大，除了能夠提升城市管理和商業效率，更可以為市民帶來智慧生活的新體驗，成為經濟的新增長引擎。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm)
+
+---
+
 # 破欠基金特惠款額上限調升至首20萬元及餘額一半　明日刊憲生效
 
+![因僱主無力清償債務而被拖欠遣散費的僱員，可從破產欠薪保障基金獲得的特惠款項將獲調高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796557_1_20250320112022.jpg&q=90)
   
 
 因僱主無力清償債務而被拖欠遣散費的僱員，可從破產欠薪保障基金獲得的特惠款項將獲調高。
@@ -1364,77 +1437,5 @@ Nvidia首席執行官黃仁勳表示，公司沒有收到關於收購英特爾�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796407-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796407-20250319.htm)
-
----
-
-# 嘉里建設去年盈利跌75%
-
-![嘉里建設去年盈利8.08億元，按年大跌75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796403_1_20250319132958.jpg&q=85)
-  
-
-嘉里建設去年盈利8.08億元，按年大跌75%。派末期息0.95元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796403-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796403-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796403-20250319.htm)
-
----
-
-# 萬寶盛華：企業今年平均加薪3%　或採取更保守薪酬政策
-
-![調查顯示本港今年平均加薪幅度降至3%。徐玉珊說，企業或採取更保守的薪酬政策，但亦會視乎盈利及員工表現等。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796398_1_20250319130135.jpg&q=90)
-  
-
-人力資源服務供應商萬寶盛華大中華高級副總裁徐玉珊表示，本港就業市場保持平穩，醫療、科技等行業就業前景都有好轉，但全球經濟不明朗化，個別行業面對不同程度壓力，運輸及物流業招聘意欲相對低迷，相信與就國際貿易摩擦和關稅政策有關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796398-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796398-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796398-20250319.htm)
-
----
-
-# 利福中國料去年轉蝕不多於2300萬元人民幣
-
-![利福中國預料去年業績由盈轉虧，虧損不多於2300萬元人民幣。（網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796391_1_20250319123201.jpg&q=90)
-  
-
-利福中國發盈利警告，預料去年虧損不多於2300萬元人民幣，扭轉前年盈利約8770萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796391-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796391-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796391-20250319.htm)
 
 ---

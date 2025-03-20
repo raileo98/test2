@@ -1,3 +1,27 @@
+# Canadian farmers fear 'devastating tariffs impact'
+
+![China has traditionally been one of Canada's biggest export markets for canola, grown on farms in such places as Alberta. File photo: Artur Widak/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796564_1_20250320112443.jpg&q=80)
+  
+
+Chinese tariffs on Canadian products including rapeseed oil and pork come into effect on Thursday, with an industry lobby warning the new levies will have a "devastating impact" on farmers.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796564-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796564-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796564-20250320.htm)
+
+---
+
 # 'Accommodate workers while changing eHealth system'
 
 ![The government says medical practitioners could be fined if they don't upload key data to the eHealth system. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796558_1_20250320111257.jpg&q=90)
@@ -1411,29 +1435,5 @@ The Hong Kong Observatory on Tuesday said residents can expect hotter weather th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796261-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796261-20250318.htm)
-
----
-
-# Stocks jump as mainland tech spree continues
-
-![Local stocks jumped up 2.46 percent to 24,740.57. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796240_1_20250318161915.jpg&q=75)
-  
-
-Markets rose 2.2 percent on Tuesday, led by continued buying of mainland Chinese tech firms.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796240-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796240-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796240-20250318.htm)
 
 ---

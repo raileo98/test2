@@ -1,3 +1,26 @@
+# 中關村論壇年會月底北京舉行　突出科技前沿圍繞AI大模型等領域
+
+  
+
+中關村論壇年會本月27日至31日在北京舉行，今屆以「新質生產力與全球科技合作」為主題，逾百個國家和地區、上千名嘉賓參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm)
+
+---
+
 # 習近平到雲南省麗江考察調研
 
 ![習近平到雲南省麗江考察調研。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796548_1_20250320101958.jpg&q=75)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796063-20250317.htm)
-
----
-
-# 本港研發生成式人工智能大模型今年推出　孫東稱開發亦著重治理
-
-![孫東表示，香港的人工智能生態圈正快速發展中。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796038_1_20250317134025.jpg&q=90)
-  
-
-世界互聯網大會亞太峰會4月14日至15日在灣仔會展舉行，將舉辦與人工智能、數字金融等有關的論壇，預計吸引逾千名海内外與會者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796038-20250317.htm)
 
 ---

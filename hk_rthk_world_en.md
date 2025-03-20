@@ -1,3 +1,27 @@
+# Canadian farmers fear 'devastating tariffs impact'
+
+![China has traditionally been one of Canada's biggest export markets for canola, grown on farms in such places as Alberta. File photo: Artur Widak/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796564_1_20250320112443.jpg&q=80)
+  
+
+Chinese tariffs on Canadian products including rapeseed oil and pork come into effect on Thursday, with an industry lobby warning the new levies will have a "devastating impact" on farmers.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796564-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796564-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796564-20250320.htm)
+
+---
+
 # Trump urges Fed to cut rates as tariffs take effect
 
 ![Donald Trump says "the Fed would be much better off cutting rates". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796555_1_20250320110749.jpg&q=90)
@@ -1413,29 +1437,5 @@ Stargazers across a swathe of the world marvelled at a dramatic red "Blood Moon"
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795743-20250314.htm)
-
----
-
-# US Senate in race to avert government shutdown
-
-![Chuck Schumer is working to avert a government shutdown. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795723_1_20250314154347.jpg&q=90)
-  
-
-The US Senate finds itself on Friday in a familiar position, working to avoid a partial government shutdown with just hours to spare as Democrats confront two painful options: allowing passage of a bill they believe gives President Donald Trump vast discretion on spending decisions or voting no and letting a funding lapse ensue.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm)
 
 ---

@@ -1,5 +1,77 @@
+# 外籍人士墮投資虛擬貨幣騙案失逾7千萬元　警破45案涉1.9億
+
+  
+
+警方偵破45宗詐騙及洗黑錢案件，總損失金額高達1億9千4百萬港元，行動中拘捕54人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796565-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796565-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796565-20250320.htm)
+
+---
+
+# 金管局：本港利率或仍處於較高水平　市民要小心管理利率風險
+
+![金管局表示，本港利率於可見一段時間內仍可能會處於較高水平，市民在作出置業、按揭或其他借貸決定時，應繼續小心考慮及管理利率風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796561_1_20250320112103.jpg&q=55)
+  
+
+美國聯儲局議息後維持利率不變。香港金管局表示，聯儲局的決定符合市場預期，點陣圖顯示局方今年內可能再減息合共50個基點，但觀乎近期各項經濟數據變化及市場預期的波動，未來減息步伐仍有較大變數，取決於美國通脹和就業數據走勢，以及美國政府財政和經濟貿易政策對經濟活動的影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm)
+
+---
+
+# 李家超：監管沙盒涵蓋多個領域　讓公眾看得見、摸得到低空經濟
+
+![李家超重申，低空經濟不但可以衍生一系列產業，應用場景亦非常廣闊，潛力巨大。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796560_1_20250320113400.jpg&q=90)
+  
+
+政府公布首批低空經濟「監管沙盒」試點項目，行政長官李家超於啟動禮致辭表示，低空經濟是國家戰略性新興產業，亦是發展新質新產力的範例，特區政府積極投入和推動低空經濟，去年的施政報告提出要制訂低空經濟發展的策略和行動計劃，重申低空經濟不但可以衍生一系列產業，應用場景亦非常廣闊，潛力巨大，除了能夠提升城市管理和商業效率，更可以為市民帶來智慧生活的新體驗，成為經濟的新增長引擎。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm)
+
+---
+
 # 破欠基金特惠款額上限調升至首20萬元及餘額一半　明日刊憲生效
 
+![因僱主無力清償債務而被拖欠遣散費的僱員，可從破產欠薪保障基金獲得的特惠款項將獲調高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796557_1_20250320112022.jpg&q=90)
   
 
 因僱主無力清償債務而被拖欠遣散費的僱員，可從破產欠薪保障基金獲得的特惠款項將獲調高。
@@ -1365,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796390-20250319.htm)
-
----
-
-# 政府向古洞北粉嶺北土地業權人付143億補償　餘169億未支付
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796387_1_20250319132104.jpg&q=90)
-  
-
-發展局局長甯漢豪表示，政府就古洞北及粉嶺北新發展區分階段收回數千幅私人用地，並已支付部份土地補償。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796387-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796387-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796387-20250319.htm)
-
----
-
-# 孫玉菡稱單親人士對子女法律程序草案存疑　政府不應強行重啟立法
-
-![孫玉菡表示，不少持份者包括單親人士當年都就立法建議表示憂慮，認為立法建議無助離異父母化解矛盾。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796385_1_20250319121720.jpg&q=90)
-  
-
-政府曾在2015年擬備《子女法律程序（父母責任）條例草案》草稿，引入法定清單，涵蓋父母的責任及權利和關乎撫育子女的重大決定，規定父母作出決定時須取得另一方明確同意或事先通知另一方等，以改革和整合關乎父母對子女的責任和權利的法律。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796385-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796385-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796385-20250319.htm)
-
----
-
-# 醫健通擬擴大可取覽資料人員類別　修例周五刊憲下周交立法會首讀
-
-![修訂建議市民參加醫健通後，醫護提供者可將健康資料存入個人醫健通戶口，市民仍可自行決定是否容許個別醫護提供者取覽紀錄。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796381_1_20250319112508.jpg&q=80)
-  
-
-電子健康紀錄互通系統修訂條例草案本周五刊憲，下星期提交立法會首讀。修訂是建議擴展及優化醫健通資料收集、互通、使用及保障機制，以推展基層醫療、提升流程效率，以及便利跨境服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796381-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796381-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796381-20250319.htm)
 
 ---

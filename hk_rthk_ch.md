@@ -1,3 +1,121 @@
+# 中關村論壇年會月底北京舉行　突出科技前沿圍繞AI大模型等領域
+
+  
+
+中關村論壇年會本月27日至31日在北京舉行，今屆以「新質生產力與全球科技合作」為主題，逾百個國家和地區、上千名嘉賓參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm)
+
+---
+
+# 外籍人士墮投資虛擬貨幣騙案失逾7千萬元　警破45案涉1.9億
+
+  
+
+警方偵破45宗詐騙及洗黑錢案件，總損失金額高達1億9千4百萬港元，行動中拘捕54人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796565-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796565-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796565-20250320.htm)
+
+---
+
+# 金管局：本港利率或仍處於較高水平　市民要小心管理利率風險
+
+![金管局表示，本港利率於可見一段時間內仍可能會處於較高水平，市民在作出置業、按揭或其他借貸決定時，應繼續小心考慮及管理利率風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796561_1_20250320112103.jpg&q=55)
+  
+
+美國聯儲局議息後維持利率不變。香港金管局表示，聯儲局的決定符合市場預期，點陣圖顯示局方今年內可能再減息合共50個基點，但觀乎近期各項經濟數據變化及市場預期的波動，未來減息步伐仍有較大變數，取決於美國通脹和就業數據走勢，以及美國政府財政和經濟貿易政策對經濟活動的影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm)
+
+---
+
+# 據報證監會擬限制新股孖展最多90%　短期或刊發相關通函
+
+![本地媒體報道指，證監會正諮詢業界關於新股孖展意見，包括回復以往一般收取10%按金做法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796556_2_20250320112011.jpg&q=90)
+  
+
+過去一段時間，本港有多隻新股超額認購數百倍，甚至數千倍，據報有券商向客戶提供逾百倍孖展作認購。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796556-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796556-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796556-20250320.htm)
+
+---
+
+# 李家超：監管沙盒涵蓋多個領域　讓公眾看得見、摸得到低空經濟
+
+![李家超重申，低空經濟不但可以衍生一系列產業，應用場景亦非常廣闊，潛力巨大。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796560_1_20250320113400.jpg&q=90)
+  
+
+政府公布首批低空經濟「監管沙盒」試點項目，行政長官李家超於啟動禮致辭表示，低空經濟是國家戰略性新興產業，亦是發展新質新產力的範例，特區政府積極投入和推動低空經濟，去年的施政報告提出要制訂低空經濟發展的策略和行動計劃，重申低空經濟不但可以衍生一系列產業，應用場景亦非常廣闊，潛力巨大，除了能夠提升城市管理和商業效率，更可以為市民帶來智慧生活的新體驗，成為經濟的新增長引擎。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm)
+
+---
+
 # 美媒稱特朗普將簽署行政命令關閉教育部
 
 ![美國有傳媒報道，特朗普將簽署行政命令，正式啟動教育部關閉程序。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796559_1_20250320111712.jpg&q=90)
@@ -24,6 +142,7 @@
 
 # 破欠基金特惠款額上限調升至首20萬元及餘額一半　明日刊憲生效
 
+![因僱主無力清償債務而被拖欠遣散費的僱員，可從破產欠薪保障基金獲得的特惠款項將獲調高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796557_1_20250320112022.jpg&q=90)
   
 
 因僱主無力清償債務而被拖欠遣散費的僱員，可從破產欠薪保障基金獲得的特惠款項將獲調高。
@@ -1316,125 +1435,5 @@ Nvidia首席執行官黃仁勳表示，公司沒有收到關於收購英特爾�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796488-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796488-20250319.htm)
-
----
-
-# 九巴指涉大埔交通意外車長昨日休息　工會質疑與工作安排失當有關
-
-![九巴表示，根據記錄，昨天為相關車長的休息日，公司會配合警方調查事件起因。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796486_1_20250319233952.jpg&q=80)
-  
-
-一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄。11人受傷，包括車長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796486-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796486-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796486-20250319.htm)
-
----
-
-# 發展局：金屬棚架不會大幅提高工程造價　佔工程合約金額2%
-
-![發展局說，金屬棚架因使用標準組件，更能保障棚架上工作人員的安全。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796485_1_20250319222511.jpg&q=75)
-  
-
-發展局表示，為進一步推廣應用金屬棚架，本月21日或以後招標的工務工程新建樓宇工程合約的半數，要採用金屬棚架，但不包括樓宇外牆維修合約。以今年的新建樓宇工務工程合約計，半數只涉及一至兩個新建樓宇工程項目。局方強調，金屬棚架不會大幅提高工程造價，整體開支大約佔樓宇建造工程合約金額的2%，而使用竹棚架則為1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796485-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796485-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796485-20250319.htm)
-
----
-
-# 醫務衞生局稱現無計劃將京士柏用地改作醫療以外其他用途
-
-![伊利沙伯醫院多項服務，預計明年初陸續搬遷至位於啟德新急症醫院。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796482_1_20250319233554.jpg&q=75)
-  
-
-伊利沙伯醫院多項服務，預計明年初陸續搬遷至位於啟德新急症醫院。醫務衞生局回覆傳媒查詢時表示，政府現階段並無計劃將伊利沙伯醫院所在的京士柏用地，改作醫療以外的其他用途，當局檢視第二個醫院發展計劃時，會一併考慮京士柏用地，未來的醫療用途及發展計劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796482-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796482-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796482-20250319.htm)
-
----
-
-# 美股開市後上升
-
-![美股初段上升。投資者關注聯儲局稍後議息結果。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796479_1_20250319214317.jpg&q=90)
-  
-
-紐約股市早段上升。投資者關注聯儲局稍後議息結果。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796479-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796479-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796479-20250319.htm)
-
----
-
-# 機電署要求海洋公園就纜車壓轆異常而暫停運行提交報告
-
-![機電署已要求海洋公園就事故提交報告，並會作出跟進，確認事故原因。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796478_1_20250319234228.jpg&q=60)
-  
-
-海洋公園登山纜車出現訊號問題，一度需要暫停服務。機電工程署回覆查詢時表示，中午12時30分接獲海洋公園通報暫停開放纜車後，隨即派員到場，知悉海洋公園在纜車運行的例行檢查發現有塔台的壓轆出現異常，所以暫停纜車運行。署方表示，海洋公園檢查及調校相關壓轆，以及全面檢查其餘塔台的壓轆，在確認安全後，恢復纜車服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796478-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796478-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796478-20250319.htm)
 
 ---
