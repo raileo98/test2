@@ -1,3 +1,27 @@
+# Vancouver auto show bans Tesla over safety concerns
+
+![Tesla cars and showrooms have been vandalised in the US and other countries recently. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796697_1_20250321043524.jpg&q=85)
+  
+
+Tesla was removed from the Vancouver International Auto Show in Canada because of safety concerns, the event organisers said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm)
+
+---
+
 # Oxygen detected in most distant galaxy: astronomers
 
 ![Dutch and Italian astronomers probed the JADES-GS-z14-0 galaxy using the ALMA radio telescope in Chile's Atacama desert. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796693_1_20250321032017.jpg&q=90)
@@ -1415,29 +1439,5 @@ The ICAC said on Wednesday two frontline staff from the Electrical and Mechanica
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796388-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796388-20250319.htm)
-
----
-
-# Ocean Park cable cars, upper park facilities closed
-
-![Ocean Park says no transport services are available between its lower and upper parks. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796396_1_20250319125104.jpg&q=55)
-  
-
-Ocean Park said on Wednesday its cable car services were suspended due to signal issues, and facilities at its upper park were closed temporarily.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm)
 
 ---

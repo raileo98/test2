@@ -1,3 +1,27 @@
+# Vancouver auto show bans Tesla over safety concerns
+
+![Tesla cars and showrooms have been vandalised in the US and other countries recently. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796697_1_20250321043524.jpg&q=85)
+  
+
+Tesla was removed from the Vancouver International Auto Show in Canada because of safety concerns, the event organisers said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm)
+
+---
+
 # Oxygen detected in most distant galaxy: astronomers
 
 ![Dutch and Italian astronomers probed the JADES-GS-z14-0 galaxy using the ALMA radio telescope in Chile's Atacama desert. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796693_1_20250321032017.jpg&q=90)
@@ -1413,29 +1437,5 @@ Gaza's civil defence agency said nine people, including journalists, were killed
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795885-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795885-20250315.htm)
-
----
-
-# 'Russia is doing everything to prevent a ceasefire'
-
-![Volodymyr Zelensky says he wants European boots on the ground in Ukraine. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795883_1_20250315215053.jpg&q=90)
-  
-
-Ukrainian President Volodymyr Zelensky said on Saturday he had urged Kyiv's Western allies to give "a clear position" on security guarantees, including about a potential foreign troop contingent on Ukrainian soil with a US backstop.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795883-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795883-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795883-20250315.htm)
 
 ---
