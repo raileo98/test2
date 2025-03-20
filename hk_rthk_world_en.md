@@ -1,3 +1,27 @@
+# Finns still happiest, as US happiness sinks
+
+![Finland's grand lakes and strong welfare system boost its mood. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796695_1_20250321033221.jpg&q=75)
+  
+
+The United States fell to its lowest happiness ranking ever partly due to a rise in the number of Americans eating their meals alone, an annual UN-sponsored report said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm)
+
+---
+
 # White House promises 'big tariffs' on April 2
 
 ![White House Press Secretary Karoline Leavitt says America "has been ripped off by every country around the world." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796689_1_20250321011627.jpg&q=90)
@@ -1413,29 +1437,5 @@ The Russian captain of a cargo ship which struck a tanker in the North Sea off t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795877-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795877-20250315.htm)
-
----
-
-# Putin will have to 'come to table,' UK PM tells summit
-
-![Keir Starmer and French President Emmanuel Macron have been leading efforts to assemble a so-called "coalition of the willing."  Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795873_1_20250315201758.jpg&q=90)
-  
-
-UK premier Keir Starmer said on Saturday that Russian President Vladimir Putin would "sooner or later" have to "come to the table" as he opened a virtual summit to drum up support for a coalition willing to protect any eventual ceasefire in Ukraine.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795873-20250315.htm)
 
 ---

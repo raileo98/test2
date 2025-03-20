@@ -1,3 +1,27 @@
+# Finns still happiest, as US happiness sinks
+
+![Finland's grand lakes and strong welfare system boost its mood. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796695_1_20250321033221.jpg&q=75)
+  
+
+The United States fell to its lowest happiness ranking ever partly due to a rise in the number of Americans eating their meals alone, an annual UN-sponsored report said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm)
+
+---
+
 # White House promises 'big tariffs' on April 2
 
 ![White House Press Secretary Karoline Leavitt says America "has been ripped off by every country around the world." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796689_1_20250321011627.jpg&q=90)
@@ -1415,29 +1439,5 @@ The Secretary for Home and Youth Affairs said the joint property management sche
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm)
-
----
-
-# Ukraine peace talks planned for Sunday in Saudi: US
-
-![US officials say talks aimed at a ceasefire in Ukraine would be held in the Saudi Arabian city of Jeddah on Sunday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796380_1_20250319110641.jpg&q=90)
-  
-
-Talks on a ceasefire in Russia's conflict with Ukraine will continue on Sunday in the Saudi Arabian city of Jeddah, US President Donald Trump's special envoy Steve Witkoff said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm)
 
 ---

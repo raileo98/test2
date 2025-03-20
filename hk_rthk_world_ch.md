@@ -1,3 +1,26 @@
+# 加沙衛生部門稱以軍持續空襲造成超過90人死亡
+
+  
+
+以色列持續空襲加沙，並恢復在加沙展開地面行動，當地衛生部門說，星期四的轟炸已經造成至少91名巴勒斯坦人死亡，數十人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796694-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796694-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796694-20250321.htm)
+
+---
+
 # 中國奧委會祝賀考文垂當選國際奧委會主席
 
 ![中方祝賀考文垂當選國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796692_1_20250321015604.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796318-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796318-20250319.htm)
-
----
-
-# 特朗普與普京通話結束
-
-![克里姆林宮發言人佩斯科夫表示，總統普京與美國總統特朗普的通話結束。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796317_1_20250319005324.jpg&q=90)
-  
-
-俄羅斯傳媒引述克里姆林宮發言人佩斯科夫表示，總統普京與美國總統特朗普的通話結束。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796317-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796317-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796317-20250319.htm)
 
 ---
