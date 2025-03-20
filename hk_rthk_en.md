@@ -1,3 +1,27 @@
+# Streak ends as Hang Seng bucks rising trend
+
+![The Hang Seng Index ended down 2.23 percent to close at 24,219.95. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796620_1_20250320170712.jpg&q=90)
+  
+
+Stocks mostly rose on Thursday after US Federal Reserve boss Jerome Powell suggested any increase in consumer prices caused by tariffs would likely be short-lived, even as the central bank slashed its growth outlook and hiked inflation expectations.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm)
+
+---
+
 # Drone trials to provide diverse services in Hong Kong
 
 ![People attend the launch event for the Low-altitude Economy Regulatory Sandbox. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_5_20250320164211.jpg&q=80)
@@ -1415,29 +1439,5 @@ Nasa astronauts Butch Wilmore and Suni Williams returned to Earth in a SpaceX ca
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm)
-
----
-
-# Tennis players' union launch legal blitz against tours
-
-![The Djokovic-backed players union takes aim at the sport's governing bodies, the ATP and WTA. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796331_1_20250319053811.jpg&q=90)
-  
-
-A tennis union co-founded by Novak Djokovic announced a series of legal actions aimed at the sport's governing bodies, alleging "anti-competitive restraints and abusive practices".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm)
 
 ---

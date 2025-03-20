@@ -1,3 +1,27 @@
+# Streak ends as Hang Seng bucks rising trend
+
+![The Hang Seng Index ended down 2.23 percent to close at 24,219.95. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796620_1_20250320170712.jpg&q=90)
+  
+
+Stocks mostly rose on Thursday after US Federal Reserve boss Jerome Powell suggested any increase in consumer prices caused by tariffs would likely be short-lived, even as the central bank slashed its growth outlook and hiked inflation expectations.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm)
+
+---
+
 # Local rates to be at high level for some time: HKMA
 
 ![The Hong Kong Monetary Authority says that the extent and pace of future rate cuts are subject to considerable uncertainty. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796590_1_20250320130629.jpg&q=85)
@@ -1411,29 +1435,5 @@ Hong Kong stocks rose 1.13 percent at the open on Wednesday, after Premier Li Qi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794303-20250305.htm)
-
----
-
-# Stocks rack up more losses on Wall Street
-
-![US stocks decline as a trade war between the US and its key trading partners escalates. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794279_1_20250305083014.jpg&q=65)
-  
-
-US stocks ended lower on Tuesday, with the tech-heavy Nasdaq veering near correction territory, as trade tensions escalated following US President Donald Trump's new tariffs on Canada, Mexico and China.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794279-20250305.htm)
 
 ---

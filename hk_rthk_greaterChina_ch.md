@@ -1,3 +1,27 @@
+# 片段顯示機艙服務員詢問起火行李物主　有乘客稱裝有相機及充電寶
+
+![多名機艙服務員和乘客打開行李架後，不斷用樽裝水和飲品向冒煙的行李淋水。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796625_1_20250320171516.jpg&q=90)
+  
+
+香港航空一架由杭州飛往香港的客機，飛行期間機艙的行李架起火，改道安全降落於福州長樂國際機場，火勢已撲滅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm)
+
+---
+
 # 香港航空客機行李架起火　片段顯示機艙服務員用樽裝水向行李淋水
 
 ![多名機艙服務員和乘客打開行李架後，不斷用樽裝水和飲品向冒煙的行李淋水。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796614_1_20250320165136.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm)
-
----
-
-# 中央提振消費方案　發改委：每個部門須貫徹落實全方位擴大消費
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796073_1_20250317184832.jpg&q=85)
-  
-
-國家發展和改革委員會、財政部、人力資源社會保障部、商務部、人民銀行、國家市場監督管理總局等六個部委，下午舉行記者會，講解中央昨日印發的《提振消費專項行動方案》。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm)
 
 ---

@@ -1,3 +1,98 @@
+# 冷藏肉充當新鮮肉出售　食環署搜兩糧食店檢180公斤疑冷藏牛肉
+
+  
+
+有新鮮糧食店涉嫌將冷藏肉充當新鮮肉出售採取，食環署昨日及今日採取突擊行動，分別在葵涌葵盛圍及將軍澳唐俊街兩間新鮮糧食店，檢獲180公斤懷疑冷藏牛肉，已即時銷毀，另外亦即時封存123公斤預先包裝好的冷藏牛肉進行調查，同時亦抽取牛肉樣本，進行防腐劑檢測。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796627-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796627-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796627-20250320.htm)
+
+---
+
+# 片段顯示機艙服務員詢問起火行李物主　有乘客稱裝有相機及充電寶
+
+![多名機艙服務員和乘客打開行李架後，不斷用樽裝水和飲品向冒煙的行李淋水。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796625_1_20250320171516.jpg&q=90)
+  
+
+香港航空一架由杭州飛往香港的客機，飛行期間機艙的行李架起火，改道安全降落於福州長樂國際機場，火勢已撲滅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm)
+
+---
+
+# 中移動去年盈利升5%
+
+![中國移動去年盈利近1384億元人民幣，按年增5% 。派發末期息每股2.49港元，全年派息率達73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796623_1_20250320171308.jpg&q=90)
+  
+
+中國移動去年盈利近1384億元人民幣，按年增5% 。派發末期息每股2.49港元，連同中期息，全年派5.09港元，按年增長5.4%，全年派息率達73%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796623-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796623-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796623-20250320.htm)
+
+---
+
+# 盧國沾離世　作曲家及作詞家協會：本地音樂界失去一位填詞巨匠
+
+![香港作曲家及作詞家協會表示，「香港詞壇聖手」盧國沾昨日與世長辭，協會上下以及眾多音樂人均深感悲痛。（香港作曲家及作詞家協會網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796622_1_20250320171209.jpg&q=90)
+  
+
+香港作曲家及作詞家協會表示，「香港詞壇聖手」盧國沾昨日與世長辭，協會上下以及眾多音樂人均深感悲痛，認為本地音樂界失去一位殿堂級填詞巨匠，將永遠銘記他對流行歌詞與香港樂壇的重大貢獻，謹願他安息，並向家人致以最深切的慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796622-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796622-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796622-20250320.htm)
+
+---
+
 # 長和去年盈利跌27%　收入升逾3%
 
 ![長和去年盈利170.9億元，按年跌27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796616_1_20250320165745.jpg&q=80)
@@ -24,9 +119,15 @@
 
 # 中電以無人機監察供電設施　內地外賣平台擬科學園至馬鞍山設航線
 
+![中電提出，應用小型無人機操作「超視距飛行」，巡查輸電塔及架空電纜，更有效監察及管理戶外供電設施。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796615_4_20250320170403.jpg&q=90)
+![中電表示，不少輸電塔及架空線路地點偏僻，平均每隊工程人員每日只能巡視約5公里線路。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796615_1_20250320170403.jpg&q=90)
+![張寶中說，以往工程人員需要「翻山越嶺」做巡檢，應用有關技術後，能提升巡查效率近四倍，並可更快找出問題。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796615_2_20250320170403.jpg&q=85)
+![張霆邦表示，日後試運時，將以藥物、文件及物件等作為配送對象，將物品配送至離島。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796615_3_20250320170403.jpg&q=90)
   
 
 政府公布首批低空經濟「監管沙盒」38個試點項目，當中數個項目率先下月推行試驗，包括中電的項目。中電提出，應用小型無人機操作「超視距飛行」，巡查輸電塔及架空電纜，更有效監察及管理戶外供電設施。
+  
+![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1796615_1_L_20250320170403.jpg)
 
   
 
@@ -72,6 +173,7 @@
 
 # 2月份整體消費物價按年升1.4%　升幅收窄因去年比較基數較高
 
+![統計處公布，2月份整體消費物價按年升1.4%，較1月份的2%升幅為低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796613_1_20250320172014.jpg&q=75)
   
 
 政府統計處公布，2月份整體消費物價按年升1.4%，較1月份的2%升幅為低，升幅收窄主要是由於去年農曆新年在2月份，導致比較基數較高，尤其是食品價格及旅遊費用。
