@@ -1,3 +1,51 @@
+# 'Accommodate workers while changing eHealth system'
+
+![The government says medical practitioners could be fined if they don't upload key data to the eHealth system. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796558_1_20250320111257.jpg&q=90)
+  
+
+Medical sector lawmaker David Lam on Thursday welcomed the government's plans to amend the law to boost the development of its “eHealth” platform, but hoped authorities would be flexible when implementing any changes.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796558-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796558-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796558-20250320.htm)
+
+---
+
+# Trump urges Fed to cut rates as tariffs take effect
+
+![Donald Trump says "the Fed would be much better off cutting rates". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796555_1_20250320110749.jpg&q=90)
+  
+
+President Donald Trump urged the US Federal Reserve on Wednesday to cut interest rates to help offset effects of his tariffs, renewing his vocal disagreement with the central bank's decision-making.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm)
+
+---
+
 # Israel resumes ground attacks in Gaza
 
 ![Palestinians flee Beit Hanoun, northern Gaza, after Israel issued evacuation orders for some neighbourhoods. Photo: Abd Elhkeem Khaled/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796554_1_20250320110026.jpg&q=90)
@@ -1387,53 +1435,5 @@ Markets rose 2.2 percent on Tuesday, led by continued buying of mainland Chinese
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796240-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796240-20250318.htm)
-
----
-
-# ERB to offer new courses to highly educated trainees
-
-![The Employees Retraining Board says it has been actively promoting skills-based training. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796244_1_20250318161327.jpg&q=85)
-  
-
-The Employees Retraining Board (ERB) on Tuesday said it will step up collaboration with tertiary institutions this year to provide advanced courses for people with a higher education level.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796244-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796244-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796244-20250318.htm)
-
----
-
-# 22 arrested over alleged mortgage referral bribes
-
-![Grace Yee says she believes the case only involves a few bad apples at individual banks. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796247_1_20250318162219.jpg&q=90)
-  
-
-The ICAC on Tuesday said 22 people have been arrested on suspicion of accepting bribes and helping intermediaries defraud banks of mortgage referral fees.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm)
 
 ---

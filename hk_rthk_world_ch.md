@@ -1,3 +1,27 @@
+# 美媒稱特朗普將簽署行政命令關閉教育部
+
+![美國有傳媒報道，特朗普將簽署行政命令，正式啟動教育部關閉程序。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796559_1_20250320111712.jpg&q=90)
+  
+
+美國有傳媒報道，美國總統特朗普將簽署行政命令，正式啟動教育部關閉程序。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796559-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796559-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796559-20250320.htm)
+
+---
+
 # 梵蒂岡：方濟各病情持續改善　晚上毋須使用呼吸機
 
 ![88歲的方濟各因肺炎留醫近5個星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796545_1_20250320100512.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796241-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796241-20250318.htm)
-
----
-
-# 滯留太空9個月　美國兩名太空人啟程返回地球
-
-![威爾莫爾和威廉姆斯在去年6月5日乘坐「星際客機」前往太空站，怎料滯留9個月。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796236_1_20250318150818.jpg&q=90)
-  
-
-美國太空探索技術公司SpaceX的「龍」飛船搭載包括因「星際客機」飛船故障滯留國際太空站的4名美國太空人，已經離開國際太空站，啟程返回地球。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796236-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796236-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796236-20250318.htm)
 
 ---

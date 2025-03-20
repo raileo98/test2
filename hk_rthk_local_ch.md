@@ -1,3 +1,26 @@
+# 破欠基金特惠款額上限調升至首20萬元及餘額一半　明日刊憲生效
+
+  
+
+因僱主無力清償債務而被拖欠遣散費的僱員，可從破產欠薪保障基金獲得的特惠款項將獲調高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796557-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796557-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796557-20250320.htm)
+
+---
+
 # 羅淑佩：啟德桌球賽逐客事件低級錯誤　非罪無可恕須經一事長一智
 
 ![羅淑佩認為，事件是由於賽事主辦方與園方的溝通「唔係好對到嘴」，但並非「罪無可恕」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796551_1_20250320110201.jpg&q=80)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796381-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796381-20250319.htm)
-
----
-
-# 調查指3成香港僱主計劃來季增加人手
-
-![萬寶盛華大中華高級副總裁徐玉珊表示，香港就業市場正逐步回暖。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796379_1_20250319111508.jpg&q=90)
-  
-
-人力資源服務供應商萬寶盛華大中華，發表今年第2季就業展望調查，受訪的525名香港僱主中，30%預算未來3個月將增加人手，19%表示會縮減人手，50%未有計劃在來季調整現時員工數目。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796379-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Trump urges Fed to cut rates as tariffs take effect
+
+![Donald Trump says "the Fed would be much better off cutting rates". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796555_1_20250320110749.jpg&q=90)
+  
+
+President Donald Trump urged the US Federal Reserve on Wednesday to cut interest rates to help offset effects of his tariffs, renewing his vocal disagreement with the central bank's decision-making.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm)
+
+---
+
 # Local stocks dip at open
 
 ![The Hang Seng Index dropped 18 points, or 0.07 percent, to open at 24,753. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796541_1_20250320094212.jpg&q=75)
@@ -1411,29 +1435,5 @@ Hong Kong's CK Hutchison on Tuesday agreed to sell its interests in a key Panama
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794251-20250305.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 0.3 percent at 22,941. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794182_1_20250304170531.jpg&q=75)
-  
-
-Hong Kong stocks ended lower on Tuesday, with the benchmark Hang Seng Index down 0.3 percent at 22,941.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm)
 
 ---

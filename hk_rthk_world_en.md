@@ -1,3 +1,27 @@
+# Trump urges Fed to cut rates as tariffs take effect
+
+![Donald Trump says "the Fed would be much better off cutting rates". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796555_1_20250320110749.jpg&q=90)
+  
+
+President Donald Trump urged the US Federal Reserve on Wednesday to cut interest rates to help offset effects of his tariffs, renewing his vocal disagreement with the central bank's decision-making.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm)
+
+---
+
 # Israel resumes ground attacks in Gaza
 
 ![Palestinians flee Beit Hanoun, northern Gaza, after Israel issued evacuation orders for some neighbourhoods. Photo: Abd Elhkeem Khaled/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796554_1_20250320110026.jpg&q=90)
@@ -1413,29 +1437,5 @@ The US Senate finds itself on Friday in a familiar position, working to avoid a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795723-20250314.htm)
-
----
-
-# China hosts trilateral nuclear talks with Iran, Russia
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795709_1_20250314131953.jpg&q=90)
-  
-
-China urged an end to "illegal" sanctions on Iran as it hosted diplomats from that country and Russia on Friday for talks Beijing hopes will restart long-stalled negotiations on Tehran's nuclear programme.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm)
 
 ---
