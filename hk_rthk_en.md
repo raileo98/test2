@@ -1,3 +1,27 @@
+# NBA's Boston Celtics sold for record US$6.1 billion
+
+![The US$6.1 billion sale of the Boston Celtics is a record price among US-based sports teams. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796701_1_20250321055144.jpg&q=80)
+  
+
+The NBA's Boston Celtics are being sold to the head of a California private equity firm for US$6.1 billion, a record price for a US sports franchise, according to reports by The Boston Globe.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796701-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796701-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796701-20250321.htm)
+
+---
+
 # Vancouver auto show bans Tesla over safety concerns
 
 ![Tesla cars and showrooms have been vandalised in the US and other countries recently. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796697_1_20250321043524.jpg&q=85)
@@ -1415,29 +1439,5 @@ The government said it plans to amend the law to help boost the development of i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm)
-
----
-
-# Two EMSD staff, supplier charged with fraud
-
-![The trio are charged with conspiracy to defraud, and the ICAC said more charges could be laid against the trio. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796388_1_20250319122707.jpg&q=90)
-  
-
-The ICAC said on Wednesday two frontline staff from the Electrical and Mechanical Services Department and a supplier have been charged with conspiracy to defraud.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796388-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796388-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796388-20250319.htm)
 
 ---
