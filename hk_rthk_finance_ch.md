@@ -1,3 +1,26 @@
+# 長和：地緣政治風險影響全球貿易
+
+  
+
+長和去年港口及相關服務收入升11%，達到452.8億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796618-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796618-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796618-20250320.htm)
+
+---
+
 # 美國上周初領失業援助人數較預期少
 
 ![美國上周新申領失業援助人數增加2千人，增至22.3萬人，少過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796666_1_20250320204511.jpg&q=80)
@@ -572,12 +595,12 @@
 
 ---
 
-# 長和去年盈利跌27%　收入升逾3%
+# 長和去年盈利跌27%　基本盈利跌11%
 
 ![長和去年盈利170.9億元，按年跌27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796616_1_20250320165745.jpg&q=80)
   
 
-長和去年盈利170.9億元，按年跌27%。撇除越南電訊業務利潤、一次性非現金減值及其他撥備，基本盈利跌11%至208.3億元。
+長和去年盈利170.9億元，按年跌27%。撇除越南電訊業務利潤、一次性非現金減值及其他撥備，基本盈利跌11%至208.3億元。末期息每股1.514元，按年跌15%。全年派息2.202元，亦跌13%。
 
   
 
