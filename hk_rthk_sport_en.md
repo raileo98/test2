@@ -1,3 +1,27 @@
+# Kirsty Coventry elected first woman president of IOC
+
+![The two-time Olympic swimming champion succeeds Thomas Bach. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796684_1_20250321001616.jpg&q=90)
+  
+
+Zimbabwean Kirsty Coventry became the first woman and African to be elected president of the International Olympic Committee on Thursday declaring it to be an "extraordinary moment."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm)
+
+---
+
 # Japan first team to qualify for 2026 World Cup
 
 ![Daichi Kamada's ninth goal for Japan sends the 60,000-strong crowd wild. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796672_1_20250320214131.jpg&q=75)
@@ -1417,30 +1441,5 @@ The Kai Tak Sports Park will promote sports development and exchanges between Ho
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794723-20250307.htm)
-
----
-
-# Man Utd draw in Europa League last 16; Spurs beaten
-
-![Joshua Zirkzee opened the scoring for Manchester United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_1_20250307055618.jpg&q=85)
-![Lucas Bergvall's own goal condemned Spurs to defeat by Dutch side AZ Alkmaar.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794649_2_20250307055618.jpg&q=85)
-  
-
-Manchester United drew 1-1 away to Real Sociedad in the first leg of their Europa League last-16 tie, while Tottenham suffered a 1-0 loss away to Dutch side AZ Alkmaar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794649-20250307.htm)
 
 ---

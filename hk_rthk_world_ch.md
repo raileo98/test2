@@ -1,3 +1,27 @@
+# 津巴布韋體育部長考文垂當選國際奧委會主席
+
+![考文垂將成為首位女性及來自非洲的國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796685_1_20250321002325.jpg&q=90)
+  
+
+津巴布韋體育部長考文垂當選國際奧委會主席，將在6月接替巴赫，成為首位女性及來自非洲的國際奧委會主席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm)
+
+---
+
 # 東京地鐵沙林毒氣襲擊事件30周年　民眾在出事地鐵站悼念
 
 ![有遇難者家屬到當年事發的東京霞關地鐵站悼念離世的親人。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796674_1_20250320223035.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm)
-
----
-
-# 白宮：特朗普正與普京通電話　進展良好
-
-![美國總統特朗普與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796308_1_20250319005502.jpg&q=90)
-  
-
-美國白宮表示，總統特朗普與俄羅斯總統普京從美國東岸時間星期二早上10時開始通電話，目前仍然繼續，進展良好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796308-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796308-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796308-20250318.htm)
 
 ---

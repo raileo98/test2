@@ -1,3 +1,27 @@
+# Kirsty Coventry elected first woman president of IOC
+
+![The two-time Olympic swimming champion succeeds Thomas Bach. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796684_1_20250321001616.jpg&q=90)
+  
+
+Zimbabwean Kirsty Coventry became the first woman and African to be elected president of the International Olympic Committee on Thursday declaring it to be an "extraordinary moment."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm)
+
+---
+
 # Top Beijing official praises EuroCham's work in HK
 
 ![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing. Photo courtesy of Hong Kong and Macao Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796677_1_20250320220041.jpg&q=90)
@@ -1415,29 +1439,5 @@ Ukraine on Wednesday accused Russia of effectively rejecting a US-backed ceasefi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796372-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796372-20250319.htm)
-
----
-
-# Trump to unveil reciprocal tariffs on April 2
-
-![US Treasury Secretary Scott Bessent said if countries stop their practices, the US would not put up the tariff wall. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796362_1_20250319092836.jpg&q=90)
-  
-
-Washington is expected to present US trading partners on April 2 with a number representing their tariff and other barriers, as it unveils reciprocal levies tailored to each country, US Treasury Secretary Scott Bessent said on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 津巴布韋體育部長考文垂當選國際奧委會主席
+
+![考文垂將成為首位女性及來自非洲的國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796685_1_20250321002325.jpg&q=90)
+  
+
+津巴布韋體育部長考文垂當選國際奧委會主席，將在6月接替巴赫，成為首位女性及來自非洲的國際奧委會主席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm)
+
+---
+
 # 香港航空乘客憶述行李架著火時感到害怕　自費坐其他公司航機返港
 
 ![受訪乘客拍攝的片段所見，該格行李架被燒至熏黑。（乘客提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796683_1_20250320235720.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796622-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796622-20250320.htm)
-
----
-
-# 長和去年盈利跌27%　基本盈利跌11%
-
-![長和去年盈利170.9億元，按年跌27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796616_1_20250320165745.jpg&q=80)
-  
-
-長和去年盈利170.9億元，按年跌27%。撇除越南電訊業務利潤、一次性非現金減值及其他撥備，基本盈利跌11%至208.3億元。末期息每股1.514元，按年跌15%。全年派息2.202元，亦跌13%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm)
 
 ---
