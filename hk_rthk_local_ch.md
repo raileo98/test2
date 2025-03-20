@@ -1,3 +1,98 @@
+# AI初創公司以無人機檢查外牆　指監管沙盒項目有助減省人手
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796645_1_20250320184001.jpg&q=90)
+  
+
+首批低空經濟「監管沙盒」試點項目當中，有人工智能初創公司利用無人機技術，協助包括房協等機構的外牆檢查，今次參與監管沙盒，可讓他們在試點全自動操作，協助減省人手。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796645-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796645-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796645-20250320.htm)
+
+---
+
+# 機艙行李架著火改道福州降落　香港航空安排另一航機接載乘客回港
+
+  
+
+香港航空一架由杭州飛往香港的客機 HX115 ，原定下午約3時抵港，但飛行期間機艙的行李架突然起火，改道安全降落於福州機場。香港航空表示，該飛機為空中巴士A320，機上載有160名乘客和8名機組人員，公司正安排另一航機接載乘客回港，預計將會於晚上8時55分到達福州機場接載乘客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796650-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796650-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796650-20250320.htm)
+
+---
+
+# 美國聯儲局維持利率不變　本港多間銀行跟隨
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796646_1_20250320183654.jpg&q=90)
+  
+
+美國聯儲局維持利率不變，本港多間大型銀行跟隨按兵不動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796646-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796646-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796646-20250320.htm)
+
+---
+
+# 低空經濟「監管沙盒」項目啟動　特首：讓公眾體驗廣闊潛力
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796642_1_20250320183627.jpg&q=85)
+  
+
+政府公布首批低空經濟「監管沙盒」試點項目，涵蓋無人機配送、空中監察、緊急救援等多個領域。行政長官李家超出席啟動禮時表示，啟動「監管沙盒」是要以先行先試方式，為低空經濟構建示範項目，以及讓公眾親身體驗低空經濟的廣闊潛力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796642-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796642-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796642-20250320.htm)
+
+---
+
 # 急症室逾半病人屬次緊急及非緊急　醫管局冀加費引導使用其他服務
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796639_1_20250320183232.jpg&q=90)
@@ -191,6 +286,7 @@
 
 # 冷藏肉充當新鮮肉出售　食環署搜兩糧食店檢180公斤疑冷藏牛肉
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796627_1_20250320183857.jpg&q=90)
   
 
 有新鮮糧食店涉嫌將冷藏肉充當新鮮肉出售採取，食環署昨日及今日採取突擊行動，分別在葵涌葵盛圍及將軍澳唐俊街兩間新鮮糧食店，檢獲180公斤懷疑冷藏牛肉，已即時銷毀，另外亦即時封存123公斤預先包裝好的冷藏牛肉進行調查，同時亦抽取牛肉樣本，進行防腐劑檢測。
@@ -1349,101 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm)
-
----
-
-# 教育局稱設專責小組全面檢視交流團安排　保障活動質量及師生安全
-
-![教育局表示，在組織交流考察活動時，必以安全為首要考慮。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796474_1_20250319201646.jpg&q=90)
-  
-
-教育局表示，在組織交流考察活動時，必以安全為首要考慮，所以出發前會安排學校簡介會和提供詳盡的指引，若遇到事故，亦會立即嚴肅跟進和處理。局方以近日的交流團出現腸胃炎徵狀事件舉例，指教育局已立刻聯繋衞生防護中心及內地相關部門密切跟進，並深入調查，雖然病源尚未核實，教育局為優化行程安排亦成立學生內地考察專責小組，直接與各內地部門單位保持密切溝通聯繫，全面檢視現時交流團的安排，保障交流團活動質量及師生安全。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796474-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796474-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796474-20250319.htm)
-
----
-
-# 公務員學院辦「習近平文化思想」講座　約160名政府中高層出席
-
-![公務員學院在政府總部舉辦「習近平文化思想」講座。圖示國家行政學院副院長李文堂主講。(政府新聞處圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796472_1_20250319195203.jpg&q=90)
-  
-
-公務員學院在政府總部舉辦「習近平文化思想」講座，由國家行政學院副院長李文堂主講，有約160名政治委任官員、首長級和中高級公務員出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796472-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796472-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796472-20250319.htm)
-
----
-
-# 科大廣州創校校長稱第三所醫學院計劃書包含與很多內地醫學院合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796471_2_20250319200428.jpg&q=90)
-  
-
-三所大學正爭取籌建本港第三間醫學院，當中包括香港科技大學。香港科技大學（廣州）創校校長倪明選表示，全力支持港科大辦第三所醫學院，已提交政府的計劃書包含與內地很多醫學院的合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm)
-
----
-
-# 李家超會見廣東省省長王偉中　就進一步加強粵港合作交流
-
-![李家超在禮賓府會見率團訪港的廣東省省長王偉中。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796470_1_20250319194522.jpg&q=90)
-  
-
-行政長官李家超在禮賓府，會見率團訪港的廣東省省長王偉中，雙方就進一步加強粵港合作及推動大灣區高質量發展交流意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm)
 
 ---

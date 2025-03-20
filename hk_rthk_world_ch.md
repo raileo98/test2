@@ -1,3 +1,51 @@
+# 第六次中日經濟高層對話後天東京舉行　時隔六年重啟
+
+![何咏前說，當前中日關係呈現改善發展的良好積極勢頭。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796651_1_20250320183913.jpg&q=90)
+  
+
+第六次中日經濟高層對話本月22日將在日本東京舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm)
+
+---
+
+# 南韓憲法法院下周一就韓悳洙彈劾案宣判
+
+![南韓憲法法院將於下周一上午就韓悳洙的彈劾案宣判。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796649_1_20250320183505.jpg&q=90)
+  
+
+南韓憲法法院宣布，將於下周一上午10時就總理韓悳洙的彈劾案宣判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796649-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796649-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796649-20250320.htm)
+
+---
+
 # 外交部：經貿分歧應透過對話協商解決而非讓全球經濟承擔代價
 
 ![毛寧說，無論外部環境如何變化，中方將堅持對外開放，與世界各國共同發展，互利共贏。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796637_1_20250320175602.jpg&q=90)
@@ -168,7 +216,7 @@
 
 # 特朗普與澤連斯基通電話　就俄烏停止襲擊能源設施達成一致
 
-![特朗普和澤連斯基自上月底在白宮會面激烈爭吵後，首次通話。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796517_1_20250320062233.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796517_1_20250320062233.jpg&q=90)
   
 
 美國總統特朗普與烏克蘭總統澤連斯基通電話大約一小時，主要討論特朗普同俄羅斯總統普京前一日的通話。特朗普形容，與澤連斯基通話非常好和進展順利，目的是令俄羅斯和烏克蘭在要求和需求上達成一致。
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm)
-
----
-
-# 加沙衛生部指以軍空襲增至逾400人死亡
-
-![加沙衛生部指以軍空襲增至逾400人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796286_1_20250318194432.jpg&q=85)
-  
-
-在以色列與哈馬斯就第二階段停火談判停滯之際，以色列軍方當地星期二凌晨，向加沙地帶發動自1月19日停火生效以來最大規模的空襲，加沙衛生部門說，空襲已造成超過4百人死亡，5百多人傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796286-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796286-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796286-20250318.htm)
-
----
-
-# 俄媒稱普京與特朗普本港時間晚上9時至11時會談
-
-![俄媒稱普京與特朗普本港時間晚上9時至11時會談。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796285_1_20250318194308.jpg&q=90)
-  
-
-俄羅斯傳媒報道，俄羅斯總統普京與美國總統特朗普的會談，將於本港時間晚上9時至11時舉行。雙方將討論俄美關係正常化等議題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796285-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796285-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796285-20250318.htm)
 
 ---

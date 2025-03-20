@@ -1,3 +1,27 @@
+# 第六次中日經濟高層對話後天東京舉行　時隔六年重啟
+
+![何咏前說，當前中日關係呈現改善發展的良好積極勢頭。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796651_1_20250320183913.jpg&q=90)
+  
+
+第六次中日經濟高層對話本月22日將在日本東京舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm)
+
+---
+
 # 外交部：經貿分歧應透過對話協商解決而非讓全球經濟承擔代價
 
 ![毛寧說，無論外部環境如何變化，中方將堅持對外開放，與世界各國共同發展，互利共贏。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796637_1_20250320175602.jpg&q=90)
@@ -72,6 +96,7 @@
 
 # 習近平到雲南麗江考察　強調文旅產業要走一條持續、健康發展之路
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796630_1_20250320183940.jpg&q=90)
   
 
 中共總書記習近平到雲南考察，昨日下午到位於雲南北部的麗江市，先後考察麗江現代花卉產業園和麗江古城，了解當地因地制宜發展特色農業、加強歷史文化遺產保護利用等情況。
@@ -239,6 +264,7 @@
 
 # 中關村論壇年會月底北京舉行　突出科技前沿圍繞AI大模型等領域
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796566_1_20250320183721.jpg&q=90)
   
 
 中關村論壇年會本月27日至31日在北京舉行，今屆以「新質生產力與全球科技合作」為主題，逾百個國家和地區、上千名嘉賓參與。
@@ -1411,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm)
-
----
-
-# 外交部：中方決不接受七國集團甩鍋推責　堅決反對污蔑抹黑中國
-
-![毛寧說，中方決不接受七國集團甩鍋推責。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796086_1_20250317172225.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧說，七國集團外長會聯合聲明及有關宣言罔顧事實，顛倒黑白，污蔑抹黑中國，干涉中國內政。中方強烈不滿、堅決反對，已向有關國家提出嚴正交涉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm)
 
 ---
