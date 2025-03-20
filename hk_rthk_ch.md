@@ -1,3 +1,26 @@
+# 香港航空客機行李架起火　片段顯示機艙服務員用樽裝水向行李淋水
+
+  
+
+香港航空一架由杭州飛往香港的客機，飛行期間機艙的行李架起火，改道安全降落於福州長樂國際機場，火勢已撲滅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796614-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796614-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796614-20250320.htm)
+
+---
+
 # 2月份整體消費物價按年升1.4%　升幅收窄因去年比較基數較高
 
   

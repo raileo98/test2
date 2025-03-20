@@ -1,3 +1,31 @@
+# Drone trials to provide diverse services in Hong Kong
+
+![People attend the launch event for the Low-altitude Economy Regulatory Sandbox. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_5_20250320164211.jpg&q=80)
+![CLP Power says engineering staff can operate drones from a safe distance. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_1_20250320153334.jpg&q=75)
+![Alpha AI drones can monitor building conditions during the rainy season and even before and after typhoons. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_2_20250320153334.jpg&q=90)
+![Residents of outlying islands can soon receive deliveries by drone. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_3_20250320153334.jpg&q=90)
+![China Mobile will use drones to transport medical supplies between buildings at Princess Margaret Hospital. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_4_20250320153334.jpg&q=90)
+  
+
+Drones will be tasked with carrying out services ranging from power line inspections to emergency medical deliveries in Hong Kong’s first-ever low-altitude economy test run.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796605-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796605-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796605-20250320.htm)
+
+---
+
 # HK Airlines flight diverts to Fuzhou after cabin fire
 
 ![Passengers on board the flight shared videos and photos on social media, showing cabin crew and passengers pouring bottles of water into a charred overhead compartment. Photo: Xiaohongshu](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796611_1_20250320162509.jpg&q=90)
@@ -1411,29 +1439,5 @@ A tennis union co-founded by Novak Djokovic announced a series of legal actions 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm)
-
----
-
-# Germany votes for big defence spending package
-
-![Germany's chancellor-in-waiting Friedrich Merz says dramatic steps are needed at a time of geopolitical turmoil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796326_1_20250319033004.jpg&q=90)
-  
-
-German lawmakers gave the green light on Tuesday for a colossal spending boost for defence and infrastructure pushed by chancellor-in-waiting Friedrich Merz amid deep fears in Europe over the future strength of the transatlantic alliance.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796326-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796326-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796326-20250319.htm)
 
 ---

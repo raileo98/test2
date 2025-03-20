@@ -1,3 +1,26 @@
+# 香港航空客機行李架起火　片段顯示機艙服務員用樽裝水向行李淋水
+
+  
+
+香港航空一架由杭州飛往香港的客機，飛行期間機艙的行李架起火，改道安全降落於福州長樂國際機場，火勢已撲滅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796614-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796614-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796614-20250320.htm)
+
+---
+
 # 內地2月不包括在校生16至24歲青年失業率升至16.9%
 
 ![內地2月不包括在校生16至24歲青年失業率升至16.9%，比1月上升0.8個百分點，創4個月新高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796569_1_20250320120233.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796073-20250317.htm)
-
----
-
-# 人力資源社會保障部稱企業招聘活躍　將實施中小微企就業支持計劃
-
-![人社部稱企業招聘活躍，勞動者求職積極性高，有信心繼續保持就業局勢總體穩定。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796071_1_20250317192223.jpg&q=85)
-  
-
-在北京，人力資源社會保障部就業促進司負責人陳勇嘉表示，從春節前後開展的行動來看，企業招聘活躍，勞動者求職積極性高，就業市場總體平穩，為全年工作奠定良好基礎，有信心繼續保持就業局勢總體穩定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796071-20250317.htm)
 
 ---
