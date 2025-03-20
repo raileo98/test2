@@ -24,7 +24,7 @@
 
 # 李家超：港珠澳大橋去年客流車流按年增七成　推進粵港「硬聯通」
 
-![李家超在廣東省在港舉行的春茗致辭說，香港與廣東同根同源，一起攜手推進大灣區發展，開創新格局。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796670_1_20250320213054.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796670_1_20250320213054.jpg&q=90)
   
 
 行政長官李家超表示，香港與廣東同根同源，一起攜手推進大灣區發展，開創新格局，去年港珠澳大橋的客流和車流，分別超過2700萬人次和555萬輛次，按年分別增長超過70%，創歷史新高，進一步推進粵港「硬聯通」。
