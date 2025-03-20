@@ -1,3 +1,26 @@
+# 俄方稱周一與美會談　澤連斯基︰烏美代表將同日在沙特會談
+
+  
+
+烏克蘭總統澤連斯基表示，烏克蘭代表團星期一將在沙特阿拉伯與美國代表團舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796686-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796686-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796686-20250321.htm)
+
+---
+
 # 津巴布韋體育部長考文垂當選國際奧委會主席
 
 ![考文垂將成為首位女性及來自非洲的國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796685_1_20250321002325.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm)
-
----
-
-# 王毅談烏克蘭問題　支持達成公平持久並被各當事方接受協議
-
-![王毅與法國總統外事顧問博納通電話。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796314_1_20250318235218.jpg&q=90)
-  
-
-中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話，就烏克蘭問題深入交換意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796314-20250319.htm)
 
 ---

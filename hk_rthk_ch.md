@@ -1,3 +1,26 @@
+# 俄方稱周一與美會談　澤連斯基︰烏美代表將同日在沙特會談
+
+  
+
+烏克蘭總統澤連斯基表示，烏克蘭代表團星期一將在沙特阿拉伯與美國代表團舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796686-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796686-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796686-20250321.htm)
+
+---
+
 # 津巴布韋體育部長考文垂當選國際奧委會主席
 
 ![考文垂將成為首位女性及來自非洲的國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796685_1_20250321002325.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796623-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796623-20250320.htm)
-
----
-
-# 盧國沾離世　作曲家及作詞家協會：本地音樂界失去一位填詞巨匠
-
-![香港作曲家及作詞家協會表示，「香港詞壇聖手」盧國沾昨日與世長辭，協會上下以及眾多音樂人均深感悲痛。（香港作曲家及作詞家協會網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796622_1_20250320171209.jpg&q=90)
-  
-
-本港著名填詞人盧國沾離世，終年75歲。香港作曲家及作詞家協會表示，「香港詞壇聖手」盧國沾昨日與世長辭，協會上下以及眾多音樂人均深感悲痛，認為本地音樂界失去一位殿堂級填詞巨匠，將永遠銘記他對流行歌詞與香港樂壇的重大貢獻，謹願他安息，並向家人致以最深切的慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796622-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796622-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796622-20250320.htm)
 
 ---
