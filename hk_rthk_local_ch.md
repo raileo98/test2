@@ -1,3 +1,26 @@
+# 香港航空乘客憶述行李架著火時感到害怕　自費坐其他公司航機返港
+
+  
+
+香港航空下午一架由杭州飛往香港的客機，飛行途中機艙行李架起火，改道安全降落於福州機場。港航安排另一班航機到福州接載乘客返港，預計深夜返抵本港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796683-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796683-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796683-20250320.htm)
+
+---
+
 # 調查：近4成受訪僱主指曾因外傭借貸遭受追債滋擾
 
 ![民建聯上月以問卷訪問超過240名外傭僱主，近4成僱主指曾因外傭借貸遭受追債滋擾。(伍榮笙攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796682_1_20250320231504.jpg&q=90)
@@ -1420,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796560-20250320.htm)
-
----
-
-# 破欠基金特惠款額上限調升至首20萬元及餘額一半　明日刊憲生效
-
-![因僱主無力清償債務而被拖欠遣散費的僱員，可從破產欠薪保障基金獲得的特惠款項將獲調高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796557_1_20250320112022.jpg&q=90)
-  
-
-因僱主無力清償債務而被拖欠遣散費的僱員，可從破產欠薪保障基金獲得的特惠款項將獲調高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796557-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796557-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796557-20250320.htm)
 
 ---
