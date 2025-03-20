@@ -3,7 +3,7 @@
 ![Mao Ning says China handles cases in strict accordance with the law. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796617_1_20250320165302.jpg&q=90)
   
 
-China said on Thursday it acted "in accordance with the law" over the execution of four Canadian citizens in recent weeks.
+China said on Thursday it acted in accordance with the law over the execution of four Canadian citizens in recent weeks.
 
   
 

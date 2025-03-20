@@ -70,7 +70,7 @@
 
 ---
 
-# 長和去年港口及相關服務利潤升15%　零售利潤微升
+# 長和去年港口及相關服務利潤升15%　零售利潤亦微升
 
 ![長和去年港口及相關服務收入升11%至452.8億元，EBITDA升15%至188.5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796619_1_20250320165659.jpg&q=75)
   

@@ -1,3 +1,51 @@
+# 外交部：經貿分歧應透過對話協商解決而非讓全球經濟承擔代價
+
+![毛寧說，無論外部環境如何變化，中方將堅持對外開放，與世界各國共同發展，互利共贏。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796637_1_20250320175602.jpg&q=90)
+  
+
+經濟合作暨發展組織最新發布的中期經濟展望報告下調全球的經濟增長預期，認為一些國家近期採取的貿易壁壘措施將影響世界經濟的增速，導致通脹上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm)
+
+---
+
+# 外交部：中國對不同國籍被告一視同仁　加方應停止干涉中國司法
+
+![毛寧說，中國對不同國籍的被告人一視同仁，依法保障當事人的合法權利。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796636_1_20250320175303.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧表示，打擊毒品犯罪是各國的共同責任，中國是法治國家，對不同國籍的被告人一視同仁，嚴格依法公正處理，依法保障當事人的合法權利和加拿大方面的領事權利。加方應尊重法治精神，停止干涉中國的司法主權。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm)
+
+---
+
 # 外交部：美方不得對中國留學生採取歧視性限制措施
 
 ![毛寧說，中方敦促美方停止泛化國家安全，不得對中國留學生採取歧視性限制措施。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796635_1_20250320175000.jpg&q=90)
@@ -45,7 +93,7 @@
 
 ---
 
-# 片段顯示機艙服務員詢問起火行李物主　有乘客稱裝有相機及充電寶
+# 有乘客稱行李裝有相機及充電寶　飛機升到半空有人大叫「燒起來」
 
 ![多名機艙服務員和乘客打開行李架後，不斷用樽裝水和飲品向冒煙的行李淋水。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796625_1_20250320171516.jpg&q=90)
   
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796086-20250317.htm)
-
----
-
-# 市場監管總局稱引導商戶提供優質服務　嚴格監管執法以保障消費者
-
-![市監總局稱將與各部門密切合作，營造安全可靠、讓人放心的消費環境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796082_1_20250317192615.jpg&q=85)
-  
-
-國家發改委、市場監管總局等六個部委，就《提振消費專項行動方案》舉行記者會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796082-20250317.htm)
-
----
-
-# 中辦印發《通知》在全黨開展深入貫徹中央八項規定精神學習教育
-
-![中辦印發《通知》在全黨開展深入貫徹中央八項規定精神學習教育](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796077_1_20250317165722.jpg&q=90)
-  
-
-中共中央辦公廳近日印發《關於在全黨開展深入貫徹中央八項規定精神學習教育的通知》，指出為貫徹落實黨的二十屆三中全會部署，鞏固拓展學習貫徹習近平新時代中國特色社會主義思想主題教育成果，鞏固深化黨紀學習教育成果，鍥而不捨落實中央八項規定精神，推進作風建設常態化長效化，經黨中央同意，在全黨開展深入貫徹中央八項規定精神學習教育。學習教育在2025年全國兩會後啟動、7月底前基本結束。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796077-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796077-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796077-20250317.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 外交部：經貿分歧應透過對話協商解決而非讓全球經濟承擔代價
+
+![毛寧說，無論外部環境如何變化，中方將堅持對外開放，與世界各國共同發展，互利共贏。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796637_1_20250320175602.jpg&q=90)
+  
+
+經濟合作暨發展組織最新發布的中期經濟展望報告下調全球的經濟增長預期，認為一些國家近期採取的貿易壁壘措施將影響世界經濟的增速，導致通脹上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm)
+
+---
+
+# 外交部：中國對不同國籍被告一視同仁　加方應停止干涉中國司法
+
+![毛寧說，中國對不同國籍的被告人一視同仁，依法保障當事人的合法權利。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796636_1_20250320175303.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧表示，打擊毒品犯罪是各國的共同責任，中國是法治國家，對不同國籍的被告人一視同仁，嚴格依法公正處理，依法保障當事人的合法權利和加拿大方面的領事權利。加方應尊重法治精神，停止干涉中國的司法主權。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm)
+
+---
+
 # 外交部：美方不得對中國留學生採取歧視性限制措施
 
 ![毛寧說，中方敦促美方停止泛化國家安全，不得對中國留學生採取歧視性限制措施。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796635_1_20250320175000.jpg&q=90)
@@ -1388,52 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796285-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796285-20250318.htm)
-
----
-
-# 譚德塞稱美國削全球衛生資金或會威脅數百萬人生命
-
-![譚德塞敦促美國與受影響國家對話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796266_1_20250318173113.jpg&q=90)
-  
-
-世界衛生組織總幹事譚德塞表示，美國削減全球衛生資金或會威脅數百萬人生命。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796266-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796266-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796266-20250318.htm)
-
----
-
-# 王毅將赴東京出席中日韓外長會　並共同主持中日經濟高層對話
-
-  
-
-外交部宣布，中共中央政治局委員、外長王毅本周六將出席在日本東京舉行的第11次中日韓外長會。在日本期間，他亦會與日本外相岩屋毅共同主持第6次中日經濟高層對話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796242-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796242-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796242-20250318.htm)
 
 ---
