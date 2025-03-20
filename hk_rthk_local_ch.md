@@ -1,3 +1,27 @@
+# 夏寶龍會見香港歐洲商會　稱全力支持香港長期保持獨特地位和優勢
+
+![夏寶龍表示，全力支持香港長期保持獨特地位和優勢，鞏固國際金融、航運、貿易中心地位，維護自由開放規範的營商環境。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796663_1_20250320203336.jpg&q=90)
+  
+
+在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見香港歐洲商會訪京團。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm)
+
+---
+
 # 民航處暫無收到香港航空機艙行李架起火有人受傷報告　會積極跟進
 
   
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796519-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796519-20250320.htm)
-
----
-
-# 港隊足球友誼賽2:0挫澳門
-
-![港隊足球友誼賽2:0挫澳門。（中國香港足球總會社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796521_1_20250320071157.jpg&q=90)
-  
-
-港隊為備戰下周作客新加坡的亞洲盃外圍賽，昨晚與澳門隊在旺角場進行友誼賽，結果淨勝兩球。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm)
 
 ---
