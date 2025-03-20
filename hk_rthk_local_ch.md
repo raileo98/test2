@@ -1,3 +1,27 @@
+# 李澤鉅：香港及內地一直是集團重要市場
+
+![李澤鉅在長實業績報告提到，香港及內地一直是集團重要市場，謹慎應對多變挑戰及不明朗宏觀經濟因素。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796634_1_20250320174525.jpg&q=80)
+  
+
+長實主席李澤鉅在業績報告提到，集團作為跨國企業，以長遠可持續發展為方針，秉持「發展不忘穩健、穩健不忘發展」原則，嚴守財務紀律及貫徹審慎管理策略，謹慎應對多變挑戰及不明朗宏觀經濟因素。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796634-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796634-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796634-20250320.htm)
+
+---
+
 # 長實去年盈利跌20%　已確認物業銷售收入減少24%
 
 ![長實去年盈利136.6億元，按年跌20%。派末期息每股1.35元，按年減少近17%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796628_1_20250320172413.jpg&q=85)
@@ -22,7 +46,7 @@
 
 ---
 
-# 陪審團一致裁定42歲男子謀殺3歲女兒罪成
+# 42歲男子虐待3歲女兒搖晃致腦出血　陪審團一致裁定謀殺罪成
 
 ![高等法院陪審團退庭商議近3小時後，一致裁定被告謀殺罪成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796633_1_20250320174600.jpg&q=80)
   
@@ -1422,29 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm)
-
----
-
-# 立法會三讀通過保護關鍵基礎設施條例　鄧炳強重申沒有域外效力
-
-![立法會三讀通過《保護關鍵基礎設施條例草案》。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796455_1_20250319192356.jpg&q=80)
-  
-
-《保護關鍵基礎設施條例草案》獲立法會三讀通過。多名議員都表示支持草案，認為如果香港不立法，就會落後於國際趨勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm)
 
 ---

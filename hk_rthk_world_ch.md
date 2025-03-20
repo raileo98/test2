@@ -1,3 +1,27 @@
+# 外交部：美方不得對中國留學生採取歧視性限制措施
+
+![毛寧說，中方敦促美方停止泛化國家安全，不得對中國留學生採取歧視性限制措施。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796635_1_20250320175000.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧表示，中方敦促美方停止泛化國家安全，實際保障中國留學生的正當合法權利，不得對中國留學生採取歧視性限制措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm)
+
+---
+
 # 美媒稱特朗普將簽署行政命令關閉教育部
 
 ![美國有傳媒報道，特朗普將簽署行政命令，正式啟動教育部關閉程序。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796559_1_20250320111712.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796242-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796242-20250318.htm)
-
----
-
-# 加沙衛生部指以軍空襲增至逾3百人死亡　北京促各方有效執行停火
-
-![毛寧說，中方希望各方能夠切實推動停火協議連續有效執行。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796241_1_20250318154103.jpg&q=90)
-  
-
-在以色列與哈馬斯就第二階段停火談判停滯之際，以色列軍方當地星期二凌晨，向加沙地帶發動自1月19日停火生效以來最大規模的空襲，加沙衛生部門說，空襲已造成至少330人死亡。路透社引述哈馬斯消息人士表示，死者包括一名高級成員及其家人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796241-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796241-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796241-20250318.htm)
 
 ---

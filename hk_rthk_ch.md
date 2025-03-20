@@ -1,3 +1,51 @@
+# 李澤鉅：香港及內地一直是集團重要市場
+
+![李澤鉅在長實業績報告提到，香港及內地一直是集團重要市場，謹慎應對多變挑戰及不明朗宏觀經濟因素。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796634_1_20250320174525.jpg&q=80)
+  
+
+長實主席李澤鉅在業績報告提到，集團作為跨國企業，以長遠可持續發展為方針，秉持「發展不忘穩健、穩健不忘發展」原則，嚴守財務紀律及貫徹審慎管理策略，謹慎應對多變挑戰及不明朗宏觀經濟因素。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796634-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796634-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796634-20250320.htm)
+
+---
+
+# 外交部：美方不得對中國留學生採取歧視性限制措施
+
+![毛寧說，中方敦促美方停止泛化國家安全，不得對中國留學生採取歧視性限制措施。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796635_1_20250320175000.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧表示，中方敦促美方停止泛化國家安全，實際保障中國留學生的正當合法權利，不得對中國留學生採取歧視性限制措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm)
+
+---
+
 # 瑞士央行減息0.25厘　通脹下行風險加大
 
 ![瑞士央行表示，經濟前景變得不確定，通脹下行風險加大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796621_1_20250320171104.jpg&q=90)
@@ -46,7 +94,7 @@
 
 ---
 
-# 陪審團一致裁定42歲男子謀殺3歲女兒罪成
+# 42歲男子虐待3歲女兒搖晃致腦出血　陪審團一致裁定謀殺罪成
 
 ![高等法院陪審團退庭商議近3小時後，一致裁定被告謀殺罪成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796633_1_20250320174600.jpg&q=80)
   

@@ -1,3 +1,27 @@
+# Four Canadians 'executed in line with the law'
+
+![Mao Ning says China handles cases in strict accordance with the law. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796617_1_20250320165302.jpg&q=90)
+  
+
+China said on Thursday it acted "in accordance with the law" over the execution of four Canadian citizens in recent weeks.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm)
+
+---
+
 # Legendary F1 team owner Eddie Jordan dies
 
 ![Eddie Jordan had been undergoing treatment for what he had called 'quite aggressive' cancer of the bladder and prostate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796629_1_20250320172623.jpg&q=85)
@@ -1413,29 +1437,5 @@ President Vladimir Putin on Friday called on beleaguered Ukrainian troops in the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795805-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795805-20250315.htm)
-
----
-
-# Mark Carney sworn in as Canada's PM
-
-![Carney, a former head of both the Bank of Canada and the Bank of England, successfully argued his position with a history of tackling crises meant he was the best person to take on Trump. File Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795795_1_20250315001953.jpg&q=90)
-  
-
-Mark Carney was formally sworn in as prime minister of Canada on Friday, putting him in a position to fight tariffs from US President Donald Trump that could devastate the trade-dependent Canadian economy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795795-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795795-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795795-20250315.htm)
 
 ---

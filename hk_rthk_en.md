@@ -1,3 +1,27 @@
+# Four Canadians 'executed in line with the law'
+
+![Mao Ning says China handles cases in strict accordance with the law. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796617_1_20250320165302.jpg&q=90)
+  
+
+China said on Thursday it acted "in accordance with the law" over the execution of four Canadian citizens in recent weeks.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm)
+
+---
+
 # Net profit at CK Hutchison down 27pc
 
 ![CK Hutchison posts a 2024 net profit of HK$17 billion. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796631_1_20250320173808.jpg&q=90)
@@ -1415,29 +1439,5 @@ The US National Archives on Tuesday released the final batch of files related to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm)
-
----
-
-# Ohtani leads Dodgers to MLB season-opener win in Tokyo
-
-![Ohtani shook off the nerves to deliver two crucial hits during the Dodgers' season-opening win. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796342_1_20250319070737.jpg&q=90)
-  
-
-Shohei Ohtani admitted he was "nervous" playing in front of a packed Tokyo crowd as the Los Angeles Dodgers started the new Major League Baseball season with a win.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm)
 
 ---
