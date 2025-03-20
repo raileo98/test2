@@ -1,3 +1,27 @@
+# 港股跌幅一度擴大至逾500點　科指跌約3%
+
+![恒生指數一度跌逾500點，較早時報24303點，跌467點，跌幅約1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796603_1_20250320144934.jpg&q=15)
+  
+
+港股午後跌幅擴大，恒生指數一度跌逾500點，較早時報24303點，跌467點，跌幅約1.9%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796603-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796603-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796603-20250320.htm)
+
+---
+
 # 本港多間銀行最優惠利率不變　恒生維持在5.25厘
 
 ![美國聯儲局維持利率不變，本港多間銀行跟隨按兵不動，包括恒生。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796599_2_20250320141204.jpg&q=90)
@@ -191,7 +215,7 @@
 
 # 監管沙盒試點包括科學園上空配送食品　嘗試跨越城門河到馬鞍山
 
-![陳美寶表示，當局在72個申請項目中挑選38項進行試驗，包括物流配送、公共服務及商業運作等範疇。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796594_1_20250320134446.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796594_1_20250320134446.jpg&q=90)
   
 
 運輸及物流局局長陳美寶表示，首批低空經濟「監管沙盒」試點項目，部份將會在科學園和數碼港試驗，將物資由園區配送到離島，當局亦期望在第二季之內修例，放寬無人機的負重限制。
