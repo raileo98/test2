@@ -1,3 +1,26 @@
+# 中電以無人機監察供電設施　內地外賣平台擬科學園至馬鞍山設航線
+
+  
+
+政府公布首批低空經濟「監管沙盒」38個試點項目，當中數個項目率先下月推行試驗，包括中電的項目。中電提出，應用小型無人機操作「超視距飛行」，巡查輸電塔及架空電纜，更有效監察及管理戶外供電設施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796615-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796615-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796615-20250320.htm)
+
+---
+
 # 香港航空客機行李架起火　片段顯示機艙服務員用樽裝水向行李淋水
 
   

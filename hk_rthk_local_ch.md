@@ -1,3 +1,26 @@
+# 中電以無人機監察供電設施　內地外賣平台擬科學園至馬鞍山設航線
+
+  
+
+政府公布首批低空經濟「監管沙盒」38個試點項目，當中數個項目率先下月推行試驗，包括中電的項目。中電提出，應用小型無人機操作「超視距飛行」，巡查輸電塔及架空電纜，更有效監察及管理戶外供電設施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796615-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796615-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796615-20250320.htm)
+
+---
+
 # 香港航空客機行李架起火　片段顯示機艙服務員用樽裝水向行李淋水
 
   
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm)
-
----
-
-# 雲從科技冀以港為據點拓海外市場　科大訊飛稱語音技術助政府辦公
-
-![劉君表示，希望以香港為據點拓展海外市場，因為本港有人才優勢、國際影響力、創新政策，以及各種科研資源。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796442_1_20250320092306.jpg&q=90)
-  
-
-內地多間創科民企代表參與本港一個大灣區創新科技論壇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm)
 
 ---
