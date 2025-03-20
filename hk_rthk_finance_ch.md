@@ -1,3 +1,27 @@
+# 內地股市半日窄幅偏軟
+
+![上證指數半日收報3424點，跌2點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796567_1_20250320114334.jpg&q=75)
+  
+
+滬深股市窄幅偏軟，保險、白酒及醫藥等股份下跌，煤炭、中航系股份上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796567-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796567-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796567-20250320.htm)
+
+---
+
 # 分析料聯儲局5月恢復減息　關注滯脹風險及關稅不確定影響
 
 ![溫灼培表示，不排除聯儲局5月恢復減息，早過市場預期，但亦要留意多了委員支持今年維持息率不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796563_1_20250320112946.jpg&q=80)
@@ -1413,29 +1437,5 @@ Nvidia首席執行官黃仁勳表示，公司沒有收到關於收購英特爾�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796413-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796413-20250319.htm)
-
----
-
-# 日股跌近百點收市　於38000點得而復失
-
-![日經指數於38000點得而復失，收市報37751點，跌93點，跌幅0.25%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796412_1_20250319143634.jpg&q=85)
-  
-
-日股先升後回，於38000點得而復失。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796412-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796412-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796412-20250319.htm)
 
 ---

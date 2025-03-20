@@ -1,3 +1,27 @@
+# 內地股市半日窄幅偏軟
+
+![上證指數半日收報3424點，跌2點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796567_1_20250320114334.jpg&q=75)
+  
+
+滬深股市窄幅偏軟，保險、白酒及醫藥等股份下跌，煤炭、中航系股份上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796567-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796567-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796567-20250320.htm)
+
+---
+
 # 分析料聯儲局5月恢復減息　關注滯脹風險及關稅不確定影響
 
 ![溫灼培表示，不排除聯儲局5月恢復減息，早過市場預期，但亦要留意多了委員支持今年維持息率不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796563_1_20250320112946.jpg&q=80)
@@ -1411,30 +1435,5 @@ Nvidia首席執行官黃仁勳表示，公司沒有收到關於收購英特爾�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796490-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796490-20250319.htm)
-
----
-
-# 羅淑佩見證馬會與中旅簽署備忘錄聯手推動賽馬旅遊
-
-![文化體育及旅遊局局長羅淑佩（後排中），中聯辦經濟部副部長郭韶偉（後排左一）等見證下，馬會與香港中旅集團代表簽署合作備忘錄，加強在旅遊、體育、文化及青年發展的戰略合作。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796489_1_20250319230003.jpg&q=90)
-![雙方將聯手推動賽馬旅遊，將馬會的跑馬地馬場、沙田馬場，以及將於明年開始舉辦常規性賽事的廣州從化馬場，納入中旅的旅遊路線。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796489_2_20250319230003.jpg&q=60)
-  
-
-文化體育及旅遊局局長羅淑佩見證馬會與中旅集團簽署備忘錄。羅淑佩表示，高興看到馬會與中旅攜手推廣具香港特色的旅遊產品，包括賽馬旅遊及海島旅遊，並在旅遊、體育和文化方面加強合作，進一步向外展示香港作為世界級旅遊目的地的魅力，吸引旅客來港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm)
 
 ---
