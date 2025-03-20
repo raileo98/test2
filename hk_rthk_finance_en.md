@@ -1,3 +1,27 @@
+# Inflation pace eases in February
+
+![City's inflation eased last month, with prices for clothing and footwear products dropping by about two percent year on year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796632_1_20250320173703.jpg&q=90)
+  
+
+Hong Kong's inflation pace eased last month, rising by just 1.4 percent year on year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796632-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796632-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796632-20250320.htm)
+
+---
+
 # Net profit at CK Hutchison down 27pc
 
 ![CK Hutchison posts a 2024 net profit of HK$17 billion. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796631_1_20250320173808.jpg&q=90)
@@ -1411,29 +1435,5 @@ Chinese companies are doubling down on innovation as part of efforts to contribu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794332-20250305.htm)
-
----
-
-# Domestic demand 'main engine and anchor' of growth
-
-![Premier Li Qiang says the country will adopt special measures to boost consumption. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794331_1_20250305112049.jpg&q=85)
-  
-
-Premier Li Qiang on Wednesday said the nation will vigorously boost consumption and investment, with domestic demand becoming "the main engine and anchor of economic growth" as stated in his government work report.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm](https://news.rthk.hk/rthk/en/component/k2/1794331-20250305.htm)
 
 ---

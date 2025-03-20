@@ -1,3 +1,27 @@
+# 全球金融中心指數香港排第三　政府：彰顯作為國際金融中心實力
+
+![許正宇在社交平台表示，香港在最新一期指數中穩居全球前三，充分彰顯作為國際金融中心的實力與優勢。（財庫局社交平台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796638_1_20250320175935.jpg&q=90)
+  
+
+英國Z/Yen集團與中國（深圳）綜合開發研究院公布的《全球金融中心指數》報告，香港的整體評分上升11分至760分，與首位的評分差距略為收窄，總排名維持全球第三位，並在亞太區繼續居首。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm)
+
+---
+
 # 李澤鉅：香港及內地一直是集團重要市場
 
 ![李澤鉅在長實業績報告提到，香港及內地一直是集團重要市場，謹慎應對多變挑戰及不明朗宏觀經濟因素。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796634_1_20250320174525.jpg&q=80)
@@ -1422,29 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm)
-
----
-
-# 陳國基稱預計年中向立法會提交有關簡樸房條例草案
-
-![陳國基主持筲箕灣社區客廳開幕典禮。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796456_1_20250319192036.jpg&q=80)
-  
-
-政務司司長陳國基透露，位於高山道的社區客廳將於下月開幕，令今年啟用的社區客廳總數，增加至5間，超出去年提出的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796456-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Inflation pace eases in February
+
+![City's inflation eased last month, with prices for clothing and footwear products dropping by about two percent year on year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796632_1_20250320173703.jpg&q=90)
+  
+
+Hong Kong's inflation pace eased last month, rising by just 1.4 percent year on year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796632-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796632-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796632-20250320.htm)
+
+---
+
 # Four Canadians 'executed in line with the law'
 
 ![Mao Ning says China handles cases in strict accordance with the law. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796617_1_20250320165302.jpg&q=90)
@@ -1415,29 +1439,5 @@ Israeli Prime Minister Benjamin Netanyahu warned on Tuesday that massive overnig
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm)
-
----
-
-# US releases final trove of Kennedy assassination files
-
-![Documents related to the 1963 assassination of President John F Kennedy are displayed after they were released. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796353_1_20250319084345.jpg&q=85)
-  
-
-The US National Archives on Tuesday released the final batch of files related to the assassination of president John F Kennedy - a case that still fuels conspiracy theories more than 60 years after his death.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 全球金融中心指數香港排第三　政府：彰顯作為國際金融中心實力
+
+![許正宇在社交平台表示，香港在最新一期指數中穩居全球前三，充分彰顯作為國際金融中心的實力與優勢。（財庫局社交平台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796638_1_20250320175935.jpg&q=90)
+  
+
+英國Z/Yen集團與中國（深圳）綜合開發研究院公布的《全球金融中心指數》報告，香港的整體評分上升11分至760分，與首位的評分差距略為收窄，總排名維持全球第三位，並在亞太區繼續居首。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm)
+
+---
+
 # 外交部：經貿分歧應透過對話協商解決而非讓全球經濟承擔代價
 
 ![毛寧說，無論外部環境如何變化，中方將堅持對外開放，與世界各國共同發展，互利共贏。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796637_1_20250320175602.jpg&q=90)
