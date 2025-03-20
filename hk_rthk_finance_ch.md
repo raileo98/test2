@@ -1,3 +1,27 @@
+# 2月人民幣國際支付份額升穿4%　創半年新高
+
+![2月人民幣國際支付價值份額突破4%，升至4.33%，創半年新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796572_1_20250320120845.jpg&q=80)
+  
+
+環球同業銀行金融電訊協會(SWIFT)報告指，2月人民幣國際支付價值份額突破4%，升至4.33%，創半年新高，高於1月的3.79%，連續4個月排行全球第四。有關比例在2023年11月至去年8月，一直處於4%以上，去年10月一度跌穿3%水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796572-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796572-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796572-20250320.htm)
+
+---
+
 # 王美鳳料下半年港元最優惠利率減0.25厘　並完成減息周期
 
 ![王美鳳預計，美國下半年將重新減息，港元最優惠利率將下調0.25厘並完成減息周期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796591_2_20250320133435.jpg&q=75)
@@ -1411,29 +1435,5 @@ Nvidia首席執行官黃仁勳表示，公司沒有收到關於收購英特爾�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796462-20250319.htm)
-
----
-
-# 消息：簡樸房認證須收費早登記或可豁免　有條件接納向天井分間房
-
-![消息指，為鼓勵業主盡早為分間房作認證，或會推出優惠措施，就每間簡樸房認證，房屋局或會收取數千元行政等費用，若業主愈早認證，則有機會費用全免。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796458_1_20250319182155.jpg&q=90)
-  
-
-消息指，政府已大致完成規管簡樸房方案的框架細節，為鼓勵業主盡早為分間房作認證，或會推出優惠措施，就每間簡樸房認證，房屋局或會收取數千元行政等費用，若業主愈早認證，則有機會費用全免。不過，有關認證費收費，以及最終是否免費，仍要諮詢財庫局意見後，再作決定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm)
 
 ---
