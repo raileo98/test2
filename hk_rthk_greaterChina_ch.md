@@ -1,3 +1,26 @@
+# 習近平到雲南麗江考察　強調文旅產業要走一條持續、健康發展之路
+
+  
+
+中共總書記習近平到雲南考察，昨日下午到位於雲南北部的麗江市，先後考察麗江現代花卉產業園和麗江古城，了解當地因地制宜發展特色農業、加強歷史文化遺產保護利用等情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm)
+
+---
+
 # 片段顯示機艙服務員詢問起火行李物主　有乘客稱裝有相機及充電寶
 
 ![多名機艙服務員和乘客打開行李架後，不斷用樽裝水和飲品向冒煙的行李淋水。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796625_1_20250320171516.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796075-20250317.htm)
-
----
-
-# 中方促日方在台灣問題謹言慎行　以實際行動兌現堅持一中原則承諾
-
-![毛寧強調，一個中國原則是中日關係的政治基礎。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796074_1_20250317164017.jpg&q=90)
-  
-
-在北京，外交部回應有報道指，日本政府聲稱1972年簽署的《中日聯合聲明》不會對日本地方議員赴台活動構成限制。發言人毛寧說，日方企圖在台灣問題上模糊歷史事實，嚴重誤導廣大日本民眾，嚴重違背日本政府堅持一個中國原則的承諾，挑戰中日關係的政治基礎，向「台獨」勢力發出嚴重錯誤信號，中方對此堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796074-20250317.htm)
 
 ---

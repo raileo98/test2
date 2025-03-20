@@ -1,3 +1,47 @@
+# 陪審團一致裁定42歲男子謀殺3歲女兒罪成
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796633-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796633-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796633-20250320.htm)
+
+---
+
+# 長和去年港口及相關服務利潤升15%　零售利潤微升
+
+![長和去年港口及相關服務收入升11%至452.8億元，EBITDA升15%至188.5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796619_1_20250320165659.jpg&q=75)
+  
+
+長和去年各項業務的收入及利潤按年都有增長，港口及相關服務收入升11%至452.8億元，除息、稅、折扣及攤銷前盈利（EBITDA）升15%至188.5億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm)
+
+---
+
 # 冷藏肉充當新鮮肉出售　食環署搜兩糧食店檢180公斤疑冷藏牛肉
 
   
@@ -50,7 +94,7 @@
 ![香港作曲家及作詞家協會表示，「香港詞壇聖手」盧國沾昨日與世長辭，協會上下以及眾多音樂人均深感悲痛。（香港作曲家及作詞家協會網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796622_1_20250320171209.jpg&q=90)
   
 
-香港作曲家及作詞家協會表示，「香港詞壇聖手」盧國沾昨日與世長辭，協會上下以及眾多音樂人均深感悲痛，認為本地音樂界失去一位殿堂級填詞巨匠，將永遠銘記他對流行歌詞與香港樂壇的重大貢獻，謹願他安息，並向家人致以最深切的慰問。
+本港著名填詞人盧國沾離世，終年75歲。香港作曲家及作詞家協會表示，「香港詞壇聖手」盧國沾昨日與世長辭，協會上下以及眾多音樂人均深感悲痛，認為本地音樂界失去一位殿堂級填詞巨匠，將永遠銘記他對流行歌詞與香港樂壇的重大貢獻，謹願他安息，並向家人致以最深切的慰問。
 
   
 
@@ -200,7 +244,7 @@
 ![文化體育及旅遊局指，盧國沾是香港詞壇與樂壇的翹楚，以筆為舟，承載香江歲月的滄桑與情懷。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796608_1_20250320161508.jpg&q=90)
   
 
-文化體育及旅遊局局長羅淑佩對香港著名填詞人盧國沾辭世表示哀悼，並向他的家人致以深切慰問。
+本港著名填詞人盧國沾離世，終年75歲。文化體育及旅遊局局長羅淑佩對香港著名填詞人盧國沾辭世表示哀悼，並向他的家人致以深切慰問。
 
   
 
@@ -1398,53 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm)
-
----
-
-# 海洋公園登山纜車及高峰樂園一度暫停開放　有遊客表示失望
-
-![海洋公園登山纜車及高峰樂園一度暫停開放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796451_1_20250319191725.jpg&q=55)
-  
-
-海洋公園登山纜車出現訊號問題，需要暫停服務，而接載訪客往返兩個園區的海洋列車，亦正進行年檢，在沒有交通工具的情況下，高峰樂園一度暫停開放，只有山下園區開放。直至下午4時許，登山纜車及高峰樂園恢復運作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796451-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796451-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796451-20250319.htm)
-
----
-
-# 消息：簡樸房認證須收費早登記或可豁免　有條件接納向天井分間房
-
-![消息指，為鼓勵業主盡早為分間房作認證，或會推出優惠措施，就每間簡樸房認證，房屋局或會收取數千元行政等費用，若業主愈早認證，則有機會費用全免。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796458_1_20250319182155.jpg&q=90)
-  
-
-消息指，政府已大致完成規管簡樸房方案的框架細節，為鼓勵業主盡早為分間房作認證，或會推出優惠措施，就每間簡樸房認證，房屋局或會收取數千元行政等費用，若業主愈早認證，則有機會費用全免。不過，有關認證費收費，以及最終是否免費，仍要諮詢財庫局意見後，再作決定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796458-20250319.htm)
 
 ---
