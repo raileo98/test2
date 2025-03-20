@@ -1,3 +1,27 @@
+# Hamas fires at Tel Aviv in response to Israeli strikes
+
+![Gaza's civil defence agency says more than 500 Palestinians have been killed by Israeli strikes this week. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796687_1_20250321005439.jpg&q=85)
+  
+
+Hamas said it fired rockets at Israeli commercial hub Tel Aviv on Thursday in its first military response to the growing civilian death toll from Israel's resumption of air and ground operations in Gaza.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796687-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796687-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796687-20250321.htm)
+
+---
+
 # Zelensky, EU leaders discuss support for Ukraine
 
 ![Ukrainian President Volodymyr Zelensky was set to address the summit by video link. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796668_1_20250320205411.jpg&q=90)
@@ -1413,29 +1437,5 @@ Cuba suffered a general blackout on Friday caused by a crash of its national ele
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795833-20250315.htm)
-
----
-
-# Crew launch to ISS to replace stuck astronauts
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795820_1_20250315083347.jpg&q=90)
-  
-
-After more than nine months on the International Space Station, two astronauts are a step closer to returning home following the launch of a crew swap mission on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm)
 
 ---
