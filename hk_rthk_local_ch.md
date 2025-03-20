@@ -1,3 +1,26 @@
+# 九巴：所有車長工作安排均符合運輸署指引
+
+  
+
+九巴表示，管理層今日與工會代表會面，討論有關車長的工作安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796676-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796676-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796676-20250320.htm)
+
+---
+
 # 李家超：港珠澳大橋去年客流車流按年增七成　推進粵港「硬聯通」
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796670_1_20250320213054.jpg&q=90)
@@ -1420,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796544-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796544-20250320.htm)
-
----
-
-# 吐露港公路8車相撞　至少5人受傷
-
-![意外涉及1輛輕貨車、3輛的士和4輛私家車。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796543_1_20250320100205.jpg&q=90)
-  
-
-吐露港公路往大埔方向發生8車連環相撞，至少5人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796543-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796543-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796543-20250320.htm)
 
 ---

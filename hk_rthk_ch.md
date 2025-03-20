@@ -1,3 +1,49 @@
+# 九巴：所有車長工作安排均符合運輸署指引
+
+  
+
+九巴表示，管理層今日與工會代表會面，討論有關車長的工作安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796676-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796676-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796676-20250320.htm)
+
+---
+
+# 東京地鐵沙林毒氣襲擊事件30周年　民眾在出事地鐵站悼念
+
+  
+
+日本東京地鐵沙林毒氣襲擊事件30周年，在當年事發的東京霞關地鐵站，遇難者家屬、受害者和乘客前往站內的獻花台，獻上鮮花並雙手合十，悼念遇難者，車站工作人員等人在事件發生的一刻默哀。日本國土交通相中野洋昌亦到現場獻花。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796674-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796674-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796674-20250320.htm)
+
+---
+
 # 美股開市後下跌
 
 ![聯儲局警告經濟前景不明朗，投資者憂慮關稅戰拖累經濟，打擊美股開市表現。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796673_1_20250320213933.jpg&q=90)
