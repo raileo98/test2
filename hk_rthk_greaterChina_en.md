@@ -1,3 +1,27 @@
+# Temporary e-permit to assist HKers on the mainland
+
+![HKers who lose their travel permits can apply for a temporary electronic permit one, allowing them to board flights and trains within the mainland. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796562_1_20250320122843.jpg&q=90)
+  
+
+Hongkongers who are travelling and living in mainland China can now apply for a temporary digital permit to travel by air and train within mainland cities if they lose, damage, or forget their permit.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm)
+
+---
+
 # Chile reviews Chinese observatory plans
 
 ![Chile is home to the world's darkest skies and numerous other observatories. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796533_1_20250320084807.jpg&q=90)
@@ -1412,29 +1436,5 @@ The head of the National Development and Reform Commission said he's confident t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm)
-
----
-
-# Capitalise on your strengths, vice premier tells HK
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794536_1_20250306135840.jpg&q=80)
-  
-
-Vice Premier Ding Xuexiang has urged Hong Kong to make good use of its advantages and to continue to safeguard national security, according to SAR delegates of the nation’s top political advisory body.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794536-20250306.htm)
 
 ---

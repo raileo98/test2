@@ -1,3 +1,23 @@
+# 慢病共治計劃下周五起包括血脂檢查　4月中起增逾20個服務點
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796582-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796582-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796582-20250320.htm)
+
+---
+
 # 李家超：低空經濟潛力巨大應用場景廣闊　成未來經濟新增長引擎
 
   
@@ -93,6 +113,7 @@
 
 # 陳茂波前赴北京將出席中國發展高層論壇　與中央部委討論加強合作
 
+![陳茂波傍晚啟程到北京訪問，稍後會出席中國發展高層論壇。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796574_1_20250320123054.jpg&q=90)
   
 
 財政司司長陳茂波傍晚啟程到北京訪問，稍後會出席中國發展高層論壇，並在其中一場專題研討會發言。他亦會與相關的中央部委和機構人員會面和討論加強合作，並到訪企業。
@@ -116,6 +137,7 @@
 
 # 監管沙盒公司試行無人機全自動操作　有公司以無人機助送醫療物資
 
+![中國移動DICT中心主管助理曾曉文表示，會利用相關技術在瑪嘉烈醫院協助無人機配送病人樣本、血液等醫療物資。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796571_1_20250320123129.jpg&q=90)
   
 
 在今次首批低空經濟「監管沙盒」試點項目當中，有人工智能初創公司利用無人機技術，協助物業管理；亦有通訊營辦商利用新通訊技術，建立無人機感知網絡，協助在醫院運送醫療物資。
@@ -1409,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796405-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796405-20250319.htm)
-
----
-
-# 李家超與江門市委書記會面　就深化港邑合作及推動大灣區發展交流
-
-![李家超（右）與江門市委書記陳岸明（左）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796400_1_20250319135325.jpg&q=90)
-  
-
-行政長官李家超今日與江門市委書記陳岸明會面，就進一步深化港邑合作及推動粵港澳大灣區高質量發展交流意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796400-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796400-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796400-20250319.htm)
 
 ---

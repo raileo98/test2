@@ -1,3 +1,27 @@
+# Temporary e-permit to assist HKers on the mainland
+
+![HKers who lose their travel permits can apply for a temporary electronic permit one, allowing them to board flights and trains within the mainland. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796562_1_20250320122843.jpg&q=90)
+  
+
+Hongkongers who are travelling and living in mainland China can now apply for a temporary digital permit to travel by air and train within mainland cities if they lose, damage, or forget their permit.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm)
+
+---
+
 # 'Accommodate workers while changing eHealth system'
 
 ![The government says medical practitioners could be fined if they don't upload key data to the eHealth system. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796558_1_20250320111257.jpg&q=90)
@@ -1411,29 +1435,5 @@ Education minister Christine Choi said on Friday the government was left with li
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795759-20250314.htm)
-
----
-
-# New AI tool helps SMEs with green transition
-
-![HKGCC chair Agnes Chan says that the AI-empowered tool will support small businesses to develop ESG audit without significant costs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795746_2_20250314170438.jpg&q=90)
-  
-
-Hong Kong businesses, specially small and medium-sized ones, are set to receive a boost to enhance their environmental, social and governance practices with the launch of a new AI tool to help them comply with rules.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795746-20250314.htm)
 
 ---
