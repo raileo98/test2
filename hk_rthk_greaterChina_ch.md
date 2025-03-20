@@ -1,5 +1,7 @@
 # 港澳台居民即日起可網上辦理電子臨時通行證
 
+![內地出入境管理局即日起實施兩項便利港澳台居民措施。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796536_1_20250320094625.jpg&q=85)
+![港澳台居民因遺失損毀或忘記攜帶通行證，需緊急乘坐交通工具，可通過手機登錄中國出入境管理局政務服務平台，即時申請有效期為7日的電子臨時通行證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796536_2_20250320094928.jpg&q=85)
   
 
 內地出入境管理局公布，即日起港澳台居民可網上辦理電子臨時通行證。

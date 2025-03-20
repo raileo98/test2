@@ -1,3 +1,51 @@
+# Trump to sign order to dismantle Education Department
+
+![A protester stands near the US Department of Education headquarters after the agency said it would lay off nearly half its staff. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796539_1_20250320092913.jpg&q=90)
+  
+
+US President Donald Trump is expected to sign an order on Thursday aiming to dismantle the Department of Education, fulfilling a long-held goal of American conservatives.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm)
+
+---
+
+# Local stocks dip at open
+
+![The Hang Seng Index dropped 18 points, or 0.07 percent, to open at 24,753. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796541_1_20250320094212.jpg&q=75)
+  
+
+Hong Kong stocks on Thursday edged down, after the US Federal Reserve kept interest rates unchanged but pointed to increased economic uncertainty, while US Treasury bond yields tumbled.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796541-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796541-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796541-20250320.htm)
+
+---
+
 # Chile reviews Chinese observatory plans
 
 ![Chile is home to the world's darkest skies and numerous other observatories. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796533_1_20250320084807.jpg&q=90)
@@ -1387,53 +1435,5 @@ The chairman of the Hong Kong Council on Smoking and Health on Tuesday called on
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796211-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796211-20250318.htm)
-
----
-
-# BYD all juiced up over 'five-minute' charging
-
-![BYS says the 'Super e-Platform' will get rid of range anxiety by allowing drivers to travel up to 470 kilometres after plugging their cars in for just five minutes. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796221_1_20250318123453.jpg&q=85)
-  
-
-Shares in Chinese EV giant BYD surged to a record high on Tuesday after it unveiled new battery technology it says can charge a vehicle in the same time it takes to fill up a petrol car.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm)
-
----
-
-# Legco polls to be held on December 7
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796209_1_20250318115209.jpg&q=85)
-  
-
-Chief Executive John Lee announced on Tuesday that the Legislative Council general election will be held on December 7.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796209-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796209-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796209-20250318.htm)
 
 ---

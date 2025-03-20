@@ -1,3 +1,51 @@
+# 人行開展2685億元人民幣逆回購操作
+
+![人行公開市場開展2685億元人民幣7日期逆回購操作，單日淨投放2326億元，連續4日淨投放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796542_1_20250320094348.jpg&q=85)
+  
+
+人民銀行公開市場開展2685億元人民幣7日期逆回購操作，利率維持於1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796542-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796542-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796542-20250320.htm)
+
+---
+
+# 內地股市初段偏軟
+
+![上證綜合指數較早時報3420點，跌5點，跌幅0.17%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796540_1_20250320093523.jpg&q=90)
+  
+
+滬深股市在開市初段偏軟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796540-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796540-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796540-20250320.htm)
+
+---
+
 # 恒指競價時段跌17點
 
 ![恒生指數競價時段報24753點，跌17點，跌幅0.07%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796538_1_20250320092540.jpg&q=75)
@@ -46,7 +94,7 @@
 
 ---
 
-# 人行維持3月貸款市場報價利率不變
+# 人行3月貸款市場報價利率維持不變
 
 ![人民銀行公布，1年期LPR為3.1厘，5年期以上為3.6厘，均連續5個月維持不變。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796535_1_20250320091311.jpg&q=75)
   
@@ -1388,53 +1436,5 @@ Nvidia首席執行官黃仁勳表示，公司沒有收到關於收購英特爾�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796374-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796374-20250319.htm)
-
----
-
-# 日本央行維持利率不變　符合預期
-
-![日本央行維持短期利率目標在0.5厘不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796371_1_20250319102937.jpg&q=75)
-  
-
-日本央行公布議息結果，委員會一致決定維持短期利率目標在0.5厘不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796371-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796371-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796371-20250319.htm)
-
----
-
-# 人行逆回購2959億元人民幣　連續3日淨投放
-
-![人行公開市場開展2959億元人民幣7天期逆回購操作，連續3日淨投放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796363_1_20250319093254.jpg&q=75)
-  
-
-人民銀行公開市場開展2959億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，單日淨投放1205億元，連續3日淨投放。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796363-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796363-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796363-20250319.htm)
 
 ---

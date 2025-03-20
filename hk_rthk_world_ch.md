@@ -1,3 +1,27 @@
+# 梵蒂岡：方濟各病情持續改善　晚上毋須使用呼吸機
+
+![88歲的方濟各因肺炎留醫近5個星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796545_1_20250320100512.jpg&q=90)
+  
+
+梵蒂岡表示，教宗方濟各肺炎病情持續改善，晚上不再需要使用呼吸機，主診醫生相信教宗病情將持續改善。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796545-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796545-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796545-20250320.htm)
+
+---
+
 # 歐盟國防白皮書提出到2030年歐洲擁有強大和充份國防能力
 
 ![卡拉斯指出，國際秩序正經歷1945年以來前所未有的巨大變化。這是歐洲安全的關鍵時刻。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796528_1_20250320082408.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796236-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796236-20250318.htm)
-
----
-
-# 洪都拉斯小型飛機墜毀至少7人喪生
-
-![搜救人員在墜毀現場救援。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796223_1_20250318125456.jpg&q=90)
-  
-
-一架載有十多人的小型飛機洪都拉斯北部墜毀，至少7人喪生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796223-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796223-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796223-20250318.htm)
 
 ---

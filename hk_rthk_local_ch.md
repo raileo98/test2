@@ -1,5 +1,54 @@
+# 醫健通修例　醫衞局稱私營醫護上載紀錄未夠積極冀透過修訂推進
+
+  
+
+政府建議修例，精簡市民同意醫護將病人資料上載至醫健通戶口的機制，日後只要市民按下系統中的「參與同意」，便等於同意公私營醫護將健康資料存入戶口，毋須再逐次處理。修例亦賦權醫務衞生局局長可要求包括私營機構，必須將重要電子健康紀錄，上載至市民的醫健通戶口。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796544-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796544-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796544-20250320.htm)
+
+---
+
+# 吐露港公路8車相撞　至少5人受傷
+
+![意外涉及1輛輕貨車、3輛的士和4輛私家車。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796543_1_20250320100205.jpg&q=90)
+  
+
+吐露港公路往大埔方向發生8車連環相撞，至少5人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796543-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796543-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796543-20250320.htm)
+
+---
+
 # 港澳台居民即日起可網上辦理電子臨時通行證
 
+![內地出入境管理局即日起實施兩項便利港澳台居民措施。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796536_1_20250320094625.jpg&q=85)
+![港澳台居民因遺失損毀或忘記攜帶通行證，需緊急乘坐交通工具，可通過手機登錄中國出入境管理局政務服務平台，即時申請有效期為7日的電子臨時通行證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796536_2_20250320094928.jpg&q=85)
   
 
 內地出入境管理局公布，即日起港澳台居民可網上辦理電子臨時通行證。
@@ -47,7 +96,6 @@
 
 # 急症室逾半病人屬次緊急非緊急　醫管局稱合適時候檢視收費
 
-![黃立己希望透過調整收費，引導非緊急病人使用急症室以外的醫療服務，令他們能夠集中資源照顧緊急病人。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796519_2_20250320083645.jpg&q=80)
 ![蕭粵中表示，醫管局一直有完善的分流指引，前線護士經過訓練，會按病人的病情病歷，維生指數等，為病人作出分類（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796519_3_20250320083834.jpg&q=80)
   
 
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796375-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796375-20250319.htm)
-
----
-
-# 謝展寰前往北京拜訪國家海關總署　就保障供港食物供應等議題交流
-
-![謝展寰下午啟程前赴北京，訪京期間將拜訪包括國家海關總署。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796373_1_20250319104528.jpg&q=90)
-  
-
-環境及生態局局長謝展寰今日下午啟程前赴北京，訪京期間將拜訪國家海關總署，就保障供港食物供應、便利香港製造食品輸入內地的通關安排，以及加強食品貿易方面的合作等議題進行交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm)
-
----
-
-# 周文港：大學收入無問題　劉智鵬：大學由日常開支儲備應對削款
-
-![周文港（左）重申大學收入並無問題。劉智鵬（右）表示，大學會由日常開支及儲備方面，應對現時政府的削減。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796369_1_20250319102807.jpg&q=90)
-  
-
-預算案提出，未來三年，每年削減教資會資助大學經常撥款2%，撥款額達681億。立法會教育事務委員會主席周文港於本台節目《千禧年代》指出，雖然每年削減2%撥款，但實際三年期會較原先撥款增加8%，因此不應裁員減薪。對於政府要求大學將一般及發展基金中退回其中40億，周文港表示，八大的整體儲備現時有1300多億，認為各大學可以充分利用，相信在提升教學方面無問題。政府資助只佔大學收入四至六成，而每年大學的恆常收入，亦包括非本地生及自資課程收入等，佔平均收入達四成，亦正不斷增加，而大學科研成果轉化為收入，亦按年增加近13%，連續兩年過百億，重申大學收入並無問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796369-20250319.htm)
 
 ---

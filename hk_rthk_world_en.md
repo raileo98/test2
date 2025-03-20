@@ -1,3 +1,27 @@
+# Trump to sign order to dismantle Education Department
+
+![A protester stands near the US Department of Education headquarters after the agency said it would lay off nearly half its staff. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796539_1_20250320092913.jpg&q=90)
+  
+
+US President Donald Trump is expected to sign an order on Thursday aiming to dismantle the Department of Education, fulfilling a long-held goal of American conservatives.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm)
+
+---
+
 # Chile reviews Chinese observatory plans
 
 ![Chile is home to the world's darkest skies and numerous other observatories. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796533_1_20250320084807.jpg&q=90)
@@ -1413,29 +1437,5 @@ Two Japanese tourists in their 20s were detained for two weeks in China then dep
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm)
-
----
-
-# US influencer visa under review after wombat outcry
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795670_1_20250314091432.jpg&q=90)
-  
-
-Australia is reviewing an American influencer’s visa after she posted video of her snatching a baby wombat from its mother.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795670-20250314.htm)
 
 ---

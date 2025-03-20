@@ -1,3 +1,27 @@
+# Local stocks dip at open
+
+![The Hang Seng Index dropped 18 points, or 0.07 percent, to open at 24,753. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796541_1_20250320094212.jpg&q=75)
+  
+
+Hong Kong stocks on Thursday edged down, after the US Federal Reserve kept interest rates unchanged but pointed to increased economic uncertainty, while US Treasury bond yields tumbled.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796541-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796541-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796541-20250320.htm)
+
+---
+
 # US stocks rise, Fed flags greater economic uncertainty
 
 ![The Dow Jones Industrial Average finished up 0.9 percent at 41,964. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796513_1_20250320055039.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong stocks ended lower on Tuesday, with the benchmark Hang Seng Index down
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794182-20250304.htm)
-
----
-
-# Canada to retaliate against US tariffs: Trudeau
-
-![Canada says it will retaliate over US President Donald Trump's tariffs, raising concerns over job losses, economic instability, and heightened trade tensions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794162_2_20250305082147.jpg&q=90)
-  
-
-Canada will slap tariffs on US imports beginning on Tuesday in response to levies pledged by President Donald Trump, Prime Minister Justin Trudeau said on Monday, adding "there is no justification" for Washington's actions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm](https://news.rthk.hk/rthk/en/component/k2/1794162-20250304.htm)
 
 ---
