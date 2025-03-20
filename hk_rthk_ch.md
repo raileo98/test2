@@ -1,3 +1,27 @@
+# 韓股高收0.32%　連升4日
+
+![首爾綜合指數收報2637點，升幅0.32%，連升4日，再創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796602_1_20250320143435.jpg&q=85)
+  
+
+南韓股市靠穩，首爾綜合指數收報2637點，升8點，升幅0.32%，連升4日，再創近1個月新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796602-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796602-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796602-20250320.htm)
+
+---
+
 # 港股跌幅一度擴大至逾500點　科指跌約3%
 
 ![恒生指數一度跌逾500點，較早時報24303點，跌467點，跌幅約1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796603_1_20250320144934.jpg&q=15)
