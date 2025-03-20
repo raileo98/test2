@@ -1,3 +1,27 @@
+# 本港多間銀行最優惠利率不變　恒生維持在5.25厘
+
+![美國聯儲局維持利率不變，本港多間銀行跟隨按兵不動，包括恒生。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796599_2_20250320141204.jpg&q=90)
+  
+
+美國聯儲局維持利率不變，本港多間大型銀行跟隨按兵不動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796599-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796599-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796599-20250320.htm)
+
+---
+
 # 台股高收近2%
 
 ![加權指數收報22377點，升416點，升幅1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796598_1_20250320135945.jpg&q=90)

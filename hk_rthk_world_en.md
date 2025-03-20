@@ -1,3 +1,27 @@
+# Malaysia gives green light for new MH370 search
+
+![Relatives of passengers on board the missing MH370 leave after taking part in a demonstration outside the Malaysian embassy in Beijing on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796601_1_20250320142559.jpg&q=75)
+  
+
+Malaysia’s government has given final approval for a Texas-based marine robotics company to renew the search for Malaysia Airlines Flight 370, which is believed to have crashed in the southern Indian Ocean more than a decade ago.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm)
+
+---
+
 # Indonesia passes controversial military law revisions
 
 ![Minister of Defense Sjafrie Sjamsoeddin speaks in the House of Representatives ahead of law revisions' passage. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796583_2_20250320134731.jpg&q=80)
@@ -1413,29 +1437,5 @@ Former Philippines president Rodrigo Duterte failed to show in person at the Int
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm)
-
----
-
-# UK police extend detention of North Sea crash captain
-
-![The MV Stena Immaculate tanker was hit by the MV Solong container vessel on March 10. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795780_1_20250314214139.jpg&q=85)
-  
-
-UK police on Friday again extended the detention of the captain of a cargo ship that struck a tanker in the North Sea, citing the "complexities" of the case.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795780-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795780-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795780-20250314.htm)
 
 ---

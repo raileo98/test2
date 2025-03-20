@@ -1,3 +1,27 @@
+# Malaysia gives green light for new MH370 search
+
+![Relatives of passengers on board the missing MH370 leave after taking part in a demonstration outside the Malaysian embassy in Beijing on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796601_1_20250320142559.jpg&q=75)
+  
+
+Malaysia’s government has given final approval for a Texas-based marine robotics company to renew the search for Malaysia Airlines Flight 370, which is believed to have crashed in the southern Indian Ocean more than a decade ago.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm)
+
+---
+
 # Doncic in solid-gold show for win over Nuggets
 
 ![Luka Doncic catches Denver Nuggets off guard in making a shot. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796600_1_20250320140326.jpg&q=90)
@@ -1411,29 +1435,5 @@ Despair mixed with anger in Kocani, North Macedonia on Tuesday in the wake of a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm)
-
----
-
-# 5 more get gastroenteritis after school exchange tour
-
-![The Centre for Health Protection says two of the five pupils have sought medical attention but none needed hospitalisation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796303_1_20250318222333.jpg&q=90)
-  
-
-Five primary school pupils who took part in an exchange tour on the mainland have fallen ill with gastroenteritis, adding to a string of similar cases in the past few weeks.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796303-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796303-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796303-20250318.htm)
 
 ---
