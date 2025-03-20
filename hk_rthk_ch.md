@@ -1,3 +1,49 @@
+# 夏寶龍會見香港歐洲商會　稱全力支持香港長期保持獨特地位和優勢
+
+  
+
+在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見香港歐洲商會訪京團。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm)
+
+---
+
+# 民航處暫無收到香港航空機艙行李架起火有人受傷報告　會積極跟進
+
+  
+
+香港航空一架由杭州飛往香港的客機，飛行途中機艙行李架起火，改道安全降落於福州機場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm)
+
+---
+
 # 商務部稱中方願同日方共同努力　推動經濟高層對話取得務實成果
 
 ![商務部稱中日經濟高層對話時隔六年重啟，具有重要意義。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796612_1_20250320164133.jpg&q=75)
@@ -786,12 +832,12 @@
 
 ---
 
-# 長和去年港口及相關服務利潤升15%　零售利潤亦微升
+# 長和去年港口及相關服務利潤升15%　零售利潤微升
 
 ![長和去年港口及相關服務收入升11%至452.8億元，EBITDA升15%至188.5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796619_1_20250320165659.jpg&q=75)
   
 
-長和去年各項業務的收入及利潤按年都有增長，港口及相關服務收入升11%至452.8億元，除息、稅、折扣及攤銷前盈利（EBITDA）升15%至188.5億元。
+長和去年多項業務的收入及利潤按年都有增長，港口及相關服務收入升11%至452.8億元，除息、稅、折扣及攤銷前盈利（EBITDA）升15%至188.5億元。
 
   
 
@@ -860,7 +906,7 @@
 
 # 冷藏肉充當新鮮肉出售　食環署搜兩糧食店檢180公斤疑冷藏牛肉
 
-![食環署搜查兩間糧食店，檢獲180公斤懷疑冷藏牛肉當新鮮肉出售。（陳豊贊攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796627_1_20250320183857.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796627_1_20250320183857.jpg&q=90)
   
 
 有新鮮糧食店涉嫌將冷藏肉充當新鮮肉出售，食環署昨日及今日採取突擊行動，分別在葵涌葵盛圍及將軍澳唐明街兩間新鮮糧食店，檢獲180公斤懷疑冷藏牛肉，已即時銷毀，另外亦即時封存123公斤預先包裝好的冷藏牛肉進行調查，同時亦抽取牛肉樣本，進行防腐劑檢測。

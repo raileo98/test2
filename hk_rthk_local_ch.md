@@ -1,3 +1,26 @@
+# 民航處暫無收到香港航空機艙行李架起火有人受傷報告　會積極跟進
+
+  
+
+香港航空一架由杭州飛往香港的客機，飛行途中機艙行李架起火，改道安全降落於福州機場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm)
+
+---
+
 # 全球金融中心指數報告香港評分升全球排第三　陳茂波稱令人鼓舞
 
   
@@ -427,12 +450,12 @@
 
 ---
 
-# 長和去年港口及相關服務利潤升15%　零售利潤亦微升
+# 長和去年港口及相關服務利潤升15%　零售利潤微升
 
 ![長和去年港口及相關服務收入升11%至452.8億元，EBITDA升15%至188.5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796619_1_20250320165659.jpg&q=75)
   
 
-長和去年各項業務的收入及利潤按年都有增長，港口及相關服務收入升11%至452.8億元，除息、稅、折扣及攤銷前盈利（EBITDA）升15%至188.5億元。
+長和去年多項業務的收入及利潤按年都有增長，港口及相關服務收入升11%至452.8億元，除息、稅、折扣及攤銷前盈利（EBITDA）升15%至188.5億元。
 
   
 
@@ -453,7 +476,7 @@
 
 # 冷藏肉充當新鮮肉出售　食環署搜兩糧食店檢180公斤疑冷藏牛肉
 
-![食環署搜查兩間糧食店，檢獲180公斤懷疑冷藏牛肉當新鮮肉出售。（陳豊贊攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796627_1_20250320183857.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796627_1_20250320183857.jpg&q=90)
   
 
 有新鮮糧食店涉嫌將冷藏肉充當新鮮肉出售，食環署昨日及今日採取突擊行動，分別在葵涌葵盛圍及將軍澳唐明街兩間新鮮糧食店，檢獲180公斤懷疑冷藏牛肉，已即時銷毀，另外亦即時封存123公斤預先包裝好的冷藏牛肉進行調查，同時亦抽取牛肉樣本，進行防腐劑檢測。
@@ -1419,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm)
-
----
-
-# 海關在機場破獲三宗涉貨運及旅客販毒案　涉款約5840萬
-
-![海關在機場檢查48箱從泰國抵港的貨物，發現內藏約152公斤懷疑大麻花，估計市值約3900萬元。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796491_1_20250319234135.jpg&q=85)
-  
-
-海關星期二在香港機場破獲三宗涉及貨運及旅客販運毒品的案件，檢獲共約40公斤懷疑氯胺酮、約152公斤懷疑大麻花及約760克懷疑海洛英，估計市值共5840萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796491-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796491-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796491-20250319.htm)
 
 ---
