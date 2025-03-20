@@ -1,3 +1,51 @@
+# 中移動料未來2-3年總投資規模將保持穩中有降
+
+![楊杰（中）期望6G能形成全球統一標準，中移動已直接參與標準制定。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796654_1_20250320184914.jpg&q=90)
+  
+
+中國移動去年盈利近1384億元人民幣，按年增長5%。集團表示，今年計劃資本開支1512億元人民幣，按年減少約8%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796654-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796654-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796654-20250320.htm)
+
+---
+
+# 港澳台居民即日起可網上辦理臨時通行證　李慧琼：提高人流便捷度
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796652_1_20250320184711.jpg&q=90)
+  
+
+國家出入境管理局表示，即日起，港澳台居民因遺失損毀或忘記攜帶通行證，需在內地城市間緊急乘坐交通工具，可以即時申請有效期為7日的電子臨時通行證。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796652-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796652-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796652-20250320.htm)
+
+---
+
 # 港隊友誼賽兩球擊敗澳門
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796640_1_20250320184358.jpg&q=85)
@@ -622,10 +670,10 @@
 
 # 冷藏肉充當新鮮肉出售　食環署搜兩糧食店檢180公斤疑冷藏牛肉
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796627_1_20250320183857.jpg&q=90)
+![食環署搜查兩間糧食店，檢獲180公斤懷疑冷藏牛肉當新鮮肉出售。(陳豊贊攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796627_1_20250320183857.jpg&q=90)
   
 
-有新鮮糧食店涉嫌將冷藏肉充當新鮮肉出售採取，食環署昨日及今日採取突擊行動，分別在葵涌葵盛圍及將軍澳唐俊街兩間新鮮糧食店，檢獲180公斤懷疑冷藏牛肉，已即時銷毀，另外亦即時封存123公斤預先包裝好的冷藏牛肉進行調查，同時亦抽取牛肉樣本，進行防腐劑檢測。
+有新鮮糧食店涉嫌將冷藏肉充當新鮮肉出售採取，食環署昨日及今日採取突擊行動，分別在葵涌葵盛圍及將軍澳唐明街兩間新鮮糧食店，檢獲180公斤懷疑冷藏牛肉，已即時銷毀，另外亦即時封存123公斤預先包裝好的冷藏牛肉進行調查，同時亦抽取牛肉樣本，進行防腐劑檢測。
 
   
 
@@ -646,7 +694,7 @@
 
 # 有乘客稱行李裝有相機及充電寶　飛機升到半空有人大叫「燒起來」
 
-![多名機艙服務員和乘客打開行李架後，不斷用樽裝水和飲品向冒煙的行李淋水。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796625_1_20250320171516.jpg&q=90)
+![香港航空一架由杭州飛往香港的客機，飛行期間機艙的行李架起火，改道安全降落於福州長樂國際機場，火勢已撲滅。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796625_2_20250320184916.jpg&q=90)
   
 
 香港航空一架由杭州飛往香港的客機，飛行期間機艙的行李架起火，改道安全降落於福州長樂國際機場，火勢已撲滅。
