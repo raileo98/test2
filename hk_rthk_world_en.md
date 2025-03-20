@@ -1,4 +1,28 @@
-# Finns still happiest, as US happiness sinks
+# Oxygen detected in most distant galaxy: astronomers
+
+![Dutch and Italian astronomers probed the JADES-GS-z14-0 galaxy using the ALMA radio telescope in Chile's Atacama desert. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796693_1_20250321032017.jpg&q=90)
+  
+
+Oxygen has been detected in the most distant galaxy ever discovered, surprised astronomers said on Thursday, offering further evidence that stars in the early universe matured far quicker than had been thought possible.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm)
+
+---
+
+# Finns still happiest, but US happiness sinks
 
 ![Finland's grand lakes and strong welfare system boost its mood. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796695_1_20250321033221.jpg&q=75)
   
@@ -1413,29 +1437,5 @@ Ukrainian President Volodymyr Zelensky said on Saturday he had urged Kyiv's West
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795883-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795883-20250315.htm)
-
----
-
-# Captain of North Sea crash ship in UK court
-
-![The collision left a huge hole in the US-registered Stena Immaculate tanker. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795877_1_20250315203158.jpg&q=75)
-  
-
-The Russian captain of a cargo ship which struck a tanker in the North Sea off the UK's northeastern coast appeared in court on Saturday charged with gross negligence manslaughter.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795877-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795877-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795877-20250315.htm)
 
 ---

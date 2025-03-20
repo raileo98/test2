@@ -1,3 +1,26 @@
+# 歐盟對美關稅反制措施將推遲至下月中旬統一實施
+
+  
+
+歐盟委員會發言人吉爾說，歐盟對美國部分商品徵收反制關稅的措施將推遲至下月中統一生效，以便為與美國政府的討論提供更多時間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796696-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796696-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796696-20250321.htm)
+
+---
+
 # 加沙衛生部門稱以軍持續空襲造成超過90人死亡
 
 ![一架坦克部署在以色列接壤加沙邊境。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796694_1_20250321034148.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm)
-
----
-
-# 長和去年港口及相關服務利潤升15%　零售利潤微升
-
-![長和去年港口及相關服務收入升11%至452.8億元，EBITDA升15%至188.5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796619_1_20250320165659.jpg&q=75)
-  
-
-長和去年多項業務的收入及利潤按年都有增長，港口及相關服務收入升11%至452.8億元，除息、稅、折扣及攤銷前盈利（EBITDA）升15%至188.5億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm)
 
 ---

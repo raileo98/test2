@@ -1,4 +1,28 @@
-# Finns still happiest, as US happiness sinks
+# Oxygen detected in most distant galaxy: astronomers
+
+![Dutch and Italian astronomers probed the JADES-GS-z14-0 galaxy using the ALMA radio telescope in Chile's Atacama desert. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796693_1_20250321032017.jpg&q=90)
+  
+
+Oxygen has been detected in the most distant galaxy ever discovered, surprised astronomers said on Thursday, offering further evidence that stars in the early universe matured far quicker than had been thought possible.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm)
+
+---
+
+# Finns still happiest, but US happiness sinks
 
 ![Finland's grand lakes and strong welfare system boost its mood. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796695_1_20250321033221.jpg&q=75)
   
@@ -1415,29 +1439,5 @@ Ocean Park said on Wednesday its cable car services were suspended due to signal
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm)
-
----
-
-# 'Joint property management key for older buildings'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796384_1_20250319120525.jpg&q=90)
-  
-
-The Secretary for Home and Youth Affairs said the joint property management scheme will help homeowners to better manage and maintain their assets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm)
 
 ---

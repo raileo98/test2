@@ -1,3 +1,26 @@
+# 歐盟對美關稅反制措施將推遲至下月中旬統一實施
+
+  
+
+歐盟委員會發言人吉爾說，歐盟對美國部分商品徵收反制關稅的措施將推遲至下月中統一生效，以便為與美國政府的討論提供更多時間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796696-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796696-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796696-20250321.htm)
+
+---
+
 # 加沙衛生部門稱以軍持續空襲造成超過90人死亡
 
 ![一架坦克部署在以色列接壤加沙邊境。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796694_1_20250321034148.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796319-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796319-20250319.htm)
-
----
-
-# 以軍打死4名哈馬斯高級官員　防長警告若不放人質將面臨更大打擊
-
-![加沙北部傑巴利耶遭以軍空襲後，有民眾視察損毀情況。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796318_1_20250319012642.jpg&q=55)
-  
-
-以色列軍方星期二向加沙發動大規模空襲，加沙衛生部門說，超過410人死亡，500多人受傷。以軍確認，打死巴勒斯坦武裝組織哈馬斯四名高級官員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796318-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796318-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796318-20250319.htm)
 
 ---
