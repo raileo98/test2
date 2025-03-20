@@ -407,6 +407,8 @@
 
 # 平保：探索將醫療健康養老布局和壽險業務擴至香港市場
 
+![謝永林表示，平保去年業績略超管理層預期，不斷深化「綜合金融+醫療養老」戰略。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796597_1_20250320183336.jpg&q=80)
+![郭曉濤表示，平保將探索把醫療健康養老布局和壽險業務擴展至香港市場。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796597_2_20250320183336.jpg&q=55)
   
 
 平保總經理兼聯席首席執行官謝永林表示，去年業績略超管理層預期，營運利潤增長9.1%至1218.6億元，並連續13年增加派息。

@@ -1,3 +1,27 @@
+# 急症室逾半病人屬次緊急及非緊急　醫管局冀加費引導使用其他服務
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796639_1_20250320183232.jpg&q=90)
+  
+
+醫管局表示，全港18間公立醫院急症室，每年服務量近200萬人次，超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令緊急病人的服務承諾達標率只有7成多，形容情況不理想，希望透過調整收費，引導非緊急病人使用急症室以外的醫療服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796639-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796639-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796639-20250320.htm)
+
+---
+
 # 涉參與暴動後移居日本　27歲男子回港探親被捕暴動罪囚45個月
 
 ![被告承認一項暴動罪，在區域法院被判監禁45個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796643_1_20250320181325.jpg&q=80)
@@ -1421,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm)
-
----
-
-# 煤氣：目前未到加價時間　會審慎與政府有關部門溝通
-
-![煤氣前主席李兆基日前離世。黃維義（中）在記者會開始前，帶領管理層默哀一分鐘。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796469_1_20250319195225.jpg&q=90)
-  
-
-中華煤氣常務董事黃維義表示，公司過去數年每兩年加價一次，但與以往有別，目前處於高息環境，加上地緣政治複雜，多地受關稅影響，涉及供應鏈等成本因素。他表示，目前未到加價時間，會審慎與政府有關部門溝通。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796469-20250319.htm)
 
 ---
