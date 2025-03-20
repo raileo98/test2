@@ -1,3 +1,27 @@
+# Perisic stars as Croatia stun France in Nations League
+
+![Croatia's Ivan Perisic celebrates after scoring his team's second goal against France. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796706_1_20250321061557.jpg&q=90)
+  
+
+Ivan Perisic scored one goal and made another as Croatia beat France 2-0 to seize the upper hand in the first leg of their Uefa Nations League quarter-final tie.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm)
+
+---
+
 # NBA's Boston Celtics sold for record US$6.1 billion
 
 ![The US$6.1 billion sale of the Boston Celtics is a record price among US-based sports teams. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796701_1_20250321055144.jpg&q=80)
@@ -1417,29 +1441,5 @@ The Cleveland Cavaliers staged a dramatic late rally to stretch their unbeaten s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm)
-
----
-
-# Top-seeded Zverev crashes out in Indian Wells opener
-
-![German Alexander Zverev in-between points during his match against Tallon Griekspoor. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794847_1_20250308081214.jpg&q=90)
-  
-
-World number two and top seed Alexander Zverev was sent crashing out of Indian Wells on Friday as he was beaten 4-6, 7-6 (7/5), 7-6 (7/4) by 43rd-ranked Tallon Griekspoor.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794847-20250308.htm)
 
 ---

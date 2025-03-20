@@ -1,3 +1,51 @@
+# 港股美國預託證券普遍較本港收市下跌
+
+![滙控ADR較本港收市跌約0.3%，友邦跌約0.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796705_1_20250321061333.jpg&q=90)
+  
+
+港股美國預託證券（ADR）普遍較本港收市下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796705-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796705-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796705-20250321.htm)
+
+---
+
+# 國際油價高收近2%　因伊朗受制裁及中東局勢緊張
+
+![倫敦布蘭特期油收市報每桶72美元，升1.22美元，升幅1.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796703_1_20250321061000.jpg&q=90)
+  
+
+國際油價上升，之前美國宣布新的伊朗相關制裁措施，加上中東局勢再度緊張，蓋過美元強勢的影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796703-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796703-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796703-20250321.htm)
+
+---
+
 # 美元上升　聯儲局表示不急於減息
 
 ![美元指數一度重上104水平，其後升幅收窄，在紐約尾市報103.81，升幅0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796702_1_20250321060106.jpg&q=85)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm)
-
----
-
-# 滙豐銀行維持最優惠利率在5.25厘不變
-
-![滙豐銀行宣布維持最優惠利率在5.25厘不變。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796573_1_20250320121142.jpg&q=90)
-  
-
-美國聯儲局一如市場預期維持利率不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796573-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796573-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796573-20250320.htm)
-
----
-
-# 「裕澤香江」高峰論壇下周三舉行　蔡崇信、蓋茲基金會高層等出席
-
-![「裕澤香江」高峰論壇，將於下周三舉行，以「香港—為全球，向世界」為主題。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796568_1_20250320115839.jpg&q=85)
-  
-
-由政府舉辦的「裕澤香江」高峰論壇，將於下周三舉行，以「香港—為全球，向世界」為主題，聚焦藝術文化、慈善傳承、科技與人工智能投資三大議題，多名講者及家族辦公室決策人會出席，探討如何善用香港獨特優勢，塑造前景及建立可傳承的財富。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796568-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796568-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796568-20250320.htm)
 
 ---

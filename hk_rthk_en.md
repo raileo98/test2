@@ -1,3 +1,27 @@
+# Perisic stars as Croatia stun France in Nations League
+
+![Croatia's Ivan Perisic celebrates after scoring his team's second goal against France. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796706_1_20250321061557.jpg&q=90)
+  
+
+Ivan Perisic scored one goal and made another as Croatia beat France 2-0 to seize the upper hand in the first leg of their Uefa Nations League quarter-final tie.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm)
+
+---
+
 # US stocks edge lower as Fed rally falters
 
 ![The Dow Jones Industrial Average closed down less than 0.1 percent at 41,953. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796704_1_20250321061012.jpg&q=75)
@@ -1415,29 +1439,5 @@ Polytechnic University (PolyU) on Wednesday said it will shoulder the cost of de
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796404-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796404-20250319.htm)
-
----
-
-# Eleven injured after bus hits exit ramp divider
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796402_1_20250319132024.jpg&q=90)
-  
-
-Eleven people including the driver were injured when a bus hit an exit ramp road divider on Tolo Highway on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm)
 
 ---
