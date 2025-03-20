@@ -1,3 +1,27 @@
+# 長和去年盈利跌27%　收入升逾3%
+
+![長和去年盈利170.9億元，按年跌27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796616_1_20250320165745.jpg&q=80)
+  
+
+長和去年盈利170.9億元，按年跌27%。撇除越南電訊業務利潤、一次性非現金減值及其他撥備，基本盈利跌11%至208.3億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm)
+
+---
+
 # 中電以無人機監察供電設施　內地外賣平台擬科學園至馬鞍山設航線
 
   
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796444-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796444-20250319.htm)
-
----
-
-# 香港場外結算公司接受在岸國債及政策性金融債作為履約抵押品
-
-![境外投資者本周五起可使用債券通持倉中在岸國債和政策性金融債作為所有衍生品交易履約抵押品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796431_1_20250319164608.jpg&q=90)
-  
-
-港交所旗下香港場外結算公司本周五起，接受境外投資者使用債券通持倉中在岸國債和政策性金融債，作為所有衍生品交易履約抵押品。場外結算公司自1月起已接受有關債券，作為北向互換通履約抵押品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796431-20250319.htm)
 
 ---
