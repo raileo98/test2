@@ -1,3 +1,75 @@
+# 港隊友誼賽兩球擊敗澳門
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796640_1_20250320184358.jpg&q=85)
+  
+
+正備戰下周亞洲盃外圍賽的港隊，在旺角大球場與澳門踢友誼賽，憑鐘樂安及李小恆於上半場的入球，贏二比零。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm)
+
+---
+
+# 國泰航空上月載客量按年升逾14%　香港快運載客量升32%
+
+![國泰航空上月載客量按年增長14.3%至205.9萬人次，載客率升至82.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796648_1_20250320183227.jpg&q=90)
+  
+
+國泰航空上月載客量按年增長14.3%至205.9萬人次，載客率升至82.9%。首兩個月載客量升25.4%至441.1萬人次，載客率升至84.7%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm)
+
+---
+
+# 西藏原黨委書記吳英杰承認受賄　法庭擇期宣判
+
+![西藏原黨委書記吳英杰承認受賄　法庭擇期宣判](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796653_1_20250320184254.jpg&q=90)
+  
+
+西藏自治區原黨委書記吳英杰涉嫌受賄案，在北京市第三中級人民法院一審開庭審理，吳英杰認罪悔罪，法庭擇期宣判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796653-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796653-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796653-20250320.htm)
+
+---
+
 # AI初創公司以無人機檢查外牆　指監管沙盒項目有助減省人手
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796645_1_20250320184001.jpg&q=90)

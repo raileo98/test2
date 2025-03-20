@@ -1,3 +1,51 @@
+# 港隊友誼賽兩球擊敗澳門
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796640_1_20250320184358.jpg&q=85)
+  
+
+正備戰下周亞洲盃外圍賽的港隊，在旺角大球場與澳門踢友誼賽，憑鐘樂安及李小恆於上半場的入球，贏二比零。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm)
+
+---
+
+# 國泰航空上月載客量按年升逾14%　香港快運載客量升32%
+
+![國泰航空上月載客量按年增長14.3%至205.9萬人次，載客率升至82.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796648_1_20250320183227.jpg&q=90)
+  
+
+國泰航空上月載客量按年增長14.3%至205.9萬人次，載客率升至82.9%。首兩個月載客量升25.4%至441.1萬人次，載客率升至84.7%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm)
+
+---
+
 # AI初創公司以無人機檢查外牆　指監管沙盒項目有助減省人手
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796645_1_20250320184001.jpg&q=90)
@@ -1397,53 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796478-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796478-20250319.htm)
-
----
-
-# 《火器及彈藥修訂條例草案》周五刊憲　下月提交立法會
-
-![保安局表示，需要修訂相關條例，以落實聯合國有關打擊槍枝彈藥的補充議定書。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796477_1_20250319233803.jpg&q=80)
-  
-
-政府將於星期五就《火器及彈藥修訂條例草案》刊憲，加強打擊非法製造和販運槍枝彈藥的跨國犯罪活動，並於下月2日向立法會提交《條例草案》，進行首讀和二讀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796477-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796477-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796477-20250319.htm)
-
----
-
-# 陳國基稱東莞一直是香港在經貿和航運緊密合作夥伴
-
-![陳國基說，香港會繼續發揮「超級聯繫人」和「超級增值人」的角色，為東莞企業提供全面和完善的專業配套服務。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796476_1_20250319225244.jpg&q=90)
-  
-
-政務司司長陳國基在香港東莞社團總會就職典禮致辭時表示，隨着粵港澳大灣區的發展進一步深化，香港與東莞的人流、物流和資金流往來更加頻繁，東莞一直是香港在經貿和航運上緊密的合作夥伴，並在近年大力發展新的產業支柱、引進大型科創企業落戶，以及致力優化科技創新生態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796476-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 國泰航空上月載客量按年升逾14%　香港快運載客量升32%
+
+![國泰航空上月載客量按年增長14.3%至205.9萬人次，載客率升至82.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796648_1_20250320183227.jpg&q=90)
+  
+
+國泰航空上月載客量按年增長14.3%至205.9萬人次，載客率升至82.9%。首兩個月載客量升25.4%至441.1萬人次，載客率升至84.7%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm)
+
+---
+
 # 恒地去年盈利跌32%　基礎盈利升1%
 
 ![恒地計劃今年在港推售11個項目，連同存貨，預計今年可供銷售單位有約6400個。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796644_1_20250320181719.jpg&q=90)

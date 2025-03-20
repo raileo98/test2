@@ -1,3 +1,27 @@
+# 西藏原黨委書記吳英杰承認受賄　法庭擇期宣判
+
+![西藏原黨委書記吳英杰承認受賄　法庭擇期宣判](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796653_1_20250320184254.jpg&q=90)
+  
+
+西藏自治區原黨委書記吳英杰涉嫌受賄案，在北京市第三中級人民法院一審開庭審理，吳英杰認罪悔罪，法庭擇期宣判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796653-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796653-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796653-20250320.htm)
+
+---
+
 # 第六次中日經濟高層對話後天東京舉行　時隔六年重啟
 
 ![何咏前說，當前中日關係呈現改善發展的良好積極勢頭。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796651_1_20250320183913.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796097-20250317.htm)
-
----
-
-# 研究：內地1月手機出貨量按年跌逾14%
-
-![信息通信研究院公布，1月國產品牌手機出貨量按年下跌近13%，佔總出貨量比例近84%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796090_1_20250317174638.jpg&q=90)
-  
-
-工信部直屬信息通信研究院公布，1月內地手機出貨量逾2724萬部，按年下跌逾14%，其中，5G手機按年下跌近10%，佔同期手機出貨量近87%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796090-20250317.htm)
 
 ---
