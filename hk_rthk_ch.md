@@ -1,3 +1,27 @@
+# 美股反覆低收　中概股指數跌近4%
+
+![道瓊斯指數反覆低收，一度升近290點，收市報41953點，跌11點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796699_1_20250321054044.jpg&q=90)
+  
+
+美股3大指數反覆低收，市場關注經濟數據及貨幣政策前景，美國上星期首次申領失業救濟人數略升至22.3萬人，少過市場預期；2月二手樓銷售出乎預期按月反彈4.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796699-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796699-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796699-20250321.htm)
+
+---
+
 # 特朗普正式簽署行政令推動關閉教育部
 
   
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm)
-
----
-
-# 42歲男子虐待3歲女兒搖晃致腦出血　陪審團一致裁定謀殺罪成
-
-![高等法院陪審團退庭商議近3小時後，一致裁定被告謀殺罪成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796633_1_20250320174600.jpg&q=80)
-  
-
-42歲男子多次虐待3歲女兒，包括猛烈搖晃導致腦出血死亡，高等法院4男3女陪審團退庭商議近3小時後，一致裁定被告謀殺罪成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796633-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796633-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796633-20250320.htm)
 
 ---

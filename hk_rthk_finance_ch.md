@@ -1,3 +1,27 @@
+# 美股反覆低收　中概股指數跌近4%
+
+![道瓊斯指數反覆低收，一度升近290點，收市報41953點，跌11點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796699_1_20250321054044.jpg&q=90)
+  
+
+美股3大指數反覆低收，市場關注經濟數據及貨幣政策前景，美國上星期首次申領失業救濟人數略升至22.3萬人，少過市場預期；2月二手樓銷售出乎預期按月反彈4.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796699-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796699-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796699-20250321.htm)
+
+---
+
 # 證監會暫時吊銷一名金融網紅牌照16個月
 
 ![證監會稱投資者利用金融網紅分享的資訊時，應保持警覺和謹慎行事。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796675_1_20250320215637.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796563-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796563-20250320.htm)
-
----
-
-# 中關村論壇年會月底北京舉行　突出科技前沿圍繞AI大模型等領域
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796566_1_20250320183721.jpg&q=90)
-  
-
-中關村論壇年會本月27日至31日在北京舉行，今屆以「新質生產力與全球科技合作」為主題，逾百個國家和地區、上千名嘉賓參與。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm)
 
 ---
