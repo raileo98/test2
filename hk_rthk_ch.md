@@ -1,3 +1,27 @@
+# 澳門司警收到9人報稱疑遭婚戒公司詐騙共12萬
+
+![澳門司警表示，高度重視案件，已經透過警務合作渠道通報香港警方。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796657_1_20250320192052.jpg&q=90)
+  
+
+香港婚戒公司突然結業，澳門司警表示，至今收到9名事主舉報，合共損失12萬澳門元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm)
+
+---
+
 # 中移動料未來2-3年總投資規模將保持穩中有降
 
 ![楊杰（中）期望6G能形成全球統一標準，中移動已直接參與標準制定。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796654_1_20250320184914.jpg&q=90)
