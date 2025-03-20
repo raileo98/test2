@@ -597,7 +597,7 @@
 
 ---
 
-# 監管沙盒公司試行無人機全自動操作　有公司以無人機助送醫療物資
+# 監管沙盒公司AI配合無人機檢查公屋外牆　電訊商助配送醫療物資
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796571_1_20250320123129.jpg&q=90)
   
