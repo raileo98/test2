@@ -1,3 +1,51 @@
+# 瑞典央行維持利率不變　符合市場預期
+
+![瑞典央行一如市場預期維持利率在2.25厘不變。（瑞典央行圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796626_1_20250320172027.jpg&q=90)
+  
+
+瑞典央行一如市場預期維持利率在2.25厘不變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796626-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796626-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796626-20250320.htm)
+
+---
+
+# 在岸人民幣兌美元低收20點子
+
+![在岸人民幣收報7.2383兌1美元，較上日收市價下跌20點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796624_1_20250320171332.jpg&q=90)
+  
+
+在岸人民幣收報7.2383兌1美元，較上日收市價下跌20點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796624-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796624-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796624-20250320.htm)
+
+---
+
 # 冷藏肉充當新鮮肉出售　食環署搜兩糧食店檢180公斤疑冷藏牛肉
 
   

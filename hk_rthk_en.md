@@ -1,3 +1,27 @@
+# Legendary F1 team owner Eddie Jordan dies
+
+![Eddie Jordan had been undergoing treatment for what he had called 'quite aggressive' cancer of the bladder and prostate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796629_1_20250320172623.jpg&q=85)
+  
+
+Ex-Formula 1 team owner and media personality Eddie Jordan has died, according to his family. He was 76.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm)
+
+---
+
 # Streak ends as Hang Seng bucks rising trend
 
 ![The Hang Seng Index ended down 2.23 percent to close at 24,219.95. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796620_1_20250320170712.jpg&q=90)
@@ -1415,29 +1439,5 @@ Wall Street stocks resumed their downward slide on Tuesday as worries over the U
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm)
-
----
-
-# Nasa astronauts Wilmore and Williams splash down
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796336_2_20250319063556.jpg&q=90)
-  
-
-Nasa astronauts Butch Wilmore and Suni Williams returned to Earth in a SpaceX capsule on Tuesday with a soft splashdown off Florida's coast, nine months after their faulty Boeing Starliner craft upended what was to be a week-long stay on the International Space Station.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm)
 
 ---

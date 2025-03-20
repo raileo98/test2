@@ -1,3 +1,27 @@
+# Legendary F1 team owner Eddie Jordan dies
+
+![Eddie Jordan had been undergoing treatment for what he had called 'quite aggressive' cancer of the bladder and prostate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796629_1_20250320172623.jpg&q=85)
+  
+
+Ex-Formula 1 team owner and media personality Eddie Jordan has died, according to his family. He was 76.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm)
+
+---
+
 # Malaysia gives green light for new MH370 search
 
 ![Relatives of passengers on board the missing MH370 leave after taking part in a demonstration outside the Malaysian embassy in Beijing on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796601_1_20250320142559.jpg&q=75)
@@ -1413,29 +1437,5 @@ Mark Carney was formally sworn in as prime minister of Canada on Friday, putting
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795795-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795795-20250315.htm)
-
----
-
-# Duterte attends ICC hearing over drug war by video
-
-![Rodrigo Duterte stands accused of the crime against humanity of murder over his years-long campaign against drug users and dealers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795790_1_20250314223327.jpg&q=90)
-  
-
-Former Philippines president Rodrigo Duterte failed to show in person at the International Criminal Court on Friday at the opening of his crimes against humanity hearing over his deadly crackdown on narcotics.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795790-20250314.htm)
 
 ---
