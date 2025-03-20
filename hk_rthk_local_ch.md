@@ -1,3 +1,27 @@
+# 渣打香港：港元最優惠貸款利率維持5.5厘
+
+![渣打香港表示，港元最優惠貸款利率維持於5.5厘。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796588_1_20250320125149.jpg&q=90)
+  
+
+渣打香港表示，港元最優惠貸款利率維持於5.5厘，港元儲蓄戶口利率亦維持不變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796588-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796588-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796588-20250320.htm)
+
+---
+
 # 中銀維持港元最優惠利率於5.25厘不變
 
 ![中銀香港宣布，港元最優惠利率維持於5.25厘不變。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796585_1_20250320123618.jpg&q=90)
@@ -66,11 +90,12 @@
 
 ---
 
-# 醫管局冀透過調整收費引導非緊急病人用急症室以外醫療服務
+# 急症室緊急病人服務達標不理想　醫管局冀加費引導病人至其他服務
 
+![醫管局表示，現時18間公立醫院急症室，每年服務量約為200萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796578_1_20250320125422.jpg&q=80)
   
 
-醫管局表示，全港18間公立醫院急症室，每年服務量近200萬人次，超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令緊急病人的服務承諾達標率只有7成多，形容情況不理想，希望透過調整收費，引導非緊急病人使用急症室以外的醫療服務。
+醫管局表示，全港18間公立醫院急症室，每年服務量近200萬人次，超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令緊急病人的服務承諾達標率只有七成多，形容情況不理想，希望透過調整收費，引導非緊急病人使用急症室以外的醫療服務。
 
   
 
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm)
-
----
-
-# 九巴74X疑失事撞欄　11名乘客及車長受傷
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796408_1_20250319145230.jpg&q=75)
-  
-
-一輛九巴中午在大埔廣福邨對開一段吐露港公路失事，撞向用作分隔道路的防撞欄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796408-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796408-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796408-20250319.htm)
 
 ---
