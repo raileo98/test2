@@ -1,3 +1,51 @@
+# 恒指競價時段跌17點
+
+![恒生指數競價時段報24753點，跌17點，跌幅0.07%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796538_1_20250320092540.jpg&q=75)
+  
+
+港股在競價時段微跌，恒生指數報24753點，跌17點，跌幅0.07%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796538-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796538-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796538-20250320.htm)
+
+---
+
+# 人民幣兌美元中間價創2個月低位
+
+![人民幣中間價報7.1754兌1美元，較上日中間價跌57點子，創2個月低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796537_1_20250320092205.jpg&q=80)
+  
+
+人民幣中間價報7.1754兌1美元，較上日中間價跌57點子，創2個月低位，與市場預測偏離擴至近650點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796537-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796537-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796537-20250320.htm)
+
+---
+
 # 人行維持3月貸款市場報價利率不變
 
 ![人民銀行公布，1年期LPR為3.1厘，5年期以上為3.6厘，均連續5個月維持不變。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796535_1_20250320091311.jpg&q=75)
@@ -1388,53 +1436,5 @@ Nvidia首席執行官黃仁勳表示，公司沒有收到關於收購英特爾�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796363-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796363-20250319.htm)
-
----
-
-# 內地股市早段跌約0.2%至約0.4%
-
-![內地股市初段偏軟，上證指數較早時報3423點，跌6點，跌幅0.19%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796364_1_20250319093509.jpg&q=90)
-  
-
-內地股市初段偏軟，上證指數較早時報3423點，跌6點，跌幅0.19%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796364-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796364-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796364-20250319.htm)
-
----
-
-# 港股競價時段跌42點
-
-![港股競價時段跌42點，恒指報24697點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796361_1_20250319092555.jpg&q=75)
-  
-
-港股競價時段跌42點，恒指報24697點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796361-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796361-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796361-20250319.htm)
 
 ---

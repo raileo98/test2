@@ -47,7 +47,7 @@
 
 # 北京U20球員郭嘉璇據報不治
 
-![北京U20球員郭嘉璇據報不治](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796494_1_20250320013337.jpg&q=90)
+![郭嘉璇效力於北京國安青年隊，司職後衛。（北京國安足球俱樂部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796494_2_20250320092343.jpg&q=90)
   
 
 內地傳媒報道，早前於西班牙集訓期間意外受傷、導致腦死亡的北京U20足球隊隊員郭嘉璇，星期三晚在北京天壇醫院去世，終年18歲。
@@ -143,6 +143,7 @@
 
 # 雲從科技冀以港為據點拓海外市場　科大訊飛稱語音技術助政府辦公
 
+![劉君表示，希望以香港為據點拓展海外市場，因為本港有人才優勢、國際影響力、創新政策，以及各種科研資源。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796442_1_20250320092306.jpg&q=90)
   
 
 內地多間創科民企代表參與本港一個大灣區創新科技論壇。
