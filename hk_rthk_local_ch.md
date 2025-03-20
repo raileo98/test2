@@ -1,3 +1,27 @@
+# 長實去年盈利跌20%　已確認物業銷售收入減少24%
+
+![長實去年盈利136.6億元，按年跌20%。派末期息每股1.35元，按年減少近17%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796628_1_20250320172413.jpg&q=85)
+  
+
+長實去年盈利136.6億元，按年跌21%。末期息每股1.35元，全年派息1.74元，按年分別減少近17%及15%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm)
+
+---
+
 # 陪審團一致裁定42歲男子謀殺3歲女兒罪成
 
   
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796455-20250319.htm)
-
----
-
-# 羅淑佩高度關注啟德體育園啟用初期情況　稱緊密溝通辦好七欖賽事
-
-![羅淑佩稱，政府下達要求後，啟德體育園公司已積極尋找發言人，會建立相關制度。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796454_1_20250319191833.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩表示，就啟德體育園啟用初期的情況，已向營運公司管理層表達高度關注，並指示營運公司在體制上迅速作出調整，改善員工的敏感度，以及向外發放信息的安排，包括設立專職的發言人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796454-20250319.htm)
 
 ---
