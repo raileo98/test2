@@ -1,6 +1,30 @@
+# HK Airlines flight diverts to Fuzhou after cabin fire
+
+![Passengers on board the flight shared videos and photos on social media, showing cabin crew and passengers pouring bottles of water into a charred overhead compartment. Photo: Xiaohongshu](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796611_1_20250320162509.jpg&q=90)
+  
+
+A Hong Kong Airlines flight was forced to make an emergency landing in Fuzhou after a fire broke out in the cabin on Thursday afternoon.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm)
+
+---
+
 # Ride-hailing drivers 'should face cabbie-style test'
 
-![Lawmaker Hoey Simon Lee says regulations on ride-hailing services should be 'not too tight but not too loose.' Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796607_1_20250320154245.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796607_1_20250320154245.jpg&q=90)
   
 
 The government should draw up "an appropriate level" of regulations for ride-hailing platforms, such as by making it mandatory for drivers to take a licensing exam similar to that for cabbies, a lawmaker said on Thursday.
@@ -1411,29 +1435,5 @@ German lawmakers gave the green light on Tuesday for a colossal spending boost f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796326-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796326-20250319.htm)
-
----
-
-# Putin, Trump fail to reach deal on full ceasefire
-
-![The two spoke for more than an hour and a half, and both expressed hopes for repairing relations between the countries. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796323_1_20250319031834.jpg&q=90)
-  
-
-US President Donald Trump and Russian President Vladimir Putin agreed on Tuesday on a halt in Russian attacks against Ukrainian energy targets – but fell far short of securing a full ceasefire in a highly anticipated phone call.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796323-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796323-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796323-20250319.htm)
 
 ---

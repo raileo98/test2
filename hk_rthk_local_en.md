@@ -24,7 +24,7 @@ A Hong Kong Airlines flight was forced to make an emergency landing in Fuzhou af
 
 # Ride-hailing drivers 'should face cabbie-style test'
 
-![Lawmaker Hoey Simon Lee says regulations on ride-hailing services should be 'not too tight but not too loose.' Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796607_1_20250320154245.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796607_1_20250320154245.jpg&q=90)
   
 
 The government should draw up "an appropriate level" of regulations for ride-hailing platforms, such as by making it mandatory for drivers to take a licensing exam similar to that for cabbies, a lawmaker said on Thursday.

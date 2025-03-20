@@ -1,3 +1,27 @@
+# 仲量聯行：本港2月甲級寫字樓錄正吸納量　整體租金持續下跌
+
+![截至2月底本港寫字樓空置率保持13.3%，中環空置率升至11.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796609_1_20250320160302.jpg&q=80)
+  
+
+物業顧問仲量聯行報告指出，本港2月整體寫字樓租賃市場錄得7200平方呎淨吸納量。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796609-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796609-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796609-20250320.htm)
+
+---
+
 # 恒指全日挫551點　科技及中資金融股受壓
 
 ![恒指收報24219點，跌551點，跌幅2.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796610_1_20250320161821.jpg&q=40)
