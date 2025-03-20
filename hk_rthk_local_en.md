@@ -1,3 +1,27 @@
+# Top Beijing official praises EuroCham's work in HK
+
+![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing. Photo courtesy of Hong Kong and Macao Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796677_1_20250320220041.jpg&q=90)
+  
+
+Hong Kong has the full support from the central government in maintaining its unique status and advantages, a senior Beijing official told a visiting business delegation from the SAR on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm)
+
+---
+
 # HK ranked Asia's top financial centre, third globally
 
 ![Hong Kong retains its spot as Asia's top financial centre, having only reclaimed it from Singapore in September 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796664_1_20250320203327.jpg&q=90)
@@ -1415,29 +1439,5 @@ Labour and welfare minister Chris Sun on Saturday said changes to the HK$2 fare 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm)
-
----
-
-# Deliveroo urged to spell out arrangements to consumers
-
-![The consumer watchdog is calling on the delivery platform to inform its customers about the handling of their personal data. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795857_1_20250315160814.jpg&q=80)
-  
-
-The Consumer Council has so far received 12 complaints involving around HK$5,000 in relation to the shutdown of the online food delivery platform, Deliveroo, in Hong Kong.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795857-20250315.htm)
 
 ---

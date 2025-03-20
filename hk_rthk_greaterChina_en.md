@@ -1,3 +1,27 @@
+# Top Beijing official praises EuroCham's work in HK
+
+![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing. Photo courtesy of Hong Kong and Macao Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796677_1_20250320220041.jpg&q=90)
+  
+
+Hong Kong has the full support from the central government in maintaining its unique status and advantages, a senior Beijing official told a visiting business delegation from the SAR on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm)
+
+---
+
 # Four Canadians 'executed in line with the law'
 
 ![Mao Ning says China handles cases in strict accordance with the law. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796617_1_20250320165302.jpg&q=90)
@@ -1412,29 +1436,5 @@ China wants to achieve a "fair, lasting and binding peace agreement" acceptable 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm)
-
----
-
-# 'Govt should seek new revenue streams amid deficit'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794665_1_20250307083708.jpg&q=90)
-  
-
-Former transport secretary Frank Chan says it is appropriate for the government to find new sources of income under a fiscal deficit, but it should carefully assess the impact of any new policies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794665-20250307.htm)
 
 ---

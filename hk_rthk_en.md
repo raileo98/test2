@@ -1,3 +1,27 @@
+# Top Beijing official praises EuroCham's work in HK
+
+![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing. Photo courtesy of Hong Kong and Macao Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796677_1_20250320220041.jpg&q=90)
+  
+
+Hong Kong has the full support from the central government in maintaining its unique status and advantages, a senior Beijing official told a visiting business delegation from the SAR on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm)
+
+---
+
 # Japan first team to qualify for 2026 World Cup
 
 ![Daichi Kamada's ninth goal for Japan sends the 60,000-strong crowd wild. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796672_1_20250320214131.jpg&q=75)
@@ -1415,29 +1439,5 @@ Washington is expected to present US trading partners on April 2 with a number r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm)
-
----
-
-# Record numbers forced to flee climate disasters: UN
-
-![A man starts to rebuild his home in a shanty town destroyed by Cyclone Chido on the French Indian Ocean territory of Mayotte in January. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796360_1_20250319091826.jpg&q=85)
-  
-
-Hundreds of thousands of people were forced to flee climate disasters last year, the United Nations said on Wednesday, highlighting the urgent need for early warning systems covering the entire planet.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm)
 
 ---

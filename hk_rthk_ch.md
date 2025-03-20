@@ -1,3 +1,26 @@
+# 深水埗有大廈梯間雜物起火　４人吸入濃煙送院約100人疏散
+
+  
+
+深水埗有大廈發生火警，4人受傷，其中有人吸入濃煙不適，全部送往明愛醫院治理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796679-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796679-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796679-20250320.htm)
+
+---
+
 # 陳美寶爭取為今年內推出「粤車南下」計劃作好準備
 
 ![運輸及物流局局長陳美寶今日與珠海市市長吳澤桐會面，就兩個城市在物流、航空及陸路運輸等方面的合作交流意見。（運輸及物流局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796678_1_20250320220414.jpg&q=85)
@@ -48,6 +71,7 @@
 
 # 東京地鐵沙林毒氣襲擊事件30周年　民眾在出事地鐵站悼念
 
+![有遇難者家屬到當年事發的東京霞關地鐵站悼念離世的親人。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796674_1_20250320223035.jpg&q=90)
   
 
 日本東京地鐵沙林毒氣襲擊事件30周年，在當年事發的東京霞關地鐵站，遇難者家屬、受害者和乘客前往站內的獻花台，獻上鮮花並雙手合十，悼念遇難者，車站工作人員等人在事件發生的一刻默哀。日本國土交通相中野洋昌亦到現場獻花。
