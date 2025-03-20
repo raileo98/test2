@@ -1,3 +1,27 @@
+# Zelensky, EU leaders discuss support for Ukraine
+
+![Ukrainian President Volodymyr Zelensky was set to address the summit by video link. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796668_1_20250320205411.jpg&q=90)
+  
+
+European Union foreign policy chief Kaja Kallas urged EU leaders on Thursday to pledge 5 billion euros for artillery shells for Ukraine to strengthen its hand in peace talks, amid divergences over how to bolster Kyiv and the EU's own military capabilities.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm)
+
+---
+
 # Inflation pace eases in February
 
 ![City's inflation eased last month, with prices for clothing and footwear products dropping by about two percent year on year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796632_1_20250320173703.jpg&q=90)
@@ -1415,29 +1439,5 @@ US Chief Justice John Roberts on Tuesday issued a rare public rebuke of Presiden
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm)
-
----
-
-# Netanyahu warns strikes on Gaza 'just the beginning'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796354_1_20250319085145.jpg&q=90)
-  
-
-Israeli Prime Minister Benjamin Netanyahu warned on Tuesday that massive overnight strikes on Gaza were "only the beginning" and that future negotiations with Hamas "will take place only under fire".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 澤連斯基稱特朗普對扎波羅熱核電站表現出興趣但烏克蘭無意轉讓
+
+![扎波羅熱核電站是歐洲最大核電站之一，現時由俄羅斯控制。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796669_1_20250320211950.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，美國總統特朗普同他通話時，對獲得扎波羅熱核電站的所有權表現出興趣。澤連斯基強調，烏克蘭無意轉讓扎波羅熱核電站。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm)
+
+---
+
+# 以軍稱在加沙地帶北部展開地面行動
+
+![以色列在加沙最新一輪空襲，導致有建築物變成廢墟。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796671_1_20250320212840.jpg&q=85)
+  
+
+以色列國防軍表示，以軍已開始在加沙地帶北部展開地面行動，並在行動前打擊當地隸屬巴勒斯坦武裝組織哈馬斯的基礎設施和反坦克導彈陣地，目前已推進至拜特拉希耶附近的沿海公路。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm)
+
+---
+
 # 第六次中日經濟高層對話後天東京舉行　時隔六年重啟
 
 ![何咏前說，當前中日關係呈現改善發展的良好積極勢頭。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796651_1_20250320183913.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796302-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796302-20250318.htm)
-
----
-
-# 世界知識產權組織數據指中國是國際專利申請最大來源國
-
-![世界知識產權組織數據指中國是國際專利申請最大來源國。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796294_1_20250318210928.jpg&q=90)
-  
-
-世界知識產權組織數據顯示，中國是國際專利申請最大來源國。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm)
-
----
-
-# 以色列軍方表示將繼續攻擊哈馬斯在加沙的目標
-
-![以色列軍方表示將繼續攻擊哈馬斯在加沙的目標。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796291_1_20250318201549.jpg&q=80)
-  
-
-以色列軍方表示，將繼續攻擊哈馬斯和伊斯蘭聖戰組織在加沙的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796291-20250318.htm)
 
 ---

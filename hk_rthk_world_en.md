@@ -1,3 +1,27 @@
+# Zelensky, EU leaders discuss support for Ukraine
+
+![Ukrainian President Volodymyr Zelensky was set to address the summit by video link. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796668_1_20250320205411.jpg&q=90)
+  
+
+European Union foreign policy chief Kaja Kallas urged EU leaders on Thursday to pledge 5 billion euros for artillery shells for Ukraine to strengthen its hand in peace talks, amid divergences over how to bolster Kyiv and the EU's own military capabilities.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm)
+
+---
+
 # Four Canadians 'executed in line with the law'
 
 ![Mao Ning says China handles cases in strict accordance with the law. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796617_1_20250320165302.jpg&q=90)
@@ -1413,29 +1437,5 @@ After more than nine months on the International Space Station, two astronauts a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795820-20250315.htm)
-
----
-
-# Putin tells Ukraine troops in Kursk to 'surrender'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795805_1_20250315050817.jpg&q=90)
-  
-
-President Vladimir Putin on Friday called on beleaguered Ukrainian troops in the Russian region of Kursk to "surrender" as Ukraine's President Volodymyr Zelensky accused the Russian leader of seeking to sabotage a ceasefire initiative.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795805-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795805-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795805-20250315.htm)
 
 ---

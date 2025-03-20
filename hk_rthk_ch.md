@@ -1,3 +1,75 @@
+# 澤連斯基稱特朗普對扎波羅熱核電站表現出興趣但烏克蘭無意轉讓
+
+![扎波羅熱核電站是歐洲最大核電站之一，現時由俄羅斯控制。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796669_1_20250320211950.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基表示，美國總統特朗普同他通話時，對獲得扎波羅熱核電站的所有權表現出興趣。澤連斯基強調，烏克蘭無意轉讓扎波羅熱核電站。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm)
+
+---
+
+# 以軍稱在加沙地帶北部展開地面行動
+
+![以色列在加沙最新一輪空襲，導致有建築物變成廢墟。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796671_1_20250320212840.jpg&q=85)
+  
+
+以色列國防軍表示，以軍已開始在加沙地帶北部展開地面行動，並在行動前打擊當地隸屬巴勒斯坦武裝組織哈馬斯的基礎設施和反坦克導彈陣地，目前已推進至拜特拉希耶附近的沿海公路。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm)
+
+---
+
+# 李家超：港珠澳大橋去年客流車流按年增七成　推進粵港「硬聯通」
+
+![李家超在廣東省在港舉行的春茗致辭說，香港與廣東同根同源，一起攜手推進大灣區發展，開創新格局。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796670_1_20250320213054.jpg&q=90)
+  
+
+行政長官李家超表示，香港與廣東同根同源，一起攜手推進大灣區發展，開創新格局，去年港珠澳大橋的客流和車流，分別超過2700萬人次和555萬輛次，按年分別增長超過70%，創歷史新高，進一步推進粵港「硬聯通」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm)
+
+---
+
 # 長和：持續地緣政治風險影響全球貿易
 
   
@@ -118,6 +190,7 @@
 
 # 民航處暫無收到香港航空機艙行李架起火有人受傷報告　會積極跟進
 
+![多名機艙服務員和乘客打開行李架後，不斷用樽裝水和飲品向冒煙的行李淋水。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796662_1_20250320213157.jpg&q=90)
   
 
 香港航空一架由杭州飛往香港的客機，飛行途中機艙行李架起火，改道安全降落於福州機場。

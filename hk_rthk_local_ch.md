@@ -1,3 +1,27 @@
+# 李家超：港珠澳大橋去年客流車流按年增七成　推進粵港「硬聯通」
+
+![李家超在廣東省在港舉行的春茗致辭說，香港與廣東同根同源，一起攜手推進大灣區發展，開創新格局。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796670_1_20250320213054.jpg&q=90)
+  
+
+行政長官李家超表示，香港與廣東同根同源，一起攜手推進大灣區發展，開創新格局，去年港珠澳大橋的客流和車流，分別超過2700萬人次和555萬輛次，按年分別增長超過70%，創歷史新高，進一步推進粵港「硬聯通」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm)
+
+---
+
 # 長和：持續地緣政治風險影響全球貿易
 
   
@@ -70,6 +94,7 @@
 
 # 民航處暫無收到香港航空機艙行李架起火有人受傷報告　會積極跟進
 
+![多名機艙服務員和乘客打開行李架後，不斷用樽裝水和飲品向冒煙的行李淋水。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796662_1_20250320213157.jpg&q=90)
   
 
 香港航空一架由杭州飛往香港的客機，飛行途中機艙行李架起火，改道安全降落於福州機場。
@@ -1417,30 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796543-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796543-20250320.htm)
-
----
-
-# 港澳台居民即日起可網上辦理電子臨時通行證
-
-![內地出入境管理局即日起實施兩項便利港澳台居民措施。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796536_1_20250320094625.jpg&q=85)
-![港澳台居民因遺失損毀或忘記攜帶通行證，需緊急乘坐交通工具，可通過手機登錄中國出入境管理局政務服務平台，即時申請有效期為7日的電子臨時通行證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796536_2_20250320094928.jpg&q=85)
-  
-
-內地出入境管理局公布，即日起港澳台居民可網上辦理電子臨時通行證。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm)
 
 ---
