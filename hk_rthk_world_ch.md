@@ -1,3 +1,27 @@
+# 歐盟向烏克蘭再提供10億歐元貸款
+
+![馮德萊恩（左）強調，歐盟正幫助烏克蘭經濟保持正常運轉，重建被破壞的關鍵基礎設施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796691_1_20250321015522.jpg&q=90)
+  
+
+歐盟委員會表示，向烏克蘭再提供10億歐元貸款，相關貸款將以被凍結的俄羅斯資產收益來償還，連同這筆貸款，歐盟今年來向烏克蘭提供的貸款總額達40億歐元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796691-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796691-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796691-20250321.htm)
+
+---
+
 # 施紀賢︰若俄烏達成和平協議　英國及盟友須迅速反應
 
 ![施紀賢表示，將與盟友集中討論對烏克蘭支持計劃的細節。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796690_1_20250321013054.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796316-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796316-20250319.htm)
-
----
-
-# 普京：西方制裁非臨時措施　欲借此對俄施加系統性戰略壓力
-
-![普京在莫斯科出席俄羅斯工業家和企業家聯合會全體會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796315_1_20250319002718.jpg&q=90)
-  
-
-俄羅斯總統普京表示，西方對俄羅斯實施的制裁不是臨時措施，而是借此對俄施加系統性戰略壓力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796315-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796315-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796315-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 歐盟向烏克蘭再提供10億歐元貸款
+
+![馮德萊恩（左）強調，歐盟正幫助烏克蘭經濟保持正常運轉，重建被破壞的關鍵基礎設施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796691_1_20250321015522.jpg&q=90)
+  
+
+歐盟委員會表示，向烏克蘭再提供10億歐元貸款，相關貸款將以被凍結的俄羅斯資產收益來償還，連同這筆貸款，歐盟今年來向烏克蘭提供的貸款總額達40億歐元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796691-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796691-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796691-20250321.htm)
+
+---
+
 # 施紀賢︰若俄烏達成和平協議　英國及盟友須迅速反應
 
 ![施紀賢表示，將與盟友集中討論對烏克蘭支持計劃的細節。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796690_1_20250321013054.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796624-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796624-20250320.htm)
-
----
-
-# 冷藏肉充當新鮮肉出售　食環署搜兩糧食店檢180公斤疑冷藏牛肉
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796627_1_20250320183857.jpg&q=90)
-  
-
-有新鮮糧食店涉嫌將冷藏肉充當新鮮肉出售，食環署昨日及今日採取突擊行動，分別在葵涌葵盛圍及將軍澳唐明街兩間新鮮糧食店，檢獲180公斤懷疑冷藏牛肉，已即時銷毀，另外亦即時封存123公斤預先包裝好的冷藏牛肉進行調查，同時亦抽取牛肉樣本，進行防腐劑檢測。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796627-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796627-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796627-20250320.htm)
 
 ---
