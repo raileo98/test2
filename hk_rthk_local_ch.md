@@ -1,3 +1,27 @@
+# 小鵬汽車在港至今已交付近1000輛車
+
+![顧宏地稱小鵬去年海外銷量突破2萬輛，位列非傳統汽車品牌中第一。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796810_1_20250321170604.jpg&q=85)
+  
+
+小鵬汽車名譽副董事長兼聯席總裁顧宏地表示，公司去年交付量按年增34.2%至19萬輛車，海外銷量突破2萬輛，位列非傳統汽車品牌中第一。今年首兩個月，內地交付量亦居「新勢力」品牌首位，預計首季交付量將按年增長逾3倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm)
+
+---
+
 # 12班往來香港及倫敦希斯路機場航班取消　機管局籲留意最新情況
 
   
@@ -23,6 +47,7 @@
 
 # 園方稱「家姐」「細佬」進入新成長階段　「盈盈」有能力照顧子女
 
+![「家姐」、「細佬」初生時，盈盈會關注牠們飲奶及排泄，現在就會留意牠們玩耍時的情況。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796808_1_20250321170719.jpg&q=80)
   
 
 海洋公園一對大熊貓龍鳳胎「家姐」、「細佬」明日起與媽媽「盈盈」於同一展館亮相。公園工作人員盧芷珊表示，「家姐」、「細佬」進入新的成長階段，會探索不同事物，在母親身邊可以學習一些人類無法教授的知識，例如分辨氣味，園方認為，兩隻大熊貓貓已足夠成熟與媽媽一起與公眾見面，「盈盈」亦已具備能力同時間照顧兩名子女，相信牠們可以適應新安排。
@@ -44,8 +69,9 @@
 
 ---
 
-# 首季21宗致命車禍23人死亡　警下周不定時不定點嚴厲執法
+# 首季21宗致命車禍23人死亡　警下周將不定時不定點嚴厲執法
 
+![警方表示，去年香港發生1萬8千多宗有人受傷的交通意外，涉及2萬3千多人。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796801_1_20250321170642.jpg&q=90)
   
 
 警方表示，去年香港發生1萬8千多宗有人受傷的交通意外，涉及2萬3千多人，當中88人死亡，較前年減少8%，42名行人在交通意外中死亡，亦按年減少32%，交通意外死亡人數及行人死亡數字均創歷史新低。
@@ -1410,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm)
-
----
-
-# 李澤鉅：香港及內地一直是集團重要市場
-
-![李澤鉅在長實業績報告提到，香港及內地一直是集團重要市場，謹慎應對多變挑戰及不明朗宏觀經濟因素。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796634_1_20250320174525.jpg&q=80)
-  
-
-長實主席李澤鉅在業績報告提到，集團作為跨國企業，以長遠可持續發展為方針，秉持「發展不忘穩健、穩健不忘發展」原則，嚴守財務紀律及貫徹審慎管理策略，謹慎應對多變挑戰及不明朗宏觀經濟因素。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796634-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796634-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796634-20250320.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 小鵬汽車在港至今已交付近1000輛車
+
+![顧宏地稱小鵬去年海外銷量突破2萬輛，位列非傳統汽車品牌中第一。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796810_1_20250321170604.jpg&q=85)
+  
+
+小鵬汽車名譽副董事長兼聯席總裁顧宏地表示，公司去年交付量按年增34.2%至19萬輛車，海外銷量突破2萬輛，位列非傳統汽車品牌中第一。今年首兩個月，內地交付量亦居「新勢力」品牌首位，預計首季交付量將按年增長逾3倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm)
+
+---
+
 # 日本最大工會聯盟第二輪勞資談判結果：企業同意加薪5.4%
 
 ![日本最大工會聯盟公布第二輪年度勞資談判結果顯示，日本企業已同意今年加薪5.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796799_1_20250321163008.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm)
-
----
-
-# 中移動：未來2-3年總投資規模將保持穩中有降
-
-![楊杰（中）期望6G能形成全球統一標準，中移動已直接參與標準制定。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796654_1_20250320184914.jpg&q=90)
-  
-
-中國移動去年盈利近1384億元人民幣，按年增長5%。集團表示，今年計劃資本開支1512億元人民幣，按年減少約8%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796654-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796654-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796654-20250320.htm)
 
 ---
