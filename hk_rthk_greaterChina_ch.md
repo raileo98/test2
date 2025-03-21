@@ -1,3 +1,27 @@
+# 商務部：進一步加強貿易政策合規工作有助營造一流營商環境
+
+![商務部稱，進一步加強貿易政策合規工作有助營造一流營商環境。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796857_1_20250321224025.jpg&q=75)
+  
+
+國務院辦公廳日前印發《關於進一步加強貿易政策合規工作的意見》。商務部世貿司負責人今日表示，進一步加強貿易政策合規工作有助營造一流營商環境，推動構建全國統一大市場，通過保障非歧視、透明的政策環境，推動生產要素暢通流動和資源高效配置，從而釋放市場潛力，為穩步擴大制度型開放、建設更高水平開放型經濟新體制打下堅實基礎。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796857-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796857-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796857-20250321.htm)
+
+---
+
 # 神十九航天員乘組完成第三次出艙活動
 
 ![神舟十九號航天員乘組完成第三次出艙活動，圖為宋令東第二次出艙時的情況。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796850_1_20250321213421.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796255-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796255-20250318.htm)
-
----
-
-# 外交部強烈不滿澳洲公然干預香港特區法治
-
-![毛寧指，對於澳方公然干預香港特區的法治，中方表示強烈不滿和堅決反對。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796253_1_20250318164700.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧表示，香港事務純屬中國內政，不容任何外部勢力插手干預。中方敦促澳方切實尊重中國主權和香港法治，為中澳關係的可持續發展營造良好的條件和氛圍。對於澳方公然干預香港特區的法治，中方表示強烈不滿和堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm)
 
 ---

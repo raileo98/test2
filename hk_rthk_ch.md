@@ -1,3 +1,27 @@
+# 商務部：進一步加強貿易政策合規工作有助營造一流營商環境
+
+![商務部稱，進一步加強貿易政策合規工作有助營造一流營商環境。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796857_1_20250321224025.jpg&q=75)
+  
+
+國務院辦公廳日前印發《關於進一步加強貿易政策合規工作的意見》。商務部世貿司負責人今日表示，進一步加強貿易政策合規工作有助營造一流營商環境，推動構建全國統一大市場，通過保障非歧視、透明的政策環境，推動生產要素暢通流動和資源高效配置，從而釋放市場潛力，為穩步擴大制度型開放、建設更高水平開放型經濟新體制打下堅實基礎。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796857-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796857-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796857-20250321.htm)
+
+---
+
 # 大埔公路沙田段6車相撞5人傷　警方列狂亂駕駛拘兩人
 
   
