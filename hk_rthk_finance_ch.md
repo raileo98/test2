@@ -1,3 +1,27 @@
+# 台股低收0.75%
+
+![加權指數收報22209點，跌168點，跌幅0.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796777_1_20250321141041.jpg&q=90)
+  
+
+台股低收，加權指數收報22209點，跌168點，跌幅0.75%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796777-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796777-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796777-20250321.htm)
+
+---
+
 # 新世界與招商蛇口合作發展北都商住項目動工
 
 ![新世界發展與招商蛇口共同發展的北部都會區商住項目今日舉行動工儀式。（新世界發展圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796779_1_20250321142137.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796626-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796626-20250320.htm)
-
----
-
-# 在岸人民幣兌美元低收20點子
-
-![在岸人民幣收報7.2383兌1美元，較上日收市價下跌20點子。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796624_1_20250320171332.jpg&q=90)
-  
-
-在岸人民幣收報7.2383兌1美元，較上日收市價下跌20點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796624-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796624-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796624-20250320.htm)
 
 ---
