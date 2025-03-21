@@ -1,5 +1,29 @@
+# 有公屋居民指增富戶額外租金更公平　有街坊稱加幅太大冀手下留情
+
+  
+
+房委會資助房屋小組委員會通過收緊公屋「富戶」政策，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。有公屋居民歡迎增加「富戶」的額外租金，指有助增加政府收入，亦有公屋居民認為，增加「富戶」額外租金，做法更公平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796828-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796828-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796828-20250321.htm)
+
+---
+
 # 18越南籍非法入境者遭遣返　全部人曾提出免遣返聲請但不獲確立
 
+![被遣返人士在入境處人員押送下離港。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796824_1_20250321182310.jpg&q=80)
   
 
 入境處將18名越南籍非法入境者遣返越南，包括9名男子及9名女子，全部人士曾在香港提出免遣返聲請但不獲確立，部分曾因干犯刑事罪行被判監及服刑至刑滿出獄。
@@ -23,6 +47,7 @@
 
 # 世界50最佳酒吧頒獎禮首落戶香港　10月連同美酒佳餚巡禮登場
 
+![旅發局宣布，成功爭取全球酒吧業年度盛事「世界50最佳酒吧」2025頒獎典禮，首度落戶香港。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796822_1_20250321182134.jpg&q=85)
   
 
 旅發局宣布，成功爭取全球酒吧業年度盛事「世界50最佳酒吧」2025頒獎典禮，首度落戶香港，於今年10月8日在啟德郵輪碼頭舉行。
@@ -1414,28 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796645-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796645-20250320.htm)
-
----
-
-# 機艙行李架著火改道福州降落　香港航空安排另一航機接載乘客回港
-
-  
-
-香港航空一架由杭州飛往香港的客機 HX115 ，原定下午約3時抵港，但飛行期間機艙的行李架突然起火，改道安全降落於福州機場。香港航空表示，該飛機為空中巴士A320，機上載有160名乘客和8名機組人員，公司正安排另一航機接載乘客回港，預計將會於晚上8時55分到達福州機場接載乘客。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796650-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796650-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796650-20250320.htm)
 
 ---
