@@ -1,3 +1,27 @@
+# 道指高收32點　本周累升1.2%　創2個月最大升幅
+
+![道瓊斯指數初段一度急挫520點，收市倒升32點，報41985點。道指本周升1.2%，是2個月以來最大星期升幅，並結束連續2星期跌勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796873_1_20250322053357.jpg&q=90)
+  
+
+美股3大指數在「四期結算日」先低後高，最終收市靠穩。道瓊斯指數初段一度急挫520點，收市倒升32點，報41985點。納斯達克指數早段曾跌逾1%，收市報17784點，升92點，升幅0.5%。標準普爾500指數報5667點，升4點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796873-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796873-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796873-20250322.htm)
+
+---
+
 # 歐股周五低收　本周走勢個別發展
 
 ![歐洲主要股市周五收市下跌，本周走勢個別發展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796872_1_20250322051207.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796703-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796703-20250321.htm)
-
----
-
-# 美元上升　聯儲局表示不急於減息
-
-![美元指數一度重上104水平，其後升幅收窄，在紐約尾市報103.81，升幅0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796702_1_20250321060106.jpg&q=85)
-  
-
-美元上升，美國聯儲局表示，關稅政策存在不確定性，今年不急於減息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796702-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796702-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796702-20250321.htm)
 
 ---
