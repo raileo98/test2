@@ -1,6 +1,6 @@
 # Lee to make room for private sector in high-tech park
 
-![Chief Executive John Lee has called on all sectors from society, especially private firms, to jointly develop the Hong Kong-Shenzhen Innovation & Technology Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796807_1_20250321165450.jpg&q=80)
+![Chief Executive John Lee has called on all sectors from society to jointly develop the Hong Kong-Shenzhen Innovation & Technology Park.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796807_2_20250321173255.jpg&q=90)
   
 
 Chief Executive John Lee has hinted that the government will soon offer land for private development in Hong Kong-Shenzhen Innovation and Technology Park now that the first three buildings in zone's Hong Kong Park have been completed.
@@ -51,7 +51,7 @@ Police on Friday said they will launch a citywide operation next week to tackle 
 ![Cleresa Wong said the higher rental charges for well-off tenants are aimed at bringing about a fairer use of public resources and not at raising government revenue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796794_1_20250321160610.jpg&q=90)
   
 
-A Housing Authority committee tightened rules on Friday for well-off public housing tenants, raising the likelihood that those earning incomes that far exceed limits could pay 1.25 times more than they are currently paying.
+A Housing Authority committee tightened rules on Friday for well-off public housing tenants, raising the likelihood that their rents would more than double.
 
   
 
