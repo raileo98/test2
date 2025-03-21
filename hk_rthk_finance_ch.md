@@ -1,3 +1,51 @@
+# 韓股高收0.23%　創近1個月新高
+
+![首爾綜合指數收報2643點，升6點，升幅0.23%，連升5日，創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796781_1_20250321143811.jpg&q=90)
+  
+
+南韓股市連升5日，創近1個月新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796781-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796781-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796781-20250321.htm)
+
+---
+
+# 日股低收0.2%　本周累計升約1.7%
+
+![日經指數尾市回吐，收報37677點，跌74點，跌幅0.2%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796780_1_20250321143528.jpg&q=85)
+  
+
+日股尾市扭轉早段升幅，日經指數最多曾升約220點，高見37968點，收報37677點，跌74點，跌幅0.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796780-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796780-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796780-20250321.htm)
+
+---
+
 # 台股低收0.75%
 
 ![加權指數收報22209點，跌168點，跌幅0.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796777_1_20250321141041.jpg&q=90)
@@ -262,6 +310,30 @@
 
 ---
 
+# 減省公務員工作流程提升效率　楊何蓓茵：並非不理大家死活
+
+![楊何蓓茵說，希望透過減省工作流程，重訂工作優次，令工作更有效率和成效。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796754_1_20250321121718.jpg&q=90)
+  
+
+立法會一個委員會討論公務員2025/26年度凍薪，以及在本屆政府任期內削減約1萬個職位等事項。公務員事務局局長楊何蓓茵表示，現時公務員編制有約10%空缺，希望各部門作出檢視，了解有關職位是否仍有需要，若無需要就不再重新招聘。她強調未來並非「不理大家死活」，要求由10個人做，變成8個人做，而是希望透過減省工作流程，重訂工作優次，令工作更有效率和成效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm)
+
+---
+
 # 滬股半日跌近1%　創業板跌1.7%
 
 ![上證綜合指數半日失守3400點，報3376點，跌31點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796750_1_20250321114718.jpg&q=85)
@@ -283,6 +355,54 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796750-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796750-20250321.htm)
+
+---
+
+# 陳美寶冀低空經濟監管沙盒累積經驗　強調安全至上
+
+![陳美寶表示，低空經濟監管沙盒申請反應熱烈，希望從中累積經驗，強調安全至上。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796752_1_20250321120322.jpg&q=90)
+  
+
+運輸及物流局局長陳美寶表示，低空經濟監管沙盒申請反應熱烈，希望從中累積經驗，強調安全至上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm)
+
+---
+
+# 物流公司盼無人機做到即時送貨　中電測試包括葵涌等人口密集地方
+
+![張寶中（左）指中電期望日後做到配合人工智能及創新科技，構建全自動無人機的巡檢系統；張霆邦（右）表示，希望透過無人機做到端對端的即時送貨服務，運送藥品或檔案等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796745_1_20250321112420.jpg&q=90)
+  
+
+首批獲批的「監管沙盒」共有38個試點項目，中電輸電及供電業務部高級總監張寶中表示，希望以今次測試透過超視距飛行，進行電網線路檢測，效率有望大幅提升。如果在惡劣天氣後，由無人機作超視距飛行檢查電網，可去到受塌樹等原因阻礙的地方。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm)
 
 ---
 
@@ -355,6 +475,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm)
+
+---
+
+# 陳美寶冀無人機為偏遠居民送物資　北都研預留空間發展低空經濟
+
+![陳美寶表示，試驗項目包括物流配送，期望未來為在離島或偏遠地區的居民，由無人機配送物資。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796730_1_20250321110104.jpg&q=90)
+  
+
+低空經濟有38個沙盒項目獲批，運輸及物流局局長陳美寶表示，除了試驗安全配套，亦要考慮起落點等設施、數據監察、無人機定位等，希望可從中試驗及累積經驗。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm)
 
 ---
 
@@ -1291,149 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm)
-
----
-
-# 李澤鉅：香港及內地一直是集團重要市場
-
-![李澤鉅在長實業績報告提到，香港及內地一直是集團重要市場，謹慎應對多變挑戰及不明朗宏觀經濟因素。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796634_1_20250320174525.jpg&q=80)
-  
-
-長實主席李澤鉅在業績報告提到，集團作為跨國企業，以長遠可持續發展為方針，秉持「發展不忘穩健、穩健不忘發展」原則，嚴守財務紀律及貫徹審慎管理策略，謹慎應對多變挑戰及不明朗宏觀經濟因素。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796634-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796634-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796634-20250320.htm)
-
----
-
-# 瑞士央行減息0.25厘　通脹下行風險加大
-
-![瑞士央行表示，經濟前景變得不確定，通脹下行風險加大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796621_1_20250320171104.jpg&q=90)
-  
-
-瑞士央行減息0.25厘，符合市場預期，指標利率降至0.25厘，央行自去年3月開始減息以來，連續5次會議減息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796621-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796621-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796621-20250320.htm)
-
----
-
-# 長實去年盈利跌20%　已確認物業銷售收入減少24%
-
-![長實去年盈利136.6億元，按年跌20%。派末期息每股1.35元，按年減少近17%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796628_1_20250320172413.jpg&q=85)
-  
-
-長實去年盈利136.6億元，按年跌21%。末期息每股1.35元，全年派息1.74元，按年分別減少近17%及15%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796628-20250320.htm)
-
----
-
-# 習近平到雲南麗江考察　強調文旅產業要走一條持續、健康發展之路
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796630_1_20250320183940.jpg&q=90)
-  
-
-中共總書記習近平到雲南考察，昨日下午到位於雲南北部的麗江市，先後考察麗江現代花卉產業園和麗江古城，了解當地因地制宜發展特色農業、加強歷史文化遺產保護利用等情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm)
-
----
-
-# 長和去年港口及相關服務利潤升15%　零售利潤微升
-
-![長和去年港口及相關服務收入升11%至452.8億元，EBITDA升15%至188.5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796619_1_20250320165659.jpg&q=75)
-  
-
-長和去年多項業務的收入及利潤按年都有增長，港口及相關服務收入升11%至452.8億元，除息、稅、折扣及攤銷前盈利（EBITDA）升15%至188.5億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm)
-
----
-
-# 瑞典央行維持利率不變　符合市場預期
-
-![瑞典央行一如市場預期維持利率在2.25厘不變。（瑞典央行圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796626_1_20250320172027.jpg&q=90)
-  
-
-瑞典央行一如市場預期維持利率在2.25厘不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796626-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796626-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796626-20250320.htm)
 
 ---

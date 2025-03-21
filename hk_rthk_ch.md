@@ -1,3 +1,51 @@
+# 韓股高收0.23%　創近1個月新高
+
+![首爾綜合指數收報2643點，升6點，升幅0.23%，連升5日，創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796781_1_20250321143811.jpg&q=90)
+  
+
+南韓股市連升5日，創近1個月新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796781-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796781-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796781-20250321.htm)
+
+---
+
+# 日股低收0.2%　本周累計升約1.7%
+
+![日經指數尾市回吐，收報37677點，跌74點，跌幅0.2%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796780_1_20250321143528.jpg&q=85)
+  
+
+日股尾市扭轉早段升幅，日經指數最多曾升約220點，高見37968點，收報37677點，跌74點，跌幅0.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796780-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796780-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796780-20250321.htm)
+
+---
+
 # 台股低收0.75%
 
 ![加權指數收報22209點，跌168點，跌幅0.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796777_1_20250321141041.jpg&q=90)
