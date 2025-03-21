@@ -1,5 +1,30 @@
+# 俄羅斯維持利率不變　指標利率維持21厘
+
+![俄羅斯央行維持指標利率21厘不變，表示未來可能進一步加息，因通脹壓力居高不下。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796839_1_20250321192742.jpg&q=80)
+  
+
+俄羅斯央行維持指標利率21厘不變，符合市場預期，又表示未來仍可能進一步加息，因為通脹壓力居高不下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796839-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796839-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796839-20250321.htm)
+
+---
+
 # 李家超與5間有意落戶港深創新及科技園區頂尖科企代表交流
 
+![李家超表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796835_1_20250321194737.jpg&q=80)
   
 
 行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。
@@ -23,6 +48,7 @@
 
 # 李家超：今年內完成港深創新及科技園區第二期詳細規劃
 
+![李家超表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796833_1_20250321194247.jpg&q=25)
   
 
 行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。
@@ -1410,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm)
-
----
-
-# 長和：持續地緣政治風險影響全球貿易
-
-![長和：今年由於航運公司轉至新聯盟及持續地緣政治風險影響全球貿易。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796618_1_20250320225955.jpg&q=90)
-  
-
-長和去年港口及相關服務收入升11%，達到452.8億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796618-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796618-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796618-20250320.htm)
 
 ---
