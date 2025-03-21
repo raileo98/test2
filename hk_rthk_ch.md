@@ -1,3 +1,26 @@
+# 選舉法例修訂刊憲　立法會功能界別選舉可用點票機及選票結算表
+
+  
+
+政府刊憲，就現行選舉法例提出修訂，以確保今年稍後舉行的選舉委員會界別分組補選，以及立法會換屆選舉能順利進行，草案將於下星期三提交立法會首讀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796772-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796772-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796772-20250321.htm)
+
+---
+
 # 皇后山邨兩童一度危坐窗台　消息：警方就疏忽照顧拘捕父母
 
   
