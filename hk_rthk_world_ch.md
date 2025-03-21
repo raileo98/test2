@@ -1,3 +1,27 @@
+# 美國司法部長稱已就特斯拉遭破壞事件起訴3人
+
+![美國紐約特斯拉門店外早前有民眾抗議，表達對馬斯克的不滿。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796834_1_20250321191441.jpg&q=80)
+  
+
+美國司法部長邦迪表示，已就電動汽車生產商特斯拉被破壞事件起訴3人，他們涉嫌使用汽油彈在美國特斯拉門店或充電樁縱火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm)
+
+---
+
 # 外交部：民進黨當局勾連外部勢力謀「獨」挑釁不會得逞
 
 ![毛寧說，民進黨當局勾連外部勢力謀「獨」挑釁是不會得逞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796814_1_20250321172343.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm)
-
----
-
-# 外交部談美俄領導人通話：樂見一切通往停火的努力
-
-![毛寧說，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796419_1_20250319154325.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧回應美俄領導人就俄烏戰事通話時表示，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力，認為這是實現和平的必要一步。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm)
 
 ---

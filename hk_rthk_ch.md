@@ -1,3 +1,27 @@
+# 美國司法部長稱已就特斯拉遭破壞事件起訴3人
+
+![美國紐約特斯拉門店外早前有民眾抗議，表達對馬斯克的不滿。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796834_1_20250321191441.jpg&q=80)
+  
+
+美國司法部長邦迪表示，已就電動汽車生產商特斯拉被破壞事件起訴3人，他們涉嫌使用汽油彈在美國特斯拉門店或充電樁縱火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm)
+
+---
+
 # 李家超：今年內完成港深創新及科技園區第二期詳細規劃
 
   
