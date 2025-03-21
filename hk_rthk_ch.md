@@ -1,3 +1,71 @@
+# 中國建築去年盈利升2%
+
+![中國建築去年盈利93.6億港元，按年升2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796756_1_20250321121428.jpg&q=90)
+  
+
+中國建築去年盈利93.6億港元，按年升2.1%。派末期息每股28.5港仙，全年派息61.5港仙，按年升9.8%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796756-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796756-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796756-20250321.htm)
+
+---
+
+# 港股下午初段跌約500點
+
+![恒生指數較早時報23751點，跌468點，跌幅1.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796769_1_20250321130731.jpg&q=75)
+  
+
+港股下午初段持續向下，恒生指數較早時報23751點，跌468點，跌幅1.94%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796769-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796769-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796769-20250321.htm)
+
+---
+
+# 按兩申報周期及享4年綠表資格　黃碧如稱富戶有8年時間計劃未來
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796767-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796767-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796767-20250321.htm)
+
+---
+
 # 分析：OPEC+新減產安排彌補過剩產量　短線支持油價表現
 
 ![獨立外匯商品分析師盧楚仁相信，今次減產的新安排可能抵消增產的影響，短線支持油價表現，料油價第3季前將於每桶65至75美元上落。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796765_1_20250321125719.jpg&q=90)
@@ -22,8 +90,9 @@
 
 ---
 
-# 突擊搜查上水元朗5店　海關檢9千件冒牌化妝品護膚品香水
+# 海關搜上水元朗5店拘5人　檢9千件冒牌化妝品護膚品香水
 
+![海關檢獲約9000件懷疑冒牌香水、化妝品及護膚品，估計市值約200萬元。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796764_1_20250321130729.jpg&q=80)
   
 
 海關在打擊售賣冒牌物品的行動中，檢獲約9000件懷疑冒牌香水、化妝品及護膚品，估計市值約200萬元，行動中5人被捕。
@@ -1365,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796683-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796683-20250320.htm)
-
----
-
-# 調查：近4成受訪僱主指曾因外傭借貸遭受追債滋擾
-
-![民建聯上月以問卷訪問超過240名外傭僱主，近4成僱主指曾因外傭借貸遭受追債滋擾。(伍榮笙攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796682_1_20250320231504.jpg&q=90)
-  
-
-有調查發現，過半數受訪外傭僱主曾向外傭提供直接借款，約3成半僱主指外傭曾向財務機構借貸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm)
-
----
-
-# 謝展寰在北京到訪國家海關總署及國家生態環境部等機構
-
-![謝展寰展參觀中國農業科學院的蔬菜花卉研究所溫室。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796681_1_20250320231718.jpg&q=70)
-  
-
-環境及生態局局長謝展寰展開北京訪問行程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm)
-
----
-
-# 證監會暫時吊銷一名金融網紅牌照16個月
-
-![證監會稱投資者利用金融網紅分享的資訊時，應保持警覺和謹慎行事。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796675_1_20250320215637.jpg&q=80)
-  
-
-證監會暫時吊銷黃明忠牌照16個月，由本周三至明年7月18日。證監會說，黃明忠是名為Franky Wong的金融網紅，亦是謝氏膺暉證券持牌代表，早前被裁定未領有牌照而在Telegram建立及管理一個接受訂閱的聊天群組並提供投資意見，刑事罪名成立。證監會認為他並非繼續獲發牌進行受規管活動適當人選。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796675-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796675-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796675-20250320.htm)
 
 ---

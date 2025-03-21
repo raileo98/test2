@@ -1,5 +1,26 @@
-# 突擊搜查上水元朗5店　海關檢9千件冒牌化妝品護膚品香水
+# 按兩申報周期及享4年綠表資格　黃碧如稱富戶有8年時間計劃未來
 
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796767-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796767-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796767-20250321.htm)
+
+---
+
+# 海關搜上水元朗5店拘5人　檢9千件冒牌化妝品護膚品香水
+
+![海關檢獲約9000件懷疑冒牌香水、化妝品及護膚品，估計市值約200萬元。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796764_1_20250321130729.jpg&q=80)
   
 
 海關在打擊售賣冒牌物品的行動中，檢獲約9000件懷疑冒牌香水、化妝品及護膚品，估計市值約200萬元，行動中5人被捕。
@@ -1415,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796599-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796599-20250320.htm)
-
----
-
-# 王美鳳料下半年港元最優惠利率減0.25厘　並完成減息周期
-
-![王美鳳預計，美國下半年將重新減息，港元最優惠利率將下調0.25厘並完成減息周期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796591_2_20250320133435.jpg&q=75)
-  
-
-美國聯儲局維持利率不變，本港三間發鈔行的港元最優惠利率亦維持不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796591-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796591-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796591-20250320.htm)
 
 ---

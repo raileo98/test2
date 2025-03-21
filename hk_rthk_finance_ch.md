@@ -1,3 +1,51 @@
+# 中國建築去年盈利升2%
+
+![中國建築去年盈利93.6億港元，按年升2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796756_1_20250321121428.jpg&q=90)
+  
+
+中國建築去年盈利93.6億港元，按年升2.1%。派末期息每股28.5港仙，全年派息61.5港仙，按年升9.8%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796756-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796756-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796756-20250321.htm)
+
+---
+
+# 港股下午初段跌約500點
+
+![恒生指數較早時報23751點，跌468點，跌幅1.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796769_1_20250321130731.jpg&q=75)
+  
+
+港股下午初段持續向下，恒生指數較早時報23751點，跌468點，跌幅1.94%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796769-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796769-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796769-20250321.htm)
+
+---
+
 # 分析：OPEC+新減產安排彌補過剩產量　短線支持油價表現
 
 ![獨立外匯商品分析師盧楚仁相信，今次減產的新安排可能抵消增產的影響，短線支持油價表現，料油價第3季前將於每桶65至75美元上落。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796765_1_20250321125719.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796609-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796609-20250320.htm)
-
----
-
-# 恒指全日挫551點　科技及中資金融股受壓
-
-![恒指收報24219點，跌551點，跌幅2.23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796610_1_20250320161821.jpg&q=40)
-  
-
-港股午後跌幅擴大，恒指一度跌逾580點，低見24186點，收報24219點，跌551點，跌幅2.23%，結束4日升勢，成交額增至近2949億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796610-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796610-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796610-20250320.htm)
-
----
-
-# 滬股低收0.5%　險守3400點　創業板指數跌1%
-
-![上證指數險守3400點水平，收報3408點，跌17點，跌幅0.51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796604_1_20250320150420.jpg&q=90)
-  
-
-內地股市尾市跌幅擴大，保險、遊戲、白酒股下跌，風電設備、頁岩氣、煤炭、深海科技概念股上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796604-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796604-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796604-20250320.htm)
 
 ---
