@@ -1,3 +1,27 @@
+# CX cancels flights to London
+
+![Cathay Pacific has also cancelled all flights from London to Hong Kong. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796782_1_20250321145257.jpg&q=90)
+  
+
+Cathay Pacific said on Friday it cancelled two flights from Hong Kong to London, due to the temporary closure of Heathrow Airport.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm)
+
+---
+
 # Diaz Hernandez takes first gold in Nanjing
 
 ![Andy Diaz Hernandez celebrates after winning the men’s triple jump final during the Indoor World Athletics Championships in Nanjing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796776_1_20250321140117.jpg&q=85)
@@ -1415,29 +1439,5 @@ Britain's foreign minister David Lammy on Wednesday called for a transparent inv
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796520-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796520-20250320.htm)
-
----
-
-# US stocks rise, Fed flags greater economic uncertainty
-
-![The Dow Jones Industrial Average finished up 0.9 percent at 41,964. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796513_1_20250320055039.jpg&q=90)
-  
-
-Wall Street stocks rose on Wednesday after the Federal Reserve kept interest rates unchanged but pointed to increased economic uncertainty, while Treasury bond yields tumbled.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796513-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796513-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796513-20250320.htm)
 
 ---

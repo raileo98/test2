@@ -1,3 +1,27 @@
+# CX cancels flights to London
+
+![Cathay Pacific has also cancelled all flights from London to Hong Kong. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796782_1_20250321145257.jpg&q=90)
+  
+
+Cathay Pacific said on Friday it cancelled two flights from Hong Kong to London, due to the temporary closure of Heathrow Airport.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm)
+
+---
+
 # HK$3bn scheme to support academic research: CE
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796766_1_20250321125749.jpg&q=80)
@@ -1415,29 +1439,5 @@ More than 3,000 runners took part in the inaugural Kai Tak Run at the Kai Tak Sp
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795923-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795923-20250316.htm)
-
----
-
-# Thousands of tech jobs on offer to attract talent: FS
-
-![Paul Chan says grooming tech talent is important for the SAR. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795917_1_20250316115514.jpg&q=80)
-  
-
-Financial Secretary Paul Chan said grooming local tech talent and attracting people in the field from outside Hong Kong are both important for the development of innovation and technology in the city.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795917-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795917-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795917-20250316.htm)
 
 ---
