@@ -1,3 +1,27 @@
+# 倫敦希斯路機場將恢復部分航班
+
+![希斯路機場因附近變電站大火，周五取消1300多班機，數以千計乘客滯留。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796863_1_20250322012724.jpg&q=75)
+  
+
+英國倫敦希斯路機場宣布，將於當地周五稍後恢復部分航班，周六計劃全面恢複運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796863-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796863-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796863-20250322.htm)
+
+---
+
 # 印尼東部火山噴發　一個縣進入緊急響應狀態
 
 ![自去年11月，勒沃托比火山多次噴發，附近已有約4000名居民撤離。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796862_1_20250322005530.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796789-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796789-20250321.htm)
-
----
-
-# 李家超：四理念開啟創科新局面　今年將選合適地徵私人發展
-
-![李家超表示，政府會為園區的發展拆牆鬆綁，以變革思維突破發展局限。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796788_1_20250321160425.jpg&q=90)
-  
-
-港深創新及科技園8號及9號大樓平頂儀式下午舉行，行政長官李家超致辭表示，兩座大樓平頂，以及11號大樓全面完成，標誌著香港特區在創新科技領域與港深創科合作，踏上另一個高峰台階。他表示，今年很快會選擇合適地塊，徵求私人發展計劃，利用市場的力量，加速園區發展，並在今年內完成園區第二期的詳細規劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm)
 
 ---

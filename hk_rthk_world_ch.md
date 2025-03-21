@@ -1,3 +1,27 @@
+# 倫敦希斯路機場將恢復部分航班
+
+![希斯路機場因附近變電站大火，周五取消1300多班機，數以千計乘客滯留。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796863_1_20250322012724.jpg&q=75)
+  
+
+英國倫敦希斯路機場宣布，將於當地周五稍後恢復部分航班，周六計劃全面恢複運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796863-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796863-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796863-20250322.htm)
+
+---
+
 # 印尼東部火山噴發　一個縣進入緊急響應狀態
 
 ![自去年11月，勒沃托比火山多次噴發，附近已有約4000名居民撤離。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796862_1_20250322005530.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796490-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796490-20250319.htm)
-
----
-
-# 白宮證實特朗普與澤連斯基通話
-
-![白宮證實特朗普與澤連斯基通話。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796488_1_20250319225813.jpg&q=90)
-  
-
-美國白宮證實，總統特朗普在橢圓型辦公室與烏克蘭總統澤連斯基通話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796488-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796488-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796488-20250319.htm)
 
 ---
