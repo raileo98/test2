@@ -1,4 +1,27 @@
-# 選舉法例修訂刊憲　立法會功能界別選舉可用點票機及選票結算表
+# 韓媒稱南韓在野黨向國會提請彈劾代總統崔相穆
+
+  
+
+韓聯社報道，南韓在野黨向國會提請彈劾代總統崔相穆。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796773-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796773-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796773-20250321.htm)
+
+---
+
+# 立法會功能界別選舉可用點票機及結算表　選舉法例修訂下周交立會
 
 ![政府刊憲，就現行選舉法例提出修訂，以確保今年稍後舉行的選舉委員會界別分組補選，以及立法會換屆選舉能順利進行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796772_1_20250321134215.jpg&q=90)
   

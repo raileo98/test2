@@ -1,3 +1,26 @@
+# 韓媒稱南韓在野黨向國會提請彈劾代總統崔相穆
+
+  
+
+韓聯社報道，南韓在野黨向國會提請彈劾代總統崔相穆。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796773-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796773-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796773-20250321.htm)
+
+---
+
 # 變電站大火致嚴重停電　希斯路機場就事故所帶來不便致歉
 
 ![機場建議旅客在任何情況下，不要前機場，直至機場重開，並應聯絡航空公司以獲取更多資訊。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796763_1_20250321125214.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796339-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796339-20250319.htm)
-
----
-
-# 滯留國際太空站9個月的兩名美國太空人返抵地球
-
-![SpaceX的龍飛船重返地球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796337_3_20250319074152.jpg&q=90)
-  
-
-美國太空探索技術公司SpaceX的龍飛船，搭載4太空人，其中兩人因波音星際客機飛船故障滯留國際太空站，在美國東岸時間星期二傍晚返抵地球，在佛羅里達州附近海域濺落。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796337-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796337-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796337-20250319.htm)
 
 ---
