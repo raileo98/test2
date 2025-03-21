@@ -1,3 +1,26 @@
+# 特朗普宣布由波音公司生產第六代戰機
+
+  
+
+美國總統特朗普宣布，選定波音公司生產「下一代空中優勢」戰機，並將新一代戰機命名為F-47。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796866-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796866-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796866-20250322.htm)
+
+---
+
 # 王毅晤南韓外長　冀韓方奉行積極友好對華政策
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796493-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796493-20250320.htm)
-
----
-
-# 美烏總統通話約1小時　特朗普形容「非常好」
-
-![特朗普表示，與澤連斯基進行了「非常好」的通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796492_1_20250320002157.jpg&q=90)
-  
-
-美國總統特朗普表示，他與烏克蘭總統澤連斯基進行了「非常好」的通話，持續大約一個小時。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796492-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796492-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796492-20250320.htm)
 
 ---
