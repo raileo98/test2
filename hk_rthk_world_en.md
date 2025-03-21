@@ -1,3 +1,27 @@
+# Moscow's top security official in N Korea: media
+
+![Sergei Shoigu earlier made visits to Pyongyang as North Korea geared up to deploy troops to fight for Russia. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796749_1_20250321113943.jpg&q=90)
+  
+
+Russian President Vladimir Putin's top security adviser Sergei Shoigu has arrived in North Korea and plans to meet its leader Kim Jong Un, the Tass news agency reported on Friday, his latest visit amid dramatic advances in security ties between the countries.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796749-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796749-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796749-20250321.htm)
+
+---
+
 # London's Heathrow airport closes due to power outage
 
 ![British authorities say a fire near the airport prompted them to close Heathrow until midnight. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796747_1_20250321113009.jpg&q=90)
@@ -1413,29 +1437,5 @@ A pair of US astronauts stuck for more than nine months on the International Spa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm)
-
----
-
-# UK finance minister to unveil plan to cut red tape
-
-![Regulators will be summoned to Downing Street to hear Rachel Reeves' action plan to cut the administrative cost of regulation on business. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795990_1_20250317085014.jpg&q=90)
-  
-
-The UK's Labour government will on Monday set out details of how it plans to slash red tape to boost business, as it struggles to deliver growth nine months after winning power.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm)
 
 ---

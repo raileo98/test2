@@ -1,3 +1,51 @@
+# Most low-altitude trials to be line-of-sight runs
+
+![Mable Chan says safety will be the top priority in low-altitude economy trial runs in the first phase. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796743_1_20250321110918.jpg&q=90)
+  
+
+Transport chief Mable Chan said on Friday most pilot projects in Hong Kong's first-ever low-altitude economy test run will be operated manually and within the line of sight.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796743-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796743-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796743-20250321.htm)
+
+---
+
+# Winding-up orders reach 15-year high
+
+![According to the Official Receiver's Office, 66 winding-up orders were made by the court in February. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796744_1_20250321111259.jpg&q=90)
+  
+
+Hong Kong has seen its winding-up orders hitting the highest level in more than 15 years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm)
+
+---
+
 # Top Beijing official praises EuroCham's work in HK
 
 ![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing. Photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796677_1_20250320220041.jpg&q=90)
@@ -1391,53 +1439,5 @@ The local official who heads the National Games Coordination Office on Sunday sa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm)
-
----
-
-# Three rescued from gondola platform amid high winds
-
-![A video circulating online shows the platform swaying from side to side during the incident.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795868_1_20250315182730.jpg&q=90)
-  
-
-Nobody was reported injured after three workers became trapped on a gondola platform in Tin Shui Wai on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795868-20250315.htm)
-
----
-
-# HK$2 tweaks can save govt nearly HK$700 million a year
-
-![Chris Sun says changes to the HK$2 scheme will make the beneficiaries choose cheaper transportation. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795864_1_20250315174901.jpg&q=90)
-  
-
-Labour and welfare minister Chris Sun on Saturday said changes to the HK$2 fare scheme could save the government about HK$680 million a year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795864-20250315.htm)
 
 ---

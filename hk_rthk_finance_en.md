@@ -1,3 +1,27 @@
+# Winding-up orders reach 15-year high
+
+![According to the Official Receiver's Office, 66 winding-up orders were made by the court in February. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796744_1_20250321111259.jpg&q=90)
+  
+
+Hong Kong has seen its winding-up orders hitting the highest level in more than 15 years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm)
+
+---
+
 # Hong Kong stocks fall 0.46pc at the open
 
 ![Shares of CK Hutchison were down HK$1.10 in early trading after it announced a drop in profits for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796728_1_20250321095016.jpg&q=75)
@@ -1411,29 +1435,5 @@ Hong Kong's stocks rallied on Thursday, with the benchmark Hang Seng Index soari
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794569-20250306.htm)
-
----
-
-# Tech stocks push HSI over 24,000 points
-
-![The benchmark Hang Seng Index and the Hang Seng China Enterprises Index both rose. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794500_1_20250306094422.jpg&q=90)
-  
-
-Hong Kong stocks rose on Thursday following a jump on Wall Street, after the Trump administration delayed auto tariffs on Canada and Mexico.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm)
 
 ---

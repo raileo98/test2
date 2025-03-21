@@ -1,3 +1,75 @@
+# Most low-altitude trials to be line-of-sight runs
+
+![Mable Chan says safety will be the top priority in low-altitude economy trial runs in the first phase. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796743_1_20250321110918.jpg&q=90)
+  
+
+Transport chief Mable Chan said on Friday most pilot projects in Hong Kong's first-ever low-altitude economy test run will be operated manually and within the line of sight.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796743-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796743-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796743-20250321.htm)
+
+---
+
+# Winding-up orders reach 15-year high
+
+![According to the Official Receiver's Office, 66 winding-up orders were made by the court in February. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796744_1_20250321111259.jpg&q=90)
+  
+
+Hong Kong has seen its winding-up orders hitting the highest level in more than 15 years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm)
+
+---
+
+# Moscow's top security official in N Korea: media
+
+![Sergei Shoigu earlier made visits to Pyongyang as North Korea geared up to deploy troops to fight for Russia. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796749_1_20250321113943.jpg&q=90)
+  
+
+Russian President Vladimir Putin's top security adviser Sergei Shoigu has arrived in North Korea and plans to meet its leader Kim Jong Un, the Tass news agency reported on Friday, his latest visit amid dramatic advances in security ties between the countries.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796749-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796749-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796749-20250321.htm)
+
+---
+
 # London's Heathrow airport closes due to power outage
 
 ![British authorities say a fire near the airport prompted them to close Heathrow until midnight. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796747_1_20250321113009.jpg&q=90)
@@ -1367,77 +1439,5 @@ Israel's resumption of strikes on the Gaza Strip is a major step in the wrong di
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm)
-
----
-
-# UK teen who planned school massacre gets 49 years
-
-![Nicholas Prosper "wanted to be known posthumously as the world's most famous school shooter." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796483_1_20250319221939.jpg&q=90)
-  
-
-A UK teenager who killed three family members and planned to outdo notorious US massacres to become "the world's most famous school shooter of the 21st century" was on Wednesday jailed for a minimum of 49 years.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796483-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796483-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796483-20250319.htm)
-
----
-
-# Ohtani hits home run as Dodgers sweep Cubs in Tokyo
-
-![Shohei Ohtani scores a home run at the Tokyo Dome. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796480_1_20250319221213.jpg&q=90)
-  
-
-Shohei Ohtani hit a home run but Roki Sasaki had a wobbly Major League Baseball debut as the Los Angeles Dodgers beat the Chicago Cubs 6-3 in Tokyo on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm)
-
----
-
-# Over 60 cabbies penalised under demerit points system
-
-![Authorities say none of the penalised taxi drivers under the demerit system have racked up enough points to be disqualified. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796466_1_20250319184126.jpg&q=80)
-  
-
-Sixty-six taxi drivers have been slapped with demerit points for overcharging, refusing passengers and not taking the most direct route under a new penalty points system that was implemented around half a year ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm)
 
 ---
