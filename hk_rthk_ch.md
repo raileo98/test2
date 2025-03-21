@@ -1,3 +1,49 @@
+# 陳美寶冀低空經濟監管沙盒累積經驗　強調安全至上
+
+  
+
+運輸及物流局局長陳美寶表示，低空經濟監管沙盒申請反應熱烈，希望從中累積經驗，強調安全至上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm)
+
+---
+
+# 盧寵茂稱醫療收費調整後額外收入將用於提升安全網針對四類人士
+
+  
+
+醫務衞生局局長盧寵茂表示，醫療深化改革即將推出，相關的撥款開支不會縮減，但會重新合理分配，醫療收費調整後的額外收入，將用於提升安全網，針對貧、急、重、危四類人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796751-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796751-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796751-20250321.htm)
+
+---
+
 # 羅健熙涉理大外非法集結　律政司上訴被駁回維持無罪裁決
 
   
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm)
-
----
-
-# 美國上周初領失業援助人數較預期少
-
-![美國上周新申領失業援助人數增加2千人，增至22.3萬人，少過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796666_1_20250320204511.jpg&q=80)
-  
-
-美國上周新申領失業援助人數增加2千人，增至22.3萬人，少過市場預期；4周平均新申領失業援助人數增加750人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796666-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796666-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796666-20250320.htm)
-
----
-
-# 李強到福建調研　強調要深入貫徹習近平在全國兩會期間講話精神
-
-![李強在福建調研時說，要深入貫徹習近平總書記在全國兩會期間的重要講話精神，加快構建高水平對外開放新優勢。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796665_1_20250320204447.jpg&q=90)
-  
-
-中共中央政治局常委、國務院總理李強周二起一連三日在福建調研。他說，要深入貫徹中共中央總書記習近平在全國兩會期間的重要講話精神，認真落實兩會明確的各項任務，以開拓創新精神做好穩外貿工作，加快構建高水平對外開放新優勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm)
 
 ---

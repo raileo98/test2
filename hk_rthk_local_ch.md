@@ -1,3 +1,49 @@
+# 陳美寶冀低空經濟監管沙盒累積經驗　強調安全至上
+
+  
+
+運輸及物流局局長陳美寶表示，低空經濟監管沙盒申請反應熱烈，希望從中累積經驗，強調安全至上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm)
+
+---
+
+# 盧寵茂稱醫療收費調整後額外收入將用於提升安全網針對四類人士
+
+  
+
+醫務衞生局局長盧寵茂表示，醫療深化改革即將推出，相關的撥款開支不會縮減，但會重新合理分配，醫療收費調整後的額外收入，將用於提升安全網，針對貧、急、重、危四類人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796751-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796751-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796751-20250321.htm)
+
+---
+
 # 羅健熙涉理大外非法集結　律政司上訴被駁回維持無罪裁決
 
   
@@ -1390,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796585-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796585-20250320.htm)
-
----
-
-# 慢病共治計劃下周五擴展至血脂檢查　4月中起增逾20個服務點
-
-![醫務衞生局公布「慢性疾病共同治理先導計劃」由3月28日起，擴展至提供血脂檢查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796582_1_20250320134712.jpg&q=90)
-  
-
-醫務衞生局公布「慢性疾病共同治理先導計劃」由3月28日起，擴展至提供血脂檢查。此外，由4月15日起，全港亦會增設超過20個服務點，為沒有參加「慢病共治計劃」的康健中心會員，提供包括個人化慢性疾病管理、痛症管理及復康等服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796582-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796582-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796582-20250320.htm)
-
----
-
-# 李家超：低空經濟潛力巨大應用場景廣闊　成未來經濟新增長引擎
-
-![李家超參觀部份試點項目的展示區，並與不同展示區的負責人交流。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796580_1_20250320123851.jpg&q=85)
-  
-
-行政長官李家超出席低空經濟「監管沙盒」試點項目啟動禮，表示低空經濟是國家戰略性新興產業，亦是發展新質生產力的範例，對香港經濟和社會發展很有幫助和禆益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm)
 
 ---
