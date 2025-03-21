@@ -1,3 +1,27 @@
+# Police launch citywide crackdown on careless driving
+
+![Police will launch an enforcement operation to combat careless driving, speeding, and jaywalking. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796806_1_20250321165421.jpg&q=90)
+  
+
+Police on Friday said they will launch a citywide operation next week to tackle inattentive driving, following an increase in fatal traffic accidents in the first three months of this year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796806-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796806-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796806-20250321.htm)
+
+---
+
 # Well-off public housing tenants to pay more
 
 ![Cleresa Wong said the higher rental charges for well-off tenants are aimed at bringing about a fairer use of public resources and not at raising government revenue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796794_1_20250321160610.jpg&q=90)
@@ -1415,29 +1439,5 @@ A former senior Hospital Authority official has called for caution in setting co
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm)
-
----
-
-# Nap on beds before purchasing: consumer watchdog
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796023_1_20250317114157.jpg&q=75)
-  
-
-The Consumer Council on Monday encouraged people to nap on mattresses – some of which were found to provide inadequate support – before making a purchase.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm)
 
 ---

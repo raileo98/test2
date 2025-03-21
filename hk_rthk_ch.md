@@ -1,3 +1,27 @@
+# 在岸人民幣兌美元低收逾百點子　創近兩星期新低
+
+![在岸人民幣收報7.2489兌1美元，較昨日收市價跌106點子，創近兩星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796805_1_20250321165350.jpg&q=85)
+  
+
+在岸人民幣收報7.2489兌1美元，較昨日收市價跌106點子，創近兩星期新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796805-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796805-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796805-20250321.htm)
+
+---
+
 # 小鵬汽車在港至今已交付近1000輛車
 
 ![顧宏地稱小鵬去年海外銷量突破2萬輛，位列非傳統汽車品牌中第一。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796810_1_20250321170604.jpg&q=85)
@@ -46,7 +70,7 @@
 
 ---
 
-# 12班往來香港及倫敦希斯路機場航班取消　機管局籲留意最新情況
+# 全日12班往來香港及倫敦希斯路機場航班　機管局籲留意最新情況
 
   
 
