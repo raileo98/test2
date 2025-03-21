@@ -1,3 +1,51 @@
+# 《環看天下》： 分析指美俄就俄烏停火內容仍存分歧
+
+![美俄、美烏元首通話， 分析指美俄就停火內容仍存分歧。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796714_1_20250321081812.jpg&q=90)
+  
+
+美國總統特朗普日前先後分别再同俄羅斯總統普京，以及烏克蘭總統澤連斯基通電話，討論俄烏停火協議。美方透露，美俄代表星期日會再在沙特阿拉伯繼續會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796714-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796714-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796714-20250321.htm)
+
+---
+
+# 傳媒稱加拿大總理卡尼將宣布提前在下月底舉行大選
+
+![加拿大傳媒報道，總理卡尼將宣布提前大選。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796710_1_20250321080839.jpg&q=90)
+  
+
+加拿大傳媒報道，總理卡尼將宣布提前大選。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796710-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796710-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796710-20250321.htm)
+
+---
+
 # 考文垂當選國際奧委會主席　是首名非洲人及女性擔任此職位
 
 ![考文垂將在6月接替巴赫，成為首位女性及來自非洲的國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796707_1_20250321063949.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796324-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796324-20250319.htm)
-
----
-
-# 馮德萊恩稱歐盟支持丹麥捍衛格陵蘭島在內的主權和領土完整
-
-![馮德萊恩強調，面對威脅時，歐洲必須加強防禦能力。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796322_1_20250319031053.jpg&q=90)
-  
-
-歐盟委員會主席馮德萊恩表示，歐盟支持丹麥捍衛包括格陵蘭島在內的主權和領土完整。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796322-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796322-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796322-20250319.htm)
-
----
-
-# 也門胡塞武裝向以色列發射導彈　以軍稱成功攔截
-
-![胡塞武裝發言人強調，如果以色列不停止對加沙的侵略，組織將擴大對以色列的打擊範圍。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796321_1_20250319023204.jpg&q=90)
-  
-
-以色列南部內蓋夫等地星期二晚響起防空警報，以軍指，成功攔截一枚來自也門境內的導彈。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796321-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796321-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796321-20250319.htm)
 
 ---

@@ -1,3 +1,75 @@
+# 韓股初段偏軟
+
+![首爾綜合指數較早時報2630點，跌6點，跌幅0.26%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796713_1_20250321081207.jpg&q=85)
+  
+
+南韓股市在開市初段偏軟，首爾綜合指數較早時報2630點，跌6點，跌幅0.26%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796713-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796713-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796713-20250321.htm)
+
+---
+
+# 日股初段靠穩
+
+![日經平均指數較早時報37803點，升51點，升幅0.14%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796712_1_20250321081007.jpg&q=75)
+  
+
+日本股市假期後復市，開市初段靠穩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796712-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796712-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796712-20250321.htm)
+
+---
+
+# 江蘇宏信今日起招股　集資最多1.6億元
+
+![內地糧油批發商江蘇宏信今日起招股，每股招股價介乎2.5至3元，集資最多1.6億元。股份每手1000股入場費約3030元。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796711_1_20250321080741.jpg&q=90)
+  
+
+內地糧油批發商江蘇宏信今日起招股，計劃全球發售5356.2萬股H股，其中香港發售佔10%，其餘為國際發售，每股招股價介乎2.5至3元，集資最多1.6億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796711-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796711-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796711-20250321.htm)
+
+---
+
 # 現貨金破頂後回落
 
 ![現貨金破頂後回落，一度高見3057.21美元再創歷史新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796709_1_20250321073319.jpg&q=90)
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796586-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796586-20250320.htm)
-
----
-
-# 中銀維持港元最優惠利率於5.25厘不變
-
-![中銀香港宣布，港元最優惠利率維持於5.25厘不變。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796585_1_20250320123618.jpg&q=90)
-  
-
-中銀香港宣布，港元最優惠利率維持於5.25厘不變，戶口結餘在5000元及以上的活期儲蓄存款利率維持於0.25厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796585-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796585-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796585-20250320.htm)
-
----
-
-# 李家超：低空經濟潛力巨大應用場景廣闊　成未來經濟新增長引擎
-
-![李家超參觀部份試點項目的展示區，並與不同展示區的負責人交流。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796580_1_20250320123851.jpg&q=85)
-  
-
-行政長官李家超出席低空經濟「監管沙盒」試點項目啟動禮，表示低空經濟是國家戰略性新興產業，亦是發展新質生產力的範例，對香港經濟和社會發展很有幫助和禆益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm)
-
----
-
-# 港股半日跌293點　結束4日升勢
-
-![港股結束4連升，恒指一度跌逾400點，半日收報24477點，跌293點，跌幅約1.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796576_1_20250320121710.jpg&q=75)
-  
-
-港股結束4連升，恒指一度跌逾400點，低見24344點，半日收報24477點，跌293點，跌幅約1.2%，主板成交額約1575億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796576-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796576-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796576-20250320.htm)
 
 ---
