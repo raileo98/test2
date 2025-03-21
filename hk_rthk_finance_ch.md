@@ -1,3 +1,51 @@
+# 港股美國預託證券與本港收市比較個別發展
+
+![美團公布業績後，ADR較本港收市跌逾5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796880_1_20250322065229.jpg&q=85)
+  
+
+港股美國預託證券（ADR）與本港收市比較個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796880-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796880-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796880-20250322.htm)
+
+---
+
+# 英美期油收市微升　本周升近2%或以上
+
+![倫敦布蘭特期油和紐約期油收市升0.2%至0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796879_1_20250322065038.jpg&q=90)
+  
+
+國際油價收市上升，之前美國對伊朗實施新的制裁，加上石油輸出國組織及其盟友（OPEC+）最新公布的計劃，提升市場對供應收緊的預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796879-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796879-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796879-20250322.htm)
+
+---
+
 # 美元上升　聯儲局官員表示支持謹慎政策方針
 
 ![美元指數重上104水平，報104.14，升幅0.3%。本周累升0.4%，結束連續2星期跌勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796877_1_20250322061832.jpg&q=85)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796712-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796712-20250321.htm)
-
----
-
-# 江蘇宏信今日起招股　集資最多1.6億元
-
-![內地糧油批發商江蘇宏信今日起招股，每股招股價介乎2.5至3元，集資最多1.6億元。股份每手1000股入場費約3030元。（網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796711_1_20250321080741.jpg&q=90)
-  
-
-內地糧油批發商江蘇宏信今日起招股，計劃全球發售5356.2萬股H股，其中香港發售佔10%，其餘為國際發售，每股招股價介乎2.5至3元，集資最多1.6億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796711-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796711-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796711-20250321.htm)
-
----
-
-# 現貨金破頂後回落
-
-![現貨金破頂後回落，一度高見3057.21美元再創歷史新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796709_1_20250321073319.jpg&q=90)
-  
-
-現貨金破頂後回落，一度高見3057.21美元再創歷史新高，受到避險需求支持，其後回軟，較早時報3044.41美元，跌幅約0.1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796709-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796709-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796709-20250321.htm)
 
 ---

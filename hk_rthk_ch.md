@@ -1,3 +1,75 @@
+# 醫管局：市民共付放射服務部分費用是考慮方向
+
+![黃立己相信，涉及的共付額，大部分市民都接受得到。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796878_1_20250322064817.jpg&q=90)
+  
+
+政府正檢討公營醫療服務收費。現時公立醫院放射服務獲政府百分之一百補貼，即是無額外收費。醫管局指出，相關服務需求大，在2023至24年度，磁力共振掃瞄造影實際服務約87000人次，例行個案輪候時間達3年9個月。而在私營醫療市場，要接受磁力共振掃瞄造影檢查，每次要至少數千元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796878-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796878-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796878-20250322.htm)
+
+---
+
+# 港股美國預託證券與本港收市比較個別發展
+
+![美團公布業績後，ADR較本港收市跌逾5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796880_1_20250322065229.jpg&q=85)
+  
+
+港股美國預託證券（ADR）與本港收市比較個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796880-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796880-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796880-20250322.htm)
+
+---
+
+# 英美期油收市微升　本周升近2%或以上
+
+![倫敦布蘭特期油和紐約期油收市升0.2%至0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796879_1_20250322065038.jpg&q=90)
+  
+
+國際油價收市上升，之前美國對伊朗實施新的制裁，加上石油輸出國組織及其盟友（OPEC+）最新公布的計劃，提升市場對供應收緊的預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796879-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796879-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796879-20250322.htm)
+
+---
+
 # 英格蘭世盃外圍賽2:0挫阿爾巴尼亞　杜曹首次領軍旗開得勝
 
 ![路易斯史基利首次入選國家腳就取得入球，幫英格蘭先開紀錄。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796883_1_20250322070457.jpg&q=90)
@@ -480,6 +552,7 @@
 
 # 大埔公路沙田段6車相撞5人傷　警方列狂亂駕駛拘兩人
 
+![警方列作狂亂駕駛及行使虛假文書，拘捕兩人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796856_1_20250322072223.jpg&q=60)
   
 
 大埔公路沙田段晚上發生6車相撞意外，5人受輕傷。警方列作狂亂駕駛及行使虛假文書，拘捕兩人。
@@ -1366,77 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm)
-
----
-
-# 外交部：民進黨當局勾連外部勢力謀「獨」挑釁不會得逞
-
-![毛寧說，民進黨當局勾連外部勢力謀「獨」挑釁是不會得逞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796814_1_20250321172343.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧回應台灣行政部門聘請日本前自衛隊統合幕僚長岩崎茂擔任顧問時表示，中方已經就有關動向向日方提出交涉，民進黨當局勾連外部勢力謀「獨」挑釁是不會得逞。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm)
-
----
-
-# 王毅與趙兌烈會談　稱中韓是分不開夥伴應更親近
-
-![王毅表示，中韓兩國是搬不走的鄰居，兩國應經常往來，更加親近。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796813_1_20250321172121.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在日本東京與南韓外長趙兌烈舉行會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm)
-
----
-
-# 在岸人民幣兌美元低收逾百點子　創近兩星期新低
-
-![在岸人民幣收報7.2489兌1美元，較昨日收市價跌106點子，創近兩星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796805_1_20250321165350.jpg&q=85)
-  
-
-在岸人民幣收報7.2489兌1美元，較昨日收市價跌106點子，創近兩星期新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796805-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796805-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796805-20250321.htm)
 
 ---

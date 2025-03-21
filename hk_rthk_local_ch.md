@@ -1,3 +1,27 @@
+# 醫管局：市民共付放射服務部分費用是考慮方向
+
+![黃立己相信，涉及的共付額，大部分市民都接受得到。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796878_1_20250322064817.jpg&q=90)
+  
+
+政府正檢討公營醫療服務收費。現時公立醫院放射服務獲政府百分之一百補貼，即是無額外收費。醫管局指出，相關服務需求大，在2023至24年度，磁力共振掃瞄造影實際服務約87000人次，例行個案輪候時間達3年9個月。而在私營醫療市場，要接受磁力共振掃瞄造影檢查，每次要至少數千元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796878-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796878-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796878-20250322.htm)
+
+---
+
 # 警方旺角反罪惡拘捕33人
 
 ![警方在旺角一連兩日採取反罪惡行動，拘捕33人，圖為部分被捕人士。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796870_1_20250322034616.jpg&q=75)
@@ -24,6 +48,7 @@
 
 # 大埔公路沙田段6車相撞5人傷　警方列狂亂駕駛拘兩人
 
+![警方列作狂亂駕駛及行使虛假文書，拘捕兩人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796856_1_20250322072223.jpg&q=60)
   
 
 大埔公路沙田段晚上發生6車相撞意外，5人受輕傷。警方列作狂亂駕駛及行使虛假文書，拘捕兩人。
@@ -1417,28 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm)
-
----
-
-# 深水埗有大廈梯間雜物起火　４人吸入濃煙送院約100人疏散
-
-  
-
-深水埗有大廈發生火警，4人受傷，其中有人吸入濃煙不適，全部送往明愛醫院治理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796679-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796679-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796679-20250320.htm)
 
 ---
