@@ -1,3 +1,75 @@
+# 'Coalition of willing' to meet next week on Ukraine
+
+![French President Emmanuel Macron announced the new meeting after a European Union summit in Brussels. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796727_1_20250321094059.jpg&q=90)
+  
+
+French President Emmanuel Macron said leaders of the coalition backing Ukraine would meet again next week, hoping to finalise plans to secure a potential truce in the war with Russia.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm)
+
+---
+
+# Hong Kong stocks fall 0.46pc at the open
+
+![Shares of CK Hutchison were down HK$1.10 in early trading after it announced a drop in profits for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796728_1_20250321095016.jpg&q=75)
+  
+
+Hong Kong's Hang Seng Index fell 110.88 points, or 0.46 percent, to open at 24,109 points on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm)
+
+---
+
+# World's glacier mass shrank again in 2024, says UN
+
+![The Lac de Tignes glacial lake in Tignes in the French Alps. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796725_1_20250321093234.jpg&q=85)
+  
+
+All 19 of the world's glacier regions experienced a net loss of mass in 2024 for the third consecutive year, the United Nations said on Friday, warning that saving the planet's glaciers was now a matter of "survival".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm)
+
+---
+
 # China calls for protections for students in US
 
 ![Foreign ministry spokesperson Mao Ning urged the US not to impose discriminatory restrictive measures on Chinese students. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796721_1_20250321092239.jpg&q=90)
@@ -1367,77 +1439,5 @@ Ocean Park said on Wednesday cable car services and facilities in its upper sect
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm)
-
----
-
-# More local companies planning to hire than cut staff
-
-![Lancy Chui says that while the local healthcare industry showed the strongest hiring demand, the logistics sector could face a challenging hiring outlook due to global trade frictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796421_1_20250319154853.jpg&q=90)
-  
-
-An employment survey has found that about 30 percent of Hong Kong companies are planning to hire more staff in the coming three months, while about 20 percent of them are expected to have personnel cuts.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796421-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796421-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796421-20250319.htm)
-
----
-
-# 'Stable China-US trade ties benefit global firms'
-
-![Wang Shouwen holds talks with Ramon Laguarta in Beijing. Photo courtesy of Commerce Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796422_1_20250319154955.jpg&q=90)
-  
-
-A stable, healthy and sustainable China-US economic and trade relationship is in the fundamental interest of both countries, and also benefits global companies, Vice Commerce Minister Wang Shouwen told PepsiCo Chairman Ramon Laguarta in their meeting in Beijing.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm)
-
----
-
-# Snooker tournament slips spur Rugby Sevens resolve
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796411_1_20250319143132.jpg&q=70)
-  
-
-Sports chief Rosanna Law said on Wednesday that parties involved in the Hong Kong Rugby Sevens tournament to be held later this month have to liaise and communicate closely for the Kai Tak event to be considered a success.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm)
 
 ---

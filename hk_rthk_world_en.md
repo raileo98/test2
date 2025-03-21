@@ -1,3 +1,51 @@
+# 'Coalition of willing' to meet next week on Ukraine
+
+![French President Emmanuel Macron announced the new meeting after a European Union summit in Brussels. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796727_1_20250321094059.jpg&q=90)
+  
+
+French President Emmanuel Macron said leaders of the coalition backing Ukraine would meet again next week, hoping to finalise plans to secure a potential truce in the war with Russia.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm)
+
+---
+
+# World's glacier mass shrank again in 2024, says UN
+
+![The Lac de Tignes glacial lake in Tignes in the French Alps. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796725_1_20250321093234.jpg&q=85)
+  
+
+All 19 of the world's glacier regions experienced a net loss of mass in 2024 for the third consecutive year, the United Nations said on Friday, warning that saving the planet's glaciers was now a matter of "survival".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm)
+
+---
+
 # China calls for protections for students in US
 
 ![Foreign ministry spokesperson Mao Ning urged the US not to impose discriminatory restrictive measures on Chinese students. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796721_1_20250321092239.jpg&q=90)
@@ -1389,53 +1437,5 @@ A fire that tore through a nightclub in North Macedonia killed 59 revellers atte
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795938-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795938-20250316.htm)
-
----
-
-# US, Russian diplomats discuss next steps on Ukraine
-
-![Ukrainian firefighters work to extinguish a fire following a strike on the outskirts of Odessa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795912_1_20250316105435.jpg&q=90)
-  
-
-US Secretary of State Marco Rubio and Russia's Foreign Minister Sergei Lavrov spoke on Saturday to discuss the next stage in talks on ending Moscow's war against Ukraine.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795912-20250316.htm)
-
----
-
-# US launches large-scale strikes against Yemeni Houthis
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795905_1_20250316083448.jpg&q=90)
-  
-
-At least 19 were killed as US President Donald Trump launched large-scale military strikes against Yemen's Iran-aligned Houthis on Saturday over the group's attacks against Red Sea shipping, warning "hell will rain down" on them if they do not stop.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm)
 
 ---

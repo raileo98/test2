@@ -1,3 +1,143 @@
+# 盧寵茂：醫療收費調整額外收入用於提升安全網　針對貧急重危人士
+
+  
+
+醫務衞生局局長盧寵茂表示，醫療深化改革即將推出，強調相關的撥款開支不會縮減，但會重新分配，有關改革將分5年推行，構築更大、更厚、更密的安全網。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796735-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796735-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796735-20250321.htm)
+
+---
+
+# 俄羅斯聯邦安全會議秘書紹伊古據報抵達平壤　將晤金正恩
+
+  
+
+俄羅斯傳媒報道，俄羅斯聯邦安全會議秘書紹伊古已抵達平壤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796734-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796734-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796734-20250321.htm)
+
+---
+
+# 工程師料機艙氣壓對充電寶影響不大　籲帶上機時可放在膠殼絶緣
+
+  
+
+香港航空一架由杭州飛往香港的客機，昨日下午飛行途中機艙行李架起火，改道安全降落福州機場。有工程師表示，飛機氣壓可能會對行李中的充電寶有影響，但相信影響不會太大，估計充電寶可能曾經受過衝擊，例如跌落地，影響了內部裝置，到氣壓及溫度有變化時出現自燃情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796731-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796731-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796731-20250321.htm)
+
+---
+
+# 陳美寶冀無人機為偏遠居民送物資　北都研預留空間發展低空經濟
+
+  
+
+低空經濟有38個沙盒項目獲批，運輸及物流局局長陳美寶表示，除了試驗安全配套，亦要考慮起落點等設施、數據監察、無人機定位等，希望可從中試驗及累積經驗。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm)
+
+---
+
+# 世盃外圍賽國足作客0:1不敵沙特
+
+![林良銘上半場被紅牌罰，國足最終飲恨。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796729_1_20250321095251.jpg&q=90)
+  
+
+世界盃外圍賽亞洲區18強賽C組賽事，林良銘上半場被紅牌罰下，10人作戰的國足作客0:1不敵沙特阿拉伯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796729-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796729-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796729-20250321.htm)
+
+---
+
+# 人行開展930億元人民幣逆回購操作
+
+![人行公開市場開展930億元人民幣7日期逆回購操作，單日淨回籠877億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796724_1_20250321093049.jpg&q=80)
+  
+
+人民銀行公開市場開展930億元人民幣7日期逆回購操作，利率維持於1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796724-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796724-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796724-20250321.htm)
+
+---
+
 # 內地股市初段偏軟
 
 ![上證綜合指數較早時報3407點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796726_1_20250321093417.jpg&q=90)
@@ -1293,150 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796658-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796658-20250320.htm)
-
----
-
-# 載通去年盈利跌53%　九巴稅後盈利升逾10倍
-
-![九龍巴士去年除稅後盈利1.27億元，增長逾10倍，因車費收入增加。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796656_1_20250320191216.jpg&q=85)
-  
-
-九巴母公司載通去年盈利1.87億元，下跌逾53%；撇除投資物業及發展中投資物業公平價值變動，基礎盈利逾2.65億元，增長逾1.3倍，受到專營公共巴士業務表現改善，但部分上市債務證券預期信貸虧損抵銷部分盈利。末期息維持每股0.5元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796656-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796656-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796656-20250320.htm)
-
----
-
-# 證監會要求認購新股借貸券商最少收取10%認購資金
-
-![證監會向持牌法團發指引，未繳足資金的新股認購，應向客戶收取最低相等於認購金額10%的預付資金。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796655_1_20250320190309.jpg&q=90)
-  
-
-證監會就首次公開招股（IPO）認購及融資服務，向持牌法團提供額外指引，以加強風險管理，保護投資者免受過度財務風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm)
-
----
-
-# 57人投訴付款訂購結婚戒指後未能收貨　警拘一婚戒公司董事
-
-![海關商品說明調查科署理高級貿易管制主任伍慧明表示，涉案婚戒設計公司近期多次以各種理由不斷延遲交付客人所訂購的結婚戒指，至本月初更失去聯絡及結業。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796657_1_20250320203907.jpg&q=80)
-![涉案婚戒設計公司本月初突然結業（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796657_2_20250320203907.jpg&q=90)
-  
-
-一間婚戒設計公司本月初突然結業，海關拘捕公司唯一董事，涉嫌於銷售貨物時，作出不當地接受付款的營業行為，違反《商品說明條例》。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm)
-
----
-
-# 中移動：未來2-3年總投資規模將保持穩中有降
-
-![楊杰（中）期望6G能形成全球統一標準，中移動已直接參與標準制定。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796654_1_20250320184914.jpg&q=90)
-  
-
-中國移動去年盈利近1384億元人民幣，按年增長5%。集團表示，今年計劃資本開支1512億元人民幣，按年減少約8%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796654-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796654-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796654-20250320.htm)
-
----
-
-# 港澳台居民即日起可網上辦理臨時通行證　李慧琼：提高人流便捷度
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796652_1_20250320184711.jpg&q=90)
-  
-
-國家出入境管理局表示，即日起，港澳台居民因遺失損毀或忘記攜帶通行證，需在內地城市間緊急乘坐交通工具，可以即時申請有效期為7日的電子臨時通行證。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796652-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796652-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796652-20250320.htm)
-
----
-
-# 港隊友誼賽兩球擊敗澳門
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796640_1_20250320184358.jpg&q=85)
-  
-
-正備戰下周亞洲盃外圍賽的港隊，在旺角大球場與澳門踢友誼賽，憑鐘樂安及李小恆於上半場的入球，贏二比零。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm)
 
 ---

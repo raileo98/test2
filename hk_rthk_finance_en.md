@@ -1,3 +1,27 @@
+# Hong Kong stocks fall 0.46pc at the open
+
+![Shares of CK Hutchison were down HK$1.10 in early trading after it announced a drop in profits for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796728_1_20250321095016.jpg&q=75)
+  
+
+Hong Kong's Hang Seng Index fell 110.88 points, or 0.46 percent, to open at 24,109 points on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm)
+
+---
+
 # US stocks edge lower as Fed rally falters
 
 ![The Dow Jones Industrial Average closed down less than 0.1 percent at 41,953. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796704_1_20250321061012.jpg&q=75)
@@ -1411,29 +1435,5 @@ Hong Kong stocks rose on Thursday following a jump on Wall Street, after the Tru
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794500-20250306.htm)
-
----
-
-# Wall Street rebounds after Trump pauses auto tariffs
-
-![White House Press Secretary Karoline Leavitt said the US President decided to "give a one-month exemption on any autos coming through USMCA", a North American free trade pact. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794487_1_20250306084640.jpg&q=90)
-  
-
-US stocks climbed on Wednesday after US President Donald Trump pulled back on some of his tariffs temporarily.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794487-20250306.htm)
 
 ---

@@ -1,3 +1,72 @@
+# 盧寵茂：醫療收費調整額外收入用於提升安全網　針對貧急重危人士
+
+  
+
+醫務衞生局局長盧寵茂表示，醫療深化改革即將推出，強調相關的撥款開支不會縮減，但會重新分配，有關改革將分5年推行，構築更大、更厚、更密的安全網。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796735-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796735-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796735-20250321.htm)
+
+---
+
+# 工程師料機艙氣壓對充電寶影響不大　籲帶上機時可放在膠殼絶緣
+
+  
+
+香港航空一架由杭州飛往香港的客機，昨日下午飛行途中機艙行李架起火，改道安全降落福州機場。有工程師表示，飛機氣壓可能會對行李中的充電寶有影響，但相信影響不會太大，估計充電寶可能曾經受過衝擊，例如跌落地，影響了內部裝置，到氣壓及溫度有變化時出現自燃情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796731-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796731-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796731-20250321.htm)
+
+---
+
+# 陳美寶冀無人機為偏遠居民送物資　北都研預留空間發展低空經濟
+
+  
+
+低空經濟有38個沙盒項目獲批，運輸及物流局局長陳美寶表示，除了試驗安全配套，亦要考慮起落點等設施、數據監察、無人機定位等，希望可從中試驗及累積經驗。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm)
+
+---
+
 # 監管沙盒試點項目遍布不同地域　陳美寶：初時會在視線範圍進行
 
 ![陳美寶強調安全是重要考慮，無人機有包括螺旋槳等安全裝置及後備功能，要應對突發情況，以及有適合地點降落。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796719_1_20250321092457.jpg&q=90)
@@ -1368,81 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm)
-
----
-
-# 監管沙盒公司AI配合無人機檢查公屋外牆　電訊商助配送醫療物資
-
-![人工智能初創公司Alpha AI，正協助包括房協等機構進行外牆檢查，利用配有高清鏡頭的無人機，拍攝公共屋邨外牆。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796571_2_20250320162049.jpg&q=80)
-![何進一說，今次參與監管沙盒就可以試行全自動操作，除可節省人手亦可以增加巡查頻率。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796571_3_20250320162049.jpg&q=90)
-![中國移動DICT中心主管助理曾曉文表示，在監管沙盒中，會利用相關技術在瑪嘉烈醫院協助無人機配送病人樣本、血液等醫療物資。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796571_4_20250320162049.jpg&q=90)
-  
-
-在今次首批低空經濟「監管沙盒」試點項目當中，有人工智能初創公司利用無人機技術，協助物業管理；亦有通訊營辦商利用新通訊技術，建立無人機感知網絡，協助在醫院運送醫療物資。
-  
-![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1796571_2_L_20250320162049.jpg)
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796571-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796571-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796571-20250320.htm)
-
----
-
-# 「裕澤香江」高峰論壇下周三舉行　蔡崇信、蓋茲基金會高層等出席
-
-![「裕澤香江」高峰論壇，將於下周三舉行，以「香港—為全球，向世界」為主題。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796568_1_20250320115839.jpg&q=85)
-  
-
-由政府舉辦的「裕澤香江」高峰論壇，將於下周三舉行，以「香港—為全球，向世界」為主題，聚焦藝術文化、慈善傳承、科技與人工智能投資三大議題，多名講者及家族辦公室決策人會出席，探討如何善用香港獨特優勢，塑造前景及建立可傳承的財富。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796568-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796568-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796568-20250320.htm)
-
----
-
-# 外籍人士墮投資虛擬貨幣騙案失逾7千萬元　警破45案涉1.9億
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796565_1_20250320113913.jpg&q=90)
-  
-
-警方偵破45宗詐騙及洗黑錢案件，總損失金額高達1億9千4百萬港元，行動中拘捕54人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796565-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796565-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796565-20250320.htm)
 
 ---

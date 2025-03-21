@@ -1,3 +1,26 @@
+# 俄羅斯聯邦安全會議秘書紹伊古據報抵達平壤　將晤金正恩
+
+  
+
+俄羅斯傳媒報道，俄羅斯聯邦安全會議秘書紹伊古已抵達平壤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796734-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796734-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796734-20250321.htm)
+
+---
+
 # 北韓試射最新型防空導彈武器系統
 
 ![北韓領袖金正恩觀摩了最新型防空導彈武器系統試射。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796718_1_20250321091454.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796328-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796328-20250319.htm)
-
----
-
-# 中方嚴重關切和強烈譴責以色列再挑起戰火　美方斥哈馬斯應負責
-
-![聯合國安理會開會討論加沙局勢。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796327_1_20250319042203.jpg&q=85)
-  
-
-聯合國安理會開會討論加沙局勢，中國常駐聯合國代表傅聰表示，中方對得來不易的停火局面被破壞感到遺憾，嚴重關切和強烈譴責以色列再挑起戰火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796327-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796327-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796327-20250319.htm)
 
 ---
