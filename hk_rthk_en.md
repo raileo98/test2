@@ -1,3 +1,27 @@
+# NJZ loses court fight to leave label
+
+![The Seoul Central District Court prohibits members of NJZ from pursuing independent endeavours. File photo: NewJeans](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796797_1_20250321161623.jpg&q=85)
+  
+
+A South Korean court on Friday ruled against popular K-pop girl group NewJeans, which had sought to sever ties with their label ADOR over what they called "mistreatment" by the company.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm)
+
+---
+
 # Stronger turnout expected as ComplexCon returns
 
 ![Fans queue for limited-edition Labubu toys created by Hong Kong artist Kasing Lung. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796791_1_20250321154832.jpg&q=85)
@@ -48,7 +72,7 @@ The Hong Kong Metropolitan University on Friday launched a new online library th
 
 # Cathay Pacific cancels flights to London
 
-![Cathay Pacific has also cancelled all flights from London to Hong Kong. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796782_1_20250321145257.jpg&q=90)
+![Some Cathay passengers said they were frustrated with the airline's arrangements. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796782_2_20250321161341.jpg&q=90)
   
 
 Cathay Pacific said on Friday it cancelled two flights from Hong Kong to London, due to the temporary closure of Heathrow Airport.
@@ -1415,29 +1439,5 @@ Japan on Thursday marked the 30th anniversary of the sarin gas attack on Tokyo's
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm)
-
----
-
-# Price adjustment can help those most in need: HA
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796525_1_20250320073507.jpg&q=90)
-  
-
-The Hospital Authority said it hopes an increase in the Accident and Emergency (A&E) service fee would ensure resources are reserved for those most in need.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796525-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796525-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796525-20250320.htm)
 
 ---

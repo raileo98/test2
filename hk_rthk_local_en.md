@@ -1,3 +1,27 @@
+# NJZ loses court fight to leave label
+
+![The Seoul Central District Court prohibits members of NJZ from pursuing independent endeavours. File photo: NewJeans](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796797_1_20250321161623.jpg&q=85)
+  
+
+A South Korean court on Friday ruled against popular K-pop girl group NewJeans, which had sought to sever ties with their label ADOR over what they called "mistreatment" by the company.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm)
+
+---
+
 # Stronger turnout expected as ComplexCon returns
 
 ![Fans queue for limited-edition Labubu toys created by Hong Kong artist Kasing Lung. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796791_1_20250321154832.jpg&q=85)
@@ -48,7 +72,7 @@ The Hong Kong Metropolitan University on Friday launched a new online library th
 
 # Cathay Pacific cancels flights to London
 
-![Cathay Pacific has also cancelled all flights from London to Hong Kong. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796782_1_20250321145257.jpg&q=90)
+![Some Cathay passengers said they were frustrated with the airline's arrangements. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796782_2_20250321161341.jpg&q=90)
   
 
 Cathay Pacific said on Friday it cancelled two flights from Hong Kong to London, due to the temporary closure of Heathrow Airport.
@@ -1415,29 +1439,5 @@ An NGO on Sunday said many parents are still unclear about an incoming law which
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795949-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795949-20250316.htm)
-
----
-
-# HK firms should strive for win-win deals: Starry Lee
-
-![Starry Lee responds to questions on articles criticising the CK Hutchison port deal. Photo courtesy of TVB](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795934_1_20250316165214.jpg&q=90)
-  
-
-Hong Kong's sole delegate to the country's top legislature on Sunday said all Chinese people should do their part to help the nation’s development, and business exchanges are only sustainable if it is a win-win situation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795934-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795934-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795934-20250316.htm)
 
 ---

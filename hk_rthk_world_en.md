@@ -1,3 +1,27 @@
+# NJZ loses court fight to leave label
+
+![The Seoul Central District Court prohibits members of NJZ from pursuing independent endeavours. File photo: NewJeans](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796797_1_20250321161623.jpg&q=85)
+  
+
+A South Korean court on Friday ruled against popular K-pop girl group NewJeans, which had sought to sever ties with their label ADOR over what they called "mistreatment" by the company.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm)
+
+---
+
 # Moscow's top security official in N Korea: media
 
 ![Sergei Shoigu earlier made visits to Pyongyang as North Korea geared up to deploy troops to fight for Russia. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796749_1_20250321113943.jpg&q=90)
@@ -1413,29 +1437,5 @@ Unusually vicious and damaging weather across multiple US states spawned violent
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795992-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795992-20250317.htm)
-
----
-
-# Stranded astronauts to return to Earth on Tuesday
-
-![A Nasa livestream shows the SpaceX Dragon crew spacecraft approaching the International Space Station on Saturday, before docking a day later. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795995_1_20250317091414.jpg&q=90)
-  
-
-A pair of US astronauts stuck for more than nine months on the International Space Station will be returned to Earth on Tuesday evening, Nasa said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795995-20250317.htm)
 
 ---

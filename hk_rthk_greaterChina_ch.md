@@ -1,3 +1,51 @@
+# 葡萄牙外長蘭熱爾下周一起訪華5天
+
+![葡萄牙國務部長兼外長蘭熱爾將於下周一至周五訪華。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796800_1_20250321163101.jpg&q=90)
+  
+
+外交部宣布，應中共中央政治局委員、外長王毅邀請，葡萄牙國務部長兼外長蘭熱爾將於下周一至周五訪華，期間兩國外長將舉行中葡第二次外長級戰略對話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm)
+
+---
+
+# 外交部：中韓加強人文交流　符合雙方利益
+
+![毛寧表示， 中韓是近鄰，加強人文交流，符合雙方利益。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796798_1_20250321161906.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧回應南韓計劃今年第三季對中國團體旅客免簽時表示，中韓是近鄰，加強人文交流，符合雙方利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm)
+
+---
+
 # 謝展寰在北京到訪國家海關總署及國家生態環境部等機構
 
 ![謝展寰展參觀中國農業科學院的蔬菜花卉研究所溫室。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796681_1_20250320231718.jpg&q=70)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm)
-
----
-
-# 中方：有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的回應
-
-![外交部稱，中方有關軍事行動是對外部勢力執意縱容支持「台獨」行徑的堅決回應。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796128_1_20250317214401.jpg&q=80)
-  
-
-在北京，外交部回應有關解放軍今日在台海附近開展軍事演習的提問，發言人毛寧說，中方有關軍事行動是捍衛國家主權、安全和領土完整的必要、合法、正當之舉，是對外部勢力執意縱容支持「台獨」行徑的堅決回應，是對「台獨」分裂勢力倒行逆施的嚴正警告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796128-20250317.htm)
-
----
-
-# 國台辦：台灣資通電軍「倚網謀獨」必遭嚴厲懲治
-
-![陳斌華表示，台灣資通電軍「倚網謀獨」必遭嚴厲懲治。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796125_1_20250317212052.jpg&q=90)
-  
-
-在北京，國台辦發言人陳斌華表示，台灣資通電軍「倚網謀獨」、挑釁滋事，純屬不自量力，必遭嚴厲懲治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796125-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796125-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796125-20250317.htm)
 
 ---

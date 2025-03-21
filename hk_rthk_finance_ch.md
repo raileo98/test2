@@ -1,3 +1,76 @@
+# 港股低收530點　本周累計跌逾1%
+
+![恒生指數收市報23689點，創逾1星期新低，全日跌530點，跌幅約2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796796_1_20250321161603.jpg&q=85)
+  
+
+港股連跌兩日，恒生指數失守24000點關口，最多跌逾640點，低見23577點，收市報23689點，創逾1星期新低，全日跌530點，跌幅約2.2%，主板成交額增至約3391億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm)
+
+---
+
+# 李家超：四理念開啟創科新局面　今年將選合適地徵私人發展
+
+![李家超表示，政府會為園區的發展拆牆鬆綁，以變革思維突破發展局限。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796788_1_20250321160425.jpg&q=90)
+  
+
+港深創新及科技園8號及9號大樓平頂儀式下午舉行，行政長官李家超致辭表示，兩座大樓平頂，以及11號大樓全面完成，標誌著香港特區在創新科技領域與港深創科合作，踏上另一個高峰台階。他表示，今年很快會選擇合適地塊，徵求私人發展計劃，利用市場的力量，加速園區發展，並在今年內完成園區第二期的詳細規劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm)
+
+---
+
+# 30億推前沿科技研究資助　李家超稱香港憑硬件及軟實力創造機遇
+
+![李家超說，聯盟成立證明了集體智慧的力量，展現開放交流的承諾。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_1_20250321154937.jpg&q=80)
+![李家超、葉玉如、孫東及張翔等出席活動主持儀式。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_2_20250321154937.jpg&q=90)
+  
+
+國際院士聯盟成立，行政長官李家超出席儀式時致辭時透露，將會很快推出金額涉及30億元的前沿科技研究資助計劃，資助由世界級研究人員和學者推動開創性基礎研究。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm)
+
+---
+
 # 內地股市低收逾1%至逾2%　全星期累計亦跌
 
 ![內地股市低收逾1%至逾2%，本周累計亦跌近2%至逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796784_1_20250321150709.jpg&q=90)
@@ -1363,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796646-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796646-20250320.htm)
-
----
-
-# 美高梅中國去年多賺74%　派末期息每股0.251元
-
-![美高梅中國去年盈利46.03億元，按年升逾74%，派末期息每股0.251元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796647_1_20250320182857.jpg&q=90)
-  
-
-美高梅中國去年盈利46.03億元，按年升逾74%，受惠澳門旅遊限制放寬後，業務持續增長。期內，經營收入升27%至313.9億元，當中，娛樂場收入升25%至272.8億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796647-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796647-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796647-20250320.htm)
-
----
-
-# 元朗洪水橋兩地延至7月截標　象徵式租金租10年取代無償轉讓
-
-![發展局說，是次調整招標條款，正是政府因應市場意見從善如流的例子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796641_1_20250320181044.jpg&q=90)
-  
-
-政府公布，現正招標、分別位於洪水橋及元朗的兩幅多層現代產業大樓用地，將修訂招標條款，並延長招標期限至今年7月25日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm)
-
----
-
-# 全球金融中心指數香港排第三　政府：彰顯作為國際金融中心實力
-
-![《全球金融中心指數》報告，香港的整體評分上升11分至760分。政府表示，報告充分肯定香港作為國際金融中心的領先地位與實力。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796638_1_20250320190827.jpg&q=85)
-  
-
-英國Z/Yen集團與中國（深圳）綜合開發研究院公布的《全球金融中心指數》報告，香港的整體評分上升11分至760分，與首位的評分差距略為收窄，總排名維持全球第三位，並在亞太區繼續居首。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm)
 
 ---

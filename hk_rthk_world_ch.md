@@ -1,3 +1,51 @@
+# 葡萄牙外長蘭熱爾下周一起訪華5天
+
+![葡萄牙國務部長兼外長蘭熱爾將於下周一至周五訪華。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796800_1_20250321163101.jpg&q=90)
+  
+
+外交部宣布，應中共中央政治局委員、外長王毅邀請，葡萄牙國務部長兼外長蘭熱爾將於下周一至周五訪華，期間兩國外長將舉行中葡第二次外長級戰略對話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm)
+
+---
+
+# 外交部：中韓加強人文交流　符合雙方利益
+
+![毛寧表示， 中韓是近鄰，加強人文交流，符合雙方利益。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796798_1_20250321161906.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧回應南韓計劃今年第三季對中國團體旅客免簽時表示，中韓是近鄰，加強人文交流，符合雙方利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm)
+
+---
+
 # 希斯路機場當地周五全日關閉　當局警告未來數天會嚴重混亂
 
 ![希斯路機場因附近變電站大火，在當地星期五全日關閉。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796792_1_20250321155931.jpg&q=90)
@@ -1387,54 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm)
-
----
-
-# 國際奧委會第144次全會在古奧林匹亞開幕
-
-![國際奧委會第144次全會當地星期二在希臘古奧林匹亞開幕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796370_1_20250319101452.jpg&q=85)
-![國際奧委會主席巴赫在開幕式致辭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796370_2_20250319101452.jpg&q=90)
-  
-
-國際奧委會第144次全會當地星期二在希臘古奧林匹亞開幕。全會之後星期三起一連三天，在希臘西南部的納瓦里諾海岸度假村內舉行，將選舉產生新一任國際奧委會主席，接替任期即將結束的巴赫，7名候選人角逐。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm)
-
----
-
-# 西門子計劃全球裁員逾6000人
-
-![西門子表示，裁員主要原因是在中國和德國這兩大關鍵市場的需求疲弱，以及競爭壓力增加。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796368_1_20250319095211.jpg&q=90)
-  
-
-德國西門子計劃在全球裁員超過6000人，佔全球員工總數約2%，主要原因是在中國和德國這兩大關鍵市場的需求疲弱，以及競爭壓力增加。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796368-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796368-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796368-20250319.htm)
 
 ---

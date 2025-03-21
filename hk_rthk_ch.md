@@ -1,3 +1,75 @@
+# 葡萄牙外長蘭熱爾下周一起訪華5天
+
+![葡萄牙國務部長兼外長蘭熱爾將於下周一至周五訪華。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796800_1_20250321163101.jpg&q=90)
+  
+
+外交部宣布，應中共中央政治局委員、外長王毅邀請，葡萄牙國務部長兼外長蘭熱爾將於下周一至周五訪華，期間兩國外長將舉行中葡第二次外長級戰略對話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm)
+
+---
+
+# 港股低收530點　本周累計跌逾1%
+
+![恒生指數收市報23689點，創逾1星期新低，全日跌530點，跌幅約2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796796_1_20250321161603.jpg&q=85)
+  
+
+港股連跌兩日，恒生指數失守24000點關口，最多跌逾640點，低見23577點，收市報23689點，創逾1星期新低，全日跌530點，跌幅約2.2%，主板成交額增至約3391億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm)
+
+---
+
+# 外交部：中韓加強人文交流　符合雙方利益
+
+![毛寧表示， 中韓是近鄰，加強人文交流，符合雙方利益。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796798_1_20250321161906.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧回應南韓計劃今年第三季對中國團體旅客免簽時表示，中韓是近鄰，加強人文交流，符合雙方利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm)
+
+---
+
 # 希斯路機場當地周五全日關閉　當局警告未來數天會嚴重混亂
 
 ![希斯路機場因附近變電站大火，在當地星期五全日關閉。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796792_1_20250321155931.jpg&q=90)
@@ -93,13 +165,13 @@
 
 ---
 
-# 李家超：香港致力發展成國際創科中心　憑硬件及軟實力創無限機遇
+# 30億推前沿科技研究資助　李家超稱香港憑硬件及軟實力創造機遇
 
 ![李家超說，聯盟成立證明了集體智慧的力量，展現開放交流的承諾。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_1_20250321154937.jpg&q=80)
 ![李家超、葉玉如、孫東及張翔等出席活動主持儀式。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_2_20250321154937.jpg&q=90)
   
 
-國際院士聯盟成立，行政長官李家超出席儀式時致辭時透露，將會很快推出金額涉及30億元的人工智能資助計劃，資助由世界級研究人員和學者推動開創性基礎研究。
+國際院士聯盟成立，行政長官李家超出席儀式時致辭時透露，將會很快推出金額涉及30億元的前沿科技研究資助計劃，資助由世界級研究人員和學者推動開創性基礎研究。
 
   
 

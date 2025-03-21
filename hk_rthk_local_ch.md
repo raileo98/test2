@@ -1,3 +1,27 @@
+# 港股低收530點　本周累計跌逾1%
+
+![恒生指數收市報23689點，創逾1星期新低，全日跌530點，跌幅約2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796796_1_20250321161603.jpg&q=85)
+  
+
+港股連跌兩日，恒生指數失守24000點關口，最多跌逾640點，低見23577點，收市報23689點，創逾1星期新低，全日跌530點，跌幅約2.2%，主板成交額增至約3391億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm)
+
+---
+
 # 中大發現人體一種細胞蛋白會協調釋放更多病毒　抑制活性可抗感染
 
   
@@ -69,13 +93,13 @@
 
 ---
 
-# 李家超：香港致力發展成國際創科中心　憑硬件及軟實力創無限機遇
+# 30億推前沿科技研究資助　李家超稱香港憑硬件及軟實力創造機遇
 
 ![李家超說，聯盟成立證明了集體智慧的力量，展現開放交流的承諾。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_1_20250321154937.jpg&q=80)
 ![李家超、葉玉如、孫東及張翔等出席活動主持儀式。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_2_20250321154937.jpg&q=90)
   
 
-國際院士聯盟成立，行政長官李家超出席儀式時致辭時透露，將會很快推出金額涉及30億元的人工智能資助計劃，資助由世界級研究人員和學者推動開創性基礎研究。
+國際院士聯盟成立，行政長官李家超出席儀式時致辭時透露，將會很快推出金額涉及30億元的前沿科技研究資助計劃，資助由世界級研究人員和學者推動開創性基礎研究。
 
   
 
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm)
-
----
-
-# 冷藏肉充當新鮮肉出售　食環署搜兩糧食店檢180公斤疑冷藏牛肉
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796627_1_20250320183857.jpg&q=90)
-  
-
-有新鮮糧食店涉嫌將冷藏肉充當新鮮肉出售，食環署昨日及今日採取突擊行動，分別在葵涌葵盛圍及將軍澳唐明街兩間新鮮糧食店，檢獲180公斤懷疑冷藏牛肉，已即時銷毀，另外亦即時封存123公斤預先包裝好的冷藏牛肉進行調查，同時亦抽取牛肉樣本，進行防腐劑檢測。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796627-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796627-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796627-20250320.htm)
 
 ---
