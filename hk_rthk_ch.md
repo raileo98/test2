@@ -1,3 +1,27 @@
+# 新世界與招商蛇口合作發展北都商住項目動工
+
+![新世界發展與招商蛇口共同發展的北部都會區商住項目今日舉行動工儀式。（新世界發展圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796779_1_20250321142137.jpg&q=85)
+  
+
+新世界發展與招商蛇口共同發展的北部都會區商住項目今日舉行動工儀式，項目總樓面面積逾110萬平方呎，將提供約2300個住宅單位，可與新田科技城創科產業發揮協同效應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796779-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796779-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796779-20250321.htm)
+
+---
+
 # 法國領先航空與機管局簽署備忘錄　陳茂波：香港商業環境充滿活力
 
   
@@ -117,7 +141,7 @@
 
 ---
 
-# 皇后山邨兩童危坐窗台警方拘父母　消息：案發時兩童父母仍在睡覺
+# 皇后山邨兩童危坐窗台警方拘父母　消息：案發時兩童父母正睡覺
 
 ![粉嶺皇后山邨皇樂樓早上有兩名分別年約3歲及5歲男童，一度危坐大廈外窗台，兩童已被救回安全位置。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796770_1_20250321134018.jpg&q=90)
   
@@ -383,7 +407,7 @@
 
 # 港投與芯片公司合作　陳茂波稱加快芯片行業變革有更大創新空間
 
-![陳茂波說，RISC-V開源架構將加快芯片行業變革。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796758_1_20250321125135.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796758_1_20250321125135.jpg&q=85)
   
 
 香港投資管理公司和芯片研發公司賽昉科技啟動戰略合作。
