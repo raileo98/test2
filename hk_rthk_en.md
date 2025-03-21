@@ -51,7 +51,7 @@ Hong Kong has seen its winding-up orders hitting the highest level in more than 
 ![Sergei Shoigu earlier made visits to Pyongyang as North Korea geared up to deploy troops to fight for Russia. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796749_1_20250321113943.jpg&q=90)
   
 
-Russian President Vladimir Putin's top security adviser Sergei Shoigu has arrived in North Korea and plans to meet its leader Kim Jong Un, the Tass news agency reported on Friday, his latest visit amid dramatic advances in security ties between the countries.
+Russian President Vladimir Putin's top security adviser Sergei Shoigu has arrived in North Korea and plans to meet its leader Kim Jong-un, the Tass news agency reported on Friday, his latest visit amid dramatic advances in security ties between the countries.
 
   
 

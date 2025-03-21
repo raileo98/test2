@@ -1,3 +1,27 @@
+# 滬股半日跌近1%　創業板跌1.7%
+
+![上證綜合指數半日失守3400點，報3376點，跌31點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796750_1_20250321114718.jpg&q=85)
+  
+
+滬深股市半日跌近1%或以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796750-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796750-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796750-20250321.htm)
+
+---
+
 # 陳美寶冀低空經濟監管沙盒累積經驗　強調安全至上
 
   
@@ -69,6 +93,7 @@
 
 # 孫靖乾獲委任為通訊事務管理局主席　任期下月起生效
 
+![行政長官委任孫靖乾接替譚允芝為通訊事務管理局主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796746_1_20250321115558.jpg&q=80)
   
 
 行政長官委任孫靖乾接替譚允芝為通訊事務管理局主席，任期4月1日起生效，為期兩年。孫靖乾是資深大律師，亦出任高等法院原訟法庭特委法官。
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796618-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796618-20250320.htm)
-
----
-
-# 慢病共治計劃將提供血脂檢查　彭飛舟：如有家族病史應及早檢查
-
-![彭飛舟接受本台訪問時表示，參與計劃的市民同樣要到地區康健中心，由護士做風險評估，然後配對家庭醫生跟進。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796667_1_20250320213622.jpg&q=90)
-  
-
-醫務衞生局公布「慢性疾病共同治理先導計劃」由3月28日起，擴展至提供血脂檢查。此外，由4月15日起，全港亦會增設超過20個服務點，為沒有參加「慢病共治計劃」的康健中心會員，提供包括個人化慢性疾病管理、痛症管理及復康等服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm)
 
 ---
