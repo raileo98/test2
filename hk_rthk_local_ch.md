@@ -1,3 +1,49 @@
+# 保安局致函4澳洲媒體不滿刊登任建峰文章
+
+  
+
+保安局致函4個澳洲媒體，對有關媒體刊登一篇由被列為指明危害國家安全罪行的潛逃者任建峰撰寫的評論文章表達不滿。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm)
+
+---
+
+# 李家超：香港致力發展成國際創科中心　憑硬件及軟實力創無限機遇
+
+  
+
+國際學術聯盟成立，行政長官李家超出席儀式時致辭時透露，將會很快推出金額涉及30億元的人工智能資助計劃，資助由世界級研究人員和學者推動開創性基礎研究。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm)
+
+---
+
 # 皇后山邨兩童獲救父母被捕　據了解哥哥疑鎖匙開窗花與弟弟爬出窗
 
 ![據了解，兩名男童與父母同住，案發時男童父母仍在睡覺，哥哥懷疑自行拿取鎖匙打開窗花，並與弟弟爬出窗外。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796785_1_20250321152800.jpg&q=85)
@@ -1388,58 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796622-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796622-20250320.htm)
-
----
-
-# 長和去年盈利跌27%　基本盈利跌11%
-
-![長和去年盈利170.9億元，按年跌27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796616_1_20250320165745.jpg&q=80)
-  
-
-長和去年盈利170.9億元，按年跌27%。撇除越南電訊業務利潤、一次性非現金減值及其他撥備，基本盈利跌11%至208.3億元。末期息每股1.514元，按年跌15%。全年派息2.202元，亦跌13%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm)
-
----
-
-# 中電以無人機監察供電設施　內地外賣平台擬科學園至馬鞍山設航線
-
-![中電提出，應用小型無人機操作「超視距飛行」，巡查輸電塔及架空電纜，更有效監察及管理戶外供電設施。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796615_4_20250320170403.jpg&q=90)
-![中電表示，不少輸電塔及架空線路地點偏僻，平均每隊工程人員每日只能巡視約5公里線路。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796615_1_20250320170403.jpg&q=90)
-![張寶中說，以往工程人員需要「翻山越嶺」做巡檢，應用有關技術後，能提升巡查效率近四倍，並可更快找出問題。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796615_2_20250320170403.jpg&q=85)
-![張霆邦表示，日後試運時，將以藥物、文件及物件等作為配送對象，將物品配送至離島。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796615_3_20250320170403.jpg&q=90)
-  
-
-政府公布首批低空經濟「監管沙盒」38個試點項目，當中數個項目率先下月推行試驗，包括中電的項目。中電提出，應用小型無人機操作「超視距飛行」，巡查輸電塔及架空電纜，更有效監察及管理戶外供電設施。
-  
-![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1796615_1_L_20250320170403.jpg)
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796615-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796615-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796615-20250320.htm)
 
 ---

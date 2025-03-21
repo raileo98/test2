@@ -1,3 +1,49 @@
+# 保安局致函4澳洲媒體不滿刊登任建峰文章
+
+  
+
+保安局致函4個澳洲媒體，對有關媒體刊登一篇由被列為指明危害國家安全罪行的潛逃者任建峰撰寫的評論文章表達不滿。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm)
+
+---
+
+# 李家超：香港致力發展成國際創科中心　憑硬件及軟實力創無限機遇
+
+  
+
+國際學術聯盟成立，行政長官李家超出席儀式時致辭時透露，將會很快推出金額涉及30億元的人工智能資助計劃，資助由世界級研究人員和學者推動開創性基礎研究。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm)
+
+---
+
 # 皇后山邨兩童獲救父母被捕　據了解哥哥疑鎖匙開窗花與弟弟爬出窗
 
 ![據了解，兩名男童與父母同住，案發時男童父母仍在睡覺，哥哥懷疑自行拿取鎖匙打開窗花，並與弟弟爬出窗外。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796785_1_20250321152800.jpg&q=85)
