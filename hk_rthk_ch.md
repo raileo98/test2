@@ -1,5 +1,100 @@
+# 18越南籍非法入境者遭遣返　全部人曾提出免遣返聲請但不獲確立
+
+  
+
+入境處將18名越南籍非法入境者遣返越南，包括9名男子及9名女子，全部人士曾在香港提出免遣返聲請但不獲確立，部分曾因干犯刑事罪行被判監及服刑至刑滿出獄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796824-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796824-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796824-20250321.htm)
+
+---
+
+# 世界50最佳酒吧頒獎禮首落戶香港　10月連同美酒佳餚巡禮登場
+
+  
+
+旅發局宣布，成功爭取全球酒吧業年度盛事「世界50最佳酒吧」2025頒獎典禮，首度落戶香港，於今年10月8日在啟德郵輪碼頭舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm)
+
+---
+
+# 有乘客稱飛行約3小時後折返香港　獲安排明早另一航班無額外補償
+
+![本港今日有兩班前往倫敦希斯路機場的航班取消，另一班由香港出發的航班需要折返。（陳豊贊攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796821_1_20250321181651.jpg&q=80)
+  
+
+英國倫敦希斯路機場因附近變電站大火，在當地星期五全日關閉。估計全日至少超過1350個航班可能取消。本港今日有兩班前往倫敦希斯路機場的航班取消，另一班由香港出發的航班需要折返。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796821-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796821-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796821-20250321.htm)
+
+---
+
+# 世茂集團盈警去年虧損擴大逾80%
+
+![世茂集團預計去年錄得淨虧損約429億至439億元人民幣，按年擴大約82%至86%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796820_1_20250321180321.jpg&q=80)
+  
+
+世茂集團發盈警，預計去年錄得淨虧損約429億至439億元人民幣，按年擴大約82%至86%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm)
+
+---
+
 # 何永賢稱新措施讓有能力公屋富戶騰出單位　有需要市民有安身之處
 
+![房委會通過收緊公屋富戶政策。（何永賢社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796818_1_20250321181256.jpg&q=90)
   
 
 房委會通過收緊公屋富戶政策，每月入息超過限額2倍至不高於5倍的富戶，額外租金由1.5倍至2倍，上調至2.5倍至4.5倍。另外，若富戶在兩個申報周期即合共4年，每月入息均處於4倍至5倍之間，會被要求遷出公屋。房屋局局長何永賢認為，新措施可以讓有能力的富戶及時騰出公屋單位，同時也有4年時間讓他們做好上流的準備。
@@ -386,7 +481,7 @@
 
 # 首季21宗致命車禍23人死亡　警下周將不定時不定點嚴厲執法
 
-![警方表示，去年香港發生1萬8千多宗有人受傷的交通意外，涉及2萬3千多人。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796801_1_20250321170642.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796801_1_20250321170642.jpg&q=90)
   
 
 警方表示，去年香港發生1萬8千多宗有人受傷的交通意外，涉及2萬3千多人，當中88人死亡，較前年減少8%，42名行人在交通意外中死亡，亦按年減少32%，交通意外死亡人數及行人死亡數字均創歷史新低。
@@ -651,7 +746,6 @@
 
 # 大熊貓龍鳳胎明起與媽媽同框見公眾　參觀時間約3分鐘須領時間票
 
-![「家姐」、「細佬」明日起，首度與媽媽「盈盈」「同框」展出。（海洋公園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796783_3_20250321152602.jpg&q=85)
 ![大熊貓龍鳳胎「家姐」、「細佬」明日起，首度與媽媽「盈盈」在海洋公園「大熊貓之旅」同一個展館「同框」展出。（海洋公園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796783_1_20250321152315.jpg&q=85)
 ![園方稍後將公布今年1月出生的雌性川金絲猴寶寶的名字候選名單，市民可以投選認為最適合的名字。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796783_2_20250321152315.jpg&q=75)
   

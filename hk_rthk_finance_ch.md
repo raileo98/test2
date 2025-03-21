@@ -1,3 +1,50 @@
+# 世界50最佳酒吧頒獎禮首落戶香港　10月連同美酒佳餚巡禮登場
+
+  
+
+旅發局宣布，成功爭取全球酒吧業年度盛事「世界50最佳酒吧」2025頒獎典禮，首度落戶香港，於今年10月8日在啟德郵輪碼頭舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm)
+
+---
+
+# 世茂集團盈警去年虧損擴大逾80%
+
+![世茂集團預計去年錄得淨虧損約429億至439億元人民幣，按年擴大約82%至86%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796820_1_20250321180321.jpg&q=80)
+  
+
+世茂集團發盈警，預計去年錄得淨虧損約429億至439億元人民幣，按年擴大約82%至86%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm)
+
+---
+
 # 名創優品去年多賺逾16%
 
 ![名創優品去年盈利26.2億元人民幣，按年升16.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796811_1_20250321170723.jpg&q=90)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm)
-
----
-
-# 夏寶龍會見香港歐洲商會　稱全力支持香港長期保持獨特地位和優勢
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796663_1_20250320203336.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見香港歐洲商會訪京團。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm)
-
----
-
-# 商務部稱中方願同日方共同努力　推動經濟高層對話取得務實成果
-
-![商務部稱中日經濟高層對話時隔六年重啟，具有重要意義。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796612_1_20250320164133.jpg&q=75)
-  
-
-第六次中日經濟高層對話本月22日將在日本東京舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm)
 
 ---

@@ -1,4 +1,4 @@
-# 'Gobsmacked' Hamilton takes pole with record time
+# Record lap puts 'gobsmacked' Hamilton in pole position
 
 ![Lewis Hamilton in a Ferrari during the sprint qualifier. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796819_1_20250321175331.jpg&q=85)
   

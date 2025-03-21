@@ -1,5 +1,76 @@
+# 18越南籍非法入境者遭遣返　全部人曾提出免遣返聲請但不獲確立
+
+  
+
+入境處將18名越南籍非法入境者遣返越南，包括9名男子及9名女子，全部人士曾在香港提出免遣返聲請但不獲確立，部分曾因干犯刑事罪行被判監及服刑至刑滿出獄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796824-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796824-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796824-20250321.htm)
+
+---
+
+# 世界50最佳酒吧頒獎禮首落戶香港　10月連同美酒佳餚巡禮登場
+
+  
+
+旅發局宣布，成功爭取全球酒吧業年度盛事「世界50最佳酒吧」2025頒獎典禮，首度落戶香港，於今年10月8日在啟德郵輪碼頭舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm)
+
+---
+
+# 有乘客稱飛行約3小時後折返香港　獲安排明早另一航班無額外補償
+
+![本港今日有兩班前往倫敦希斯路機場的航班取消，另一班由香港出發的航班需要折返。（陳豊贊攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796821_1_20250321181651.jpg&q=80)
+  
+
+英國倫敦希斯路機場因附近變電站大火，在當地星期五全日關閉。估計全日至少超過1350個航班可能取消。本港今日有兩班前往倫敦希斯路機場的航班取消，另一班由香港出發的航班需要折返。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796821-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796821-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796821-20250321.htm)
+
+---
+
 # 何永賢稱新措施讓有能力公屋富戶騰出單位　有需要市民有安身之處
 
+![房委會通過收緊公屋富戶政策。（何永賢社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796818_1_20250321181256.jpg&q=90)
   
 
 房委會通過收緊公屋富戶政策，每月入息超過限額2倍至不高於5倍的富戶，額外租金由1.5倍至2倍，上調至2.5倍至4.5倍。另外，若富戶在兩個申報周期即合共4年，每月入息均處於4倍至5倍之間，會被要求遷出公屋。房屋局局長何永賢認為，新措施可以讓有能力的富戶及時騰出公屋單位，同時也有4年時間讓他們做好上流的準備。
@@ -146,7 +217,7 @@
 
 # 首季21宗致命車禍23人死亡　警下周將不定時不定點嚴厲執法
 
-![警方表示，去年香港發生1萬8千多宗有人受傷的交通意外，涉及2萬3千多人。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796801_1_20250321170642.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796801_1_20250321170642.jpg&q=90)
   
 
 警方表示，去年香港發生1萬8千多宗有人受傷的交通意外，涉及2萬3千多人，當中88人死亡，較前年減少8%，42名行人在交通意外中死亡，亦按年減少32%，交通意外死亡人數及行人死亡數字均創歷史新低。
@@ -315,7 +386,6 @@
 
 # 大熊貓龍鳳胎明起與媽媽同框見公眾　參觀時間約3分鐘須領時間票
 
-![「家姐」、「細佬」明日起，首度與媽媽「盈盈」「同框」展出。（海洋公園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796783_3_20250321152602.jpg&q=85)
 ![大熊貓龍鳳胎「家姐」、「細佬」明日起，首度與媽媽「盈盈」在海洋公園「大熊貓之旅」同一個展館「同框」展出。（海洋公園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796783_1_20250321152315.jpg&q=85)
 ![園方稍後將公布今年1月出生的雌性川金絲猴寶寶的名字候選名單，市民可以投選認為最適合的名字。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796783_2_20250321152315.jpg&q=75)
   
@@ -1367,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796650-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796650-20250320.htm)
-
----
-
-# 美國聯儲局維持利率不變　本港多間銀行跟隨
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796646_1_20250320183654.jpg&q=90)
-  
-
-美國聯儲局維持利率不變，本港多間大型銀行跟隨按兵不動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796646-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796646-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796646-20250320.htm)
-
----
-
-# 低空經濟「監管沙盒」項目啟動　特首：讓公眾體驗廣闊潛力
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796642_1_20250320183627.jpg&q=85)
-  
-
-政府公布首批低空經濟「監管沙盒」試點項目，涵蓋無人機配送、空中監察、緊急救援等多個領域。行政長官李家超出席啟動禮時表示，啟動「監管沙盒」是要以先行先試方式，為低空經濟構建示範項目，以及讓公眾親身體驗低空經濟的廣闊潛力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796642-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796642-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796642-20250320.htm)
-
----
-
-# 急症室逾半病人屬次緊急及非緊急　醫管局冀加費引導使用其他服務
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796639_1_20250320183232.jpg&q=90)
-  
-
-醫管局表示，全港18間公立醫院急症室，每年服務量近200萬人次，超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令緊急病人的服務承諾達標率只有7成多，形容情況不理想，希望透過調整收費，引導非緊急病人使用急症室以外的醫療服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796639-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796639-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796639-20250320.htm)
 
 ---
