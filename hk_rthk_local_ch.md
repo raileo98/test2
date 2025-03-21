@@ -1,5 +1,32 @@
+# 發展局：葵青區工廈整幢改裝撥部分樓面作建築技術研究用途
+
+  
+
+發展局局長甯漢豪出席「活化工廈」計劃下一個整幢改裝項目的開幕典禮。這座位於葵青區的工廈完成改裝後，業主便按照政府的要求，撥出不少於百分之十樓面面積，設立「設計、研究及訓練中心」。中心會就各項嶄新的建築技術進行研究，其中包括「機電裝備合成法」技術，即「MiMEP」技術。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796853-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796853-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796853-20250321.htm)
+
+---
+
 # 中大文物館新翼開幕　9件國家一級文物首次在港展出
 
+![白玉蘭花紋盒—「嘉靖辛酉陸子剛製」款（中大提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796851_1_20250321215132.jpg&q=90)
+![竹編朱漆描彩人物紋長方盒（左）。沈大生竹雕庭園讀書圖筆筒（右）。（中大提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796851_2_20250321215132.jpg&q=90)
+![中大文物館新翼羅桂祥閣採用懸臂式設計，其特色「V」形支柱代表承接和延續，亦有承托和支撐的含義。（中大提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796851_3_20250321215132.jpg&q=75)
+![中大文物館新翼羅桂祥閣開幕典禮嘉賓合照。（中大提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796851_4_20250321215132.jpg&q=80)
   
 
 中文大學文物館新翼「羅桂祥閣」今日舉行開幕典禮，新翼開幕展覽「浮世清音——晚明江南藝術與文化」亦同時揭幕，將展出來自本地及海內外共193件珍品，涵蓋書畫及各類器物，呈現晚明的物質生活與藝文風貌，其中9件國家一級文物更是首次在港展出。
@@ -1412,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm)
-
----
-
-# 長和：持續地緣政治風險影響全球貿易
-
-![長和：今年由於航運公司轉至新聯盟及持續地緣政治風險影響全球貿易。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796618_1_20250320225955.jpg&q=90)
-  
-
-長和去年港口及相關服務收入升11%，達到452.8億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796618-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796618-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796618-20250320.htm)
 
 ---

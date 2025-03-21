@@ -1,3 +1,27 @@
+# 美股開市後下跌
+
+![美股開市後跌約1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796852_1_20250321214305.jpg&q=90)
+  
+
+紐約股市開市後跌1%，繼續受關稅戰的憂慮影響。快遞公司聯邦快遞因經濟環境不確定，下調全年業績預測。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796852-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796852-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796852-20250321.htm)
+
+---
+
 # 有券商認為證監會限制新股孖展最高借九成對市場氣氛影響不大
 
 ![證監會向所有持牌法團發出內部監控措施指引，要求業界對新股孖展最高只可以借九成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796848_1_20250321210308.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796700-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796700-20250321.htm)
-
----
-
-# 美股反覆低收　中概股指數跌近4%
-
-![道瓊斯指數反覆低收，一度升近290點，收市報41953點，跌11點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796699_1_20250321054044.jpg&q=90)
-  
-
-美股3大指數反覆低收，市場關注經濟數據及貨幣政策前景，美國上星期首次申領失業救濟人數略升至22.3萬人，少過市場預期；2月二手樓銷售出乎預期按月反彈4.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796699-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796699-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796699-20250321.htm)
 
 ---
