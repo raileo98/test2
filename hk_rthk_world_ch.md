@@ -1,5 +1,6 @@
 # 希斯路機場因變電站起火停電　機場要暫停運作
 
+![英國希斯路機場表示，由於為機場供電的變電站發生火警，機場出現嚴重停電。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796740_2_20250321111927.jpg&q=90)
 ![希斯路機場因變電站起火停電，機場要暫停運作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796740_1_20250321105042.jpg&q=85)
   
 

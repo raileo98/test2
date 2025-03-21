@@ -1,5 +1,53 @@
+# 物流公司盼無人機做到即時送貨　中電測試包括葵涌等人口密集地方
+
+  
+
+首批獲批的「監管沙盒」共有38個試點項目，中電輸電及供電業務部高級總監張寶中表示，希望以今次測試透過超視距飛行，進行電網線路檢測，效率有望大幅提升。如果在惡劣天氣後，由無人機作超視距飛行檢查電網，可去到受塌樹等原因阻礙的地方。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm)
+
+---
+
+# 恒指跌幅擴大至逾400點　失守24000點
+
+![恒生指數失守24000點關口後，跌幅逐步擴大至逾400點，較早時報23769點，跌450點，跌幅1.86%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796742_1_20250321110615.jpg&q=90)
+  
+
+港股連跌兩日，恒生指數失守24000點關口後，跌幅逐步擴大至逾400點，較早時報23769點，跌450點，跌幅1.86%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796742-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796742-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796742-20250321.htm)
+
+---
+
 # 希斯路機場因變電站起火停電　機場要暫停運作
 
+![英國希斯路機場表示，由於為機場供電的變電站發生火警，機場出現嚴重停電。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796740_2_20250321111927.jpg&q=90)
 ![希斯路機場因變電站起火停電，機場要暫停運作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796740_1_20250321105042.jpg&q=85)
   
 
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm)
-
----
-
-# 商務部稱中方願同日方共同努力　推動經濟高層對話取得務實成果
-
-![商務部稱中日經濟高層對話時隔六年重啟，具有重要意義。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796612_1_20250320164133.jpg&q=75)
-  
-
-第六次中日經濟高層對話本月22日將在日本東京舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm)
-
----
-
-# 全球金融中心指數報告香港評分升全球排第三　陳茂波稱令人鼓舞
-
-![香港總排名維持全球第三位。（陳茂波社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796661_1_20250320214014.jpg&q=90)
-  
-
-英國Z/Yen集團與中國（深圳）綜合開發研究院，今日發布最新《全球金融中心指數》報告，香港的整體評分上升11分至760分，總排名維持全球第三位，並在亞太區繼續居首。紐約及倫敦繼續分別位居於首位及第二。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm)
 
 ---

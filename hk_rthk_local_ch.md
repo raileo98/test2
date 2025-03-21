@@ -1,3 +1,26 @@
+# 物流公司盼無人機做到即時送貨　中電測試包括葵涌等人口密集地方
+
+  
+
+首批獲批的「監管沙盒」共有38個試點項目，中電輸電及供電業務部高級總監張寶中表示，希望以今次測試透過超視距飛行，進行電網線路檢測，效率有望大幅提升。如果在惡劣天氣後，由無人機作超視距飛行檢查電網，可去到受塌樹等原因阻礙的地方。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm)
+
+---
+
 # 本港上月破產呈請按月跌3.9%　發出清盤令創近15年半新高
 
 ![上月法院發出清盤令66宗，創近15年半單月新高，按月升約14%，按年升83%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796736_1_20250321101810.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796577-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796577-20250320.htm)
-
----
-
-# 李慧琼稱臨時通行證提高人流便捷度　黃國盼擴展至用於出入境
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796575_2_20250320124530.jpg&q=80)
-  
-
-國家出入境管理局宣布，即日起為有需要的港澳台居民簽發臨時電子通行證，以及提供通行證與居住證「雙證關聯」檢驗服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 恒指跌幅擴大至逾400點　失守24000點
+
+![恒生指數失守24000點關口後，跌幅逐步擴大至逾400點，較早時報23769點，跌450點，跌幅1.86%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796742_1_20250321110615.jpg&q=90)
+  
+
+港股連跌兩日，恒生指數失守24000點關口後，跌幅逐步擴大至逾400點，較早時報23769點，跌450點，跌幅1.86%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796742-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796742-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796742-20250321.htm)
+
+---
+
 # 日股半日升近0.4%
 
 ![日經平均指數半日收報37890點，升138點，升幅0.37%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796738_1_20250321103932.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796597-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796597-20250320.htm)
-
----
-
-# 平保：不動產敞口降　配置相對穩定　股價被低估
-
-![付欣表示，於去年底，平保於不動產的敞口由4.1%進一步收窄至3.5% ，配置相對穩定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796596_1_20250320135651.jpg&q=90)
-  
-
-平保首席財務官付欣表示，集團積極響應內地推動中長期資金入市的政策，包括早前向金融監管總局申請參與長期股票投資試點工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796596-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796596-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796596-20250320.htm)
 
 ---
