@@ -1,3 +1,27 @@
+# 外交部：美國應停止干擾破壞中國和伊朗正常商貿合作
+
+![毛寧說，美國應停止干擾破壞中國和伊朗正常的商貿合作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796843_1_20250321203038.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧表示，中方一貫反對濫施非法單邊制裁和長臂管轄，美國應停止干擾破壞中國和伊朗正常的商貿合作。中方將採取一切必要措施，堅決維護中國企業的合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm)
+
+---
+
 # 港深創新科技園首三座大樓下半年營運　旁邊五座料2027年完工
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796815_1_20250321174512.jpg&q=80)
@@ -1410,32 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796234-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796234-20250318.htm)
-
----
-
-# 習近平在貴州黔東南州考察調研
-
-![習近平昨天在貴州省黔東南苗族侗族自治州，考察黎平縣肇興侗寨。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_2_20250318123516.jpg&q=85)
-![近年來，肇興侗寨加大村寨建築空間和房屋風貌保護。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_5_20250318123516.jpg&q=90)
-![習近平到貴州考察調研。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_4_20250318123516.jpg&q=90)
-![習近平到當地了解當地加強基層黨組織建設和社會治理、保護傳承民族傳統文化、推進鄉村全面振興等情況。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796203_3_20250318123516.jpg&q=90)
-  
-
-中共中央總書記、國家主席習近平到貴州省考察調研。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm)
 
 ---

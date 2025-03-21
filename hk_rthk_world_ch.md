@@ -1,3 +1,51 @@
+# 外交部：美國應停止干擾破壞中國和伊朗正常商貿合作
+
+![毛寧說，美國應停止干擾破壞中國和伊朗正常的商貿合作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796843_1_20250321203038.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧表示，中方一貫反對濫施非法單邊制裁和長臂管轄，美國應停止干擾破壞中國和伊朗正常的商貿合作。中方將採取一切必要措施，堅決維護中國企業的合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm)
+
+---
+
+# 倫敦希斯路機場因附近火警全日關閉　消防當局稱大火已受控
+
+![倫敦希斯路機場附近變電站在當地周五發生大火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796841_1_20250321201521.jpg&q=90)
+  
+
+英國倫敦希斯路機場因附近變電站大火，在當地星期五全日關閉。倫敦消防局表示，大火已受到控制，火場附近約有150人撤離。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796841-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796841-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796841-20250321.htm)
+
+---
+
 # 美國司法部長稱已就特斯拉遭破壞事件起訴3人
 
 ![美國紐約特斯拉門店外早前有民眾抗議，表達對馬斯克的不滿。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796834_1_20250321191441.jpg&q=80)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm)
-
----
-
-# 外交部駐港公署：強烈不滿澳方為反中亂港分子撐腰打氣
-
-![發言人說，中方敦促澳方停止為犯罪分子提供「庇護所」。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796426_1_20250319160822.jpg&q=90)
-  
-
-外交部駐港公署發言人說，澳洲個別政客對所謂「香港警方在澳洲開展執法行動」表達關切，公然為反中亂港分子撐腰打氣，栽贓抹黑香港特區政府，公署表示強烈不滿和堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm)
-
----
-
-# 中方促美方立即停止封鎖制裁古巴　多做有利美古關係改善事情
-
-![毛寧說， 所謂「強迫勞動」已成為美國打壓異己的完美藉口和霸權工具。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796423_1_20250319155848.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧表示，中方反對濫施脅迫外交，敦促美方立即停止打著任何旗號，對古巴實施封鎖制裁，把古巴從支恐國家名單中移除，多做有利美古關係改善的事情，多做真正幫助加勒比國家的實事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm)
 
 ---
