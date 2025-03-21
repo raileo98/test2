@@ -1,3 +1,27 @@
+# 歐股周五低收　本周走勢個別發展
+
+![歐洲主要股市周五收市下跌，本周走勢個別發展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796872_1_20250322051207.jpg&q=90)
+  
+
+歐洲主要股市周五收市下跌，本周走勢個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796872-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796872-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796872-20250322.htm)
+
+---
+
 # 美股開市後下跌
 
 ![美股開市後跌約1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796852_1_20250321214305.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796702-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796702-20250321.htm)
-
----
-
-# 法德股市低收近1%或以上
-
-![德國DAX指數報22999點，跌288點，跌幅1.24%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796700_1_20250321054416.jpg&q=90)
-  
-
-歐洲主要股市收市下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796700-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796700-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796700-20250321.htm)
 
 ---

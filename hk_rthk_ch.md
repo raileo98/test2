@@ -1,3 +1,27 @@
+# 歐股周五低收　本周走勢個別發展
+
+![歐洲主要股市周五收市下跌，本周走勢個別發展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796872_1_20250322051207.jpg&q=90)
+  
+
+歐洲主要股市周五收市下跌，本周走勢個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796872-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796872-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796872-20250322.htm)
+
+---
+
 # 警方旺角反罪惡拘捕33人
 
 ![警方在旺角一連兩日採取反罪惡行動，拘捕33人，圖為部分被捕人士。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796870_1_20250322034616.jpg&q=75)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796808-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796808-20250321.htm)
-
----
-
-# 南韓本月31日起全面取消股市沽空禁令
-
-![南韓將於本月31日起，全面取消國內股市沽空禁令。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796795_1_20250321161406.jpg&q=90)
-  
-
-南韓金融監管機構表示，將於本月31日起，全面取消國內股市沽空禁令，是5年來首次取消有關禁令。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796795-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796795-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796795-20250321.htm)
 
 ---
