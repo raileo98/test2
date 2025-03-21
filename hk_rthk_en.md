@@ -1,3 +1,27 @@
+# Diaz Hernandez takes first gold in Nanjing
+
+![Andy Diaz Hernandez celebrates after winning the men’s triple jump final during the Indoor World Athletics Championships in Nanjing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796776_1_20250321140117.jpg&q=85)
+  
+
+Italy's Olympic bronze medallist Andy Diaz Hernandez produced a stunning early effort of 17.8 metres to capture the triple jump gold medal in the first final of the world indoor athletics championships on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm)
+
+---
+
 # Norris chalks up fastest practice lap in Chinese GP
 
 ![Mechanics work on Lando Norris' car in the pits during the first practice session of the Formula One Chinese Grand Prix at the Shanghai International Circuit. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796771_1_20250321132157.jpg&q=85)
@@ -24,7 +48,7 @@ Lando Norris was fastest in practice on Friday for the Chinese Grand Prix, the c
 
 # HK$3bn scheme to support academic research: CE
 
-![Chief Executive John Lee says scholars and scientists play a critical role in aiding Hong Kong's tech ambitions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796766_1_20250321125749.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796766_1_20250321125749.jpg&q=80)
   
 
 Chief Executive John Lee on Friday said the city will soon launch a HK$3 billion scheme to support local academic and scientific research, as authorities ramp up efforts to transition Hong Kong into a global innovation and technology centre.
@@ -1415,29 +1439,5 @@ Wall Street stocks rose on Wednesday after the Federal Reserve kept interest rat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796513-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796513-20250320.htm)
-
----
-
-# Trump suggests US takeover of Ukraine's power plants
-
-![The White House said that during the call Trump (Left) had floated US "ownership" of Ukrainian power plants as it would be the "best protection" for them. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796505_1_20250320032202.jpg&q=90)
-  
-
-US President Donald Trump hailed a "very good" call with Ukraine's Volodymyr Zelensky on Wednesday, a day after Russia's Vladimir Putin agreed to temporarily halt attacks on Kyiv's power plants.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796505-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796505-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796505-20250320.htm)
 
 ---

@@ -1,6 +1,6 @@
 # HK$3bn scheme to support academic research: CE
 
-![Chief Executive John Lee says scholars and scientists play a critical role in aiding Hong Kong's tech ambitions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796766_1_20250321125749.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796766_1_20250321125749.jpg&q=80)
   
 
 Chief Executive John Lee on Friday said the city will soon launch a HK$3 billion scheme to support local academic and scientific research, as authorities ramp up efforts to transition Hong Kong into a global innovation and technology centre.

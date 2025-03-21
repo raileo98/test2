@@ -1,5 +1,29 @@
+# 法國領先航空與機管局簽署備忘錄　陳茂波：香港商業環境充滿活力
+
+  
+
+法國領先航空服務公司Elior Group SA計劃拓展香港業務，與機管局簽署合作備忘錄，探討在港提供飛機拆解、部件回收、人才培訓等專業服務，推動香港發展成為亞洲首個飛機部件處理及交易中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm)
+
+---
+
 # 希斯路機場附近變電站內一半變壓器仍焚燒　吉域機場按需要支援
 
+![希斯路機場航班大受影響。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796775_1_20250321140402.jpg&q=90)
   
 
 英國希斯路機場因附近變電站大火導致當地周五全日關閉的事故，消防指變電站內一半變壓器仍在焚燒，10架消防車及至少70名消防員奉召到場，預計將會是持久戰，天光前消防員都會在現場。消防又指火警導致停電，影響大批家庭及企業，正與夥伴密切合作盡量減少影響。
@@ -23,6 +47,7 @@
 
 # 國泰今日兩班往倫敦航班及所有由倫敦回港航班取消
 
+![國泰航空今日由香港前往倫敦的CX239及CX253航班已經取消。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796774_1_20250321140504.jpg&q=90)
   
 
 國泰航空表示，知悉倫敦希斯路機場臨時關閉至直另行通知。公司今日由香港前往倫敦的CX239及CX253航班已經取消；而今日所有由倫敦前往香港的國泰航班亦已全部取消。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796352-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796352-20250319.htm)
-
----
-
-# 巴勒斯坦要求就以軍空襲加沙召開阿盟理事會特別會議
-
-![以軍發出疏散令後，在加沙地帶北部的巴勒斯坦民眾被迫撤離。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796347_1_20250319075132.jpg&q=85)
-  
-
-針對以軍對加沙地帶發動空襲，巴勒斯坦要求召開阿拉伯國家聯盟理事會特別會議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796347-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796347-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796347-20250319.htm)
 
 ---

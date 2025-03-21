@@ -1,3 +1,26 @@
+# 法國領先航空與機管局簽署備忘錄　陳茂波：香港商業環境充滿活力
+
+  
+
+法國領先航空服務公司Elior Group SA計劃拓展香港業務，與機管局簽署合作備忘錄，探討在港提供飛機拆解、部件回收、人才培訓等專業服務，推動香港發展成為亞洲首個飛機部件處理及交易中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm)
+
+---
+
 # 招金礦業去年盈利升1.1倍
 
 ![招金礦業去年盈利14.5億元人民幣，按年升1.1倍。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796768_1_20250321130553.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796623-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796623-20250320.htm)
-
----
-
-# 長和去年盈利跌27%　基本盈利跌11%
-
-![長和去年盈利170.9億元，按年跌27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796616_1_20250320165745.jpg&q=80)
-  
-
-長和去年盈利170.9億元，按年跌27%。撇除越南電訊業務利潤、一次性非現金減值及其他撥備，基本盈利跌11%至208.3億元。末期息每股1.514元，按年跌15%。全年派息2.202元，亦跌13%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm)
 
 ---

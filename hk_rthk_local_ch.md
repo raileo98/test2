@@ -1,5 +1,29 @@
+# 法國領先航空與機管局簽署備忘錄　陳茂波：香港商業環境充滿活力
+
+  
+
+法國領先航空服務公司Elior Group SA計劃拓展香港業務，與機管局簽署合作備忘錄，探討在港提供飛機拆解、部件回收、人才培訓等專業服務，推動香港發展成為亞洲首個飛機部件處理及交易中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm)
+
+---
+
 # 國泰今日兩班往倫敦航班及所有由倫敦回港航班取消
 
+![國泰航空今日由香港前往倫敦的CX239及CX253航班已經取消。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796774_1_20250321140504.jpg&q=90)
   
 
 國泰航空表示，知悉倫敦希斯路機場臨時關閉至直另行通知。公司今日由香港前往倫敦的CX239及CX253航班已經取消；而今日所有由倫敦前往香港的國泰航班亦已全部取消。
@@ -69,9 +93,13 @@
 
 ---
 
-# 按兩申報周期及享4年綠表資格　黃碧如稱富戶有8年時間計劃未來
+# 黃碧如：修訂富戶政策非為增加政府收入　優化措施鼓勵富戶向上流
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796767_1_20250321141902.jpg&q=90)
   
+
+房委會資助房屋小組委員會通過修訂「富戶」政策，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。委員會主席黃碧如會後表示，小組委員經審視後，決定暫不降低要求富戶遷出的水平，主要考慮到最近有關「簡樸房」的規定，措施可能令市場上細小單位減少，加上外來專才亦有住屋需求，因此現時並不適合降低富戶遷出水平，增加私人市場的租屋需求。
+
   
 
 
@@ -1411,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796609-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796609-20250320.htm)
-
----
-
-# 盧國沾離世終年75歲　羅淑佩表示哀悼形容是香港文化界重大損失
-
-![文化體育及旅遊局指，盧國沾是香港詞壇與樂壇的翹楚，以筆為舟，承載香江歲月的滄桑與情懷。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796608_1_20250320161508.jpg&q=90)
-  
-
-本港著名填詞人盧國沾離世，終年75歲。文化體育及旅遊局局長羅淑佩對香港著名填詞人盧國沾辭世表示哀悼，並向他的家人致以深切慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796608-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796608-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796608-20250320.htm)
 
 ---
