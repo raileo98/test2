@@ -1,8 +1,54 @@
+# 房委會通過收緊公屋富戶政策　額外租金調高至2.5至4.5倍
+
+  
+
+房委會資助房屋小組委員會通過收緊「富戶政策」，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796755-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796755-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796755-20250321.htm)
+
+---
+
+# 減省公務員工作流程提升效率　楊何蓓茵：並非不理大家死活
+
+  
+
+立法會一個委員會討論公務員2025/26年度凍薪，以及在本屆政府任期內削減約1萬個職位等事項。公務員事務局局長楊何蓓茵表示，現時公務員編制有約10%空缺，希望各部門作出檢視，了解有關職位是否仍有需要，若無需要就不再重新招聘。她強調未來並非「不理大家死活」，要求由10個人做，變成8個人做，而是希望透過減省工作流程，重訂工作優次，令工作更有效率和成效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm)
+
+---
+
 # 皇后山邨兩童一度危坐單位外牆及窗台　由消防帶回安全位置
 
   
 
-粉嶺皇后山邨皇樂樓一個單位，早上有兩名幼童分別危坐大廈外牆及冷氣機窗台，消防及後到場成功將他們帶回安全位置。
+粉嶺皇后山邨皇樂樓一個低層單位，早上有兩名幼童分別危坐大廈外牆及冷氣機窗台，消防及後到場成功將他們帶回安全位置。
 
   
 
@@ -47,6 +93,7 @@
 
 # 陳美寶冀低空經濟監管沙盒累積經驗　強調安全至上
 
+![陳美寶表示，低空經濟監管沙盒申請反應熱烈，希望從中累積經驗，強調安全至上。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796752_1_20250321120322.jpg&q=90)
   
 
 運輸及物流局局長陳美寶表示，低空經濟監管沙盒申請反應熱烈，希望從中累積經驗，強調安全至上。
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm)
-
----
-
-# 以軍稱在加沙地帶北部展開地面行動
-
-![以色列在加沙最新一輪空襲，導致有建築物變成廢墟。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796671_1_20250320212840.jpg&q=85)
-  
-
-以色列國防軍表示，以軍已開始在加沙地帶北部展開地面行動，並在行動前打擊當地隸屬巴勒斯坦武裝組織哈馬斯的基礎設施和反坦克導彈陣地，目前已推進至拜特拉希耶附近的沿海公路。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm)
-
----
-
-# 李家超：港珠澳大橋去年客流車流按年增七成　推進粵港「硬聯通」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796670_1_20250320213054.jpg&q=90)
-  
-
-行政長官李家超表示，香港與廣東同根同源，一起攜手推進大灣區發展，開創新格局，去年港珠澳大橋的客流和車流，分別超過2700萬人次和555萬輛次，按年分別增長超過70%，創歷史新高，進一步推進粵港「硬聯通」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm)
 
 ---

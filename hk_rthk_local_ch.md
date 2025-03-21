@@ -1,8 +1,54 @@
+# 房委會通過收緊公屋富戶政策　額外租金調高至2.5至4.5倍
+
+  
+
+房委會資助房屋小組委員會通過收緊「富戶政策」，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796755-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796755-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796755-20250321.htm)
+
+---
+
+# 減省公務員工作流程提升效率　楊何蓓茵：並非不理大家死活
+
+  
+
+立法會一個委員會討論公務員2025/26年度凍薪，以及在本屆政府任期內削減約1萬個職位等事項。公務員事務局局長楊何蓓茵表示，現時公務員編制有約10%空缺，希望各部門作出檢視，了解有關職位是否仍有需要，若無需要就不再重新招聘。她強調未來並非「不理大家死活」，要求由10個人做，變成8個人做，而是希望透過減省工作流程，重訂工作優次，令工作更有效率和成效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm)
+
+---
+
 # 皇后山邨兩童一度危坐單位外牆及窗台　由消防帶回安全位置
 
   
 
-粉嶺皇后山邨皇樂樓一個單位，早上有兩名幼童分別危坐大廈外牆及冷氣機窗台，消防及後到場成功將他們帶回安全位置。
+粉嶺皇后山邨皇樂樓一個低層單位，早上有兩名幼童分別危坐大廈外牆及冷氣機窗台，消防及後到場成功將他們帶回安全位置。
 
   
 
@@ -23,6 +69,7 @@
 
 # 陳美寶冀低空經濟監管沙盒累積經驗　強調安全至上
 
+![陳美寶表示，低空經濟監管沙盒申請反應熱烈，希望從中累積經驗，強調安全至上。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796752_1_20250321120322.jpg&q=90)
   
 
 運輸及物流局局長陳美寶表示，低空經濟監管沙盒申請反應熱烈，希望從中累積經驗，強調安全至上。
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796593-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796593-20250320.htm)
-
----
-
-# 社企藉活動改善青年長者精神健康　匯豐基金撥1800萬助辦活動
-
-![匯豐慈善基金今年再撥出1800萬元，供全港18區不同慈善機構舉辦活動。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796592_1_20250320134545.jpg&q=90)
-  
-
-匯豐慈善基金今年再撥出1800萬元，供全港18區不同慈善機構舉辦活動，以創造跨代連繫的生活環境，希望減少長者的社交孤獨感。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796592-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796592-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796592-20250320.htm)
-
----
-
-# 渣打香港：港元最優惠貸款利率維持5.5厘
-
-![渣打香港表示，港元最優惠貸款利率維持於5.5厘。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796588_1_20250320125149.jpg&q=90)
-  
-
-渣打香港表示，港元最優惠貸款利率維持於5.5厘，港元儲蓄戶口利率亦維持不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796588-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796588-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796588-20250320.htm)
 
 ---
