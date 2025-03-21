@@ -1,3 +1,27 @@
+# 皇后山邨兩童獲救父母被捕　據了解哥哥疑鎖匙開窗花與弟弟爬出窗
+
+![據了解，兩名男童與父母同住，案發時男童父母仍在睡覺，哥哥懷疑自行拿取鎖匙打開窗花，並與弟弟爬出窗外。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796785_1_20250321152800.jpg&q=85)
+  
+
+粉嶺皇后山邨皇樂樓一個低層單位，早上有兩名分別年約3歲及5歲男童，一度危坐大廈外窗台，兩童已被救回安全位置，他們並無大礙，無表面傷痕，送往北區醫院檢查。據了解，男童分別32歲及29歲的父母，涉嫌「對所看管兒童虐待或忽略」被捕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796785-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796785-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796785-20250321.htm)
+
+---
+
 # 內地股市低收逾1%至逾2%　全星期累計亦跌
 
 ![內地股市低收逾1%至逾2%，本周累計亦跌近2%至逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796784_1_20250321150709.jpg&q=90)
@@ -24,6 +48,9 @@
 
 # 大熊貓龍鳳胎明起與媽媽同框見公眾　參觀時間約3分鐘須領時間票
 
+![「家姐」、「細佬」明日起，首度與媽媽「盈盈」「同框」展出。（海洋公園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796783_3_20250321152602.jpg&q=85)
+![大熊貓龍鳳胎「家姐」、「細佬」明日起，首度與媽媽「盈盈」在海洋公園「大熊貓之旅」同一個展館「同框」展出。（海洋公園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796783_1_20250321152315.jpg&q=85)
+![園方稍後將公布今年1月出生的雌性川金絲猴寶寶的名字候選名單，市民可以投選認為最適合的名字。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796783_2_20250321152315.jpg&q=75)
   
 
 大熊貓龍鳳胎「家姐」、「細佬」明日起，首度與媽媽「盈盈」在海洋公園「大熊貓之旅」同一個展館「同框」展出，爸爸「樂樂」則繼續獨立展出。展館開放時間將延長至下午4時半。
@@ -430,7 +457,7 @@
 
 # 海關搜上水元朗5店拘5人　檢9千件冒牌化妝品護膚品香水
 
-![海關檢獲約9000件懷疑冒牌香水、化妝品及護膚品，估計市值約200萬元。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796764_1_20250321130729.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796764_1_20250321130729.jpg&q=80)
   
 
 海關在打擊售賣冒牌物品的行動中，檢獲約9000件懷疑冒牌香水、化妝品及護膚品，估計市值約200萬元，行動中5人被捕。
