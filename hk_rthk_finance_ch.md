@@ -1,3 +1,51 @@
+# 招金礦業去年盈利升1.1倍
+
+![招金礦業去年盈利14.5億元人民幣，按年升1.1倍。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796768_1_20250321130553.jpg&q=85)
+  
+
+招金礦業去年盈利14.5億元人民幣，按年升1.1倍，由於金價上升及產銷量增加。派現金股息每股5分人民幣，按年升25%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796768-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796768-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796768-20250321.htm)
+
+---
+
+# 華潤飲料去年多賺23%
+
+![怡寶母公司華潤飲料去年盈利16.4億元人民幣，按年升23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796759_1_20250321123608.jpg&q=85)
+  
+
+華潤飲料去年盈利16.4億元人民幣，按年升23%。派末期息每股30.7分人民幣，另派特別息17.6分。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796759-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796759-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796759-20250321.htm)
+
+---
+
 # 中國建築去年盈利升2%
 
 ![中國建築去年盈利93.6億港元，按年升2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796756_1_20250321121428.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796616-20250320.htm)
-
----
-
-# 2月份整體消費物價按年升1.4%　升幅收窄因去年比較基數較高
-
-![統計處公布，2月份整體消費物價按年升1.4%，較1月份的2%升幅為低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796613_1_20250320172014.jpg&q=75)
-  
-
-政府統計處公布，2月份整體消費物價按年升1.4%，較1月份的2%升幅為低，升幅收窄主要是由於去年農曆新年在2月份，導致比較基數較高，尤其是食品價格及旅遊費用。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796613-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796613-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796613-20250320.htm)
-
----
-
-# 仲量聯行：本港2月甲級寫字樓錄正吸納量　整體租金持續下跌
-
-![截至2月底本港寫字樓空置率保持13.3%，中環空置率升至11.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796609_1_20250320160302.jpg&q=80)
-  
-
-物業顧問仲量聯行報告指出，本港2月整體寫字樓租賃市場錄得7200平方呎淨吸納量。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796609-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796609-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796609-20250320.htm)
 
 ---

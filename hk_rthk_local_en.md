@@ -1,6 +1,30 @@
+# HK$3bn scheme to support academic research: CE
+
+![Chief Executive John Lee says scholars and scientists play a critical role in aiding Hong Kong's tech ambitions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796766_1_20250321125749.jpg&q=80)
+  
+
+Chief Executive John Lee on Friday said the city will soon launch a HK$3 billion scheme to support local academic and scientific research, as authorities ramp up efforts to transition Hong Kong into a global innovation and technology centre.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm)
+
+---
+
 # All eyes on safety in low-altitude test runs
 
-![Mable Chan says future beyond line-of-sight flights will be based on flight data collected from line-of-sight runs and assessments of safety considerations. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796743_1_20250321110918.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796743_1_20250321110918.jpg&q=90)
   
 
 Transport chief Mable Chan said on Friday most pilot projects in Hong Kong's first-ever low-altitude economy test run will be operated manually and within the line of sight.
@@ -1415,29 +1439,5 @@ Financial Secretary Paul Chan said grooming local tech talent and attracting peo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795917-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795917-20250316.htm)
-
----
-
-# 'National Games test events show room for improvement'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795914_1_20250316112203.jpg&q=90)
-  
-
-The local official who heads the National Games Coordination Office on Sunday said test runs for cross-border sports events have shown there is room for improvement.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm)
 
 ---

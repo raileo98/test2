@@ -168,7 +168,7 @@ Beijing on Thursday demanded protections for Chinese students in the US after a 
 
 # Trump moves to shut down Department of Education
 
-![US President Donald Trump speaks during an event to sign an executive order to shut down the Department of Education. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796723_1_20250321092630.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796723_1_20250321092630.jpg&q=75)
   
 
 US President Donald Trump on Thursday signed an executive order aimed at shutting down the Department of Education, a decades-old goal of the American right, which wants individual states to run schools free from the influence of federal government.

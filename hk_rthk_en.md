@@ -1,3 +1,27 @@
+# HK$3bn scheme to support academic research: CE
+
+![Chief Executive John Lee says scholars and scientists play a critical role in aiding Hong Kong's tech ambitions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796766_1_20250321125749.jpg&q=80)
+  
+
+Chief Executive John Lee on Friday said the city will soon launch a HK$3 billion scheme to support local academic and scientific research, as authorities ramp up efforts to transition Hong Kong into a global innovation and technology centre.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm)
+
+---
+
 # Vinicius dashes Colombia hopes with late winner
 
 ![Vinicius Jr and a teammate celebrate after the stoppage-time winner against Colombia at the Mane Garrincha stadium in Brasilia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796760_1_20250321123836.jpg&q=85)
@@ -24,7 +48,7 @@ Vinicius Junior struck a dramatic winner in the ninth minute of stoppage time to
 
 # All eyes on safety in low-altitude test runs
 
-![Mable Chan says future beyond line-of-sight flights will be based on flight data collected from line-of-sight runs and assessments of safety considerations. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796743_1_20250321110918.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796743_1_20250321110918.jpg&q=90)
   
 
 Transport chief Mable Chan said on Friday most pilot projects in Hong Kong's first-ever low-altitude economy test run will be operated manually and within the line of sight.
@@ -336,7 +360,7 @@ Beijing on Thursday demanded protections for Chinese students in the US after a 
 
 # Trump moves to shut down Department of Education
 
-![US President Donald Trump speaks during an event to sign an executive order to shut down the Department of Education. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796723_1_20250321092630.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796723_1_20250321092630.jpg&q=75)
   
 
 US President Donald Trump on Thursday signed an executive order aimed at shutting down the Department of Education, a decades-old goal of the American right, which wants individual states to run schools free from the influence of federal government.
@@ -1415,29 +1439,5 @@ Malaysia has agreed to the terms and conditions of an agreement with exploration
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm)
-
----
-
-# 'King's Park site will still be used for healthcare'
-
-![The government says the King's Park site, currently home to Queen Elizabeth Hospital, will be retained for healthcare purposes. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796481_1_20250319221730.jpg&q=80)
-  
-
-The government on Wednesday said the King's Park site, currently home to Queen Elizabeth Hospital, will be retained for healthcare purposes despite a relocation plan.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm)
 
 ---

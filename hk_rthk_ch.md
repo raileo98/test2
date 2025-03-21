@@ -1,3 +1,74 @@
+# 皇后山邨兩童一度危坐窗台　消息：警方就疏忽照顧拘捕父母
+
+  
+
+粉嶺皇后山邨皇樂樓早上有兩名分別年約3歲及5歲男童，一度危坐大廈外窗台，兩童已被救回安全位置，他們並無大礙，無表面傷痕，送往北區醫院檢查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796770-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796770-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796770-20250321.htm)
+
+---
+
+# 招金礦業去年盈利升1.1倍
+
+![招金礦業去年盈利14.5億元人民幣，按年升1.1倍。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796768_1_20250321130553.jpg&q=85)
+  
+
+招金礦業去年盈利14.5億元人民幣，按年升1.1倍，由於金價上升及產銷量增加。派現金股息每股5分人民幣，按年升25%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796768-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796768-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796768-20250321.htm)
+
+---
+
+# 華潤飲料去年多賺23%
+
+![怡寶母公司華潤飲料去年盈利16.4億元人民幣，按年升23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796759_1_20250321123608.jpg&q=85)
+  
+
+華潤飲料去年盈利16.4億元人民幣，按年升23%。派末期息每股30.7分人民幣，另派特別息17.6分。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796759-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796759-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796759-20250321.htm)
+
+---
+
 # 中國建築去年盈利升2%
 
 ![中國建築去年盈利93.6億港元，按年升2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796756_1_20250321121428.jpg&q=90)
@@ -1410,29 +1481,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm)
-
----
-
-# 香港航空乘客憶述行李架著火時感到害怕　自費坐其他公司航機返港
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796683_1_20250320235720.jpg&q=90)
-  
-
-香港航空下午一架由杭州飛往香港的客機，飛行途中機艙行李架起火，改道安全降落於福州機場。港航安排另一班航機到福州接載乘客返港，預計深夜返抵本港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796683-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796683-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796683-20250320.htm)
 
 ---
