@@ -24,6 +24,7 @@
 
 # 港投與芯片公司合作　陳茂波稱加快芯片行業變革有更大創新空間
 
+![陳茂波說，RISC-V開源架構將加快芯片行業變革。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796758_1_20250321125135.jpg&q=85)
   
 
 香港投資管理公司和芯片研發公司賽昉科技啟動戰略合作。
