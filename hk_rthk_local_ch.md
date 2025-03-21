@@ -1,3 +1,26 @@
+# 希斯路機場因火警事故關閉　香港寄往英國郵件派遞服務有延誤
+
+  
+
+香港郵政宣布，接獲航空公司通知，英國希斯路機場因火警事故關閉，寄往英國的郵件派遞服務會有延誤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796840-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796840-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796840-20250321.htm)
+
+---
+
 # 本港增一宗猴痘確診個案　患者情況穩定
 
 ![衞生防護中心初步調查顯示，患者於潛伏期內曾在香港有高風險接觸。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796838_1_20250321194920.jpg&q=80)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm)
-
----
-
-# 民航處暫無收到香港航空機艙行李架起火有人受傷報告　會積極跟進
-
-![多名機艙服務員和乘客打開行李架後，不斷用樽裝水和飲品向冒煙的行李淋水。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796662_1_20250320213157.jpg&q=90)
-  
-
-香港航空一架由杭州飛往香港的客機，飛行途中機艙行李架起火，改道安全降落於福州機場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm)
 
 ---

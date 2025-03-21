@@ -1,3 +1,26 @@
+# 希斯路機場因火警事故關閉　香港寄往英國郵件派遞服務有延誤
+
+  
+
+香港郵政宣布，接獲航空公司通知，英國希斯路機場因火警事故關閉，寄往英國的郵件派遞服務會有延誤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796840-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796840-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796840-20250321.htm)
+
+---
+
 # 俄羅斯維持利率不變　指標利率維持21厘
 
 ![俄羅斯央行維持指標利率21厘不變，表示未來可能進一步加息，因通脹壓力居高不下。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796839_1_20250321192742.jpg&q=80)
