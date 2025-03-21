@@ -1,6 +1,6 @@
-# Record number of deaths on migration routes in 2024
+# 'Record number of deaths on migration routes in 2024'
 
-![The UN has recorded a total of 2,452 people dying in the Mediterranean Sea, the main gateway for those trying to reach Europe.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796832_1_20250321183806.jpg&q=90)
+![The UN has recorded a total of 2,452 people dying in the Mediterranean Sea, the main gateway for those trying to reach Europe. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796832_1_20250321183806.jpg&q=90)
   
 
 Last year was the deadliest year for migrants, with nearly 9,000 people dying worldwide, the United Nations said on Friday, calling the "tragedy... unacceptable and preventable".

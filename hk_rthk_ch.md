@@ -1,3 +1,26 @@
+# 李家超稱今年內完成港深創新及科技園區第二期詳細規則
+
+  
+
+行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規則，已指示內部提速、提效，推動園區工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796830-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796830-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796830-20250321.htm)
+
+---
+
 # 大熊貓龍鳳胎明起與盈盈在海洋公園同一展館與公眾見面
 
   

@@ -1,3 +1,26 @@
+# 李家超稱今年內完成港深創新及科技園區第二期詳細規則
+
+  
+
+行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規則，已指示內部提速、提效，推動園區工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796830-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796830-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796830-20250321.htm)
+
+---
+
 # 世界50最佳酒吧頒獎禮首落戶香港　10月連同美酒佳餚巡禮登場
 
 ![旅發局宣布，成功爭取全球酒吧業年度盛事「世界50最佳酒吧」2025頒獎典禮，首度落戶香港。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796822_1_20250321182134.jpg&q=85)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796666-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796666-20250320.htm)
-
----
-
-# 李強到福建調研　強調要深入貫徹習近平在全國兩會期間講話精神
-
-![李強在福建調研時說，要深入貫徹習近平總書記在全國兩會期間的重要講話精神，加快構建高水平對外開放新優勢。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796665_1_20250320204447.jpg&q=90)
-  
-
-中共中央政治局常委、國務院總理李強周二起一連三日在福建調研。他說，要深入貫徹中共中央總書記習近平在全國兩會期間的重要講話精神，認真落實兩會明確的各項任務，以開拓創新精神做好穩外貿工作，加快構建高水平對外開放新優勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm)
 
 ---

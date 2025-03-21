@@ -1,3 +1,26 @@
+# 李家超稱今年內完成港深創新及科技園區第二期詳細規則
+
+  
+
+行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規則，已指示內部提速、提效，推動園區工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796830-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796830-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796830-20250321.htm)
+
+---
+
 # 大熊貓龍鳳胎明起與盈盈在海洋公園同一展館與公眾見面
 
   
@@ -1410,30 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm)
-
----
-
-# 57人投訴付款訂購結婚戒指後未能收貨　警拘一婚戒公司董事
-
-![海關商品說明調查科署理高級貿易管制主任伍慧明表示，涉案婚戒設計公司近期多次以各種理由不斷延遲交付客人所訂購的結婚戒指，至本月初更失去聯絡及結業。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796657_1_20250320203907.jpg&q=80)
-![涉案婚戒設計公司本月初突然結業（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796657_2_20250320203907.jpg&q=90)
-  
-
-一間婚戒設計公司本月初突然結業，海關拘捕公司唯一董事，涉嫌於銷售貨物時，作出不當地接受付款的營業行為，違反《商品說明條例》。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796657-20250320.htm)
 
 ---
