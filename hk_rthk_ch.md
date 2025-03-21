@@ -1,3 +1,123 @@
+# 內地股市初段偏軟
+
+![上證綜合指數較早時報3407點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796726_1_20250321093417.jpg&q=90)
+  
+
+滬深股市在開市初段偏軟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796726-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796726-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796726-20250321.htm)
+
+---
+
+# 人民幣兌美元中間價微跌至逾兩個月低位
+
+![人民幣中間價報7.176兌1美元，跌6點子，創逾兩個月低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796720_1_20250321091954.jpg&q=85)
+  
+
+人民幣中間價報7.176兌1美元，較上日中間價跌6點子，創逾兩個月低位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796720-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796720-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796720-20250321.htm)
+
+---
+
+# 恒指競價時段跌110點
+
+![恒生指數競價時段報24109點，跌110點，跌幅0.46%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796722_1_20250321092357.jpg&q=65)
+  
+
+港股在競價時段下跌，恒生指數報24109點，跌110點，跌幅0.46%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796722-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796722-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796722-20250321.htm)
+
+---
+
+# 監管沙盒試點項目遍布不同地域　陳美寶：初時會在視線範圍進行
+
+![陳美寶強調安全是重要考慮，無人機有包括螺旋槳等安全裝置及後備功能，要應對突發情況，以及有適合地點降落。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796719_1_20250321092457.jpg&q=90)
+  
+
+政府正推動低空經濟，首批「監管沙盒」38個試點項目出爐。運輸及物流局局長陳美寶形容反應熱烈，是從72個申請者經審批選出的首批優先試驗項目，試點項目涉及物流配送、空中交通管理系統、緊急救援、貨物配送，以及公共基礎設施巡查等範疇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm)
+
+---
+
+# 北韓試射最新型防空導彈武器系統
+
+![北韓領袖金正恩觀摩了最新型防空導彈武器系統試射。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796718_1_20250321091454.jpg&q=90)
+  
+
+朝中社報道，北韓導彈總局昨日對相關軍工企業正式開始生產的最新型防空導彈武器系統，進行綜合戰鬥性能檢驗試射，領袖金正恩觀摩了試射。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796718-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796718-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796718-20250321.htm)
+
+---
+
 # 台股初段向下
 
 ![台灣加權指數較早時報22295點，跌81點，跌幅0.36%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796717_1_20250321090901.jpg&q=90)
@@ -1318,125 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm)
-
----
-
-# 國泰航空上月載客量按年升逾14%　香港快運載客量升32%
-
-![國泰航空上月載客量按年增長14.3%至205.9萬人次，載客率升至82.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796648_1_20250320183227.jpg&q=90)
-  
-
-國泰航空上月載客量按年增長14.3%至205.9萬人次，載客率升至82.9%。首兩個月載客量升25.4%至441.1萬人次，載客率升至84.7%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm)
-
----
-
-# 西藏原黨委書記吳英杰承認受賄　法庭擇期宣判
-
-![西藏原黨委書記吳英杰承認受賄　法庭擇期宣判](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796653_1_20250320184254.jpg&q=90)
-  
-
-西藏自治區原黨委書記吳英杰涉嫌受賄案，在北京市第三中級人民法院一審開庭審理，吳英杰認罪悔罪，法庭擇期宣判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796653-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796653-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796653-20250320.htm)
-
----
-
-# AI初創公司以無人機檢查外牆　指監管沙盒項目有助減省人手
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796645_1_20250320184001.jpg&q=90)
-  
-
-首批低空經濟「監管沙盒」試點項目當中，有人工智能初創公司利用無人機技術，協助包括房協等機構的外牆檢查，今次參與監管沙盒，可讓他們在試點全自動操作，協助減省人手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796645-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796645-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796645-20250320.htm)
-
----
-
-# 第六次中日經濟高層對話後天東京舉行　時隔六年重啟
-
-![何咏前說，當前中日關係呈現改善發展的良好積極勢頭。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796651_1_20250320183913.jpg&q=90)
-  
-
-第六次中日經濟高層對話本月22日將在日本東京舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm)
-
----
-
-# 恒地去年盈利跌32%　基礎盈利升1%
-
-![恒地計劃今年在港推售11個項目，連同存貨，預計今年可供銷售單位有約6400個。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796644_1_20250320181719.jpg&q=90)
-  
-
-恒地去年盈利約63億元，按年減少32%。派末期息每股1.3元，全年派息維持1.8元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796644-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796644-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796644-20250320.htm)
 
 ---

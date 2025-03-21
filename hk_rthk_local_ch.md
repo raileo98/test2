@@ -1,3 +1,27 @@
+# 監管沙盒試點項目遍布不同地域　陳美寶：初時會在視線範圍進行
+
+![陳美寶強調安全是重要考慮，無人機有包括螺旋槳等安全裝置及後備功能，要應對突發情況，以及有適合地點降落。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796719_1_20250321092457.jpg&q=90)
+  
+
+政府正推動低空經濟，首批「監管沙盒」38個試點項目出爐。運輸及物流局局長陳美寶形容反應熱烈，是從72個申請者經審批選出的首批優先試驗項目，試點項目涉及物流配送、空中交通管理系統、緊急救援、貨物配送，以及公共基礎設施巡查等範疇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm)
+
+---
+
 # 香港報業評議會上年度接獲投訴按年增逾兩倍　九成涉及失實
 
 ![香港報業評議會召開會員大會，改選新一屆執行委員會。(香港報業評議會提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796688_1_20250321010509.jpg&q=90)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796565-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796565-20250320.htm)
-
----
-
-# 金管局：本港利率或仍處於較高水平　市民要小心管理利率風險
-
-![金管局表示，本港利率於可見一段時間內仍可能會處於較高水平，市民在作出置業、按揭或其他借貸決定時，應繼續小心考慮及管理利率風險。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796561_1_20250320112103.jpg&q=55)
-  
-
-美國聯儲局議息後維持利率不變。香港金管局表示，聯儲局的決定符合市場預期，點陣圖顯示局方今年內可能再減息合共50個基點，但觀乎近期各項經濟數據變化及市場預期的波動，未來減息步伐仍有較大變數，取決於美國通脹和就業數據走勢，以及美國政府財政和經濟貿易政策對經濟活動的影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796561-20250320.htm)
 
 ---

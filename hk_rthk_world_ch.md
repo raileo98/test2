@@ -1,3 +1,27 @@
+# 北韓試射最新型防空導彈武器系統
+
+![北韓領袖金正恩觀摩了最新型防空導彈武器系統試射。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796718_1_20250321091454.jpg&q=90)
+  
+
+朝中社報道，北韓導彈總局昨日對相關軍工企業正式開始生產的最新型防空導彈武器系統，進行綜合戰鬥性能檢驗試射，領袖金正恩觀摩了試射。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796718-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796718-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796718-20250321.htm)
+
+---
+
 # 特朗普：美國很快與烏克蘭簽署礦產和自然資源協議
 
 ![特朗普表示，美國將很快與烏克蘭簽署礦產和自然資源協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796716_1_20250321084902.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796327-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796327-20250319.htm)
-
----
-
-# 特朗普：與普京通話非常好且富有成效　討論到和平協議很多要素
-
-![特朗普說，雙方討論到和平協議的很多要素。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796325_1_20250319032948.jpg&q=90)
-  
-
-美國總統特朗普表示，與俄羅斯總統普京的電話交談非常好，而且富有成效，雙方同意俄烏同時放棄襲擊對方能源基礎設施的提議，並同意迅速努力實現全面停火，最終結束俄羅斯與烏克蘭之間的衝突。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796325-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796325-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796325-20250319.htm)
 
 ---

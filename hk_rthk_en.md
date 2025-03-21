@@ -1,3 +1,51 @@
+# China calls for protections for students in US
+
+![Foreign ministry spokesperson Mao Ning urged the US not to impose discriminatory restrictive measures on Chinese students. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796721_1_20250321092239.jpg&q=90)
+  
+
+Beijing on Thursday demanded protections for Chinese students in the US after a congressional panel asked six American universities to hand over a large amount of detailed information on their students, citing national security concerns.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm)
+
+---
+
+# Trump moves to shut down Department of Education
+
+![US President Donald Trump speaks during an event to sign an executive order to shut down the Department of Education. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796723_1_20250321092630.jpg&q=75)
+  
+
+US President Donald Trump on Thursday signed an executive order aimed at shutting down the Department of Education, a decades-old goal of the American right, which wants individual states to run schools free from the influence of federal government.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm)
+
+---
+
 # Perisic stars as Croatia stun France in Nations League
 
 ![Croatia's Ivan Perisic celebrates after scoring his team's second goal against France. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796706_1_20250321061557.jpg&q=90)
@@ -1391,53 +1439,5 @@ Sports chief Rosanna Law said on Wednesday that parties involved in the Hong Kon
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm)
-
----
-
-# HK men's rugby squad unfazed by pressure at Sevens
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796409_1_20250319143004.jpg&q=90)
-  
-
-The Hong Kong, China men’s rugby team on Wednesday said they are looking forward to feed off the energy from the home crowd when the Rugby Sevens are held for the first time later this month at Kai Tak Sports Park.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796409-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796409-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796409-20250319.htm)
-
----
-
-# PolyU 'to shoulder cost of third medical school'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796404_1_20250319133406.jpg&q=75)
-  
-
-Polytechnic University (PolyU) on Wednesday said it will shoulder the cost of developing Hong Kong's third medical school when necessary.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796404-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796404-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796404-20250319.htm)
 
 ---

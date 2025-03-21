@@ -1,3 +1,27 @@
+# China calls for protections for students in US
+
+![Foreign ministry spokesperson Mao Ning urged the US not to impose discriminatory restrictive measures on Chinese students. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796721_1_20250321092239.jpg&q=90)
+  
+
+Beijing on Thursday demanded protections for Chinese students in the US after a congressional panel asked six American universities to hand over a large amount of detailed information on their students, citing national security concerns.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm)
+
+---
+
 # Top Beijing official praises EuroCham's work in HK
 
 ![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing. Photo courtesy of Hong Kong and Macao Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796677_1_20250320220041.jpg&q=90)
@@ -1412,29 +1436,5 @@ Foreign Minister Wang Yi said China will "firmly counter" US pressure on trade, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794703-20250307.htm)
-
----
-
-# China wants a lasting peace in Ukraine: FM
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794697_1_20250307105305.jpg&q=90)
-  
-
-China wants to achieve a "fair, lasting and binding peace agreement" acceptable to all parties on the Ukraine war, Foreign Minister Wang Yi said on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794697-20250307.htm)
 
 ---

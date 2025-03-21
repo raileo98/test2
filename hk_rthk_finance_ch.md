@@ -1,3 +1,123 @@
+# 人行開展930億元人民幣逆回購操作
+
+![人行公開市場開展930億元人民幣7日期逆回購操作，單日淨回籠877億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796724_1_20250321093049.jpg&q=80)
+  
+
+人民銀行公開市場開展930億元人民幣7日期逆回購操作，利率維持於1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796724-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796724-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796724-20250321.htm)
+
+---
+
+# 內地股市初段偏軟
+
+![上證綜合指數較早時報3407點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796726_1_20250321093417.jpg&q=90)
+  
+
+滬深股市在開市初段偏軟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796726-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796726-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796726-20250321.htm)
+
+---
+
+# 人民幣兌美元中間價微跌至逾兩個月低位
+
+![人民幣中間價報7.176兌1美元，跌6點子，創逾兩個月低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796720_1_20250321091954.jpg&q=85)
+  
+
+人民幣中間價報7.176兌1美元，較上日中間價跌6點子，創逾兩個月低位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796720-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796720-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796720-20250321.htm)
+
+---
+
+# 恒指競價時段跌110點
+
+![恒生指數競價時段報24109點，跌110點，跌幅0.46%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796722_1_20250321092357.jpg&q=65)
+  
+
+港股在競價時段下跌，恒生指數報24109點，跌110點，跌幅0.46%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796722-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796722-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796722-20250321.htm)
+
+---
+
+# 監管沙盒試點項目遍布不同地域　陳美寶：初時會在視線範圍進行
+
+![陳美寶強調安全是重要考慮，無人機有包括螺旋槳等安全裝置及後備功能，要應對突發情況，以及有適合地點降落。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796719_1_20250321092457.jpg&q=90)
+  
+
+政府正推動低空經濟，首批「監管沙盒」38個試點項目出爐。運輸及物流局局長陳美寶形容反應熱烈，是從72個申請者經審批選出的首批優先試驗項目，試點項目涉及物流配送、空中交通管理系統、緊急救援、貨物配送，以及公共基礎設施巡查等範疇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm)
+
+---
+
 # 台股初段向下
 
 ![台灣加權指數較早時報22295點，跌81點，跌幅0.36%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796717_1_20250321090901.jpg&q=90)
@@ -1316,125 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796591-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796591-20250320.htm)
-
----
-
-# 內地2月不包括在校生16至24歲青年失業率升至16.9%
-
-![內地2月不包括在校生16至24歲青年失業率升至16.9%，比1月上升0.8個百分點，創4個月新高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796569_1_20250320120233.jpg&q=85)
-  
-
-國家統計局數據顯示，2月全國城鎮不包括在校生的16至24歲勞動力失業率升至16.9%，比1月上升0.8個百分點，創4個月新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796569-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796569-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796569-20250320.htm)
-
----
-
-# 監管沙盒試點包括科學園上空配送食品　嘗試跨越城門河到馬鞍山
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796594_1_20250320134446.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶表示，首批低空經濟「監管沙盒」試點項目，部份將會在科學園和數碼港試驗，將物資由園區配送到離島，當局亦期望在第二季之內修例，放寬無人機的負重限制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796594-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796594-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796594-20250320.htm)
-
----
-
-# 華潤電力去年盈利升約31%　派息率降至40%
-
-![華潤電力去年全年派息1.19港元，派息率40%，按年下降22個百分點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796587_1_20250320124906.jpg&q=80)
-  
-
-華潤電力去年盈利143.9億港元，按年升約31%。派末期息每股0.691元，全年派息1.19元；派息率40%，按年下降22個百分點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796587-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796587-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796587-20250320.htm)
-
----
-
-# 港股下午初段跌逾1%　吉利汽車績後靠穩
-
-![恒生指數較早時報24486點，跌284點，跌幅1.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796589_1_20250320130332.jpg&q=90)
-  
-
-港股下午初段持續偏軟，恒生指數較早時報24486點，跌284點，跌幅1.15%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796589-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796589-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796589-20250320.htm)
-
----
-
-# 吉利汽車去年盈利升2.1倍　撇除一次性因素盈利升52%
-
-![吉利汽車將今年銷量目標定於271萬輛，按年升約25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796584_1_20250320123410.jpg&q=90)
-  
-
-吉利汽車去年盈利166.3億元人民幣，按年急升2.1倍。派末期息每股0.33港元，按年升50%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796584-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796584-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796584-20250320.htm)
 
 ---

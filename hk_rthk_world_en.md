@@ -1,3 +1,51 @@
+# China calls for protections for students in US
+
+![Foreign ministry spokesperson Mao Ning urged the US not to impose discriminatory restrictive measures on Chinese students. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796721_1_20250321092239.jpg&q=90)
+  
+
+Beijing on Thursday demanded protections for Chinese students in the US after a congressional panel asked six American universities to hand over a large amount of detailed information on their students, citing national security concerns.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm)
+
+---
+
+# Trump moves to shut down Department of Education
+
+![US President Donald Trump speaks during an event to sign an executive order to shut down the Department of Education. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796723_1_20250321092630.jpg&q=75)
+  
+
+US President Donald Trump on Thursday signed an executive order aimed at shutting down the Department of Education, a decades-old goal of the American right, which wants individual states to run schools free from the influence of federal government.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm)
+
+---
+
 # Vancouver auto show bans Tesla over safety concerns
 
 ![Tesla cars and showrooms have been vandalised in the US and other countries recently. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796697_1_20250321043524.jpg&q=85)
@@ -1389,53 +1437,5 @@ At least 19 were killed as US President Donald Trump launched large-scale milita
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795905-20250316.htm)
-
----
-
-# Judge bars deportations after Trump's invasion claim
-
-![The ruling came hours after Trump claimed the Venezuelan gang Tren de Aragua was invading the United States. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795902_1_20250316073140.jpg&q=90)
-  
-
-A federal judge on Saturday barred the administration of President Donald Trump from deportations under an 18th century law that Trump invoked just hours earlier asserting the United States was being invaded by a Venezuelan gang and that he had new powers to remove its members from the country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795902-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795902-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795902-20250316.htm)
-
----
-
-# Gaza civil defence says Israeli strikes kill 9
-
-![Hamas says the Israeli strikes on Beit Lahia violate the Gaza truce deal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795885_1_20250315222731.jpg&q=80)
-  
-
-Gaza's civil defence agency said nine people, including journalists, were killed in Israeli strikes in the north on Saturday, an attack Hamas denounced as a "blatant violation" of the fragile ceasefire.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795885-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795885-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795885-20250315.htm)
 
 ---
