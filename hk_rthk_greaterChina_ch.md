@@ -1,3 +1,27 @@
+# 神十九航天員乘組完成第三次出艙活動
+
+![神舟十九號航天員乘組完成第三次出艙活動，圖為宋令東第二次出艙時的情況。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796850_1_20250321213421.jpg&q=90)
+  
+
+神舟十九號航天員乘組完成第三次出艙活動，歷時約7小時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796850-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796850-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796850-20250321.htm)
+
+---
+
 # 劉建超晤日本訪客　稱兩國政黨對中日關係改善發展肩負重要責任
 
 ![劉建超說，兩國政黨對中日關係改善發展肩負重要責任。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796847_1_20250321210225.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796253-20250318.htm)
-
----
-
-# 蔡若蓮稱學生內地考察團可加深對國家文化及科技重點安全領域認識
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796251_1_20250318170034.jpg&q=80)
-  
-
-設於尖沙咀香港歷史博物館的國家安全展覽廳，去年8月正式開啟後，到訪的小學有120間、超過4萬多位同學參觀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm)
 
 ---

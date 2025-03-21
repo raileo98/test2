@@ -1,3 +1,27 @@
+# 神十九航天員乘組完成第三次出艙活動
+
+![神舟十九號航天員乘組完成第三次出艙活動，圖為宋令東第二次出艙時的情況。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796850_1_20250321213421.jpg&q=90)
+  
+
+神舟十九號航天員乘組完成第三次出艙活動，歷時約7小時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796850-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796850-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796850-20250321.htm)
+
+---
+
 # 埃及南部有樓宇倒塌至少6死11傷
 
 ![埃及南部有樓宇倒塌至少6死11傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796849_1_20250321213125.jpg&q=90)
