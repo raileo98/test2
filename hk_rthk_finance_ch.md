@@ -1,3 +1,51 @@
+# 台股初段向下
+
+![台灣加權指數較早時報22295點，跌81點，跌幅0.36%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796717_1_20250321090901.jpg&q=90)
+  
+
+台灣股市在開市初段下跌，加權指數較早時報22295點，跌81點，跌幅0.36%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796717-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796717-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796717-20250321.htm)
+
+---
+
+# 日本2月全國核心CPI按年升3%　升幅高過預期
+
+![日本2月全國核心CPI按年升3%，高過市場預期的2.9%，但較1月3.2%的升幅有所放緩。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796715_1_20250321082605.jpg&q=80)
+  
+
+日本政府數據顯示，日本2月全國整體消費物價指數（CPI）按年上升3.7%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796715-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796715-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796715-20250321.htm)
+
+---
+
 # 韓股初段偏軟
 
 ![首爾綜合指數較早時報2630點，跌6點，跌幅0.26%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796713_1_20250321081207.jpg&q=85)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796584-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796584-20250320.htm)
-
----
-
-# 渣打香港：港元最優惠貸款利率維持5.5厘
-
-![渣打香港表示，港元最優惠貸款利率維持於5.5厘。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796588_1_20250320125149.jpg&q=90)
-  
-
-渣打香港表示，港元最優惠貸款利率維持於5.5厘，港元儲蓄戶口利率亦維持不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796588-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796588-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796588-20250320.htm)
-
----
-
-# 瑞聲科技去年多賺逾1倍　末期息增至0.24港元
-
-![瑞聲科技去年盈利近18億元人民幣，按年升近1.43倍。（公司網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796586_1_20250320124202.jpg&q=90)
-  
-
-瑞聲科技去年盈利近18億元人民幣，按年升近1.43倍。派末期息每股0.24港元，按年升1.4倍，派息比率15%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796586-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796586-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796586-20250320.htm)
 
 ---

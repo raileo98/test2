@@ -1,3 +1,75 @@
+# 台股初段向下
+
+![台灣加權指數較早時報22295點，跌81點，跌幅0.36%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796717_1_20250321090901.jpg&q=90)
+  
+
+台灣股市在開市初段下跌，加權指數較早時報22295點，跌81點，跌幅0.36%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796717-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796717-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796717-20250321.htm)
+
+---
+
+# 日本2月全國核心CPI按年升3%　升幅高過預期
+
+![日本2月全國核心CPI按年升3%，高過市場預期的2.9%，但較1月3.2%的升幅有所放緩。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796715_1_20250321082605.jpg&q=80)
+  
+
+日本政府數據顯示，日本2月全國整體消費物價指數（CPI）按年上升3.7%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796715-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796715-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796715-20250321.htm)
+
+---
+
+# 特朗普：美國很快與烏克蘭簽署礦產和自然資源協議
+
+![特朗普表示，美國將很快與烏克蘭簽署礦產和自然資源協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796716_1_20250321084902.jpg&q=90)
+  
+
+美國總統特朗普表示，美國將很快與烏克蘭簽署礦產和自然資源協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796716-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796716-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796716-20250321.htm)
+
+---
+
 # 《環看天下》： 分析指美俄就俄烏停火內容仍存分歧
 
 ![美俄、美烏元首通話， 分析指美俄就停火內容仍存分歧。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796714_1_20250321081812.jpg&q=90)
@@ -1366,76 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796644-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796644-20250320.htm)
-
----
-
-# 機艙行李架著火改道福州降落　香港航空安排另一航機接載乘客回港
-
-  
-
-香港航空一架由杭州飛往香港的客機 HX115 ，原定下午約3時抵港，但飛行期間機艙的行李架突然起火，改道安全降落於福州機場。香港航空表示，該飛機為空中巴士A320，機上載有160名乘客和8名機組人員，公司正安排另一航機接載乘客回港，預計將會於晚上8時55分到達福州機場接載乘客。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796650-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796650-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796650-20250320.htm)
-
----
-
-# 美國聯儲局維持利率不變　本港多間銀行跟隨
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796646_1_20250320183654.jpg&q=90)
-  
-
-美國聯儲局維持利率不變，本港多間大型銀行跟隨按兵不動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796646-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796646-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796646-20250320.htm)
-
----
-
-# 美高梅中國去年多賺74%　派末期息每股0.251元
-
-![美高梅中國去年盈利46.03億元，按年升逾74%，派末期息每股0.251元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796647_1_20250320182857.jpg&q=90)
-  
-
-美高梅中國去年盈利46.03億元，按年升逾74%，受惠澳門旅遊限制放寬後，業務持續增長。期內，經營收入升27%至313.9億元，當中，娛樂場收入升25%至272.8億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796647-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796647-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796647-20250320.htm)
 
 ---

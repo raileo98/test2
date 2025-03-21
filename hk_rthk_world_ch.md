@@ -1,3 +1,27 @@
+# 特朗普：美國很快與烏克蘭簽署礦產和自然資源協議
+
+![特朗普表示，美國將很快與烏克蘭簽署礦產和自然資源協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796716_1_20250321084902.jpg&q=90)
+  
+
+美國總統特朗普表示，美國將很快與烏克蘭簽署礦產和自然資源協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796716-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796716-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796716-20250321.htm)
+
+---
+
 # 《環看天下》： 分析指美俄就俄烏停火內容仍存分歧
 
 ![美俄、美烏元首通話， 分析指美俄就停火內容仍存分歧。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796714_1_20250321081812.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796325-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796325-20250319.htm)
-
----
-
-# 以總理：已全力恢復加沙戰鬥　直至實現戰爭目標
-
-![內塔尼亞胡批評哈馬斯一再拒絕以色列提出的停火談判建議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796324_1_20250319032312.jpg&q=90)
-  
-
-以色列總理內塔尼亞胡表示，以軍星期二恢復對加沙的軍事打擊只是開始，強調戰鬥將持續下去，直到以色列實現戰爭目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796324-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796324-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796324-20250319.htm)
 
 ---
