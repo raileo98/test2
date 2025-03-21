@@ -1,3 +1,50 @@
+# 分析：OPEC+新減產安排彌補過剩產量　短線支持油價表現
+
+![獨立外匯商品分析師盧楚仁相信，今次減產的新安排可能抵消增產的影響，短線支持油價表現，料油價第3季前將於每桶65至75美元上落。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796765_1_20250321125719.jpg&q=90)
+  
+
+石油輸出國組織及其盟友（OPEC+）宣布，其中7個成員國將進一步減產，以彌補先前過剩的產量。由今個月開始，月度減產幅度在每日18.9萬桶至43.5萬桶之間，並會持續至明年6月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796765-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796765-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796765-20250321.htm)
+
+---
+
+# 突擊搜查上水元朗5店　海關檢9千件冒牌化妝品護膚品香水
+
+  
+
+海關在打擊售賣冒牌物品的行動中，檢獲約9000件懷疑冒牌香水、化妝品及護膚品，估計市值約200萬元，行動中5人被捕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796764-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796764-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796764-20250321.htm)
+
+---
+
 # 變電站大火致嚴重停電　希斯路機場就事故所帶來不便致歉
 
 ![機場建議旅客在任何情況下，不要前機場，直至機場重開，並應聯絡航空公司以獲取更多資訊。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796763_1_20250321125214.jpg&q=90)
@@ -1390,52 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796675-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796675-20250320.htm)
-
----
-
-# 美國2月二手樓銷售按月升4.2%
-
-![美國2月二手房屋銷售按月上升4.2%，以年率計達到426萬間，多過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796680_1_20250320224340.jpg&q=50)
-  
-
-美國2月二手房屋銷售按月上升4.2%，以年率計達到426萬間，多過市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796680-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796680-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796680-20250320.htm)
-
----
-
-# 深水埗有大廈梯間雜物起火　４人吸入濃煙送院約100人疏散
-
-  
-
-深水埗有大廈發生火警，4人受傷，其中有人吸入濃煙不適，全部送往明愛醫院治理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796679-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796679-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796679-20250320.htm)
 
 ---

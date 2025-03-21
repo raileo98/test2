@@ -1,3 +1,27 @@
+# 分析：OPEC+新減產安排彌補過剩產量　短線支持油價表現
+
+![獨立外匯商品分析師盧楚仁相信，今次減產的新安排可能抵消增產的影響，短線支持油價表現，料油價第3季前將於每桶65至75美元上落。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796765_1_20250321125719.jpg&q=90)
+  
+
+石油輸出國組織及其盟友（OPEC+）宣布，其中7個成員國將進一步減產，以彌補先前過剩的產量。由今個月開始，月度減產幅度在每日18.9萬桶至43.5萬桶之間，並會持續至明年6月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796765-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796765-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796765-20250321.htm)
+
+---
+
 # 學者料部分行業仍有結業現象　破產數字或高企
 
 ![經濟學者李兆波認為，農曆新年錯月對破產數字有影響，他預料破產數字仍會處於高位，但不會差過疫情時期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796762_1_20250321124346.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796604-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796604-20250320.htm)
-
----
-
-# 韓股高收0.32%　連升4日
-
-![首爾綜合指數收報2637點，升幅0.32%，連升4日，再創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796602_1_20250320143435.jpg&q=85)
-  
-
-南韓股市靠穩，首爾綜合指數收報2637點，升8點，升幅0.32%，連升4日，再創近1個月新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796602-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796602-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796602-20250320.htm)
 
 ---

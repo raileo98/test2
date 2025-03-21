@@ -1,3 +1,26 @@
+# 突擊搜查上水元朗5店　海關檢9千件冒牌化妝品護膚品香水
+
+  
+
+海關在打擊售賣冒牌物品的行動中，檢獲約9000件懷疑冒牌香水、化妝品及護膚品，估計市值約200萬元，行動中5人被捕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796764-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796764-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796764-20250321.htm)
+
+---
+
 # 工傷及職業病補償4.17起提高　職業性失聰最低額增至58萬
 
 ![政府刊憲，工傷及職業病的補償金額，下月17日起提高，增幅介乎3.8%至86.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796761_1_20250321125201.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796591-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796591-20250320.htm)
-
----
-
-# 青少年護齒計劃展開　政府資助200元　參加者支付共付額
-
-![「青少年護齒共同治理先導計劃」今日開展服務。（政府新聞網）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796595_1_20250320134401.jpg&q=90)
-  
-
-「青少年護齒共同治理先導計劃」今日開展服務，合資格青少年可於每年接受一次資助服務，政府會就每次服務向每名青少年提供200元資助，而參加者須自行支付所選牙醫釐定的共付額，政府就每次資助服務建議的共付額為200元。截至昨日，已獲衞生署接納申請的註冊牙醫數目為約270名，共有超過370個服務點，當中逾67%收取200元或以下的共付診金，最低為50元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796595-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796595-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796595-20250320.htm)
 
 ---

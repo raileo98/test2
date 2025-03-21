@@ -120,7 +120,7 @@ French President Emmanuel Macron said leaders of the coalition backing Ukraine w
 
 # World's glacier mass shrank again in 2024, says UN
 
-![The Lac de Tignes glacial lake in Tignes in the French Alps. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796725_1_20250321093234.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796725_1_20250321093234.jpg&q=85)
   
 
 All 19 of the world's glacier regions experienced a net loss of mass in 2024 for the third consecutive year, the United Nations said on Friday, warning that saving the planet's glaciers was now a matter of "survival".
