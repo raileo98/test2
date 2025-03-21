@@ -1,3 +1,26 @@
+# 首季21宗致命車禍23人死亡　警下周不定時不定點嚴厲執法
+
+  
+
+警方表示，去年香港發生1萬8千多宗有人受傷的交通意外，涉及2萬3千多人，當中88人死亡，較前年減少8%，42名行人在交通意外中死亡，亦按年減少32%，交通意外死亡人數及行人死亡數字均創歷史新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796801-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796801-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796801-20250321.htm)
+
+---
+
 # 葡萄牙外長蘭熱爾下周一起訪華5天
 
 ![葡萄牙國務部長兼外長蘭熱爾將於下周一至周五訪華。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796800_1_20250321163101.jpg&q=90)

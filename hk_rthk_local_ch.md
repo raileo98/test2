@@ -1,3 +1,26 @@
+# 首季21宗致命車禍23人死亡　警下周不定時不定點嚴厲執法
+
+  
+
+警方表示，去年香港發生1萬8千多宗有人受傷的交通意外，涉及2萬3千多人，當中88人死亡，較前年減少8%，42名行人在交通意外中死亡，亦按年減少32%，交通意外死亡人數及行人死亡數字均創歷史新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796801-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796801-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796801-20250321.htm)
+
+---
+
 # 港股低收530點　本周累計跌逾1%
 
 ![恒生指數收市報23689點，創逾1星期新低，全日跌530點，跌幅約2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796796_1_20250321161603.jpg&q=85)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796633-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796633-20250320.htm)
-
----
-
-# 長和去年港口及相關服務利潤升15%　零售利潤微升
-
-![長和去年港口及相關服務收入升11%至452.8億元，EBITDA升15%至188.5億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796619_1_20250320165659.jpg&q=75)
-  
-
-長和去年多項業務的收入及利潤按年都有增長，港口及相關服務收入升11%至452.8億元，除息、稅、折扣及攤銷前盈利（EBITDA）升15%至188.5億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796619-20250320.htm)
 
 ---
