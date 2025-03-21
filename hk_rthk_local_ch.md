@@ -1,3 +1,27 @@
+# 內地旅客代辦申請駕駛執照承認違反逗留條件　判囚54日
+
+![入境處打擊在港提供代辦申請駕駛執照服務的非法勞工，日前拘捕2人。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796854_1_20250321215609.jpg&q=90)
+  
+
+入境處打擊在港提供代辦申請駕駛執照服務的非法勞工，日前拘捕2人，包括一名內地訪客、及一名涉嫌聘用非法勞工的香港居民僱主。被捕的非法勞工今日在沙田裁判法院被控違反逗留條件，她承認控罪，被判監禁54日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796854-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796854-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796854-20250321.htm)
+
+---
+
 # 發展局：葵青區工廈整幢改裝撥部分樓面作建築技術研究用途
 
   
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796676-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796676-20250320.htm)
-
----
-
-# 李家超：港珠澳大橋去年客流車流按年增七成　推進粵港「硬聯通」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796670_1_20250320213054.jpg&q=90)
-  
-
-行政長官李家超表示，香港與廣東同根同源，一起攜手推進大灣區發展，開創新格局，去年港珠澳大橋的客流和車流，分別超過2700萬人次和555萬輛次，按年分別增長超過70%，創歷史新高，進一步推進粵港「硬聯通」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm)
 
 ---
