@@ -1,3 +1,27 @@
+# 本港上月破產呈請按月跌3.9%　發出清盤令創近15年半新高
+
+![上月法院發出清盤令66宗，創近15年半單月新高，按月升約14%，按年升83%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796736_1_20250321101810.jpg&q=90)
+  
+
+破產管理署數字顯示，2月收到破產呈請書787宗，按月回落3.9%，按年增加21.5%。法庭發出接管令或破產令690宗，按月微升0.9%，按年升24.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm)
+
+---
+
 # 盧寵茂：醫療收費調整額外收入用於提升安全網　針對貧急重危人士
 
   
@@ -117,7 +141,7 @@
 
 # 香港航空乘客憶述行李架著火時感到害怕　自費坐其他公司航機返港
 
-![受訪乘客拍攝的片段所見，該格行李架被燒至熏黑。（乘客提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796683_1_20250320235720.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796683_1_20250320235720.jpg&q=90)
   
 
 香港航空下午一架由杭州飛往香港的客機，飛行途中機艙行李架起火，改道安全降落於福州機場。港航安排另一班航機到福州接載乘客返港，預計深夜返抵本港。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm)
-
----
-
-# 陳茂波前赴北京將出席中國發展高層論壇　與中央部委討論加強合作
-
-![陳茂波傍晚啟程到北京訪問，稍後會出席中國發展高層論壇。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796574_1_20250320123054.jpg&q=90)
-  
-
-財政司司長陳茂波傍晚啟程到北京訪問，稍後會出席中國發展高層論壇，並在其中一場專題研討會發言。他亦會與相關的中央部委和機構人員會面和討論加強合作，並到訪企業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm)
 
 ---

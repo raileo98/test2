@@ -1,3 +1,27 @@
+# Shin Bet boss axed as Netanyahu split comes to a head
+
+![Ronen Bar says his sacking is intended to 'prevent investigations into the events leading up to October 7' attack. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796737_1_20250321102045.jpg&q=90)
+  
+
+The head of Shin Bet, Israel's domestic intelligence agency, was sacked on Friday, days after Prime Minister Benjamin Netanyahu said he no longer trusts him, and fallout from a report on the October 7, 2023, Hamas attack.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm)
+
+---
+
 # 'Coalition of willing' to meet next week on Ukraine
 
 ![French President Emmanuel Macron announced the new meeting after a European Union summit in Brussels. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796727_1_20250321094059.jpg&q=90)
@@ -1413,29 +1437,5 @@ The first US strikes against Yemen's Houthis since Donald Trump took office kill
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm)
-
----
-
-# N Macedonia nightclub fire kills 59
-
-![A view of a burnt down nightclub inside which a fire broke out and killed 51 people in Kocani. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795938_1_20250316174342.jpg&q=50)
-  
-
-A fire that tore through a nightclub in North Macedonia killed 59 revellers attending a hip-hop concert at the venue, with more than 100 wounded, the country's interior minister said on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795938-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795938-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795938-20250316.htm)
 
 ---

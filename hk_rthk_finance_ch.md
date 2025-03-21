@@ -1,3 +1,27 @@
+# 本港上月破產呈請按月跌3.9%　發出清盤令創近15年半新高
+
+![上月法院發出清盤令66宗，創近15年半單月新高，按月升約14%，按年升83%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796736_1_20250321101810.jpg&q=90)
+  
+
+破產管理署數字顯示，2月收到破產呈請書787宗，按月回落3.9%，按年增加21.5%。法庭發出接管令或破產令690宗，按月微升0.9%，按年升24.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm)
+
+---
+
 # 人行開展930億元人民幣逆回購操作
 
 ![人行公開市場開展930億元人民幣7日期逆回購操作，單日淨回籠877億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796724_1_20250321093049.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796572-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796572-20250320.htm)
-
----
-
-# 王美鳳料下半年港元最優惠利率減0.25厘　並完成減息周期
-
-![王美鳳預計，美國下半年將重新減息，港元最優惠利率將下調0.25厘並完成減息周期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796591_2_20250320133435.jpg&q=75)
-  
-
-美國聯儲局維持利率不變，本港三間發鈔行的港元最優惠利率亦維持不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796591-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796591-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796591-20250320.htm)
 
 ---

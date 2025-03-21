@@ -1,3 +1,51 @@
+# Shin Bet boss axed as Netanyahu split comes to a head
+
+![Ronen Bar says his sacking is intended to 'prevent investigations into the events leading up to October 7' attack. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796737_1_20250321102045.jpg&q=90)
+  
+
+The head of Shin Bet, Israel's domestic intelligence agency, was sacked on Friday, days after Prime Minister Benjamin Netanyahu said he no longer trusts him, and fallout from a report on the October 7, 2023, Hamas attack.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm)
+
+---
+
+# China fall to Saudi Arabia in key World Cup qualifier
+
+![The 1-0 defeat leaves China at the bottom of Group C in Asian qualifying for the 2026 World Cup. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796733_1_20250321101136.jpg&q=90)
+  
+
+China suffered a narrow 1-0 defeat to Saudi Arabia in a Fifa 2026 World Cup qualifying match on Thursday, leaving it struggling at the bottom of Group C in the Asian zone.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm)
+
+---
+
 # 'Coalition of willing' to meet next week on Ukraine
 
 ![French President Emmanuel Macron announced the new meeting after a European Union summit in Brussels. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796727_1_20250321094059.jpg&q=90)
@@ -1391,53 +1439,5 @@ Turkey's lira fell 12.7 percent and touched a new all-time low of 42 to the doll
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm)
-
----
-
-# Shau Kei Wan community living room opens
-
-![Eric Chan says he hopes families will visit the Shau Kei Wan community living room regularly. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796434_1_20250319165113.jpg&q=80)
-  
-
-Authorities on Wednesday launched its first community living room on Hong Kong Island, with the Shau Kei Wan facility expected to serve households from more than 300 subdivided flats.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796434-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796434-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796434-20250319.htm)
-
----
-
-# Ocean Park swings back into full action
-
-![Some visitors are disappointed with the temporary suspension of cable car services and upper section facilities. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796433_1_20250319164747.jpg&q=75)
-  
-
-Ocean Park said on Wednesday cable car services and facilities in its upper section resumed operations at about 4 pm after they had to be closed down for more than half a day.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm)
 
 ---

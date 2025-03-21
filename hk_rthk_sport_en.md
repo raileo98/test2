@@ -1,3 +1,27 @@
+# China fall to Saudi Arabia in key World Cup qualifier
+
+![The 1-0 defeat leaves China at the bottom of Group C in Asian qualifying for the 2026 World Cup. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796733_1_20250321101136.jpg&q=90)
+  
+
+China suffered a narrow 1-0 defeat to Saudi Arabia in a Fifa 2026 World Cup qualifying match on Thursday, leaving it struggling at the bottom of Group C in the Asian zone.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm)
+
+---
+
 # Perisic stars as Croatia stun France in Nations League
 
 ![Croatia's Ivan Perisic celebrates after scoring his team's second goal against France. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796706_1_20250321061557.jpg&q=90)
@@ -1417,29 +1441,5 @@ Two former world champions, Shaun Murphy of England and Neil Robertson of Austra
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794915-20250308.htm)
-
----
-
-# Cavs survive Hornets scare, Jokic makes history
-
-![Three-time NBA MVP Nikola Jokic has become the first player ever to score more than 30 points, 20 rebounds and 20 assists in a single game. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794896_1_20250308153519.jpg&q=90)
-  
-
-The Cleveland Cavaliers staged a dramatic late rally to stretch their unbeaten streak to 13 games with a nail-biting 118-117 over the lowly Charlotte Hornets in the NBA on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794896-20250308.htm)
 
 ---
