@@ -1,3 +1,51 @@
+# 伊朗最高領袖：美國對伊朗採取任何惡意行為將受到沉重打擊
+
+![哈梅內伊發表談話時警告，如果美國對伊朗採取任何惡意行為，將受到沉重打擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796869_1_20250322032804.jpg&q=90)
+  
+
+伊朗最高領袖哈梅內伊警告，如果美國對伊朗採取任何惡意行為，將受到沉重打擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796869-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796869-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796869-20250322.htm)
+
+---
+
+# 以軍稱打死哈馬斯一名高級官員
+
+![聲明說，以軍在行動中打死哈馬斯在加沙地帶南部的軍事情報負責人塔巴什。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796868_1_20250322032018.jpg&q=90)
+  
+
+以色列國防軍與國家安全總局發表聯合聲明說，以軍在星期五的軍事行動中打死巴勒斯坦武裝組織哈馬斯在加沙地帶南部的軍事情報負責人塔巴什。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796868-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796868-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796868-20250322.htm)
+
+---
+
 # 倫敦希斯路機場重開　料周六恢復全面運作
 
 ![倫敦希斯路機場重開後，一架英航客機降落。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796867_1_20250322031421.jpg&q=90)
@@ -48,6 +96,7 @@
 
 # 王毅晤南韓外長　冀韓方奉行積極友好對華政策
 
+![王毅在日本東京會見共同出席第11次中日韓外長會的南韓外長趙兌烈。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796864_1_20250322032350.jpg&q=90)
   
 
 中共中央政治局委員、外長王毅在東京會見共同出席第11次中日韓外長會的南韓外長趙兌烈。
@@ -1386,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796501-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796501-20250320.htm)
-
----
-
-# 西班牙南部受風暴吹襲引發強風暴雨　據報最少3死
-
-![暴雨令部分街區水浸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796496_1_20250320014130.jpg&q=85)
-  
-
-西班牙南部地區受風暴勞倫斯吹襲，引發強風暴雨，洪水氾濫，最少3人死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796496-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796496-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796496-20250320.htm)
-
----
-
-# 佩斯科夫︰不排除普京與特朗普在沙特會晤可能性
-
-![佩斯科夫表示，不排除普京與特朗普在沙特會面的可能性。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796495_1_20250320022641.jpg&q=90)
-  
-
-美國中東問題特使威特科夫表示，有關達成結束俄烏戰爭相關協議的技術討論，將於下星期一在沙特阿拉伯展開，並認為停火協議可能最早在幾星期內達成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796495-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796495-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796495-20250320.htm)
 
 ---
