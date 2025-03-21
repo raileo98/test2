@@ -1,3 +1,51 @@
+# Stronger turnout expected as ComplexCon returns
+
+![Fans queue for limited-edition Labubu toys created by Hong Kong artist Kasing Lung. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796791_1_20250321154832.jpg&q=85)
+  
+
+A global pop culture festival ComplexCon has returned to Hong Kong for a second year, with organisers expecting the stronger lineup to bring in more visitors.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796791-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796791-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796791-20250321.htm)
+
+---
+
+# HKMU launches Cantonese opera translation library
+
+![The team behind the Cantonese opera translations says they pay special attention to the culture and history behind the stories. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796790_1_20250321154817.jpg&q=90)
+  
+
+The Hong Kong Metropolitan University on Friday launched a new online library that features English translations of classic Cantonese opera scripts.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm)
+
+---
+
 # Cathay Pacific cancels flights to London
 
 ![Cathay Pacific has also cancelled all flights from London to Hong Kong. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796782_1_20250321145257.jpg&q=90)
@@ -1391,53 +1439,5 @@ The Hospital Authority said it hopes an increase in the Accident and Emergency (
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796525-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796525-20250320.htm)
-
----
-
-# Edinburgh to host start of 2027 Tour de France
-
-![The Red Bull–BORA–hansgrohe team at the 2024 Tour de France. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796524_1_20250320071819.jpg&q=90)
-  
-
-The 2027 Tour de France will start in Edinburgh with the first three stages taking place in Scotland, England and Wales, the organisers ASO announced at a ceremony in the Scottish capital.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm)
-
----
-
-# UK demands probe of Israel strike on Gaza UN building
-
-![Palestinian kids watch as people search through the rubble for the bodies of their relatives after an Israeli airstrike targeted the al-Hattab family home, south of Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796520_1_20250320064412.jpg&q=85)
-  
-
-Britain's foreign minister David Lammy on Wednesday called for a transparent investigation into an Israeli air strike on a UN building in Gaza.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796520-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796520-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796520-20250320.htm)
 
 ---

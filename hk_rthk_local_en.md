@@ -1,3 +1,51 @@
+# Stronger turnout expected as ComplexCon returns
+
+![Fans queue for limited-edition Labubu toys created by Hong Kong artist Kasing Lung. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796791_1_20250321154832.jpg&q=85)
+  
+
+A global pop culture festival ComplexCon has returned to Hong Kong for a second year, with organisers expecting the stronger lineup to bring in more visitors.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796791-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796791-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796791-20250321.htm)
+
+---
+
+# HKMU launches Cantonese opera translation library
+
+![The team behind the Cantonese opera translations says they pay special attention to the culture and history behind the stories. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796790_1_20250321154817.jpg&q=90)
+  
+
+The Hong Kong Metropolitan University on Friday launched a new online library that features English translations of classic Cantonese opera scripts.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm)
+
+---
+
 # Cathay Pacific cancels flights to London
 
 ![Cathay Pacific has also cancelled all flights from London to Hong Kong. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796782_1_20250321145257.jpg&q=90)
@@ -1391,53 +1439,5 @@ Hong Kong's sole delegate to the country's top legislature on Sunday said all Ch
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795934-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795934-20250316.htm)
-
----
-
-# CE draws inspiration from blockbuster Ne Zha 2
-
-![The chief executive has expressd optimism about Hong Kong's film industry. Photo: John Lee's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795922_1_20250316122802.jpg&q=65)
-  
-
-Chief Executive John Lee on Sunday said the success of mainland film Ne Zha 2 has inspired his administration to continue breaking barriers and forging its own path.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795922-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795922-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795922-20250316.htm)
-
----
-
-# 3,000 compete in inaugural Kai Tak Run
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795923_1_20250316124107.jpg&q=85)
-  
-
-More than 3,000 runners took part in the inaugural Kai Tak Run at the Kai Tak Sports Ground on Sunday morning.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795923-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795923-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795923-20250316.htm)
 
 ---

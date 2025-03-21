@@ -1,3 +1,49 @@
+# 中大發現人體一種細胞蛋白會協調釋放更多病毒　抑制活性可抗感染
+
+  
+
+中大醫學院與國際研究夥伴合作研究發現，人體感染病毒後，體內一種重要細胞蛋白「ARF4」會協調受感染細胞釋放更多致病病毒，而抑制這種細胞蛋白的活性，可以成為抗病毒感染的新方法。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796789-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796789-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796789-20250321.htm)
+
+---
+
+# 李家超：四理念開啟創科新局面　今年將選合適地徵私人發展
+
+  
+
+港深創新及科技園8號及9號大樓平頂儀式下午舉行，行政長官李家超致辭表示，兩座大樓平頂，以及11號大樓全面完成，標誌著香港特區在創新科技領域與港深創科合作，踏上另一個高峰台階。他表示，今年很快會選擇合適地塊，徵求私人發展計劃，利用市場的力量，加速園區發展，並在今年內完成園區第二期的詳細規劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm)
+
+---
+
 # 保安局致函4澳洲媒體不滿刊登任建峰文章
 
   
@@ -23,6 +69,8 @@
 
 # 李家超：香港致力發展成國際創科中心　憑硬件及軟實力創無限機遇
 
+![李家超說，聯盟成立證明了集體智慧的力量，展現開放交流的承諾。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_1_20250321154937.jpg&q=80)
+![李家超、葉玉如、孫東及張翔等出席活動主持儀式。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_2_20250321154937.jpg&q=90)
   
 
 國際院士聯盟成立，行政長官李家超出席儀式時致辭時透露，將會很快推出金額涉及30億元的人工智能資助計劃，資助由世界級研究人員和學者推動開創性基礎研究。
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796627-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796627-20250320.htm)
-
----
-
-# 有乘客稱行李裝有相機及充電寶　飛機升到半空有人大叫「燒起來」
-
-![香港航空一架由杭州飛往香港的客機，飛行期間機艙的行李架起火，改道安全降落於福州長樂國際機場，火勢已撲滅。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796625_2_20250320184916.jpg&q=90)
-  
-
-香港航空一架由杭州飛往香港的客機，飛行期間機艙的行李架起火，改道安全降落於福州長樂國際機場，火勢已撲滅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm)
-
----
-
-# 盧國沾離世　作曲家及作詞家協會：本地音樂界失去一位填詞巨匠
-
-![香港作曲家及作詞家協會表示，「香港詞壇聖手」盧國沾昨日與世長辭，協會上下以及眾多音樂人均深感悲痛。（香港作曲家及作詞家協會網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796622_1_20250320171209.jpg&q=90)
-  
-
-本港著名填詞人盧國沾離世，終年75歲。香港作曲家及作詞家協會表示，「香港詞壇聖手」盧國沾昨日與世長辭，協會上下以及眾多音樂人均深感悲痛，認為本地音樂界失去一位殿堂級填詞巨匠，將永遠銘記他對流行歌詞與香港樂壇的重大貢獻，謹願他安息，並向家人致以最深切的慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796622-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796622-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796622-20250320.htm)
 
 ---
