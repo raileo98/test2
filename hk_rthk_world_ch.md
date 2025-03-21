@@ -1,3 +1,27 @@
+# 埃及南部有樓宇倒塌至少6死11傷
+
+![埃及南部有樓宇倒塌至少6死11傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796849_1_20250321213125.jpg&q=90)
+  
+
+埃及南部一座樓宇倒塌，造成至少6人死亡，11人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796849-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796849-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796849-20250321.htm)
+
+---
+
 # 劉建超晤日本訪客　稱兩國政黨對中日關係改善發展肩負重要責任
 
 ![劉建超說，兩國政黨對中日關係改善發展肩負重要責任。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796847_1_20250321210225.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm)
-
----
-
-# 特朗普與普京通話後　俄烏互相空襲對方基礎設施
-
-![俄羅斯以無人機空襲烏克蘭，有房屋受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796437_1_20250319171510.jpg&q=80)
-  
-
-美國總統特朗普與俄羅斯總統普京通電話後，俄羅斯和烏克蘭互相空襲對方的基礎設施，有房屋受損。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm)
 
 ---

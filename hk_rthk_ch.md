@@ -1,3 +1,27 @@
+# 埃及南部有樓宇倒塌至少6死11傷
+
+![埃及南部有樓宇倒塌至少6死11傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796849_1_20250321213125.jpg&q=90)
+  
+
+埃及南部一座樓宇倒塌，造成至少6人死亡，11人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796849-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796849-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796849-20250321.htm)
+
+---
+
 # 有券商認為證監會限制新股孖展最高借九成對市場氣氛影響不大
 
 ![證監會向所有持牌法團發出內部監控措施指引，要求業界對新股孖展最高只可以借九成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796848_1_20250321210308.jpg&q=90)
