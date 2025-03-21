@@ -1,3 +1,50 @@
+# 港投與芯片公司合作　陳茂波稱加快芯片行業變革有更大創新空間
+
+  
+
+香港投資管理公司和芯片研發公司賽昉科技啟動戰略合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm)
+
+---
+
+# 港股半日跌486點　科指急挫近3%
+
+![恒生指數跌幅一度擴大至逾560點，半日收報23733點，跌486點，跌幅2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796757_1_20250321121523.jpg&q=40)
+  
+
+港股連跌兩日，恒生指數失守24000點關口後，跌幅一度擴大至逾560點，半日收報23733點，跌486點，跌幅2%，主板成交額約1757億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796757-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796757-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796757-20250321.htm)
+
+---
+
 # 滬股半日跌近1%　創業板跌1.7%
 
 ![上證綜合指數半日失守3400點，報3376點，跌31點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796750_1_20250321114718.jpg&q=85)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796603-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796603-20250320.htm)
-
----
-
-# 本港多間銀行最優惠利率不變　恒生維持在5.25厘
-
-![美國聯儲局維持利率不變，本港多間銀行跟隨按兵不動，包括恒生。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796599_2_20250320141204.jpg&q=90)
-  
-
-美國聯儲局維持利率不變，本港多間大型銀行跟隨按兵不動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796599-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796599-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796599-20250320.htm)
-
----
-
-# 台股高收近2%
-
-![加權指數收報22377點，升416點，升幅1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796598_1_20250320135945.jpg&q=90)
-  
-
-台灣股市高收。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796598-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796598-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796598-20250320.htm)
 
 ---

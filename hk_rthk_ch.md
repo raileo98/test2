@@ -1,5 +1,53 @@
+# 港投與芯片公司合作　陳茂波稱加快芯片行業變革有更大創新空間
+
+  
+
+香港投資管理公司和芯片研發公司賽昉科技啟動戰略合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm)
+
+---
+
+# 港股半日跌486點　科指急挫近3%
+
+![恒生指數跌幅一度擴大至逾560點，半日收報23733點，跌486點，跌幅2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796757_1_20250321121523.jpg&q=40)
+  
+
+港股連跌兩日，恒生指數失守24000點關口後，跌幅一度擴大至逾560點，半日收報23733點，跌486點，跌幅2%，主板成交額約1757億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796757-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796757-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796757-20250321.htm)
+
+---
+
 # 房委會通過收緊公屋富戶政策　額外租金調高至2.5至4.5倍
 
+![房委會資助房屋小組委員會通過收緊「富戶政策」，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796755_1_20250321121755.jpg&q=80)
   
 
 房委會資助房屋小組委員會通過收緊「富戶政策」，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。
@@ -23,6 +71,7 @@
 
 # 減省公務員工作流程提升效率　楊何蓓茵：並非不理大家死活
 
+![楊何蓓茵說，希望透過減省工作流程，重訂工作優次，令工作更有效率和成效。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796754_1_20250321121718.jpg&q=90)
   
 
 立法會一個委員會討論公務員2025/26年度凍薪，以及在本屆政府任期內削減約1萬個職位等事項。公務員事務局局長楊何蓓茵表示，現時公務員編制有約10%空缺，希望各部門作出檢視，了解有關職位是否仍有需要，若無需要就不再重新招聘。她強調未來並非「不理大家死活」，要求由10個人做，變成8個人做，而是希望透過減省工作流程，重訂工作優次，令工作更有效率和成效。
@@ -46,6 +95,7 @@
 
 # 皇后山邨兩童一度危坐單位外牆及窗台　由消防帶回安全位置
 
+![粉嶺皇后山邨皇樂樓一個單位，早上有兩名幼童分別危坐大廈外牆及冷氣機窗台。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796753_1_20250321121638.jpg&q=85)
   
 
 粉嶺皇后山邨皇樂樓一個低層單位，早上有兩名幼童分別危坐大廈外牆及冷氣機窗台，消防及後到場成功將他們帶回安全位置。
@@ -1386,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796674-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796674-20250320.htm)
-
----
-
-# 美股開市後下跌
-
-![聯儲局警告經濟前景不明朗，投資者憂慮關稅戰拖累經濟，打擊美股開市表現。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796673_1_20250320213933.jpg&q=90)
-  
-
-紐約股市下跌。美國聯儲局警告經濟前景不明朗，投資者憂慮關稅戰拖累經濟，打擊股市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796673-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796673-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796673-20250320.htm)
-
----
-
-# 澤連斯基稱特朗普對扎波羅熱核電站表現出興趣但烏克蘭無意轉讓
-
-![扎波羅熱核電站是歐洲最大核電站之一，現時由俄羅斯控制。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796669_1_20250320211950.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基表示，美國總統特朗普同他通話時，對獲得扎波羅熱核電站的所有權表現出興趣。澤連斯基強調，烏克蘭無意轉讓扎波羅熱核電站。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm)
 
 ---
