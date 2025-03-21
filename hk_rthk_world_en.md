@@ -1,3 +1,27 @@
+# Counter-terror police probe fire that closed Heathrow
+
+![The fire had involved a transformer comprising of 25,000 litres of cooling oil fully alight. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796855_1_20250321221014.jpg&q=65)
+  
+
+Counter-terror police on Friday launched a probe into an electricity substation fire that shut down Heathrow airport causing travel chaos for passengers around the world and the cancellation or diversion of hundreds of flights from Europe's busiest air hub.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796855-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796855-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796855-20250321.htm)
+
+---
+
 # 'Record number of deaths on migration routes in 2024'
 
 ![The UN has recorded a total of 2,452 people dying in the Mediterranean Sea, the main gateway for those trying to reach Europe. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796832_1_20250321183806.jpg&q=90)
@@ -1411,29 +1435,5 @@ The Philippine Senate said on Monday it will conduct a formal probe of ex-presid
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm)
-
----
-
-# Mass layoffs begin at Voice of America
-
-![Contractual staff at Voice of America have been told they are terminated as of this end of this month. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796015_1_20250317104956.jpg&q=90)
-  
-
-US President Donald Trump's administration began mass layoffs at Voice of America and other US-funded media, making clear its intent to gut outlets long seen as critical for US influence.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796015-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796015-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796015-20250317.htm)
 
 ---
