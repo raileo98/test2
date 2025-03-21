@@ -1,3 +1,27 @@
+# 名創優品去年多賺逾16%
+
+![名創優品去年盈利26.2億元人民幣，按年升16.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796811_1_20250321170723.jpg&q=90)
+  
+
+名創優品（MINISO）去年盈利26.2億元人民幣，按年升16.2%。經調整盈利27.02億元，按年升15.7%。派發末期息每股美國存託股0.3268美元，或每股普通股0.0817美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm)
+
+---
+
 # 交通銀行去年盈利增近1%
 
 ![交通銀行去年盈利增長近1%，派末期息每股0.197元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796817_1_20250321173606.jpg&q=90)
@@ -291,7 +315,7 @@
 ![「家姐」、「細佬」初生時，盈盈會關注牠們飲奶及排泄，現在就會留意牠們玩耍時的情況。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796808_1_20250321170719.jpg&q=80)
   
 
-海洋公園一對大熊貓龍鳳胎「家姐」、「細佬」明日起與媽媽「盈盈」於同一展館亮相。公園工作人員盧芷珊表示，「家姐」、「細佬」進入新的成長階段，會探索不同事物，在母親身邊可以學習一些人類無法教授的知識，例如分辨氣味，園方認為，兩隻大熊貓貓已足夠成熟與媽媽一起與公眾見面，「盈盈」亦已具備能力同時間照顧兩名子女，相信牠們可以適應新安排。
+海洋公園一對大熊貓龍鳳胎「家姐」、「細佬」明日起與媽媽「盈盈」於同一展館亮相。公園工作人員盧芷珊表示，「家姐」、「細佬」進入新的成長階段，會探索不同事物，在母親身邊可以學習一些人類無法教授的知識，例如分辨氣味，園方認為，兩隻大熊貓BB已足夠成熟與媽媽一起與公眾見面，「盈盈」亦已具備能力同時間照顧兩名子女，相信牠們可以適應新安排。
   
 ![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1796808_1_L_20250321170719.jpg)
 
@@ -1205,7 +1229,7 @@
 
 # 皇后山邨兩童一度危坐單位外牆及窗台　由消防帶回安全位置
 
-![粉嶺皇后山邨皇樂樓一個單位，早上有兩名幼童分別危坐大廈外牆及冷氣機窗台。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796753_1_20250321121638.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796753_1_20250321121638.jpg&q=85)
   
 
 粉嶺皇后山邨皇樂樓一個低層單位，早上有兩名幼童分別危坐大廈外牆及冷氣機窗台，消防及後到場成功將他們帶回安全位置。

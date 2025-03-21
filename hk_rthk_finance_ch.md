@@ -1,3 +1,27 @@
+# 名創優品去年多賺逾16%
+
+![名創優品去年盈利26.2億元人民幣，按年升16.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796811_1_20250321170723.jpg&q=90)
+  
+
+名創優品（MINISO）去年盈利26.2億元人民幣，按年升16.2%。經調整盈利27.02億元，按年升15.7%。派發末期息每股美國存託股0.3268美元，或每股普通股0.0817美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm)
+
+---
+
 # 交通銀行去年盈利增近1%
 
 ![交通銀行去年盈利增長近1%，派末期息每股0.197元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796817_1_20250321173606.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm)
-
----
-
-# 全球金融中心指數報告香港評分升全球排第三　陳茂波稱令人鼓舞
-
-![香港總排名維持全球第三位。（陳茂波社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796661_1_20250320214014.jpg&q=90)
-  
-
-英國Z/Yen集團與中國（深圳）綜合開發研究院，今日發布最新《全球金融中心指數》報告，香港的整體評分上升11分至760分，總排名維持全球第三位，並在亞太區繼續居首。紐約及倫敦繼續分別位居於首位及第二。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm)
 
 ---
