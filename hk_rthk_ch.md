@@ -1,3 +1,26 @@
+# 中大文物館新翼開幕　9件國家一級文物首次在港展出
+
+  
+
+中文大學文物館新翼「羅桂祥閣」今日舉行開幕典禮，新翼開幕展覽「浮世清音——晚明江南藝術與文化」亦同時揭幕，將展出來自本地及海內外共193件珍品，涵蓋書畫及各類器物，呈現晚明的物質生活與藝文風貌，其中9件國家一級文物更是首次在港展出。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm)
+
+---
+
 # 神十九航天員乘組完成第三次出艙活動
 
 ![神舟十九號航天員乘組完成第三次出艙活動，圖為宋令東第二次出艙時的情況。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796850_1_20250321213421.jpg&q=90)
@@ -75,7 +98,7 @@
 ![劉建超說，兩國政黨對中日關係改善發展肩負重要責任。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796847_1_20250321210225.jpg&q=90)
   
 
-中共中央對外聯絡部部長劉建超在北京會見由日本立憲民主黨常任顧問、前干事長岡田克也率領的代表團。
+中共中央對外聯絡部部長劉建超在北京會見由日本立憲民主黨常任顧問、前幹事長岡田克也率領的代表團。
 
   
 

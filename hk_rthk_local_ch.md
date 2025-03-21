@@ -1,3 +1,26 @@
+# 中大文物館新翼開幕　9件國家一級文物首次在港展出
+
+  
+
+中文大學文物館新翼「羅桂祥閣」今日舉行開幕典禮，新翼開幕展覽「浮世清音——晚明江南藝術與文化」亦同時揭幕，將展出來自本地及海內外共193件珍品，涵蓋書畫及各類器物，呈現晚明的物質生活與藝文風貌，其中9件國家一級文物更是首次在港展出。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm)
+
+---
+
 # 國泰：晚上本港起飛CX251及CX255如常前往倫敦
 
 ![國泰航空表示，晚上分別10時許及11時許起飛的CX251及CX255，會如常前往倫敦 。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796845_1_20250321211229.jpg&q=80)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796618-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796618-20250320.htm)
-
----
-
-# 慢病共治計劃將提供血脂檢查　彭飛舟：如有家族病史應及早檢查
-
-![彭飛舟接受本台訪問時表示，參與計劃的市民同樣要到地區康健中心，由護士做風險評估，然後配對家庭醫生跟進。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796667_1_20250320213622.jpg&q=90)
-  
-
-醫務衞生局公布「慢性疾病共同治理先導計劃」由3月28日起，擴展至提供血脂檢查。此外，由4月15日起，全港亦會增設超過20個服務點，為沒有參加「慢病共治計劃」的康健中心會員，提供包括個人化慢性疾病管理、痛症管理及復康等服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm)
 
 ---
