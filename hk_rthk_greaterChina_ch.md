@@ -1,3 +1,27 @@
+# 王毅談中日韓合作　強調遠親不如近鄰
+
+![王毅在東京出席日本首相石破茂集體會見中日韓外長。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796859_1_20250322002419.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅談到中日韓合作時說，遠親不如近鄰。面對不穩定、不確定明顯上升的世界，這句充滿東方智慧的格言更加凸顯三方合作的重要現實意義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm)
+
+---
+
 # 王毅晤石破茂　促日方切實履行在歷史和台灣問題上政治承諾
 
 ![王毅在東京與日本首相石破茂會面。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796858_1_20250321235157.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796274-20250318.htm)
-
----
-
-# 習近平考察時強調貴州要積極對接粵港澳大灣區
-
-![習近平強調，貴州堅持以高質量發展統攬全局，以進一步全面深化改革開放為動力，在中國式現代化進程中展現新風采。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796262_1_20250318171405.jpg&q=85)
-  
-
-中共中央總書記、國家主席、中央軍委主席習近平在貴州考察時強調，貴州堅持以高質量發展統攬全局，以進一步全面深化改革開放為動力，在中國式現代化進程中展現新風采。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796262-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796262-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796262-20250318.htm)
 
 ---

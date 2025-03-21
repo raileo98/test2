@@ -1,3 +1,27 @@
+# 王毅談中日韓合作　強調遠親不如近鄰
+
+![王毅在東京出席日本首相石破茂集體會見中日韓外長。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796859_1_20250322002419.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅談到中日韓合作時說，遠親不如近鄰。面對不穩定、不確定明顯上升的世界，這句充滿東方智慧的格言更加凸顯三方合作的重要現實意義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm)
+
+---
+
 # 王毅晤石破茂　促日方切實履行在歷史和台灣問題上政治承諾
 
 ![王毅在東京與日本首相石破茂會面。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796858_1_20250321235157.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796785-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796785-20250321.htm)
-
----
-
-# 內地股市低收逾1%至逾2%　全星期累計亦跌
-
-![內地股市低收逾1%至逾2%，本周累計亦跌近2%至逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796784_1_20250321150709.jpg&q=90)
-  
-
-內地股市低收逾1%至逾2%，人形機器人、汽車產業鏈股份下跌，中藥、航運、海工裝備概念股造好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796784-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796784-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796784-20250321.htm)
 
 ---
