@@ -1,3 +1,26 @@
+# 國泰：晚上本港起飛CX251及CX255如常前往倫敦
+
+  
+
+英國倫敦希斯路機場因附近變電站大火臨時關閉。國泰航空表示，晚上分別10時許及11時許起飛的CX251及CX255，會如常前往倫敦 。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796845-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796845-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796845-20250321.htm)
+
+---
+
 # 希斯路機場因火警事故關閉　香港寄往英國郵件派遞服務有延誤
 
 ![香港郵政表示，英國希斯路機場因火警事故關閉，寄往英國的郵件派遞服務會有延誤。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796840_1_20250321203258.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796667-20250320.htm)
-
----
-
-# 夏寶龍會見香港歐洲商會　稱全力支持香港長期保持獨特地位和優勢
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796663_1_20250320203336.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見香港歐洲商會訪京團。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm)
 
 ---
