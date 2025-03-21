@@ -1,3 +1,49 @@
+# 2024年度各項流感疫苗接種計劃共接種約206萬劑創新高
+
+  
+
+衞生署表示，截至本月16日，2024/25度各項流感疫苗接種計劃共接種約206萬劑疫苗，較上一流感疫苗接種季度同期增加約12.1%，並已超過上季整體接種劑數，創下歷史新高。就2025/26年度季節性流感疫苗接種計劃，政府表示會繼續加大力度協助高危群組接種流感疫苗，以及研究為參與疫苗資助計劃的私家醫生採購部分流感疫苗的可行性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796837-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796837-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796837-20250321.htm)
+
+---
+
+# 李家超與5間有意落戶港深創新及科技園區頂尖科企代表交流
+
+  
+
+行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm)
+
+---
+
 # 李家超：今年內完成港深創新及科技園區第二期詳細規劃
 
   
@@ -1383,53 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm)
-
----
-
-# 載通去年盈利跌53%　九巴稅後盈利升逾10倍
-
-![九龍巴士去年除稅後盈利1.27億元，增長逾10倍，因車費收入增加。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796656_1_20250320191216.jpg&q=85)
-  
-
-九巴母公司載通去年盈利1.87億元，下跌逾53%；撇除投資物業及發展中投資物業公平價值變動，基礎盈利逾2.65億元，增長逾1.3倍，受到專營公共巴士業務表現改善，但部分上市債務證券預期信貸虧損抵銷部分盈利。末期息維持每股0.5元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796656-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796656-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796656-20250320.htm)
-
----
-
-# 證監會要求認購新股借貸券商最少收取10%認購資金
-
-![證監會向持牌法團發指引，未繳足資金的新股認購，應向客戶收取最低相等於認購金額10%的預付資金。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796655_1_20250320190309.jpg&q=90)
-  
-
-證監會就首次公開招股（IPO）認購及融資服務，向持牌法團提供額外指引，以加強風險管理，保護投資者免受過度財務風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796655-20250320.htm)
 
 ---
