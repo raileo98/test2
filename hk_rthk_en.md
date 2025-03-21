@@ -1,3 +1,51 @@
+# Well-off public housing tenants to pay more
+
+![Cleresa Wong said the higher rental charges for well-off tenants are aimed at bringing about a fairer use of public resources and not at raising government revenue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796794_1_20250321160610.jpg&q=90)
+  
+
+A Housing Authority committee tightened rules on Friday for well-off public housing tenants, raising the likelihood that those earning incomes that far exceed limits could pay 1.25 times more than they are currently paying.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796794-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796794-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796794-20250321.htm)
+
+---
+
+# French aviation firm sets up Asia HQ in Hong Kong
+
+![The Airport Authority and Elior Group signs an agreement in February. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796793_1_20250321160409.jpg&q=90)
+  
+
+A French aeronautic services company on Friday said it is working with the Airport Authority (AA) to develop the SAR into Asia’s first aircraft parts processing and trading hub.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796793-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796793-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796793-20250321.htm)
+
+---
+
 # NJZ loses court fight to leave label
 
 ![The Seoul Central District Court prohibits members of NJZ from pursuing independent endeavours. File photo: NewJeans](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796797_1_20250321161623.jpg&q=85)
@@ -1391,53 +1439,5 @@ Hong Kong stocks on Thursday edged down, after the US Federal Reserve kept inter
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796541-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796541-20250320.htm)
-
----
-
-# Chile reviews Chinese observatory plans
-
-![Chile is home to the world's darkest skies and numerous other observatories. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796533_1_20250320084807.jpg&q=90)
-  
-
-Chile said on Wednesday it was reviewing an agreement for the construction of a Chinese astronomical observatory on its soil, a project that has drawn criticism from Washington as it jostles with Beijing for influence in Latin America.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm)
-
----
-
-# Japan marks 30 years since subway sarin attack
-
-![A commuter is treated after being exposed to sarin gas fumes on the Tokyo Metro system on March 20, 1995. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796530_1_20250320083940.jpg&q=90)
-  
-
-Japan on Thursday marked the 30th anniversary of the sarin gas attack on Tokyo's subway that killed more than a dozen people and injured more than 5,800.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm)
 
 ---

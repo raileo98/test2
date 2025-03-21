@@ -1,3 +1,27 @@
+# 南韓本月31日起全面取消股市沽空禁令
+
+![南韓將於本月31日起，全面取消國內股市沽空禁令。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796795_1_20250321161406.jpg&q=90)
+  
+
+南韓金融監管機構表示，將於本月31日起，全面取消國內股市沽空禁令，是5年來首次取消有關禁令。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796795-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796795-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796795-20250321.htm)
+
+---
+
 # 首季21宗致命車禍23人死亡　警下周不定時不定點嚴厲執法
 
   

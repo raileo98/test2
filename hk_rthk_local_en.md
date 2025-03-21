@@ -1,9 +1,9 @@
-# Well-off public housing tenants to pay higher rents
+# Well-off public housing tenants to pay more
 
 ![Cleresa Wong said the higher rental charges for well-off tenants are aimed at bringing about a fairer use of public resources and not at raising government revenue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796794_1_20250321160610.jpg&q=90)
   
 
-A Housing Authority subcommittee tightened rules on Friday for well-off public housing tenants, raising the likelihood that those earning incomes that far exceed limits could pay 1.25 times more than they are currently paying.
+A Housing Authority committee tightened rules on Friday for well-off public housing tenants, raising the likelihood that those earning incomes that far exceed limits could pay 1.25 times more than they are currently paying.
 
   
 
