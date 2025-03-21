@@ -1,3 +1,27 @@
+# 加沙民防部門：11人周五死於以軍襲擊
+
+![以軍周二起大規模空襲加沙地帶，並重啟地面軍事行動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796860_1_20250322003825.jpg&q=90)
+  
+
+加沙民防部門說，有11人在星期五以軍的襲擊中喪生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796860-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796860-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796860-20250322.htm)
+
+---
+
 # 王毅談中日韓合作　強調遠親不如近鄰
 
 ![王毅在東京出席日本首相石破茂集體會見中日韓外長。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796859_1_20250322002419.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm)
-
----
-
-# 澤連斯基質疑俄方誠意　中方強調停火進程不應由第三方強加
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796465_1_20250319184723.jpg&q=80)
-  
-
-烏克蘭總統澤連斯基質疑俄羅斯對停火的誠意，並拒絕接受俄羅斯總統普京提出，外國要停止向烏克蘭提供軍事援助和情報的要求。澤連斯基表明，如果談判沒有烏克蘭參與，不會有成果。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796465-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796465-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796465-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 加沙民防部門：11人周五死於以軍襲擊
+
+![以軍周二起大規模空襲加沙地帶，並重啟地面軍事行動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796860_1_20250322003825.jpg&q=90)
+  
+
+加沙民防部門說，有11人在星期五以軍的襲擊中喪生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796860-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796860-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796860-20250322.htm)
+
+---
+
 # 王毅談中日韓合作　強調遠親不如近鄰
 
 ![王毅在東京出席日本首相石破茂集體會見中日韓外長。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796859_1_20250322002419.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm)
-
----
-
-# 皇后山邨兩童獲救父母被捕　據了解哥哥疑鎖匙開窗花與弟弟爬出窗
-
-![據了解，兩名男童與父母同住，案發時男童父母仍在睡覺，哥哥懷疑自行拿取鎖匙打開窗花，並與弟弟爬出窗外。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796785_1_20250321152800.jpg&q=85)
-  
-
-粉嶺皇后山邨皇樂樓一個低層單位，早上有兩名分別年約3歲及5歲男童，一度危坐大廈外窗台，兩童已被救回安全位置，他們並無大礙，無表面傷痕，送往北區醫院檢查。據了解，男童分別32歲及29歲的父母，涉嫌「對所看管兒童虐待或忽略」被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796785-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796785-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796785-20250321.htm)
 
 ---
