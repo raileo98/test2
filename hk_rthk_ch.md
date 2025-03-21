@@ -1,3 +1,27 @@
+# 希斯路機場當地周五全日關閉　當局警告未來數天會嚴重混亂
+
+![希斯路機場因附近變電站大火，在當地星期五全日關閉。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796792_1_20250321155931.jpg&q=90)
+  
+
+英國倫敦希斯路機場因附近變電站大火，在當地星期五全日關閉。有航班追蹤網站估計，全日至少超過1350架次往返希斯路機場的航班可能取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796792-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796792-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796792-20250321.htm)
+
+---
+
 # 中大發現人體一種細胞蛋白會協調釋放更多病毒　抑制活性可抗感染
 
   

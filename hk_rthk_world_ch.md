@@ -1,3 +1,27 @@
+# 希斯路機場當地周五全日關閉　當局警告未來數天會嚴重混亂
+
+![希斯路機場因附近變電站大火，在當地星期五全日關閉。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796792_1_20250321155931.jpg&q=90)
+  
+
+英國倫敦希斯路機場因附近變電站大火，在當地星期五全日關閉。有航班追蹤網站估計，全日至少超過1350架次往返希斯路機場的航班可能取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796792-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796792-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796792-20250321.htm)
+
+---
+
 # 保安局致函4澳洲媒體不滿刊登任建峰文章
 
 ![保安局指特區政府從沒有發出任何匿名信件，亦沒有以任何非法手段促使這些人士回港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796787_1_20250321155006.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796368-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796368-20250319.htm)
-
----
-
-# 《環看天下》：卡尼訪問英法兩國   分析：與歐洲盟友展現團結
-
-![加拿大總理卡尼日前分别前往法國及英國訪問。( 路透社 )](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796358_1_20250319091755.jpg&q=90)
-  
-
-加拿大總理卡尼日前正式宣誓就任，隨即分别前往法國及英國訪問。這兩個國家都與加拿大有深厚的歷史淵源。英法兩國領袖都分别向卡尼保證，維持雙方緊密的盟友關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796358-20250319.htm)
 
 ---
