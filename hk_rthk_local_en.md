@@ -1,4 +1,4 @@
-# CX cancels flights to London
+# Cathay Pacific cancels flights to London
 
 ![Cathay Pacific has also cancelled all flights from London to Hong Kong. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796782_1_20250321145257.jpg&q=90)
   
