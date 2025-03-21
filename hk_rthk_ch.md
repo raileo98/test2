@@ -1,3 +1,27 @@
+# 吊臂車損毀架空電纜　輕鐵705及706綫不停天悅站及天恆站
+
+![吊臂車損毀架空電纜　輕鐵705及706綫不停天悅站及天恆站](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796885_1_20250322075116.jpg&q=90)
+  
+
+輕鐵天悅站附近有吊臂車經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796885-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796885-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796885-20250322.htm)
+
+---
+
 # 外來車輛損毀架空電纜　天悅站附近輕鐵服務暫停
 
 ![外來車輛損毀架空電纜　天悅站附近輕鐵服務暫停](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796884_1_20250322072932.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796816-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796816-20250321.htm)
-
----
-
-# 港深創新科技園首三座大樓下半年營運　旁邊五座料2027年完工
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796815_1_20250321174512.jpg&q=80)
-  
-
-港深創新及科技園兩座大樓今日舉行平頂儀式，而另一幢人才公寓大樓亦全面完工。創新科技及工業局局長孫東表示，今年會把河套區現存社區隔離設施，搬遷到其他地點，盡快爭取在完成平整之後，期望明年初將第一期餘下土地，交給創科園區回歸創科用途。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm)
 
 ---
