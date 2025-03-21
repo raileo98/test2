@@ -1,3 +1,27 @@
+# 印尼東部火山噴發　一個縣進入緊急響應狀態
+
+![自去年11月，勒沃托比火山多次噴發，附近已有約4000名居民撤離。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796862_1_20250322005530.jpg&q=90)
+  
+
+印尼東部東努沙登加拉省一座火山噴發，該省東弗洛勒斯縣已進入為期14天的緊急響應狀態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796862-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796862-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796862-20250322.htm)
+
+---
+
 # 巴拿馬附近海域發生6.3級地震
 
 ![巴拿馬附近海域發生6.3級地震](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796861_1_20250322004835.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796488-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796488-20250319.htm)
-
----
-
-# 韓媒：尹錫悅彈劾案宣判日期或延至下周
-
-![尹錫悅彈劾案的宣判日期可能延至下星期。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796475_1_20250319204938.jpg&q=90)
-  
-
-南韓憲法法院今天未有公布總統尹錫悅彈劾案的宣判日期，宣判日期可能延至下星期。韓聯社報道，憲法法院法官今天亦有進行評議工作，但未得出結論。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796475-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796475-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796475-20250319.htm)
 
 ---
