@@ -1,3 +1,49 @@
+# 羅健熙涉理大外非法集結　律政司上訴被駁回維持無罪裁決
+
+  
+
+2019年11月18日，有市民發起到理工大學內聲援示威者，其後多人被捕。當時身在現場的民主黨主席羅健熙被指參與當中的非法集結，經審訊後被裁定非法集結罪名不成立。律政司不服提出上訴，今日被高等法院上訴庭駁回，維持羅健熙的無罪裁決。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796748-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796748-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796748-20250321.htm)
+
+---
+
+# 孫靖乾獲委任為通訊事務管理局主席　任期下月起生效
+
+  
+
+行政長官委任孫靖乾接替譚允芝為通訊事務管理局主席，任期4月1日起生效，為期兩年。孫靖乾是資深大律師，亦出任高等法院原訟法庭特委法官。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796746-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796746-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796746-20250321.htm)
+
+---
+
 # 物流公司盼無人機做到即時送貨　中電測試包括葵涌等人口密集地方
 
 ![張寶中（左）指中電期望日後做到配合人工智能及創新科技，構建全自動無人機的巡檢系統；張霆邦（右）表示，希望透過無人機做到端對端的即時送貨服務，運送藥品或檔案等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796745_1_20250321112420.jpg&q=90)
@@ -1392,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796580-20250320.htm)
-
----
-
-# 急症室緊急病人服務達標不理想　醫管局冀加費引導病人至其他服務
-
-![醫管局表示，現時18間公立醫院急症室，每年服務量約為200萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796578_1_20250320125422.jpg&q=80)
-  
-
-醫管局表示，全港18間公立醫院急症室，每年服務量近200萬人次，超過一半屬次緊急及非緊急病人，由於要投放大量資源照顧這些病人，令緊急病人的服務承諾達標率只有七成多，形容情況不理想，希望透過調整收費，引導非緊急病人使用急症室以外的醫療服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796578-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796578-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796578-20250320.htm)
-
----
-
-# 醫健通修例　醫衞局：市民仍有權決定是否容許醫護人員閱覽紀錄
-
-![醫務衞生局強調市民仍有權決定是否容許個別醫護人員閱覽自己的醫療紀錄。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796577_1_20250320124613.jpg&q=80)
-  
-
-政府建議修例，精簡市民同意醫護將病人資料上載至醫健通戶口的機制，又賦權醫務衞生局局長可要求包括私營機構，必須將重要電子健康紀錄上載至市民的醫健通戶口。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796577-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796577-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796577-20250320.htm)
 
 ---

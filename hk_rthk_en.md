@@ -1,3 +1,27 @@
+# London's Heathrow airport closes due to power outage
+
+![British authorities say a fire near the airport prompted them to close Heathrow until midnight. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796747_1_20250321113009.jpg&q=90)
+  
+
+Britain's Heathrow Airport on Friday said it would be closed until midnight after experiencing a significant power outage due to a fire at a nearby electrical substation supplying the airport.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796747-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796747-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796747-20250321.htm)
+
+---
+
 # N Korea tests new anti-aircraft system
 
 ![Kim Jong-un visits the Nampho Dockyard on Thursday in Nampho, North Korea. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796741_1_20250321110412.jpg&q=90)
@@ -1415,29 +1439,5 @@ Sixty-six taxi drivers have been slapped with demerit points for overcharging, r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm)
-
----
-
-# Tencent posts better-than-expected Q4 results
-
-![Tencent posts strong fourth quarter financial performances, bolstered by its gaming and advertising businesses. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796452_1_20250319182448.jpg&q=90)
-  
-
-Tech giant Tencent on Wednesday reported a stronger than expected fourth-quarter growth, boosted by a surge in gaming and advertising revenue.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796452-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796452-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796452-20250319.htm)
 
 ---

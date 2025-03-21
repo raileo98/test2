@@ -1,3 +1,49 @@
+# 羅健熙涉理大外非法集結　律政司上訴被駁回維持無罪裁決
+
+  
+
+2019年11月18日，有市民發起到理工大學內聲援示威者，其後多人被捕。當時身在現場的民主黨主席羅健熙被指參與當中的非法集結，經審訊後被裁定非法集結罪名不成立。律政司不服提出上訴，今日被高等法院上訴庭駁回，維持羅健熙的無罪裁決。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796748-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796748-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796748-20250321.htm)
+
+---
+
+# 孫靖乾獲委任為通訊事務管理局主席　任期下月起生效
+
+  
+
+行政長官委任孫靖乾接替譚允芝為通訊事務管理局主席，任期4月1日起生效，為期兩年。孫靖乾是資深大律師，亦出任高等法院原訟法庭特委法官。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796746-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796746-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796746-20250321.htm)
+
+---
+
 # 物流公司盼無人機做到即時送貨　中電測試包括葵涌等人口密集地方
 
 ![張寶中（左）指中電期望日後做到配合人工智能及創新科技，構建全自動無人機的巡檢系統；張霆邦（右）表示，希望透過無人機做到端對端的即時送貨服務，運送藥品或檔案等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796745_1_20250321112420.jpg&q=90)
@@ -1389,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796665-20250320.htm)
-
----
-
-# 夏寶龍會見香港歐洲商會　稱全力支持香港長期保持獨特地位和優勢
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796663_1_20250320203336.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見香港歐洲商會訪京團。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm)
-
----
-
-# 民航處暫無收到香港航空機艙行李架起火有人受傷報告　會積極跟進
-
-![多名機艙服務員和乘客打開行李架後，不斷用樽裝水和飲品向冒煙的行李淋水。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796662_1_20250320213157.jpg&q=90)
-  
-
-香港航空一架由杭州飛往香港的客機，飛行途中機艙行李架起火，改道安全降落於福州機場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm)
 
 ---

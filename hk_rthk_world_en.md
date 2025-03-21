@@ -1,3 +1,27 @@
+# London's Heathrow airport closes due to power outage
+
+![British authorities say a fire near the airport prompted them to close Heathrow until midnight. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796747_1_20250321113009.jpg&q=90)
+  
+
+Britain's Heathrow Airport on Friday said it would be closed until midnight after experiencing a significant power outage due to a fire at a nearby electrical substation supplying the airport.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796747-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796747-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796747-20250321.htm)
+
+---
+
 # N Korea tests new anti-aircraft system
 
 ![Kim Jong-un visits the Nampho Dockyard on Thursday in Nampho, North Korea. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796741_1_20250321110412.jpg&q=90)
@@ -1413,29 +1437,5 @@ The UK's Labour government will on Monday set out details of how it plans to sla
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795990-20250317.htm)
-
----
-
-# Hospitalised Pope Francis addresses frailty
-
-![Children holding balloons gather by the statue of John Paul II outside the Gemelli University Hospital where Pope Francis is hospitalised, in Rome. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795960_1_20250316215620.jpg&q=85)
-  
-
-Pope Francis acknowledged being fragile and "facing a period of trial", as he thanked well-wishers on Sunday for prayers in a message from hospital, where he has been slowly recovering from pneumonia.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795960-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795960-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795960-20250316.htm)
 
 ---
