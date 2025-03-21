@@ -1,3 +1,27 @@
+# Norris chalks up fastest practice lap in Chinese GP
+
+![Mechanics work on Lando Norris' car in the pits during the first practice session of the Formula One Chinese Grand Prix at the Shanghai International Circuit. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796771_1_20250321132157.jpg&q=85)
+  
+
+Lando Norris was fastest in practice on Friday for the Chinese Grand Prix, the championship leader lapping almost half a second quicker than Ferrari's Charles Leclerc, with McLaren team-mate Oscar Piastri third.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796771-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796771-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796771-20250321.htm)
+
+---
+
 # HK$3bn scheme to support academic research: CE
 
 ![Chief Executive John Lee says scholars and scientists play a critical role in aiding Hong Kong's tech ambitions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796766_1_20250321125749.jpg&q=80)
@@ -1415,29 +1439,5 @@ US President Donald Trump hailed a "very good" call with Ukraine's Volodymyr Zel
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796505-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796505-20250320.htm)
-
----
-
-# Malaysia agrees terms for resumption of MH370 search
-
-![Very little of the doomed Malaysian Airlines plane has ever been found. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796487_1_20250319224244.jpg&q=90)
-  
-
-Malaysia has agreed to the terms and conditions of an agreement with exploration firm Ocean Infinity to resume the search for the wreckage of the missing Malaysia Airlines flight MH370, its transport minister said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm)
 
 ---

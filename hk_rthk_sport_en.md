@@ -1,3 +1,27 @@
+# Norris chalks up fastest practice lap in Chinese GP
+
+![Mechanics work on Lando Norris' car in the pits during the first practice session of the Formula One Chinese Grand Prix at the Shanghai International Circuit. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796771_1_20250321132157.jpg&q=85)
+  
+
+Lando Norris was fastest in practice on Friday for the Chinese Grand Prix, the championship leader lapping almost half a second quicker than Ferrari's Charles Leclerc, with McLaren team-mate Oscar Piastri third.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796771-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796771-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796771-20250321.htm)
+
+---
+
 # Vinicius dashes Colombia hopes with late winner
 
 ![Vinicius Jr and a teammate celebrate after the stoppage-time winner against Colombia at the Mane Garrincha stadium in Brasilia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796760_1_20250321123836.jpg&q=85)
@@ -1417,29 +1441,5 @@ Sergio Garcia of Spain on Sunday carded a seven-under 63 to take home the LIV Go
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm)
-
----
-
-# Liverpool ease past Southampton to go 16 points clear
-
-![Liverpool's Egyptian striker #11 Mohamed Salah celebrates scoring the team's third goal from the penalty spot. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794946_1_20250309085129.jpg&q=90)
-  
-
-Premier League leaders Liverpool needed two Mohamed Salah penalties to beat bottom-of-the-table Southampton 3-1 on Saturday, while Nottingham Forest took a giant step towards the Champions League with a 1-0 win over Manchester City.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794946-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794946-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794946-20250309.htm)
 
 ---
