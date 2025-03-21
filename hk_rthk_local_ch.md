@@ -1,5 +1,29 @@
+# 何永賢稱新措施讓有能力公屋富戶騰出單位　有需要市民有安身之處
+
+  
+
+房委會通過收緊公屋富戶政策，每月入息超過限額2倍至不高於5倍的富戶，額外租金由1.5倍至2倍，上調至2.5倍至4.5倍。另外，若富戶在兩個申報周期即合共4年，每月入息均處於4倍至5倍之間，會被要求遷出公屋。房屋局局長何永賢認為，新措施可以讓有能力的富戶及時騰出公屋單位，同時也有4年時間讓他們做好上流的準備。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796818-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796818-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796818-20250321.htm)
+
+---
+
 # 港深創新科技園首三座大樓下半年營運　旁邊五座料2027年完工
 
+![孫東說，今日完成的第首三座大樓，將於今年下半年迎來生命健康科技、人工智慧、新能源等支柱產業領域的公司機構進駐。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796815_1_20250321174512.jpg&q=80)
   
 
 港深創新及科技園兩座大樓今日舉行平頂儀式，而另一幢人才公寓大樓亦全面完工。創新科技及工業局局長孫東表示，今年會把河套區現存社區隔離設施，搬遷到其他地點，盡快爭取在完成平整之後，期望明年初將第一期餘下土地，交給創科園區回歸創科用途。
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796639-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796639-20250320.htm)
-
----
-
-# 涉參與暴動後移居日本　27歲男子回港探親被捕暴動罪囚45個月
-
-![被告承認一項暴動罪，在區域法院被判監禁45個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796643_1_20250320181325.jpg&q=80)
-  
-
-一名27歲男子涉嫌於2019年8月31日在灣仔參與暴動，他其後離港移居日本，2023年回港探親時被捕。他上星期承認一項暴動罪，今日在區域法院被判監禁45個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796643-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796643-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796643-20250320.htm)
 
 ---
