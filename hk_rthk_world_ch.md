@@ -696,7 +696,7 @@
 
 # 歐盟向烏克蘭再提供10億歐元貸款
 
-![馮德萊恩（左）強調，歐盟正幫助烏克蘭經濟保持正常運轉，重建被破壞的關鍵基礎設施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796691_1_20250321015522.jpg&q=90)
+![馮德萊恩強調歐盟正幫助烏克蘭經濟保持正常運轉，重建被破壞的關鍵基礎設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796691_1_20250322001659.jpg&q=90)
   
 
 歐盟委員會表示，向烏克蘭再提供10億歐元貸款，相關貸款將以被凍結的俄羅斯資產收益來償還，連同這筆貸款，歐盟今年來向烏克蘭提供的貸款總額達40億歐元。
