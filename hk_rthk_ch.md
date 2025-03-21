@@ -1,3 +1,27 @@
+# 英格蘭世盃外圍賽2:0挫阿爾巴尼亞　杜曹首次領軍旗開得勝
+
+![路易斯史基利首次入選國家腳就取得入球，幫英格蘭先開紀錄。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796883_1_20250322070457.jpg&q=90)
+  
+
+世界盃歐洲區外圍賽，英格蘭在新帥杜曹處子領軍下旗開得勝，在K組2:0輕取阿爾巴尼亞。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796883-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796883-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796883-20250322.htm)
+
+---
+
 # 倫敦希斯路機場重開　警方相信變電站火警沒可疑
 
 ![希斯路機場重開，有飛抵的航班降落。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796881_1_20250322065504.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796805-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796805-20250321.htm)
-
----
-
-# 小鵬汽車在港至今已交付近1000輛車
-
-![顧宏地稱小鵬去年海外銷量突破2萬輛，位列非傳統汽車品牌中第一。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796810_1_20250321170604.jpg&q=85)
-  
-
-小鵬汽車名譽副董事長兼聯席總裁顧宏地表示，公司去年交付量按年增34.2%至19萬輛車，海外銷量突破2萬輛，位列非傳統汽車品牌中第一。今年首兩個月，內地交付量亦居「新勢力」品牌首位，預計首季交付量將按年增長逾3倍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 英格蘭世盃外圍賽2:0挫阿爾巴尼亞　杜曹首次領軍旗開得勝
+
+![路易斯史基利首次入選國家腳就取得入球，幫英格蘭先開紀錄。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796883_1_20250322070457.jpg&q=90)
+  
+
+世界盃歐洲區外圍賽，英格蘭在新帥杜曹處子領軍下旗開得勝，在K組2:0輕取阿爾巴尼亞。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796883-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796883-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796883-20250322.htm)
+
+---
+
 # 世盃外圍賽國足作客0:1不敵沙特
 
 ![林良銘上半場被紅牌罰，國足最終飲恨。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796729_1_20250321095251.jpg&q=90)
@@ -1430,29 +1454,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794390-20250305.htm)
-
----
-
-# 「LIV Golf 香港站」周五起舉行　加入美食及表演等節目
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794389_1_20250305155556.jpg&q=90)
-  
-
-高爾夫球賽事「LIV Golf 香港站」周五至周日在粉嶺高爾夫球場舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm](https://news.rthk.hk/rthk/ch/component/k2/1794389-20250305.htm)
 
 ---
