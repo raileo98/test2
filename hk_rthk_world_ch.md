@@ -1,3 +1,27 @@
+# 倫敦希斯路機場重開　警方相信變電站火警沒可疑
+
+![希斯路機場重開，有飛抵的航班降落。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796881_1_20250322065504.jpg&q=90)
+  
+
+英國倫敦希斯路機場恢復部分航班升降，並計劃星期六全面恢復運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796881-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796881-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796881-20250322.htm)
+
+---
+
 # 特朗普稱計劃與習近平通話　中美貿易官員下周會談
 
 ![習近平說，他與習近平關係佷好，會保持非常良好的關係，但兩國有1萬億美元的貿易逆差。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796875_1_20250322063205.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796504-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796504-20250320.htm)
-
----
-
-# 美國白宮︰特朗普與澤連斯基就俄烏停止襲擊能源設施達成一致
-
-![萊維特說，美烏雙方已越過礦產和自然資源協議，目前重點是俄烏之間的和平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796503_1_20250320045705.jpg&q=90)
-  
-
-美國白宮發表聲明，說總統特朗普與烏克蘭總統澤連斯基進行非常好的電話交談，雙方就俄烏停止襲擊能源設施達成一致，特朗普又同意幫助澤連斯基在歐洲部署防空系統。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796503-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796503-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796503-20250320.htm)
 
 ---
