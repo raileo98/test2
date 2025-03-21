@@ -1,3 +1,51 @@
+# Gauff breezes through in Miami as Rybakina falls
+
+![Naomi Osaka after winning a set against Liudmila Samsonova. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796739_1_20250321104637.jpg&q=90)
+  
+
+Third seed Coco Gauff crushed fellow American Sofia Kenin 6-0 6-0 at the Miami Open, the former U.S. Open champion producing a flawless display to reach the third round.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796739-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796739-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796739-20250321.htm)
+
+---
+
+# China gears up for F1 fever this weekend
+
+![McLaren's Lando Norris arrives in Shanghai atop the drivers’ standings for the first time. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796732_1_20250321100549.jpg&q=90)
+  
+
+McLaren’s dominance, Lewis Hamilton’s bid to bounce back after a disappointing debut for Ferrari, and the passing of Eddie Jordan have generated headlines as Formula 1 prepares for its first "Sprint weekend" of the season at the Chinese Grand Prix on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796732-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796732-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796732-20250321.htm)
+
+---
+
 # Shin Bet boss axed as Netanyahu split comes to a head
 
 ![Ronen Bar says his sacking is intended to 'prevent investigations into the events leading up to October 7' attack. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796737_1_20250321102045.jpg&q=90)
@@ -1391,53 +1439,5 @@ Lawmakers on Wednesday passed a bill that aims to protect the cybersecurity of c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796453-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796453-20250319.htm)
-
----
-
-# Stocks end up as winning streak continues
-
-![Stocks end up as winning streak continues](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796461_1_20250319182952.jpg&q=80)
-  
-
-Equity markets were mixed and gold hit another record high on Wednesday as trade war worries cast a shadow and geopolitical concerns returned to the fore.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm)
-
----
-
-# Turkish markets hit by arrest of Erdogan's rival
-
-![Supporters and municipality workers hold a rally in Istanbul in support of mayor Ekrem Imamoglu following his arrest. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796448_1_20250319175032.jpg&q=90)
-  
-
-Turkey's lira fell 12.7 percent and touched a new all-time low of 42 to the dollar on Wednesday, with bonds and stocks also tumbling sharply, after authorities detained President Tayyip Erdogan's main political rival.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 日股半日升近0.4%
+
+![日經平均指數半日收報37890點，升138點，升幅0.37%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796738_1_20250321103932.jpg&q=90)
+  
+
+日本股市上升，日經平均指數半日收報37890點，升138點，升幅0.37%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796738-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796738-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796738-20250321.htm)
+
+---
+
 # 本港上月破產呈請按月跌3.9%　發出清盤令創近15年半新高
 
 ![上月法院發出清盤令66宗，創近15年半單月新高，按月升約14%，按年升83%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796736_1_20250321101810.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796596-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796596-20250320.htm)
-
----
-
-# 2月人民幣國際支付份額升穿4%　創半年新高
-
-![2月人民幣國際支付價值份額突破4%，升至4.33%，創半年新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796572_1_20250320120845.jpg&q=80)
-  
-
-環球同業銀行金融電訊協會(SWIFT)報告指，2月人民幣國際支付價值份額突破4%，升至4.33%，創半年新高，高於1月的3.79%，連續4個月排行全球第四。有關比例在2023年11月至去年8月，一直處於4%以上，去年10月一度跌穿3%水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796572-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796572-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796572-20250320.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 希斯路機場因變電站火警停電　機場關閉至當地周五午夜
+
+![希斯路機場因變電站起火停電，機場要暫停運作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796740_1_20250321105042.jpg&q=85)
+  
+
+英國希斯路機場表示，由於為機場供電的變電站發生火警，機場出現嚴重停電，為了確保乘客和員工安全，機場將關閉當地星期五晚上午夜。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796740-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796740-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796740-20250321.htm)
+
+---
+
+# 日股半日升近0.4%
+
+![日經平均指數半日收報37890點，升138點，升幅0.37%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796738_1_20250321103932.jpg&q=90)
+  
+
+日本股市上升，日經平均指數半日收報37890點，升138點，升幅0.37%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796738-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796738-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796738-20250321.htm)
+
+---
+
 # 本港上月破產呈請按月跌3.9%　發出清盤令創近15年半新高
 
 ![上月法院發出清盤令66宗，創近15年半單月新高，按月升約14%，按年升83%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796736_1_20250321101810.jpg&q=90)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm)
-
----
-
-# 英國維持利率不變
-
-![英倫銀行貨幣政策委員會以8票對1票，維持指標利率4.5厘不變。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796659_1_20250320201122.jpg&q=90)
-  
-
-英倫銀行宣布維持利率不變，貨幣政策委員會以8票對1票，維持指標利率在4.5厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796659-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796659-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796659-20250320.htm)
-
----
-
-# 習近平到雲南考察　強調在中國式現代化進程中開創雲南發展新局面
-
-![習近平到麗江古城考察，了解商舖的經營狀況。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796660_1_20250320225330.jpg&q=75)
-  
-
-中共總書記習近平在雲南考察時強調，雲南要認真落實黨中央關於西部大開發和長江經濟帶發展的戰略部署，完整準確全面貫徹新發展理念，堅持穩中求進工作總基調，著力推動高質量發展，解放思想、改革創新，奮發進取、真抓實幹，在中國式現代化進程中開創雲南發展新局面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm)
 
 ---

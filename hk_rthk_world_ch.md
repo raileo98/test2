@@ -1,3 +1,27 @@
+# 希斯路機場因變電站起火停電　機場要暫停運作
+
+![希斯路機場因變電站起火停電，機場要暫停運作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796740_1_20250321105042.jpg&q=85)
+  
+
+英國希斯路機場表示，由於為機場供電的變電站發生火警，機場出現嚴重停電，為了確保乘客和員工安全，機場將關閉當地星期五晚上午夜。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796740-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796740-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796740-20250321.htm)
+
+---
+
 # 俄羅斯聯邦安全會議秘書紹伊古據報抵達平壤　將晤金正恩
 
 ![紹伊古據報將與北韓領袖金正恩及其他高級官員會面。(路透社資料圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796734_1_20250321101345.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796333-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796333-20250319.htm)
-
----
-
-# 澤連斯基：支持停襲能源設施　普京提出要求顯示未準備結束戰事
-
-![澤連斯基強調，烏克蘭支持任何能夠實現穩定及公正和平的提案。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796328_1_20250319044847.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基表示，支持俄烏雙方暫停攻擊對方能源設施30日的建議，但需要了解更多細節，期待與美國總統特朗普通話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796328-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796328-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796328-20250319.htm)
 
 ---
