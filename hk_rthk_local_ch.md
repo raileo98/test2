@@ -1,3 +1,26 @@
+# 港深創新科技園首三座大樓下半年營運　旁邊五座料2027年完工
+
+  
+
+港深創新及科技園兩座大樓今日舉行平頂儀式，而另一幢人才公寓大樓亦全面完工。創新科技及工業局局長孫東表示，今年會把河套區現存社區隔離設施，搬遷到其他地點，盡快爭取在完成平整之後，期望明年初將第一期餘下土地，交給創科園區回歸創科用途。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm)
+
+---
+
 # 證監會高層與財政部副部長廖岷會面　就優化互聯互通等深入交流
 
 ![證監會高層日前在北京與財政部副部長廖岷會面。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796812_1_20250321171901.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796643-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796643-20250320.htm)
-
----
-
-# 元朗洪水橋兩地延至7月截標　象徵式租金租10年取代無償轉讓
-
-![發展局說，是次調整招標條款，正是政府因應市場意見從善如流的例子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796641_1_20250320181044.jpg&q=90)
-  
-
-政府公布，現正招標、分別位於洪水橋及元朗的兩幅多層現代產業大樓用地，將修訂招標條款，並延長招標期限至今年7月25日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796641-20250320.htm)
 
 ---

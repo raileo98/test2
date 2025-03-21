@@ -1,3 +1,26 @@
+# 港深創新科技園首三座大樓下半年營運　旁邊五座料2027年完工
+
+  
+
+港深創新及科技園兩座大樓今日舉行平頂儀式，而另一幢人才公寓大樓亦全面完工。創新科技及工業局局長孫東表示，今年會把河套區現存社區隔離設施，搬遷到其他地點，盡快爭取在完成平整之後，期望明年初將第一期餘下土地，交給創科園區回歸創科用途。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm)
+
+---
+
 # 外交部：民進黨當局勾連外部勢力謀「獨」挑釁不會得逞
 
 ![毛寧說，民進黨當局勾連外部勢力謀「獨」挑釁是不會得逞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796814_1_20250321172343.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796203-20250318.htm)
-
----
-
-# 丁薛祥晤英國能源大臣　願深化金融、貿易、綠色等領域合作
-
-![丁薛祥在北京與文立彬會談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796140_1_20250318001047.jpg&q=90)
-  
-
-中共中央政治局常委、國務院副總理丁薛祥在北京與英國能源安全和淨零排放大臣文立彬會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm)
 
 ---
