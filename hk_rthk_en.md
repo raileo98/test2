@@ -1,3 +1,27 @@
+# Maiden century as Nawaz keeps series alive against NZ
+
+![Hasan Nawaz celebrates his century against New Zealand at Eden Park in Auckland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796831_1_20250321182455.jpg&q=90)
+  
+
+Opener Hasan Nawaz struck a record-breaking maiden century on Friday as Pakistan crushed New Zealand by nine wickets in the third Twenty20 to keep the series alive.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm)
+
+---
+
 # Record lap puts 'gobsmacked' Hamilton in pole position
 
 ![Lewis Hamilton in a Ferrari during the sprint qualifier. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796819_1_20250321175331.jpg&q=85)
@@ -1415,29 +1439,5 @@ Israel resumed ground operations in Gaza and issued what it called a "last warni
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796554-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796554-20250320.htm)
-
----
-
-# Kyrgios wins first match since 2022
-
-![Nick Kyrgios hits a running shot against Mackenzie McDonald in Miami Open action at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796553_1_20250320103836.jpg&q=90)
-  
-
-Australian Nick Kyrgios came from behind to defeat Mackenzie McDonald 3-6 6-3 6-4 in the first round of the Miami Open to earn his first win since October 2022.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm)
 
 ---

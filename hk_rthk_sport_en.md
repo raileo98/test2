@@ -1,3 +1,27 @@
+# Maiden century as Nawaz keeps series alive against NZ
+
+![Hasan Nawaz celebrates his century against New Zealand at Eden Park in Auckland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796831_1_20250321182455.jpg&q=90)
+  
+
+Opener Hasan Nawaz struck a record-breaking maiden century on Friday as Pakistan crushed New Zealand by nine wickets in the third Twenty20 to keep the series alive.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm)
+
+---
+
 # Record lap puts 'gobsmacked' Hamilton in pole position
 
 ![Lewis Hamilton in a Ferrari during the sprint qualifier. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796819_1_20250321175331.jpg&q=85)
@@ -1417,29 +1441,5 @@ Declan Rice's equaliser denied Manchester United boss Ruben Amorim a much-needed
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795028-20250310.htm)
-
----
-
-# Robertson romps to World Snooker Grand Prix title
-
-![Smiles all round but the trophy definitely belongs to Neil Robertson. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795014_1_20250309214747.jpg&q=85)
-  
-
-Neil Robertson from Australia won the 2025 World Snooker Grand Prix on Sunday, delivering a dominant performance by whitewashing Stuart Bingham from England by a score of 10-frames-to-nil.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm)
 
 ---
