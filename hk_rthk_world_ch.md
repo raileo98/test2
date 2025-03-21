@@ -1,3 +1,27 @@
+# 王毅晤石破茂　促日方切實履行在歷史和台灣問題上政治承諾
+
+![王毅在東京與日本首相石破茂會面。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796858_1_20250321235157.jpg&q=90)
+  
+
+訪問日本的中共中央政治局委員、外長王毅在東京與日本首相石破茂會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm)
+
+---
+
 # 埃及南部有樓宇倒塌至少6死11傷
 
 ![埃及南部有樓宇倒塌至少6死11傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796849_1_20250321213125.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796457-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796457-20250319.htm)
-
----
-
-# 韓媒：上月試圖闖入中國駐韓大使館男子被起訴
-
-![韓媒：上月試圖闖入中國駐韓大使館男子被起訴](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796443_1_20250319172903.jpg&q=90)
-  
-
-韓聯社引述當地法律界的消息指，上月身穿Marvel電影人物「美國隊長」服飾，試圖闖入中國駐韓大使館和當地警署的男子，已被逮捕起訴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796443-20250319.htm)
 
 ---
