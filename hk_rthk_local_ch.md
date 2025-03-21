@@ -1,3 +1,27 @@
+# 外來車輛損毀架空電纜　天悅站附近輕鐵服務暫停
+
+![外來車輛損毀架空電纜　天悅站附近輕鐵服務暫停](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796884_1_20250322072932.jpg&q=90)
+  
+
+港鐵表示，受外來車輛損毀架空電纜影響，天悅站附近的輕鐵服務暫停，呼籲市民考慮使用其他交通工具，並為行程預留充裕時間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796884-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796884-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796884-20250322.htm)
+
+---
+
 # 醫管局：市民共付放射服務部分費用是考慮方向
 
 ![黃立己相信，涉及的共付額，大部分市民都接受得到。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796878_1_20250322064817.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm)
-
----
-
-# 謝展寰在北京到訪國家海關總署及國家生態環境部等機構
-
-![謝展寰展參觀中國農業科學院的蔬菜花卉研究所溫室。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796681_1_20250320231718.jpg&q=70)
-  
-
-環境及生態局局長謝展寰展開北京訪問行程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm)
 
 ---
