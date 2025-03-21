@@ -3,7 +3,7 @@
 ![歐洲主要股市周五收市下跌，本周走勢個別發展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796872_1_20250322051207.jpg&q=90)
   
 
-歐洲主要股市周五收市下跌，本周走勢個別發展。
+歐洲主要股市收市下跌，倫敦希斯路機場一度關閉，航空及旅遊股向下。
 
   
 
