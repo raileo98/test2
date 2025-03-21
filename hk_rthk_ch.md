@@ -1,3 +1,27 @@
+# 警方旺角反罪惡拘捕33人
+
+![警方在旺角一連兩日採取反罪惡行動，拘捕33人，圖為部分被捕人士。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796870_1_20250322034616.jpg&q=75)
+  
+
+警方在旺角一連兩日採取反罪惡行動，拘捕33人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796870-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796870-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796870-20250322.htm)
+
+---
+
 # 伊朗最高領袖：美國對伊朗採取任何惡意行為將受到沉重打擊
 
 ![哈梅內伊發表談話時警告，如果美國對伊朗採取任何惡意行為，將受到沉重打擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796869_1_20250322032804.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796795-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796795-20250321.htm)
-
----
-
-# 首季21宗致命車禍23人死亡　警下周將不定時不定點嚴厲執法
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796801_1_20250321170642.jpg&q=90)
-  
-
-警方表示，去年香港發生1萬8千多宗有人受傷的交通意外，涉及2萬3千多人，當中88人死亡，較前年減少8%，42名行人在交通意外中死亡，亦按年減少32%，交通意外死亡人數及行人死亡數字均創歷史新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796801-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796801-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796801-20250321.htm)
 
 ---
