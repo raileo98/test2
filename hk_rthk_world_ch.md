@@ -1,3 +1,26 @@
+# 王毅晤南韓外長　冀韓方奉行積極友好對華政策
+
+  
+
+中共中央政治局委員、外長王毅在東京會見共同出席第11次中日韓外長會的南韓外長趙兌烈。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796864-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796864-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796864-20250322.htm)
+
+---
+
 # 倫敦希斯路機場將恢復部分航班
 
 ![希斯路機場因附近變電站大火，周五取消1300多班機，數以千計乘客滯留。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796863_1_20250322012724.jpg&q=75)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796492-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796492-20250320.htm)
-
----
-
-# 俄方稱與烏方互相移交175名被俘人員
-
-![普京在莫斯科出席總檢察院擴大會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796490_1_20250319230659.jpg&q=90)
-  
-
-俄羅斯國防部表示，俄羅斯與烏克蘭在當地星期三各向對方移交175名被俘人員。俄方又額外向烏方移交22名需緊急救治的烏軍重傷人員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796490-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796490-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796490-20250319.htm)
 
 ---
