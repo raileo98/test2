@@ -1,3 +1,75 @@
+# 日本最大工會聯盟第二輪勞資談判結果：企業同意加薪5.4%
+
+![日本最大工會聯盟公布第二輪年度勞資談判結果顯示，日本企業已同意今年加薪5.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796799_1_20250321163008.jpg&q=90)
+  
+
+日本最大工會聯盟，日本勞動組合總連合會公布第二輪年度勞資談判結果顯示，日本企業已同意今年將工資提高5.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796799-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796799-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796799-20250321.htm)
+
+---
+
+# 美團上季盈利按年升1.8倍　按季跌52%
+
+![美團上季盈利62.2億元人民幣，按年升1.8倍，按季跌52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796803_1_20250321164455.jpg&q=90)
+  
+
+美團上季盈利62.2億元人民幣，按年升1.8倍，按季跌52%，不派股息。按非國際財務報告會計準則，經調整盈利98.5億元，按年升1.3倍，按季跌23%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm)
+
+---
+
+# 本港二手樓價指數按周跌逾1%　創27周最大跌幅
+
+![中原城市領先指數最新報134.89，按周跌1.17%，跌幅是27周以來最大。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796804_1_20250321165313.jpg&q=85)
+  
+
+反映本港二手樓價走勢的中原城市領先指數（CCL）最新報134.89，按周跌1.17%，跌幅是27周以來最大，再創逾8年半新低。指數反映2月26日財政預算案公布當周市況，並且連跌兩周累計跌1.87%，蒸發去年9月首次減息後所有升幅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm)
+
+---
+
 # 南韓本月31日起全面取消股市沽空禁令
 
 ![南韓將於本月31日起，全面取消國內股市沽空禁令。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796795_1_20250321161406.jpg&q=90)
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796654-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796654-20250320.htm)
-
----
-
-# 國泰航空上月載客量按年升逾14%　香港快運載客量升32%
-
-![國泰航空上月載客量按年增長14.3%至205.9萬人次，載客率升至82.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796648_1_20250320183227.jpg&q=90)
-  
-
-國泰航空上月載客量按年增長14.3%至205.9萬人次，載客率升至82.9%。首兩個月載客量升25.4%至441.1萬人次，載客率升至84.7%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796648-20250320.htm)
-
----
-
-# 第六次中日經濟高層對話後天東京舉行　時隔六年重啟
-
-![何咏前說，當前中日關係呈現改善發展的良好積極勢頭。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796651_1_20250320183913.jpg&q=90)
-  
-
-第六次中日經濟高層對話本月22日將在日本東京舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm)
-
----
-
-# 恒地去年盈利跌32%　基礎盈利升1%
-
-![恒地計劃今年在港推售11個項目，連同存貨，預計今年可供銷售單位有約6400個。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796644_1_20250320181719.jpg&q=90)
-  
-
-恒地去年盈利約63億元，按年減少32%。派末期息每股1.3元，全年派息維持1.8元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796644-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796644-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796644-20250320.htm)
 
 ---

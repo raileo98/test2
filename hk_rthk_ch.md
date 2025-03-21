@@ -1,3 +1,121 @@
+# 日本最大工會聯盟第二輪勞資談判結果：企業同意加薪5.4%
+
+![日本最大工會聯盟公布第二輪年度勞資談判結果顯示，日本企業已同意今年加薪5.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796799_1_20250321163008.jpg&q=90)
+  
+
+日本最大工會聯盟，日本勞動組合總連合會公布第二輪年度勞資談判結果顯示，日本企業已同意今年將工資提高5.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796799-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796799-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796799-20250321.htm)
+
+---
+
+# 12班往來香港及倫敦希斯路機場航班取消　機管局籲留意最新情況
+
+  
+
+機管局接獲通知，倫敦希斯路機場受附近變電站火警影響而需要暫停運作。今日全日共有12班來往香港及倫敦希斯路機場的航班。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm)
+
+---
+
+# 美團上季盈利按年升1.8倍　按季跌52%
+
+![美團上季盈利62.2億元人民幣，按年升1.8倍，按季跌52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796803_1_20250321164455.jpg&q=90)
+  
+
+美團上季盈利62.2億元人民幣，按年升1.8倍，按季跌52%，不派股息。按非國際財務報告會計準則，經調整盈利98.5億元，按年升1.3倍，按季跌23%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm)
+
+---
+
+# 本港二手樓價指數按周跌逾1%　創27周最大跌幅
+
+![中原城市領先指數最新報134.89，按周跌1.17%，跌幅是27周以來最大。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796804_1_20250321165313.jpg&q=85)
+  
+
+反映本港二手樓價走勢的中原城市領先指數（CCL）最新報134.89，按周跌1.17%，跌幅是27周以來最大，再創逾8年半新低。指數反映2月26日財政預算案公布當周市況，並且連跌兩周累計跌1.87%，蒸發去年9月首次減息後所有升幅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm)
+
+---
+
+# 園方稱「家姐」「細佬」進入新成長階段　「盈盈」有能力照顧子女
+
+  
+
+海洋公園一對大熊貓龍鳳胎「家姐」、「細佬」明日起與媽媽「盈盈」於同一展館亮相。公園工作人員盧芷珊表示，「家姐」、「細佬」進入新的成長階段，會探索不同事物，在母親身邊可以學習一些人類無法教授的知識，例如分辨氣味，園方認為，兩隻大熊貓貓已足夠成熟與媽媽一起與公眾見面，「盈盈」亦已具備能力同時間照顧兩名子女，相信牠們可以適應新安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796808-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796808-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796808-20250321.htm)
+
+---
+
 # 南韓本月31日起全面取消股市沽空禁令
 
 ![南韓將於本月31日起，全面取消國內股市沽空禁令。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796795_1_20250321161406.jpg&q=90)
@@ -143,6 +261,7 @@
 
 # 中大發現人體一種細胞蛋白會協調釋放更多病毒　抑制活性可抗感染
 
+![中大醫學院與國際研究夥伴合作研究發現，人體感染病毒後，體內一種重要細胞蛋白「ARF4」會協調受感染細胞釋放更多致病病毒。（中大提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796789_1_20250321170126.jpg&q=90)
   
 
 中大醫學院與國際研究夥伴合作研究發現，人體感染病毒後，體內一種重要細胞蛋白「ARF4」會協調受感染細胞釋放更多致病病毒，而抑制這種細胞蛋白的活性，可以成為抗病毒感染的新方法。
