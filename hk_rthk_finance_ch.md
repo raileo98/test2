@@ -1,3 +1,27 @@
+# 學者料部分行業仍有結業現象　破產數字或高企
+
+![經濟學者李兆波認為，農曆新年錯月對破產數字有影響，他預料破產數字仍會處於高位，但不會差過疫情時期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796762_1_20250321124346.jpg&q=90)
+  
+
+破產管理署公布，2月破產呈請書787宗，法庭發出接管令或破產令690宗，按年都增長超過兩成。上月強制清盤呈請65宗，創3個月新高。法院發出清盤令升至66宗，創近15年半單月新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796762-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796762-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796762-20250321.htm)
+
+---
+
 # 港投與芯片公司合作　陳茂波稱加快芯片行業變革有更大創新空間
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796602-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796602-20250320.htm)
-
----
-
-# 港股跌幅一度擴大至逾500點　科指跌約3%
-
-![恒生指數一度跌逾500點，較早時報24303點，跌467點，跌幅約1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796603_1_20250320144934.jpg&q=15)
-  
-
-港股午後跌幅擴大，恒生指數一度跌逾500點，較早時報24303點，跌467點，跌幅約1.9%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796603-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796603-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796603-20250320.htm)
 
 ---

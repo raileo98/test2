@@ -1,3 +1,50 @@
+# 變電站大火致嚴重停電　希斯路機場就事故所帶來不便致歉
+
+  
+
+在英國希斯路機場附近為機場供電的變電站發生大火，機場在當地星期五全日關閉，機場就事故帶來的不便致歉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796763-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796763-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796763-20250321.htm)
+
+---
+
+# 學者料部分行業仍有結業現象　破產數字或高企
+
+![經濟學者李兆波認為，農曆新年錯月對破產數字有影響，他預料破產數字仍會處於高位，但不會差過疫情時期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796762_1_20250321124346.jpg&q=90)
+  
+
+破產管理署公布，2月破產呈請書787宗，法庭發出接管令或破產令690宗，按年都增長超過兩成。上月強制清盤呈請65宗，創3個月新高。法院發出清盤令升至66宗，創近15年半單月新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796762-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796762-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796762-20250321.htm)
+
+---
+
 # 工傷及職業病補償4.17起提高　職業性失聰最低額增至58萬
 
   
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796679-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796679-20250320.htm)
-
----
-
-# 陳美寶爭取為今年內推出「粤車南下」計劃作好準備
-
-![運輸及物流局局長陳美寶今日與珠海市市長吳澤桐會面，就兩個城市在物流、航空及陸路運輸等方面的合作交流意見。（運輸及物流局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796678_1_20250320220414.jpg&q=85)
-  
-
-運輸及物流局局長陳美寶與珠海市市長吳澤桐會面，就兩個城市在物流、航空及陸路運輸等方面的合作交流意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796678-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796678-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796678-20250320.htm)
-
----
-
-# 九巴：所有車長工作安排均符合運輸署指引
-
-![九巴強調，所有車長的工作安排均符合運輸署的「巴士車長工作、休息及用膳時間指引」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796676_1_20250320221559.jpg&q=85)
-  
-
-九巴表示，管理層今日與工會代表會面，討論有關車長的工作安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796676-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796676-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796676-20250320.htm)
 
 ---

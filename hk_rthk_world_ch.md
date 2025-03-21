@@ -1,3 +1,26 @@
+# 變電站大火致嚴重停電　希斯路機場就事故所帶來不便致歉
+
+  
+
+在英國希斯路機場附近為機場供電的變電站發生大火，機場在當地星期五全日關閉，機場就事故帶來的不便致歉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796763-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796763-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796763-20250321.htm)
+
+---
+
 # 希斯路機場因變電站起火停電　機場要暫停運作
 
 ![希斯路機場因變電站起火停電，機場要暫停運作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796740_1_20250321105042.jpg&q=85)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796337-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796337-20250319.htm)
-
----
-
-# 比利時起訴5人涉與華為疑透過說客賄賂歐洲議會議員案件有關
-
-![報道指，華為的說客涉嫌賄賂現任或前任歐洲議會議員，推廣公司在歐洲的商業政策。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796333_1_20250319054420.jpg&q=90)
-  
-
-比利時檢察部門起訴五人，涉嫌與中國電訊設備商華為，懷疑透過說客賄賂歐洲議會議員的案件有關，其中四人被控貪污及參與犯罪組織，另一人被控洗黑錢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796333-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796333-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796333-20250319.htm)
 
 ---

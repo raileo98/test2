@@ -96,7 +96,7 @@ Russian President Vladimir Putin's top security adviser Sergei Shoigu has arrive
 
 # London's Heathrow airport closes due to power outage
 
-![British authorities say a fire near the airport prompted them to close Heathrow until midnight. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796747_1_20250321113009.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796747_1_20250321113009.jpg&q=90)
   
 
 Britain's Heathrow Airport on Friday said it would be closed until midnight after experiencing a significant power outage due to a fire at a nearby electrical substation supplying the airport.
