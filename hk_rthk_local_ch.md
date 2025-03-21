@@ -1,3 +1,26 @@
+# 工傷及職業病補償4.17起提高　職業性失聰最低額增至58萬
+
+  
+
+政府刊憲，工傷及職業病的補償金額，下月17日起提高，增幅介乎3.8%至86.3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796761-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796761-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796761-20250321.htm)
+
+---
+
 # 港投與芯片公司合作　陳茂波稱加快芯片行業變革有更大創新空間
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796595-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796595-20250320.htm)
-
----
-
-# 監管沙盒試點包括科學園上空配送食品　嘗試跨越城門河到馬鞍山
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796594_1_20250320134446.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶表示，首批低空經濟「監管沙盒」試點項目，部份將會在科學園和數碼港試驗，將物資由園區配送到離島，當局亦期望在第二季之內修例，放寬無人機的負重限制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796594-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796594-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796594-20250320.htm)
 
 ---

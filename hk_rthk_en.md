@@ -1,3 +1,27 @@
+# Vinicius dashes Colombia hopes with late winner
+
+![Vinicius Jr and a teammate celebrate after the stoppage-time winner against Colombia at the Mane Garrincha stadium in Brasilia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796760_1_20250321123836.jpg&q=85)
+  
+
+Vinicius Junior struck a dramatic winner in the ninth minute of stoppage time to give Brazil a 2-1 win over Colombia in their South American World Cup qualifier.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm)
+
+---
+
 # All eyes on safety in low-altitude test runs
 
 ![Mable Chan says future beyond line-of-sight flights will be based on flight data collected from line-of-sight runs and assessments of safety considerations. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796743_1_20250321110918.jpg&q=90)
@@ -1415,29 +1439,5 @@ The government on Wednesday said the King's Park site, currently home to Queen E
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm)
-
----
-
-# 'New Israeli strikes on Gaza dramatic step backwards'
-
-![Palestinians flee their homes after the Israeli army issued evacuation orders for a number of neighborhoods following heavy strikes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796484_1_20250319222238.jpg&q=90)
-  
-
-Israel's resumption of strikes on the Gaza Strip is a major step in the wrong direction after its ceasefire with Palestinian militant group Hamas earlier this year, French President Emmanuel Macron said on Wednesday alongside Jordan's King Abdullah II.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm)
 
 ---

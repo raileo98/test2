@@ -1,3 +1,27 @@
+# Vinicius dashes Colombia hopes with late winner
+
+![Vinicius Jr and a teammate celebrate after the stoppage-time winner against Colombia at the Mane Garrincha stadium in Brasilia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796760_1_20250321123836.jpg&q=85)
+  
+
+Vinicius Junior struck a dramatic winner in the ninth minute of stoppage time to give Brazil a 2-1 win over Colombia in their South American World Cup qualifier.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm)
+
+---
+
 # Gauff breezes through in Miami as Rybakina falls
 
 ![Naomi Osaka after winning a set against Liudmila Samsonova. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796739_1_20250321104637.jpg&q=90)
@@ -1417,29 +1441,5 @@ Premier League leaders Liverpool needed two Mohamed Salah penalties to beat bott
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794946-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794946-20250309.htm)
-
----
-
-# Hudson-Odoi strikes late as Forest edge City
-
-![Callum Hudson-Odoi, (far right), beats Ederson at his near post from a very tight angle. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794933_1_20250308223542.jpg&q=80)
-  
-
-Nottingham Forest's Callum Hudson-Odoi struck late to give his side a 1-0 win over Manchester City in the Premier League on Saturday and keep them on track for a top-four finish and prized place in next year's Champions League.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794933-20250308.htm)
 
 ---

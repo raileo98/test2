@@ -1,3 +1,26 @@
+# 工傷及職業病補償4.17起提高　職業性失聰最低額增至58萬
+
+  
+
+政府刊憲，工傷及職業病的補償金額，下月17日起提高，增幅介乎3.8%至86.3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796761-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796761-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796761-20250321.htm)
+
+---
+
 # 港投與芯片公司合作　陳茂波稱加快芯片行業變革有更大創新空間
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796676-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796676-20250320.htm)
-
----
-
-# 東京地鐵沙林毒氣襲擊事件30周年　民眾在出事地鐵站悼念
-
-![有遇難者家屬到當年事發的東京霞關地鐵站悼念離世的親人。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796674_1_20250320223035.jpg&q=90)
-  
-
-日本東京地鐵沙林毒氣襲擊事件30周年，在當年事發的東京霞關地鐵站，遇難者家屬、受害者和乘客前往站內的獻花台，獻上鮮花並雙手合十，悼念遇難者，車站工作人員等人在事件發生的一刻默哀。日本國土交通相中野洋昌亦到現場獻花。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796674-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796674-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796674-20250320.htm)
 
 ---
