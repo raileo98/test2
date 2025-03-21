@@ -1,5 +1,29 @@
+# 國泰今日兩班往倫敦航班及所有由倫敦回港航班取消
+
+  
+
+國泰航空表示，知悉倫敦希斯路機場臨時關閉至直另行通知。公司今日由香港前往倫敦的CX239及CX253航班已經取消；而今日所有由倫敦前往香港的國泰航班亦已全部取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796774-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796774-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796774-20250321.htm)
+
+---
+
 # 韓媒稱南韓在野黨向國會提請彈劾代總統崔相穆
 
+![韓聯社報道，南韓在野黨向國會提請彈劾代總統崔相穆。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796773_1_20250321134435.jpg&q=90)
   
 
 韓聯社報道，南韓在野黨向國會提請彈劾代總統崔相穆。

@@ -1,3 +1,26 @@
+# 國泰今日兩班往倫敦航班及所有由倫敦回港航班取消
+
+  
+
+國泰航空表示，知悉倫敦希斯路機場臨時關閉至直另行通知。公司今日由香港前往倫敦的CX239及CX253航班已經取消；而今日所有由倫敦前往香港的國泰航班亦已全部取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796774-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796774-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796774-20250321.htm)
+
+---
+
 # 立法會功能界別選舉可用點票機及結算表　選舉法例修訂下周交立會
 
 ![政府刊憲，就現行選舉法例提出修訂，以確保今年稍後舉行的選舉委員會界別分組補選，以及立法會換屆選舉能順利進行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796772_1_20250321134215.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796608-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796608-20250320.htm)
-
----
-
-# 香港航空杭州往香港航班因行李架起火轉飛福州安全降落
-
-![香港航空杭州往香港航班，因為行李架起火轉飛福州。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796606_1_20250320154103.jpg&q=90)
-  
-
-香港航空一架由杭州飛往香港的HX115航班，今日因行李架起火而改道，並安全降落於福州長樂國際機場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796606-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796606-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796606-20250320.htm)
 
 ---
