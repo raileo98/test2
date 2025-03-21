@@ -1,3 +1,27 @@
+# 人行貨幣政策委員會建議下階段加大貨幣政策調控強度
+
+![人行稱，根據國內外經濟金融形勢及金融市場運行情況，擇機降準減息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796844_1_20250321203237.jpg&q=90)
+  
+
+人民銀行貨幣政策委員會近日召開今年首季度例會，表示要實施適度寬鬆貨幣政策，加強逆周期調節；建議下階段加大貨幣政策調控強度，提高貨幣政策調控前瞻性、針對性、有效性，根據國內外經濟金融形勢及金融市場運行情況，擇機降準減息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm)
+
+---
+
 # 俄羅斯維持利率不變　指標利率維持21厘
 
 ![俄羅斯央行維持指標利率21厘不變，表示未來可能進一步加息，因通脹壓力居高不下。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796839_1_20250321192742.jpg&q=80)
@@ -358,7 +382,7 @@
 
 ---
 
-# 港股低收530點　本周累計跌逾1%
+# 港股低收530點　恒指本周累計跌逾1%
 
 ![恒生指數收市報23689點，創逾1星期新低，全日跌530點，跌幅約2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796796_1_20250321161603.jpg&q=85)
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796673-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796673-20250320.htm)
-
----
-
-# 李家超：港珠澳大橋去年客流車流按年增七成　推進粵港「硬聯通」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796670_1_20250320213054.jpg&q=90)
-  
-
-行政長官李家超表示，香港與廣東同根同源，一起攜手推進大灣區發展，開創新格局，去年港珠澳大橋的客流和車流，分別超過2700萬人次和555萬輛次，按年分別增長超過70%，創歷史新高，進一步推進粵港「硬聯通」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796670-20250320.htm)
 
 ---

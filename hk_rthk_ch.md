@@ -1,3 +1,27 @@
+# 人行貨幣政策委員會建議下階段加大貨幣政策調控強度
+
+![人行稱，根據國內外經濟金融形勢及金融市場運行情況，擇機降準減息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796844_1_20250321203237.jpg&q=90)
+  
+
+人民銀行貨幣政策委員會近日召開今年首季度例會，表示要實施適度寬鬆貨幣政策，加強逆周期調節；建議下階段加大貨幣政策調控強度，提高貨幣政策調控前瞻性、針對性、有效性，根據國內外經濟金融形勢及金融市場運行情況，擇機降準減息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm)
+
+---
+
 # 外交部：美國應停止干擾破壞中國和伊朗正常商貿合作
 
 ![毛寧說，美國應停止干擾破壞中國和伊朗正常的商貿合作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796843_1_20250321203038.jpg&q=90)
@@ -48,6 +72,7 @@
 
 # 希斯路機場因火警事故關閉　香港寄往英國郵件派遞服務有延誤
 
+![香港郵政表示，英國希斯路機場因火警事故關閉，寄往英國的郵件派遞服務會有延誤。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796840_1_20250321203258.jpg&q=90)
   
 
 香港郵政宣布，接獲航空公司通知，英國希斯路機場因火警事故關閉，寄往英國的郵件派遞服務會有延誤。
@@ -862,7 +887,7 @@
 
 ---
 
-# 港股低收530點　本周累計跌逾1%
+# 港股低收530點　恒指本周累計跌逾1%
 
 ![恒生指數收市報23689點，創逾1星期新低，全日跌530點，跌幅約2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796796_1_20250321161603.jpg&q=85)
   
