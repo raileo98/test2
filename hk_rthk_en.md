@@ -97,7 +97,7 @@ A "gobsmacked" Lewis Hamilton obliterated the Shanghai lap record to take a stun
 
 # Govt to make room for private sector in high-tech park
 
-![Chief Executive John Lee has called on all sectors from society to jointly develop the Hong Kong-Shenzhen Innovation & Technology Park.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796807_2_20250321173255.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796807_2_20250321173255.jpg&q=90)
   
 
 Chief Executive John Lee said the government will soon offer land for private development in Hong Kong-Shenzhen Innovation and Technology Park, now that the first three buildings in zone's Hong Kong Park have been completed.
@@ -121,7 +121,7 @@ Chief Executive John Lee said the government will soon offer land for private de
 
 # Police launch citywide crackdown on careless driving
 
-![Police will launch an enforcement operation to combat careless driving, speeding, and jaywalking. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796806_1_20250321165421.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796806_1_20250321165421.jpg&q=90)
   
 
 Police on Friday said they will launch a citywide operation next week to tackle inattentive driving, following an increase in fatal traffic accidents in the first three months of this year.
