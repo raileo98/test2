@@ -1,8 +1,8 @@
-# 李家超稱今年內完成港深創新及科技園區第二期詳細規則
+# 李家超：今年內完成港深創新及科技園區第二期詳細規劃
 
   
 
-行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規則，已指示內部提速、提效，推動園區工作。
+行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。
 
   
 
@@ -10,14 +10,14 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796830-20250321.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796830-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796830-20250321.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm)
 
 ---
 
@@ -335,8 +335,6 @@
   
 
 海洋公園一對大熊貓龍鳳胎「家姐」、「細佬」明日起與媽媽「盈盈」於同一展館亮相。公園工作人員盧芷珊表示，「家姐」、「細佬」進入新的成長階段，會探索不同事物，在母親身邊可以學習一些人類無法教授的知識，例如分辨氣味，園方認為，兩隻大熊貓BB已足夠成熟與媽媽一起與公眾見面，「盈盈」亦已具備能力同時間照顧兩名子女，相信牠們可以適應新安排。
-  
-![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1796808_1_L_20250321170719.jpg)
 
   
 

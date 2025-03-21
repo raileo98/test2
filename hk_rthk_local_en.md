@@ -1,3 +1,28 @@
+# HK Investment Corp chips in with strategic deal
+
+![Paul Chan says the design and application of RISC-V open-source chips will speed up industrial revolutions. Photo: Courtesy of Government Information Services](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796829_1_20250321182218.jpg&q=90)
+![Hong Kong Investment Corporation has signed a strategic partnership deal with Shanghai-based startup StarFive to speed up RISC-V chips' adoption in the SAR. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796829_2_20250321182218.jpg&q=90)
+  
+
+Financial Secretary Paul Chan said on Friday a strategic partnership between the government-backed investment firm and a mainland chipmaker will speed up adoption of the popular RISC-V chips in the city.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm)
+
+---
+
 # Lee to make room for private sector in high-tech park
 
 ![Chief Executive John Lee has called on all sectors from society to jointly develop the Hong Kong-Shenzhen Innovation & Technology Park.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796807_2_20250321173255.jpg&q=90)
@@ -1415,29 +1440,5 @@ A specialist in obstetrics and gynaecology said it remains uncertain whether pat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm)
-
----
-
-# 'Task force on gastro outbreak among students needed'
-
-![A local education concern group says the task force is needed to ensure the safety of students. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796027_1_20250317115245.jpg&q=85)
-  
-
-A local education concern group on Monday welcomed the government's decision to form a task force to look into a recent gastroenteritis outbreak among students who went on a mainland study tour in Guangdong.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm)
 
 ---

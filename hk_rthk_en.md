@@ -1,3 +1,28 @@
+# HK Investment Corp chips in with strategic deal
+
+![Paul Chan says the design and application of RISC-V open-source chips will speed up industrial revolutions. Photo: Courtesy of Government Information Services](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796829_1_20250321182218.jpg&q=90)
+![Hong Kong Investment Corporation has signed a strategic partnership deal with Shanghai-based startup StarFive to speed up RISC-V chips' adoption in the SAR. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796829_2_20250321182218.jpg&q=90)
+  
+
+Financial Secretary Paul Chan said on Friday a strategic partnership between the government-backed investment firm and a mainland chipmaker will speed up adoption of the popular RISC-V chips in the city.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm)
+
+---
+
 # 'Record number of deaths on migration routes in 2024'
 
 ![The UN has recorded a total of 2,452 people dying in the Mediterranean Sea, the main gateway for those trying to reach Europe. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796832_1_20250321183806.jpg&q=90)
@@ -1415,29 +1440,5 @@ Medical sector lawmaker David Lam on Thursday welcomed the government's plans to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796558-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796558-20250320.htm)
-
----
-
-# Trump urges Fed to cut rates as tariffs take effect
-
-![Donald Trump says "the Fed would be much better off cutting rates". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796555_1_20250320110749.jpg&q=90)
-  
-
-President Donald Trump urged the US Federal Reserve on Wednesday to cut interest rates to help offset effects of his tariffs, renewing his vocal disagreement with the central bank's decision-making.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm)
 
 ---
