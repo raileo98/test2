@@ -1,3 +1,27 @@
+# 劉建超晤日本訪客　稱兩國政黨對中日關係改善發展肩負重要責任
+
+![劉建超說，兩國政黨對中日關係改善發展肩負重要責任。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796847_1_20250321210225.jpg&q=90)
+  
+
+中共中央對外聯絡部部長劉建超在北京會見由日本立憲民主黨常任顧問、前干事長岡田克也率領的代表團。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm)
+
+---
+
 # 外交部：美國應停止干擾破壞中國和伊朗正常商貿合作
 
 ![毛寧說，美國應停止干擾破壞中國和伊朗正常的商貿合作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796843_1_20250321203038.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796437-20250319.htm)
-
----
-
-# 外交部：中方冀日方能正視歷史　推動中日關係健康穩定向前發展
-
-![毛寧說，中方希望日方能本着正視歷史、開闢未來的精神，推動中日關係健康穩定向前發展。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796430_1_20250319164255.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧回應美日元首上月共同宣布，將反對以武力或脅迫手段單方面改變台海現狀時表示，台灣問題是中國的內政，不容任何外部干涉。日本曾經對台灣殖民統治，對中國人民負有歷史罪責，所以尤其應當謹言慎行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm)
 
 ---

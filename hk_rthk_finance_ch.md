@@ -1,3 +1,51 @@
+# 有券商認為證監會限制新股孖展最高借九成對市場氣氛影響不大
+
+![證監會向所有持牌法團發出內部監控措施指引，要求業界對新股孖展最高只可以借九成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796848_1_20250321210308.jpg&q=90)
+  
+
+近月多隻新股錄得數以千倍超額認購。證監會近日完成檢視數家選定持牌法團的新股融資活動，發現存在缺失，包括部分券商被發現曾採取不謹慎和過分進取的融資手法，接納超出客戶財政能力認購指示。證監會向所有持牌法團發出內部監控措施指引，加強風險管理，包括要求業界應向客戶收取最低相等於認購金額10%的預付認購資金，即新股孖展最高只可以借九成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm)
+
+---
+
+# 李強主持國務院會議　研究建立健全涉企收費長效監管機制有關舉措
+
+![李強主持召開國務院常務會議，研究建立健全涉企收費長效監管機制有關舉措。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796846_1_20250321204723.jpg&q=90)
+  
+
+國務院總理李強主持召開國務院常務會議，研究建立健全涉企收費長效監管機制有關舉措。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796846-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796846-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796846-20250321.htm)
+
+---
+
 # 中證監：要持續完善資本市場基礎制度　堅持保護投資者導向
 
 ![中證監稱要堅持服務實體經濟，支持新質生產力發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796842_1_20250321202837.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796699-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796699-20250321.htm)
-
----
-
-# 證監會暫時吊銷一名金融網紅牌照16個月
-
-![證監會稱投資者利用金融網紅分享的資訊時，應保持警覺和謹慎行事。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796675_1_20250320215637.jpg&q=80)
-  
-
-證監會暫時吊銷黃明忠牌照16個月，由本周三至明年7月18日。證監會說，黃明忠是名為Franky Wong的金融網紅，亦是謝氏膺暉證券持牌代表，早前被裁定未領有牌照而在Telegram建立及管理一個接受訂閱的聊天群組並提供投資意見，刑事罪名成立。證監會認為他並非繼續獲發牌進行受規管活動適當人選。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796675-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796675-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796675-20250320.htm)
-
----
-
-# 美國2月二手樓銷售按月升4.2%
-
-![美國2月二手房屋銷售按月上升4.2%，以年率計達到426萬間，多過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796680_1_20250320224340.jpg&q=50)
-  
-
-美國2月二手房屋銷售按月上升4.2%，以年率計達到426萬間，多過市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796680-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796680-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796680-20250320.htm)
 
 ---

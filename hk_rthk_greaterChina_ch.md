@@ -1,3 +1,27 @@
+# 劉建超晤日本訪客　稱兩國政黨對中日關係改善發展肩負重要責任
+
+![劉建超說，兩國政黨對中日關係改善發展肩負重要責任。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796847_1_20250321210225.jpg&q=90)
+  
+
+中共中央對外聯絡部部長劉建超在北京會見由日本立憲民主黨常任顧問、前干事長岡田克也率領的代表團。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm)
+
+---
+
 # 李強主持國務院會議　研究建立健全涉企收費長效監管機制有關舉措
 
 ![李強主持召開國務院常務會議，研究建立健全涉企收費長效監管機制有關舉措。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796846_1_20250321204723.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796251-20250318.htm)
-
----
-
-# 美商務部據報禁DeepSeek　外交部：反對泛化國家安全概念
-
-![毛寧回應，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796249_1_20250318164617.jpg&q=90)
-  
-
-對於有報道指，美國商務部各部門最近通知工作人員，中國人工智能模型深度求索(DeepSeek)已被禁止在政府設備上使用，在北京，外交部發言人毛寧回應，中方一貫反對泛化國家安全概念，將經貿和科技問題政治化，中方也將堅定維護中國企業的合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796249-20250318.htm)
 
 ---

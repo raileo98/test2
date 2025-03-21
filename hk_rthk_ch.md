@@ -1,3 +1,51 @@
+# 有券商認為證監會限制新股孖展最高借九成對市場氣氛影響不大
+
+![證監會向所有持牌法團發出內部監控措施指引，要求業界對新股孖展最高只可以借九成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796848_1_20250321210308.jpg&q=90)
+  
+
+近月多隻新股錄得數以千倍超額認購。證監會近日完成檢視數家選定持牌法團的新股融資活動，發現存在缺失，包括部分券商被發現曾採取不謹慎和過分進取的融資手法，接納超出客戶財政能力認購指示。證監會向所有持牌法團發出內部監控措施指引，加強風險管理，包括要求業界應向客戶收取最低相等於認購金額10%的預付認購資金，即新股孖展最高只可以借九成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm)
+
+---
+
+# 劉建超晤日本訪客　稱兩國政黨對中日關係改善發展肩負重要責任
+
+![劉建超說，兩國政黨對中日關係改善發展肩負重要責任。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796847_1_20250321210225.jpg&q=90)
+  
+
+中共中央對外聯絡部部長劉建超在北京會見由日本立憲民主黨常任顧問、前干事長岡田克也率領的代表團。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm)
+
+---
+
 # 李強主持國務院會議　研究建立健全涉企收費長效監管機制有關舉措
 
 ![李強主持召開國務院常務會議，研究建立健全涉企收費長效監管機制有關舉措。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796846_1_20250321204723.jpg&q=90)
@@ -24,6 +72,7 @@
 
 # 國泰：晚上本港起飛CX251及CX255如常前往倫敦
 
+![國泰航空表示，晚上分別10時許及11時許起飛的CX251及CX255，會如常前往倫敦 。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796845_1_20250321211229.jpg&q=80)
   
 
 英國倫敦希斯路機場因附近變電站大火臨時關閉。國泰航空表示，晚上分別10時許及11時許起飛的CX251及CX255，會如常前往倫敦 。
