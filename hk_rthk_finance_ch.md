@@ -1,3 +1,27 @@
+# 內地股市低收逾1%至逾2%　全星期累計亦跌
+
+![內地股市低收逾1%至逾2%，本周累計亦跌近2%至逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796784_1_20250321150709.jpg&q=90)
+  
+
+內地股市低收逾1%至逾2%，人形機器人、汽車產業鏈股份下跌，中藥、航運、海工裝備概念股造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796784-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796784-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796784-20250321.htm)
+
+---
+
 # 韓股高收0.23%　創近1個月新高
 
 ![首爾綜合指數收報2643點，升6點，升幅0.23%，連升5日，創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796781_1_20250321143811.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796638-20250320.htm)
-
----
-
-# 外交部：經貿分歧應透過對話協商解決而非讓全球經濟承擔代價
-
-![毛寧說，無論外部環境如何變化，中方將堅持對外開放，與世界各國共同發展，互利共贏。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796637_1_20250320175602.jpg&q=90)
-  
-
-經濟合作暨發展組織最新發布的中期經濟展望報告下調全球的經濟增長預期，認為一些國家近期採取的貿易壁壘措施將影響世界經濟的增速，導致通脹上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm)
 
 ---

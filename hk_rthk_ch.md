@@ -1,3 +1,27 @@
+# 內地股市低收逾1%至逾2%　全星期累計亦跌
+
+![內地股市低收逾1%至逾2%，本周累計亦跌近2%至逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796784_1_20250321150709.jpg&q=90)
+  
+
+內地股市低收逾1%至逾2%，人形機器人、汽車產業鏈股份下跌，中藥、航運、海工裝備概念股造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796784-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796784-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796784-20250321.htm)
+
+---
+
 # 大熊貓龍鳳胎明起與媽媽同框見公眾　參觀時間約3分鐘須領時間票
 
   
@@ -143,7 +167,6 @@
 
 # 希斯路機場附近變電站內一半變壓器仍焚燒　吉域機場按需要支援
 
-![希斯路機場航班大受影響。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796775_1_20250321140402.jpg&q=90)
   
 
 英國希斯路機場因附近變電站大火導致當地周五全日關閉的事故，消防指變電站內一半變壓器仍在焚燒，10架消防車及至少70名消防員奉召到場，預計將會是持久戰，天光前消防員都會在現場。消防又指火警導致停電，影響大批家庭及企業，正與夥伴密切合作盡量減少影響。
