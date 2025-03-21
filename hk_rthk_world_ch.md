@@ -1,9 +1,33 @@
+# 巴拿馬附近海域發生6.3級地震
+
+![巴拿馬附近海域發生6.3級地震](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796861_1_20250322004835.jpg&q=90)
+  
+
+巴拿馬大學地球科學研究所說，當地時間當日上午9時50分，巴拿馬附近海域發生地震，初步測定震級為6.3級，震源深度10公里。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796861-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796861-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796861-20250322.htm)
+
+---
+
 # 加沙民防部門：11人周五死於以軍襲擊
 
 ![以軍周二起大規模空襲加沙地帶，並重啟地面軍事行動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796860_1_20250322003825.jpg&q=90)
   
 
-加沙民防部門說，有11人在星期五以軍的襲擊中喪生。
+加沙民防部門說，有11人星期五在以軍的襲擊中喪生。
 
   
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796475-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796475-20250319.htm)
-
----
-
-# 澤連斯基稱將與特朗普通話　指責俄羅斯對烏克蘭發動新一輪攻擊
-
-![澤連斯基說，稍後將同美國總統特朗普通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796473_1_20250319195840.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基指責俄羅斯對烏克蘭發動新一輪攻擊，認為俄羅斯總統普京的言論與現實嚴重不符。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796473-20250319.htm)
 
 ---

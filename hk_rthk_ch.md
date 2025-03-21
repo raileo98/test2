@@ -1,9 +1,33 @@
+# 巴拿馬附近海域發生6.3級地震
+
+![巴拿馬附近海域發生6.3級地震](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796861_1_20250322004835.jpg&q=90)
+  
+
+巴拿馬大學地球科學研究所說，當地時間當日上午9時50分，巴拿馬附近海域發生地震，初步測定震級為6.3級，震源深度10公里。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796861-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796861-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796861-20250322.htm)
+
+---
+
 # 加沙民防部門：11人周五死於以軍襲擊
 
 ![以軍周二起大規模空襲加沙地帶，並重啟地面軍事行動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796860_1_20250322003825.jpg&q=90)
   
 
-加沙民防部門說，有11人在星期五以軍的襲擊中喪生。
+加沙民防部門說，有11人星期五在以軍的襲擊中喪生。
 
   
 
@@ -1415,30 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm)
-
----
-
-# 30億推前沿科技研究資助　李家超稱香港憑硬件及軟實力創造機遇
-
-![李家超說，聯盟成立證明了集體智慧的力量，展現開放交流的承諾。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_1_20250321154937.jpg&q=80)
-![李家超、葉玉如、孫東及張翔等出席活動主持儀式。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_2_20250321154937.jpg&q=90)
-  
-
-國際院士聯盟成立，行政長官李家超出席儀式時致辭時透露，將會很快推出金額涉及30億元的前沿科技研究資助計劃，資助由世界級研究人員和學者推動開創性基礎研究。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm)
 
 ---
