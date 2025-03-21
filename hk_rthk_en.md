@@ -1,3 +1,27 @@
+# US stocks close higher ahead of April tariffs
+
+![All the major indices made minor gains. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796882_1_20250322065918.jpg&q=90)
+  
+
+Wall Street stocks closed higher Friday after fluctuations, shaking off ongoing economic uncertainty including those triggered by US President Donald Trump's tariff plans -- following his comments that these will contain some flexibility.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796882-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796882-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796882-20250322.htm)
+
+---
+
 # Flights at London Heathrow resume after power outage
 
 ![The closure not only caused misery for travellers but provoked anger from airlines. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796876_1_20250322061716.jpg&q=85)
@@ -1416,29 +1440,5 @@ Indonesia's parliament on Thursday passed contentious revisions to the country's
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm)
-
----
-
-# Temporary e-permit to assist HKers on the mainland
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796562_1_20250320122843.jpg&q=90)
-  
-
-Hongkongers who are travelling and living in mainland China can now apply for a temporary digital permit to travel by air and train within mainland cities if they lose, damage, or forget their permit.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm)
 
 ---
