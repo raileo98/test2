@@ -1,3 +1,27 @@
+# Record number of deaths on migration routes in 2024
+
+![The UN has recorded a total of 2,452 people dying in the Mediterranean Sea, the main gateway for those trying to reach Europe.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796832_1_20250321183806.jpg&q=90)
+  
+
+Last year was the deadliest year for migrants, with nearly 9,000 people dying worldwide, the United Nations said on Friday, calling the "tragedy... unacceptable and preventable".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm)
+
+---
+
 # NJZ loses court fight to leave label
 
 ![The Seoul Central District Court prohibits members of NJZ from pursuing independent endeavours. File photo: NewJeans](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796797_1_20250321161623.jpg&q=85)
@@ -1411,31 +1435,5 @@ US President Donald Trump's administration began mass layoffs at Voice of Americ
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796015-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796015-20250317.htm)
-
----
-
-# At least 37 dead from wild weather across the US
-
-![A man sits in front of his home a day after a tornado destroyed it in Tylertown, Mississippi, US. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795992_1_20250317090515.jpg&q=75)
-![At least 37 dead from wild weather across the US](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795992_3_20250317092942.jpg&q=80)
-![At least 37 dead from wild weather across the US](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795992_2_20250317092717.jpg&q=60)
-  
-
-Unusually vicious and damaging weather across multiple US states spawned violent tornadoes, blinding dust storms and fast-moving wildfires this weekend, leaving at least 37 people dead.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795992-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795992-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795992-20250317.htm)
 
 ---

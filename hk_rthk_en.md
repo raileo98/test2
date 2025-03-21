@@ -1,3 +1,27 @@
+# Record number of deaths on migration routes in 2024
+
+![The UN has recorded a total of 2,452 people dying in the Mediterranean Sea, the main gateway for those trying to reach Europe.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796832_1_20250321183806.jpg&q=90)
+  
+
+Last year was the deadliest year for migrants, with nearly 9,000 people dying worldwide, the United Nations said on Friday, calling the "tragedy... unacceptable and preventable".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm)
+
+---
+
 # Maiden century as Nawaz keeps series alive against NZ
 
 ![Hasan Nawaz celebrates his century against New Zealand at Eden Park in Auckland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796831_1_20250321182455.jpg&q=90)
@@ -1415,29 +1439,5 @@ President Donald Trump urged the US Federal Reserve on Wednesday to cut interest
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm)
-
----
-
-# Israel resumes ground attacks in Gaza
-
-![Palestinians flee Beit Hanoun, northern Gaza, after Israel issued evacuation orders for some neighbourhoods. Photo: Abd Elhkeem Khaled/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796554_1_20250320110026.jpg&q=90)
-  
-
-Israel resumed ground operations in Gaza and issued what it called a "last warning" for Palestinians to return hostages and remove Hamas from power.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796554-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796554-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796554-20250320.htm)
 
 ---
