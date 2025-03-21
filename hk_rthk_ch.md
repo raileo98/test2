@@ -1,3 +1,26 @@
+# 大埔公路沙田段6車相撞5人傷　警方列狂亂駕駛拘兩人
+
+  
+
+大埔公路沙田段晚上發生6車相撞意外，5人受輕傷。警方列作狂亂駕駛及行使虛假文書，拘捕兩人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796856-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796856-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796856-20250321.htm)
+
+---
+
 # 內地旅客代辦申請駕駛執照承認違反逗留條件　判囚54日
 
 ![入境處打擊在港提供代辦申請駕駛執照服務的非法勞工，日前拘捕2人。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796854_1_20250321215609.jpg&q=90)
