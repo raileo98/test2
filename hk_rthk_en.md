@@ -1,3 +1,27 @@
+# N Korea tests new anti-aircraft system
+
+![Kim Jong-un visits the Nampho Dockyard on Thursday in Nampho, North Korea. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796741_1_20250321110412.jpg&q=90)
+  
+
+North Korea test-fired its latest anti-aircraft missile system in a drill watched by leader Kim Jong-un, state media reported on Friday, as the nuclear-armed state lashed out at US-South Korea joint drills.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796741-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796741-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796741-20250321.htm)
+
+---
+
 # Gauff breezes through in Miami as Rybakina falls
 
 ![Naomi Osaka after winning a set against Liudmila Samsonova. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796739_1_20250321104637.jpg&q=90)
@@ -432,7 +456,7 @@ Zimbabwean Kirsty Coventry became the first woman and African to be elected pres
 
 # Top Beijing official praises EuroCham's work in HK
 
-![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing. Photo courtesy of Hong Kong and Macao Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796677_1_20250320220041.jpg&q=90)
+![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing. Photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796677_1_20250320220041.jpg&q=90)
   
 
 Hong Kong has the full support from the central government in maintaining its unique status and advantages, a senior Beijing official told a visiting business delegation from the SAR on Thursday.
@@ -1415,29 +1439,5 @@ Tech giant Tencent on Wednesday reported a stronger than expected fourth-quarter
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796452-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796452-20250319.htm)
-
----
-
-# New law passed to protect infrastructure cybersecurity
-
-![Chris Tang stressed the new law won't affect people's personal information or confidential business information.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796453_1_20250319181710.jpg&q=90)
-  
-
-Lawmakers on Wednesday passed a bill that aims to protect the cybersecurity of critical infrastructure in several sectors.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796453-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796453-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796453-20250319.htm)
 
 ---

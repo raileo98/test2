@@ -1,3 +1,27 @@
+# N Korea tests new anti-aircraft system
+
+![Kim Jong-un visits the Nampho Dockyard on Thursday in Nampho, North Korea. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796741_1_20250321110412.jpg&q=90)
+  
+
+North Korea test-fired its latest anti-aircraft missile system in a drill watched by leader Kim Jong-un, state media reported on Friday, as the nuclear-armed state lashed out at US-South Korea joint drills.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796741-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796741-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796741-20250321.htm)
+
+---
+
 # Shin Bet boss axed as Netanyahu split comes to a head
 
 ![Ronen Bar says his sacking is intended to 'prevent investigations into the events leading up to October 7' attack. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796737_1_20250321102045.jpg&q=90)
@@ -1413,29 +1437,5 @@ Pope Francis acknowledged being fragile and "facing a period of trial", as he th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795960-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795960-20250316.htm)
-
----
-
-# 'Most scared I've been': US strikes sow panic in Yemen
-
-![Armed Yemenis shout slogans and raise their weapons during a protest against Israel's decision to block aid into the Gaza Strip, in the capital Sanaa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795952_1_20250316194411.jpg&q=80)
-  
-
-The first US strikes against Yemen's Houthis since Donald Trump took office killed 31 people, the rebels said on Sunday, with the US president warning "hell will rain down upon" the Iran-backed group if it did not stop attacking shipping.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795952-20250316.htm)
 
 ---
