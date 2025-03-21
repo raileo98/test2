@@ -95,12 +95,12 @@ A "gobsmacked" Lewis Hamilton obliterated the Shanghai lap record to take a stun
 
 ---
 
-# Lee to make room for private sector in high-tech park
+# Govt to make room for private sector in high-tech park
 
 ![Chief Executive John Lee has called on all sectors from society to jointly develop the Hong Kong-Shenzhen Innovation & Technology Park.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796807_2_20250321173255.jpg&q=90)
   
 
-Chief Executive John Lee has hinted that the government will soon offer land for private development in Hong Kong-Shenzhen Innovation and Technology Park now that the first three buildings in zone's Hong Kong Park have been completed.
+Chief Executive John Lee said the government will soon offer land for private development in Hong Kong-Shenzhen Innovation and Technology Park, now that the first three buildings in zone's Hong Kong Park have been completed.
 
   
 
