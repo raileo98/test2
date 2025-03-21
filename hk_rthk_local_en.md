@@ -1,3 +1,51 @@
+# Well-off public housing tenants to pay higher rents
+
+![Cleresa Wong said the higher rental charges for well-off tenants are aimed at bringing about a fairer use of public resources and not at raising government revenue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796794_1_20250321160610.jpg&q=90)
+  
+
+A Housing Authority subcommittee tightened rules on Friday for well-off public housing tenants, raising the likelihood that those earning incomes that far exceed limits could pay 1.25 times more than they are currently paying.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796794-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796794-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796794-20250321.htm)
+
+---
+
+# French aviation firm sets up Asia HQ in Hong Kong
+
+![The Airport Authority and Elior Group signs an agreement in February. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796793_1_20250321160409.jpg&q=90)
+  
+
+A French aeronautic services company on Friday said it is working with the Airport Authority (AA) to develop the SAR into Asia’s first aircraft parts processing and trading hub.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796793-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796793-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796793-20250321.htm)
+
+---
+
 # NJZ loses court fight to leave label
 
 ![The Seoul Central District Court prohibits members of NJZ from pursuing independent endeavours. File photo: NewJeans](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796797_1_20250321161623.jpg&q=85)
@@ -1391,53 +1439,5 @@ The Consumer Council on Monday encouraged people to nap on mattresses – some o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796023-20250317.htm)
-
----
-
-# Man dies after alleged chopper attack in Fo Tan
-
-![Police say the victim was allegedly attacked by two knife-wielding men. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795948_2_20250316185117.jpg&q=70)
-  
-
-A man in his 50s on Sunday died after an apparent chopper attack in Fo Tan.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795948-20250316.htm)
-
----
-
-# Parents need more guidance on child abuse law: YMCA
-
-![The Chinese YMCA says parents should be aware of their own emotions when taking care of their children, and to seek help when needed. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795949_1_20250316183822.jpg&q=90)
-  
-
-An NGO on Sunday said many parents are still unclear about an incoming law which makes it mandatory to report child abuse, adding that authorities should step up efforts to explain the legislation which comes into effect next year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795949-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795949-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795949-20250316.htm)
 
 ---
