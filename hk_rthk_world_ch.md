@@ -1,5 +1,54 @@
+# 外交部：民進黨當局勾連外部勢力謀「獨」挑釁不會得逞
+
+![毛寧說，民進黨當局勾連外部勢力謀「獨」挑釁是不會得逞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796814_1_20250321172343.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧回應台灣行政部門聘請日本前自衛隊統合幕僚長岩崎茂擔任顧問時表示，中方已經就有關動向向日方提出交涉，民進黨當局勾連外部勢力謀「獨」挑釁是不會得逞。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm)
+
+---
+
+# 王毅與趙兌烈會談　稱中韓是分不開夥伴應更親近
+
+![王毅表示，中韓兩國是搬不走的鄰居，兩國應經常往來，更加親近。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796813_1_20250321172121.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在日本東京與南韓外長趙兌烈舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm)
+
+---
+
 # 全日12班往來香港及倫敦希斯路機場航班　機管局籲留意最新情況
 
+![倫敦希斯路機場受附近變電站火警影響而需要暫停運作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796809_1_20250321172104.jpg&q=90)
   
 
 機管局接獲通知，倫敦希斯路機場受附近變電站火警影響而需要暫停運作。今日全日共有12班來往香港及倫敦希斯路機場的航班。
@@ -1386,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm)
-
----
-
-# 林健鋒稱多國面對美國加徵關稅　籲港商沉著應戰勿自亂陣腳
-
-![林建峰（中）呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796417_1_20250319160046.jpg&q=90)
-  
-
-行政會議成員、立法會商界議員林健鋒表示，現時不只中國面對美國加徵關稅的問題，即使是美國盟友，例如墨西哥、加拿大等都面對同樣問題，呼籲本港的出口商和製造商不要自亂陣腳，最重要是沉著應戰，亦希望貿易戰盡快平息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796417-20250319.htm)
-
----
-
-# 南韓總統彈劾案未有宣判日　警方已計劃逾2萬人維護社會治安秩序
-
-![首爾近日有集會要求尹錫悅立即下台。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796406_1_20250319141528.jpg&q=85)
-  
-
-南韓警方將於總統尹錫悅彈劾案宣判當日，在全韓範圍部署超過330支機動部隊、合共2萬多名警員，其中1萬4千人會部署到首爾市中心區域。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796406-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796406-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796406-20250319.htm)
 
 ---

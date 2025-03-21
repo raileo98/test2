@@ -1,3 +1,27 @@
+# 證監會高層與財政部副部長廖岷會面　就優化互聯互通等深入交流
+
+![證監會高層日前在北京與財政部副部長廖岷會面。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796812_1_20250321171901.jpg&q=90)
+  
+
+證監會表示，行政總裁梁鳳儀和中介機構部執行董事葉志衡日前在北京拜訪國家財政部副部長廖岷，雙方就香港國際金融中心建設，尤其在固定收益及貨幣市場領域的發展，以及優化兩地金融市場互聯互通機制等合作議題進行深入交流。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm)
+
+---
+
 # 在岸人民幣兌美元低收逾百點子　創近兩星期新低
 
 ![在岸人民幣收報7.2489兌1美元，較昨日收市價跌106點子，創近兩星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796805_1_20250321165350.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm)
-
----
-
-# 載通去年盈利跌53%　九巴稅後盈利升逾10倍
-
-![九龍巴士去年除稅後盈利1.27億元，增長逾10倍，因車費收入增加。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796656_1_20250320191216.jpg&q=85)
-  
-
-九巴母公司載通去年盈利1.87億元，下跌逾53%；撇除投資物業及發展中投資物業公平價值變動，基礎盈利逾2.65億元，增長逾1.3倍，受到專營公共巴士業務表現改善，但部分上市債務證券預期信貸虧損抵銷部分盈利。末期息維持每股0.5元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796656-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796656-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796656-20250320.htm)
 
 ---

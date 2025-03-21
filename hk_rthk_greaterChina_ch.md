@@ -1,3 +1,51 @@
+# 外交部：民進黨當局勾連外部勢力謀「獨」挑釁不會得逞
+
+![毛寧說，民進黨當局勾連外部勢力謀「獨」挑釁是不會得逞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796814_1_20250321172343.jpg&q=90)
+  
+
+在北京，外交部發言人毛寧回應台灣行政部門聘請日本前自衛隊統合幕僚長岩崎茂擔任顧問時表示，中方已經就有關動向向日方提出交涉，民進黨當局勾連外部勢力謀「獨」挑釁是不會得逞。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm)
+
+---
+
+# 王毅與趙兌烈會談　稱中韓是分不開夥伴應更親近
+
+![王毅表示，中韓兩國是搬不走的鄰居，兩國應經常往來，更加親近。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796813_1_20250321172121.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在日本東京與南韓外長趙兌烈舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm)
+
+---
+
 # 葡萄牙外長蘭熱爾下周一起訪華5天
 
 ![葡萄牙國務部長兼外長蘭熱爾將於下周一至周五訪華。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796800_1_20250321163101.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796140-20250318.htm)
-
----
-
-# 國台辧：解放軍在台島附近開展演習是維護台海和平正當之舉
-
-![國台辦稱，解放軍在台島附近開展演習是維護台海和平的正當之舉、必要之舉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796131_1_20250317225020.jpg&q=90)
-  
-
-在北京，國台辦發言人陳斌華表示，解放軍在台島附近開展演習，是對賴清德不斷宣揚「台獨」分裂謬論、升高兩岸對立對抗的堅決懲戒，是對「台獨」分裂勢力謀獨挑釁的有力震懾，是對外部勢力干涉滋事的嚴正警告，是捍衛國家主權、維護台海和平的正當之舉、必要之舉。正告賴清德當局，膽敢挑釁玩火，只會自取滅亡、粉身碎骨。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796131-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796131-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796131-20250317.htm)
-
----
-
-# 鄭雁雄：站在政治和全局高度把握好香港角色、香港方向、香港擔當
-
-![中聯辦主任鄭雁雄傳達全國兩會精神，要求把握主題、抓住重點、因制制宜，學習宣傳貫徹好全國兩會精神。（中聯辦網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796130_1_20250317224420.jpg&q=85)
-  
-
-中聯辦舉辦學習講堂，中聯辦主任鄭雁雄傳達全國兩會精神，要求把握主題、抓住重點、因制制宜，學習宣傳貫徹好全國兩會精神。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1796130-20250317.htm)
 
 ---

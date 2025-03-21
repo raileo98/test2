@@ -1,3 +1,27 @@
+# Lee to make room for private sector in high-tech park
+
+![Chief Executive John Lee has called on all sectors from society, especially private firms, to jointly develop the Hong Kong-Shenzhen Innovation & Technology Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796807_1_20250321165450.jpg&q=80)
+  
+
+Chief Executive John Lee has hinted that the government will soon offer land for private development in Hong Kong-Shenzhen Innovation and Technology Park now that the first three buildings in zone's Hong Kong Park have been completed.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm)
+
+---
+
 # Police launch citywide crackdown on careless driving
 
 ![Police will launch an enforcement operation to combat careless driving, speeding, and jaywalking. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796806_1_20250321165421.jpg&q=90)
@@ -1415,29 +1439,5 @@ A local education concern group on Monday welcomed the government's decision to 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796027-20250317.htm)
-
----
-
-# Healthcare co-payment levels 'should be capped'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796019_1_20250317112442.jpg&q=90)
-  
-
-A former senior Hospital Authority official has called for caution in setting co-payment levels for healthcare services after the government said it'll consider charging patients separately for certain check-ups.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796019-20250317.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Lee to make room for private sector in high-tech park
+
+![Chief Executive John Lee has called on all sectors from society, especially private firms, to jointly develop the Hong Kong-Shenzhen Innovation & Technology Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796807_1_20250321165450.jpg&q=80)
+  
+
+Chief Executive John Lee has hinted that the government will soon offer land for private development in Hong Kong-Shenzhen Innovation and Technology Park now that the first three buildings in zone's Hong Kong Park have been completed.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm)
+
+---
+
 # Police launch citywide crackdown on careless driving
 
 ![Police will launch an enforcement operation to combat careless driving, speeding, and jaywalking. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796806_1_20250321165421.jpg&q=90)
@@ -1415,29 +1439,5 @@ The White House accused judges of "usurping" executive power in its latest broad
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm)
-
----
-
-# Trump to sign order to dismantle Education Department
-
-![A protester stands near the US Department of Education headquarters after the agency said it would lay off nearly half its staff. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796539_1_20250320092913.jpg&q=90)
-  
-
-US President Donald Trump is expected to sign an order on Thursday aiming to dismantle the Department of Education, fulfilling a long-held goal of American conservatives.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm)
 
 ---
