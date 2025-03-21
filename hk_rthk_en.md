@@ -1,3 +1,27 @@
+# 'Gobsmacked' Hamilton takes pole in record time
+
+![Lewis Hamilton in a Ferrari during the sprint qualifier. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796819_1_20250321175331.jpg&q=85)
+  
+
+A "gobsmacked" Lewis Hamilton obliterated the Shanghai lap record to take a stunning pole position on Friday for the Chinese Grand Prix sprint in only his second race weekend with Ferrari.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm)
+
+---
+
 # Lee to make room for private sector in high-tech park
 
 ![Chief Executive John Lee has called on all sectors from society to jointly develop the Hong Kong-Shenzhen Innovation & Technology Park.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796807_2_20250321173255.jpg&q=90)
@@ -1415,29 +1439,5 @@ Australian Nick Kyrgios came from behind to defeat Mackenzie McDonald 3-6 6-3 6-
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm)
-
----
-
-# White House attacks courts for 'usurping' powers
-
-![Karoline Leavitt in a press briefing at the White House. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796546_1_20250320101240.jpg&q=90)
-  
-
-The White House accused judges of "usurping" executive power in its latest broadside against federal courts whose rulings have gone against President Donald Trump's administration.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm)
 
 ---

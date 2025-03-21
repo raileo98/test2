@@ -1,3 +1,27 @@
+# 'Gobsmacked' Hamilton takes pole in record time
+
+![Lewis Hamilton in a Ferrari during the sprint qualifier. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796819_1_20250321175331.jpg&q=85)
+  
+
+A "gobsmacked" Lewis Hamilton obliterated the Shanghai lap record to take a stunning pole position on Friday for the Chinese Grand Prix sprint in only his second race weekend with Ferrari.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm)
+
+---
+
 # Diaz Hernandez takes first gold in Nanjing
 
 ![Andy Diaz Hernandez celebrates after winning the men’s triple jump final during the Indoor World Athletics Championships in Nanjing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796776_1_20250321140117.jpg&q=85)
@@ -1417,29 +1441,5 @@ Neil Robertson from Australia won the 2025 World Snooker Grand Prix on Sunday, d
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795014-20250309.htm)
-
----
-
-# Fans enjoy the atmosphere on the final day of LIV Golf
-
-![Many fans told RTHK the all-star player roster was a big draw for them. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795008_1_20250309201219.jpg&q=80)
-  
-
-Spectators were immersed in what felt like a party-like atmosphere on the third and final day of the LIV Golf Hong Kong tournament, as the second edition of the event wrapped up in Fanling on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm)
 
 ---
