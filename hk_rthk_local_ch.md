@@ -1,3 +1,26 @@
+# 本港增一宗猴痘確診個案　患者情況穩定
+
+  
+
+本港新增一宗猴痘確診個案，涉及一名有長期病患的35歲男子。他於3月13日開始出現皮膚潰瘍、皮膚出血和發燒，並於17日到衞生署灣仔男性社會衞生科診所求診，並於瑪嘉烈醫院接受隔離治療，情況穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796838-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796838-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796838-20250321.htm)
+
+---
+
 # 2024年度各項流感疫苗接種計劃共接種約206萬劑創新高
 
   
@@ -1405,29 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796662-20250320.htm)
-
----
-
-# 全球金融中心指數報告香港評分升全球排第三　陳茂波稱令人鼓舞
-
-![香港總排名維持全球第三位。（陳茂波社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796661_1_20250320214014.jpg&q=90)
-  
-
-英國Z/Yen集團與中國（深圳）綜合開發研究院，今日發布最新《全球金融中心指數》報告，香港的整體評分上升11分至760分，總排名維持全球第三位，並在亞太區繼續居首。紐約及倫敦繼續分別位居於首位及第二。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796661-20250320.htm)
 
 ---
