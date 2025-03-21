@@ -1,3 +1,27 @@
+# Diaz Hernandez takes first gold in Nanjing
+
+![Andy Diaz Hernandez celebrates after winning the men’s triple jump final during the Indoor World Athletics Championships in Nanjing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796776_1_20250321140117.jpg&q=85)
+  
+
+Italy's Olympic bronze medallist Andy Diaz Hernandez produced a stunning early effort of 17.8 metres to capture the triple jump gold medal in the first final of the world indoor athletics championships on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm)
+
+---
+
 # Norris chalks up fastest practice lap in Chinese GP
 
 ![Mechanics work on Lando Norris' car in the pits during the first practice session of the Formula One Chinese Grand Prix at the Shanghai International Circuit. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796771_1_20250321132157.jpg&q=85)
@@ -1417,29 +1441,5 @@ Spectators were immersed in what felt like a party-like atmosphere on the third 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795008-20250309.htm)
-
----
-
-# Spain's Garcia claims LIV Golf HK crown
-
-![Fireballs GC came out on top in the team standings. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795006_2_20250310070148.jpg&q=85)
-  
-
-Sergio Garcia of Spain on Sunday carded a seven-under 63 to take home the LIV Golf Hong Kong tournament crown in Fanling, as the 45-year-old claimed his second career individual title on the men's golf tour.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1795006-20250309.htm)
 
 ---

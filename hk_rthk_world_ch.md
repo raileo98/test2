@@ -1,3 +1,26 @@
+# 希斯路機場附近變電站內一半變壓器仍焚燒　吉域機場按需要支援
+
+  
+
+英國希斯路機場因附近變電站大火導致當地周五全日關閉的事故，消防指變電站內一半變壓器仍在焚燒，10架消防車及至少70名消防員奉召到場，預計將會是持久戰，天光前消防員都會在現場。消防又指火警導致停電，影響大批家庭及企業，正與夥伴密切合作盡量減少影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796775-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796775-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796775-20250321.htm)
+
+---
+
 # 國泰今日兩班往倫敦航班及所有由倫敦回港航班取消
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796347-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796347-20250319.htm)
-
----
-
-# 普京同意暫停襲擊烏國能源設施　美俄同意俄烏衝突要長久和平結束
-
-![美國總統特朗普與俄羅斯總統普京通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796341_1_20250319064806.jpg&q=90)
-  
-
-美國總統特朗普與俄羅斯總統普京通電話，特朗普在社交平台形容交談非常好，而且富有成效，雙方同意俄烏同時放棄襲擊對方能源設施，並迅速努力實現全面停火，最終結束俄烏衝突。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796341-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796341-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796341-20250319.htm)
 
 ---
