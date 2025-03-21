@@ -1,3 +1,26 @@
+# 特朗普稱計劃與習近平通話　中美貿易代表下周會談
+
+  
+
+美國總統特朗普說，計劃與中國國家主席習近平通話，但沒有透露具體時間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796875-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796875-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796875-20250322.htm)
+
+---
+
 # 伊朗最高領袖：美國對伊朗採取任何惡意行為將受到沉重打擊
 
 ![哈梅內伊發表談話時警告，如果美國對伊朗採取任何惡意行為，將受到沉重打擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796869_1_20250322032804.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796503-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796503-20250320.htm)
-
----
-
-# 以軍恢復在加沙部分地面行動　加沙衛生部︰以軍空襲釀最少56死
-
-![加沙大量房屋在空襲中損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796501_1_20250320022841.jpg&q=85)
-  
-
-以色列軍方表示，已在加沙中部和南部開展有針對性的地面行動，並進一步擴大對內察里姆走廊的控制。加沙當局表示，以軍過去一天的空襲造成至少56人死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796501-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796501-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796501-20250320.htm)
 
 ---

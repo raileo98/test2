@@ -1,3 +1,27 @@
+# Flights at London Heathrow resume after power outage
+
+![The closure not only caused misery for travellers but provoked anger from airlines. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796876_1_20250322061716.jpg&q=85)
+  
+
+Flights at Britain's Heathrow resumed late on Friday after a fire knocked out its power supply and shut Europe's busiest airport for the day, stranding tens of thousands of passengers and causing travel turmoil worldwide.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796876-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796876-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796876-20250322.htm)
+
+---
+
 # Counter-terror police probe fire that closed Heathrow
 
 ![The fire had involved a transformer comprising of 25,000 litres of cooling oil fully alight. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796855_1_20250321221014.jpg&q=65)
@@ -1411,29 +1435,5 @@ US President Donald Trump says he plans to speak to his Russian counterpart Vlad
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm)
-
----
-
-# Philippines Senate to probe Duterte handover
-
-![Imee Marcos is the one who set the wheels in motion for the senate probe.  Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796060_1_20250317151836.jpg&q=90)
-  
-
-The Philippine Senate said on Monday it will conduct a formal probe of ex-president Rodrigo Duterte's arrest and swift handover last week to the International Criminal Court, which is to try him for alleged crimes against humanity.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796060-20250317.htm)
 
 ---

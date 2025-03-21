@@ -1,3 +1,26 @@
+# 特朗普稱計劃與習近平通話　中美貿易代表下周會談
+
+  
+
+美國總統特朗普說，計劃與中國國家主席習近平通話，但沒有透露具體時間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796875-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796875-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796875-20250322.htm)
+
+---
+
 # 道指高收32點　本周累升1.2%　創2個月最大升幅
 
 ![道瓊斯指數初段一度急挫520點，收市倒升32點，報41985點。道指本周升1.2%，是2個月以來最大星期升幅，並結束連續2星期跌勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796873_1_20250322053357.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm)
-
----
-
-# 本港二手樓價指數按周跌逾1%　創27周最大跌幅
-
-![中原城市領先指數最新報134.89，按周跌1.17%，跌幅是27周以來最大。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796804_1_20250321165313.jpg&q=85)
-  
-
-反映本港二手樓價走勢的中原城市領先指數（CCL）最新報134.89，按周跌1.17%，跌幅是27周以來最大，再創逾8年半新低。指數反映2月26日財政預算案公布當周市況，並且連跌兩周累計跌1.87%，蒸發去年9月首次減息後所有升幅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm)
 
 ---
