@@ -1,3 +1,27 @@
+# 吊臂車損毀架空電纜　輕鐵705及706綫不停天悅站及天恆站
+
+![吊臂車損毀架空電纜　輕鐵705及706綫不停天悅站及天恆站](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796885_1_20250322075116.jpg&q=90)
+  
+
+輕鐵天悅站附近有吊臂車經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796885-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796885-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796885-20250322.htm)
+
+---
+
 # 外來車輛損毀架空電纜　天悅站附近輕鐵服務暫停
 
 ![外來車輛損毀架空電纜　天悅站附近輕鐵服務暫停](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796884_1_20250322072932.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796683-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796683-20250320.htm)
-
----
-
-# 調查：近4成受訪僱主指曾因外傭借貸遭受追債滋擾
-
-![民建聯上月以問卷訪問超過240名外傭僱主，近4成僱主指曾因外傭借貸遭受追債滋擾。(伍榮笙攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796682_1_20250320231504.jpg&q=90)
-  
-
-有調查發現，過半數受訪外傭僱主曾向外傭提供直接借款，約3成半僱主指外傭曾向財務機構借貸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796682-20250320.htm)
 
 ---
