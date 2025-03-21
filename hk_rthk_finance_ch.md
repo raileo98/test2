@@ -1,3 +1,51 @@
+# 美元上升　聯儲局官員表示支持謹慎政策方針
+
+![美元指數重上104水平，報104.14，升幅0.3%。本周累升0.4%，結束連續2星期跌勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796877_1_20250322061832.jpg&q=85)
+  
+
+美元上升，聯儲局官員表示支持謹慎的政策方針，以面對經濟不確定性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796877-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796877-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796877-20250322.htm)
+
+---
+
+# 現貨金曾失守3000美元關口　本周仍升逾1%
+
+![現貨金一度失守每盎司3000美元關口，低見2999.07美元，最終報3023.63美元，跌幅近0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796874_1_20250322055011.jpg&q=80)
+  
+
+金價回吐，因美元上升及投資者沽貨獲利。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796874-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796874-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796874-20250322.htm)
+
+---
+
 # 道指高收32點　本周累升1.2%　創2個月最大升幅
 
 ![道瓊斯指數初段一度急挫520點，收市倒升32點，報41985點。道指本周升1.2%，是2個月以來最大星期升幅，並結束連續2星期跌勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796873_1_20250322053357.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796709-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796709-20250321.htm)
-
----
-
-# 港股美國預託證券普遍較本港收市下跌
-
-![滙控ADR較本港收市跌約0.3%，友邦跌約0.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796705_1_20250321061333.jpg&q=90)
-  
-
-港股美國預託證券（ADR）普遍較本港收市下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796705-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796705-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796705-20250321.htm)
-
----
-
-# 國際油價高收近2%　因伊朗受制裁及中東局勢緊張
-
-![倫敦布蘭特期油收市報每桶72美元，升1.22美元，升幅1.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796703_1_20250321061000.jpg&q=90)
-  
-
-國際油價上升，之前美國宣布新的伊朗相關制裁措施，加上中東局勢再度緊張，蓋過美元強勢的影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796703-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796703-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796703-20250321.htm)
 
 ---

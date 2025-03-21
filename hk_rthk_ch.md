@@ -1,3 +1,51 @@
+# 美元上升　聯儲局官員表示支持謹慎政策方針
+
+![美元指數重上104水平，報104.14，升幅0.3%。本周累升0.4%，結束連續2星期跌勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796877_1_20250322061832.jpg&q=85)
+  
+
+美元上升，聯儲局官員表示支持謹慎的政策方針，以面對經濟不確定性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796877-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796877-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796877-20250322.htm)
+
+---
+
+# 現貨金曾失守3000美元關口　本周仍升逾1%
+
+![現貨金一度失守每盎司3000美元關口，低見2999.07美元，最終報3023.63美元，跌幅近0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796874_1_20250322055011.jpg&q=80)
+  
+
+金價回吐，因美元上升及投資者沽貨獲利。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796874-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796874-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796874-20250322.htm)
+
+---
+
 # 特朗普稱計劃與習近平通話　中美貿易官員下周會談
 
 ![習近平說，他與習近平關係佷好，會保持非常良好的關係，但兩國有1萬億美元的貿易逆差。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796875_1_20250322063205.jpg&q=90)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796799-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796799-20250321.htm)
-
----
-
-# 全日12班往來香港及倫敦希斯路機場航班　機管局籲留意最新情況
-
-![倫敦希斯路機場受附近變電站火警影響而需要暫停運作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796809_1_20250321172104.jpg&q=90)
-  
-
-機管局接獲通知，倫敦希斯路機場受附近變電站火警影響而需要暫停運作。今日全日共有12班來往香港及倫敦希斯路機場的航班。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm)
-
----
-
-# 美團上季盈利按年升1.8倍　按季跌52%
-
-![美團上季盈利62.2億元人民幣，按年升1.8倍，按季跌52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796803_1_20250321164455.jpg&q=90)
-  
-
-美團上季盈利62.2億元人民幣，按年升1.8倍，按季跌52%，不派股息。按非國際財務報告會計準則，經調整盈利98.5億元，按年升1.3倍，按季跌23%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm)
 
 ---
