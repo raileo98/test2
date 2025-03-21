@@ -1,3 +1,26 @@
+# 皇后山邨兩童一度危坐單位外牆及窗台　由消防帶回安全位置
+
+  
+
+粉嶺皇后山邨皇樂樓一個單位，早上有兩名幼童分別危坐大廈外牆及冷氣機窗台，消防及後到場成功將他們帶回安全位置。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796753-20250321.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796753-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796753-20250321.htm)
+
+---
+
 # 陳美寶冀低空經濟監管沙盒累積經驗　強調安全至上
 
   
@@ -23,6 +46,7 @@
 
 # 盧寵茂稱醫療收費調整後額外收入將用於提升安全網針對四類人士
 
+![盧寵茂表示，醫療收費調整後的額外收入，將用於提升安全網，針對貧、急、重、危四類人士。 （文匯報片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796751_1_20250321115638.jpg&q=90)
   
 
 醫務衞生局局長盧寵茂表示，醫療深化改革即將推出，相關的撥款開支不會縮減，但會重新合理分配，醫療收費調整後的額外收入，將用於提升安全網，針對貧、急、重、危四類人士。
@@ -46,6 +70,7 @@
 
 # 羅健熙涉理大外非法集結　律政司上訴被駁回維持無罪裁決
 
+![律政司不服提出上訴，今日被高等法院上訴庭駁回，維持羅健熙的無罪裁決。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796748_1_20250321115619.jpg&q=90)
   
 
 2019年11月18日，有市民發起到理工大學內聲援示威者，其後多人被捕。當時身在現場的民主黨主席羅健熙被指參與當中的非法集結，經審訊後被裁定非法集結罪名不成立。律政司不服提出上訴，今日被高等法院上訴庭駁回，維持羅健熙的無罪裁決。
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796588-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796588-20250320.htm)
-
----
-
-# 中銀維持港元最優惠利率於5.25厘不變
-
-![中銀香港宣布，港元最優惠利率維持於5.25厘不變。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796585_1_20250320123618.jpg&q=90)
-  
-
-中銀香港宣布，港元最優惠利率維持於5.25厘不變，戶口結餘在5000元及以上的活期儲蓄存款利率維持於0.25厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796585-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796585-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796585-20250320.htm)
 
 ---
