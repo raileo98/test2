@@ -1,3 +1,29 @@
+# 解放軍駐港部隊參與植樹日活動　傳播環保意識增進與市民情感
+
+![官兵代表整齊列隊，與香港社會各界代表一起參加啓動典禮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796972_3_20250322224844.jpg&q=50)
+![官兵代表與香港小朋友一同植樹。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796972_1_20250322224844.jpg&q=30)
+![官兵代表與香港市民交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796972_2_20250322224844.jpg&q=40)
+  
+
+解放軍駐港部隊派出近200名官兵，與市民在元朗大欖郊野公園參與植樹日活動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796972-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796972-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796972-20250322.htm)
+
+---
+
 # 消委會暫接17宗投訴涉Coldplay香港演唱會需更換門票
 
 ![消委會暫接獲17宗有關Coldplay香港演唱會需更換門票的投訴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796971_1_20250322223427.jpg&q=85)
