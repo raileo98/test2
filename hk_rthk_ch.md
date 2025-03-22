@@ -1,3 +1,27 @@
+# 醫生：教宗將於周日出院
+
+![教宗留醫的醫院召開記者會，表示教宗將出院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796981_1_20250323021322.jpg&q=80)
+  
+
+教宗方濟各的醫療團隊說，教宗因為肺炎留院5個星期後，將於周日出院，返回位於梵蒂岡的住所，他將在那裡休養「至少兩個月」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796981-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796981-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796981-20250323.htm)
+
+---
+
 # 委內瑞拉與美國達成協議　恢復遣返移民安排
 
 ![委內瑞拉說，與美國達成協議，從周日起恢復與美國遣返移民的安排。圖為委內瑞拉日前從墨西哥接收一批移民。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796980_1_20250323014117.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm)
-
----
-
-# 特朗普撤銷賀錦麗與希拉莉的安全許可
-
-![希拉莉與賀錦麗的安全許可被特朗普撤銷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796906_1_20250322110433.jpg&q=90)
-  
-
-美國總統特朗普表示，已撤銷民主黨籍的前副總統賀錦麗和前國務卿希拉莉的安全許可。特朗普表示，認為這些人士獲取機密資料不再符合國家利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796906-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796906-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796906-20250322.htm)
 
 ---
