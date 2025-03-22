@@ -1,3 +1,27 @@
+# Oscar Piastri on pole for Chinese Grand Prix
+
+![Now in his third season in Formula One, the Australian already has two wins to his name and starts as favourite. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796987_1_20250323065602.jpg&q=90)
+  
+
+A pumped Oscar Piastri seized his first Formula One pole position at the Chinese Grand Prix on Saturday and said he had done the hairpin of his life to smash the Shanghai circuit record.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm)
+
+---
+
 # Durant scores 42 as Suns eclipse Cavs
 
 ![Phoenix Suns forward Kevin Durant soars above Cleveland Cavaliers forward De'Andre Hunter. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796939_1_20250322180740.jpg&q=90)
@@ -1416,29 +1440,5 @@ A local deputy to the National People's Congress has stressed that Hong Kong is 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm)
-
----
-
-# Pelicans to become first NBA team to play in Australia
-
-![Pelicans star Zion Williamson will be among the big names appearing in Australia this October. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795220_1_20250311105931.jpg&q=90)
-  
-
-The New Orleans Pelicans will become the first NBA team to play in Australia when they tip off in two pre-season games in October, organisers said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795220-20250311.htm)
 
 ---

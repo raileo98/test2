@@ -1,3 +1,27 @@
+# Oscar Piastri on pole for Chinese Grand Prix
+
+![Now in his third season in Formula One, the Australian already has two wins to his name and starts as favourite. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796987_1_20250323065602.jpg&q=90)
+  
+
+A pumped Oscar Piastri seized his first Formula One pole position at the Chinese Grand Prix on Saturday and said he had done the hairpin of his life to smash the Shanghai circuit record.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm)
+
+---
+
 # Government demands action on Coldplay ticket errors
 
 ![The British band is due to perform at the Kai Tak Sports Park next month. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796977_3_20250323055100.jpg&q=90)
@@ -1413,29 +1437,5 @@ US stocks closed lower on Thursday, as a Fed-related rally lost steam, and trade
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm)
-
----
-
-# NBA's Boston Celtics sold for record US$6.1 billion
-
-![The US$6.1 billion sale of the Boston Celtics is a record price among US-based sports teams. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796701_1_20250321055144.jpg&q=80)
-  
-
-The NBA's Boston Celtics are being sold to the head of a California private equity firm for US$6.1 billion, a record price for a US sports franchise, according to reports by The Boston Globe.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796701-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796701-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796701-20250321.htm)
 
 ---
