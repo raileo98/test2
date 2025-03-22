@@ -1,6 +1,32 @@
+# 消防處籲如受廈村貨倉火警煙霧或異味影響　關閉窗戶保持鎮定
+
+  
+
+天水圍廈村附近一個貨倉發生火警，消防處正進行滅火行動，提醒附近居民如果受到隨風飄散的煙霧和異味影響，要關閉門窗及保持鎮定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm)
+
+---
+
 # Cityline新增廣州及深圳兩個換票點　並研究快遞門票換領
 
   
+
+英國著名樂隊Coldplay下月將於啟德體育園，舉行巡迴演唱會，但部份門票資料出錯，需要更換新版門票。
+
   
 
 
@@ -1416,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796818-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796818-20250321.htm)
-
----
-
-# 港深創新科技園首三座大樓下半年營運　旁邊五座料2027年完工
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796815_1_20250321174512.jpg&q=80)
-  
-
-港深創新及科技園兩座大樓今日舉行平頂儀式，而另一幢人才公寓大樓亦全面完工。創新科技及工業局局長孫東表示，今年會把河套區現存社區隔離設施，搬遷到其他地點，盡快爭取在完成平整之後，期望明年初將第一期餘下土地，交給創科園區回歸創科用途。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm)
 
 ---

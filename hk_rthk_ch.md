@@ -1,6 +1,32 @@
+# 消防處籲如受廈村貨倉火警煙霧或異味影響　關閉窗戶保持鎮定
+
+  
+
+天水圍廈村附近一個貨倉發生火警，消防處正進行滅火行動，提醒附近居民如果受到隨風飄散的煙霧和異味影響，要關閉門窗及保持鎮定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm)
+
+---
+
 # Cityline新增廣州及深圳兩個換票點　並研究快遞門票換領
 
   
+
+英國著名樂隊Coldplay下月將於啟德體育園，舉行巡迴演唱會，但部份門票資料出錯，需要更換新版門票。
+
   
 
 
