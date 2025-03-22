@@ -1,3 +1,27 @@
+# 黎巴嫩總理警告南部局勢升級或引發戰爭
+
+![以軍炮擊後，黎巴嫩南部升起濃煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796979_1_20250323012800.jpg&q=90)
+  
+
+黎巴嫩總理薩拉姆警告，如果黎巴嫩南部邊境地區軍事活動持續升級，黎巴嫩可能被拖入一場「新的毀滅性戰爭」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796979-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796979-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796979-20250323.htm)
+
+---
+
 # 倫敦希斯路機場全面恢復運作　航空公司警告航班仍會有延誤或取消
 
 ![倫敦希斯路機場因停電關閉後，星期六全面恢復運作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796978_1_20250323010752.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796904-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796904-20250322.htm)
-
----
-
-# 今年首兩個月網上續領「行車證」申請　較去年同期升逾八成
-
-![運輸署表示，優化措施至今運作暢順，署方會繼續檢視運作流程。（運輸署社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796903_1_20250322110346.jpg&q=90)
-  
-
-運輸署表示，優化車輛牌照措施去年底實施，今年1至2月，透過網上續領「行車證」的申請共有約36800宗，較去年同期大幅上升超過八成，至今發出超過19萬張新證。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796903-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796903-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796903-20250322.htm)
 
 ---
