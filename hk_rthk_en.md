@@ -1,3 +1,99 @@
+# Light Rail service disrupted in Tin Shui Wai
+
+![MTR maintenance staff are working to repair the damaged overhead line. Photo courtesy of MTR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796898_1_20250322093945.jpg&q=80)
+  
+
+The MTR suspended parts of the light rail service in Tin Shui Wai on Saturday morning after a crane lorry damaged an overhead line near Tin Yuet at around 7.30 am.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796898-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796898-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796898-20250322.htm)
+
+---
+
+# French film star Depardieu to go on trial next week
+
+![Depardieu has faced a growing number of sexual assault allegations in recent years. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796836_1_20250321191832.jpg&q=90)
+  
+
+French actor Gerard Depardieu faces trial on Monday over alleged sexual assaults of two women on a film set, a case placing one of the world's best known movie stars at the heart of France's broader reckoning over sexual violence.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm)
+
+---
+
+# Boeing wins contract for next generation US fighter
+
+![Defence Secretary Pete Hegseth (right) said the new aircraft said the new aircraft "sends a very direct, clear message to our allies." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796865_1_20250322022500.jpg&q=90)
+  
+
+Donald Trump announced on Friday that Boeing has been awarded the contract for the Air Force's next-generation stealth fighter plane, which the 47th US president said would be named the F-47.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm)
+
+---
+
+# China, Japan should boost trust, cooperation: FM
+
+![The FM noted that since Ishiba took office, China-Japan ties had improved. Photo: MOFA](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796871_1_20250322034618.jpg&q=90)
+  
+
+China and Japan should enhance mutual trust and cooperation to provide global stability amid complex international challenges, Foreign Minister Wang Yi said on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796871-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796871-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796871-20250322.htm)
+
+---
+
 # Separate fees for radiology services 'minimal': HA
 
 ![Hospital Authority director Michael Wong (right) says patients with financial difficulties can apply for an exemption or reduction. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796895_1_20250322085424.jpg&q=90)
@@ -1344,101 +1440,5 @@ A Hong Kong Airlines flight was forced to make an emergency landing in Fuzhou af
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm)
-
----
-
-# Ride-hailing drivers 'should face cabbie-style test'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796607_1_20250320154245.jpg&q=90)
-  
-
-The government should draw up "an appropriate level" of regulations for ride-hailing platforms, such as by making it mandatory for drivers to take a licensing exam similar to that for cabbies, a lawmaker said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm)
-
----
-
-# Malaysia gives green light for new MH370 search
-
-![Relatives of passengers on board the missing MH370 leave after taking part in a demonstration outside the Malaysian embassy in Beijing on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796601_1_20250320142559.jpg&q=75)
-  
-
-Malaysia’s government has given final approval for a Texas-based marine robotics company to renew the search for Malaysia Airlines flight 370, which is believed to have crashed in the southern Indian Ocean more than a decade ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm)
-
----
-
-# Doncic in solid-gold show for win over Nuggets
-
-![Luka Doncic catches Denver Nuggets off guard in making a shot. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796600_1_20250320140326.jpg&q=90)
-  
-
-Luka Doncic raced to the 200th 30-point game of his career as the Los Angeles Lakers took advantage of an under-strength Denver Nuggets line-up to score a 120-108 victory over their Western Conference rivals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796600-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796600-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796600-20250320.htm)
-
----
-
-# Local rates to be at high level for some time: HKMA
-
-![The Hong Kong Monetary Authority says that the extent and pace of future rate cuts are subject to considerable uncertainty. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796590_1_20250320130629.jpg&q=85)
-  
-
-The city's de facto central bank has cautioned that local borrowing costs will remain at a relatively high level for some time as it kept its key interest rate unchanged at 4.75 percent.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm)
 
 ---

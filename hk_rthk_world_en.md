@@ -1,3 +1,51 @@
+# French film star Depardieu to go on trial next week
+
+![Depardieu has faced a growing number of sexual assault allegations in recent years. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796836_1_20250321191832.jpg&q=90)
+  
+
+French actor Gerard Depardieu faces trial on Monday over alleged sexual assaults of two women on a film set, a case placing one of the world's best known movie stars at the heart of France's broader reckoning over sexual violence.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm)
+
+---
+
+# Boeing wins contract for next generation US fighter
+
+![Defence Secretary Pete Hegseth (right) said the new aircraft said the new aircraft "sends a very direct, clear message to our allies." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796865_1_20250322022500.jpg&q=90)
+  
+
+Donald Trump announced on Friday that Boeing has been awarded the contract for the Air Force's next-generation stealth fighter plane, which the 47th US president said would be named the F-47.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm)
+
+---
+
 # Germany, France and UK call for Gaza ceasefire return
 
 ![The joint appeal came after Israeli Defence Minister Israel Katz threatened Friday to annex parts of the Gaza Strip. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796887_1_20250322075550.jpg&q=90)
@@ -1387,53 +1435,5 @@ Belgium and Rwanda have announced the expulsion of each other's diplomats, as re
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796111-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796111-20250317.htm)
-
----
-
-# Brand fallout for South Korean hearthrob
-
-![Kim Soo-hyun hit stardom with 'My Love from the Star' and 'Queen of Tears.' File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796076_4_20250317173144.jpg&q=90)
-  
-
-Brands including Prada have cut ties with South Korean actor Kim Soo-hyun amid controversy over his relationship with actress Kim Sae-ron, who was found dead in February.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796076-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796076-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796076-20250317.htm)
-
----
-
-# Mt Fuji entry fee set for hikers
-
-![Hikers near the popular Yoshida trail, which will see a doubling of the fee, up Mount Fuji. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796065_1_20250317160637.jpg&q=70)
-  
-
-Hikers attempting any of Mount Fuji's four main trails will be charged an entry fee of 4,000 yen from this summer, after local authorities passed a bill on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm)
 
 ---

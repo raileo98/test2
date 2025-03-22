@@ -1,3 +1,51 @@
+# 中日韓外長會在東京舉行　王毅稱加強合作將令各國共同抵禦風險
+
+![中日韓外長會在東京舉行。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796900_1_20250322095212.jpg&q=90)
+  
+
+中日韓外長會在東京舉行，中共中央政治局委員兼外長王毅、日本外相岩屋毅及南韓外長趙兌烈出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796900-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796900-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796900-20250322.htm)
+
+---
+
+# 德法英籲立即恢復加沙停火　以國應恢復人道援助　哈馬斯應放人質
+
+![加沙經過多個月戰爭，損毀嚴重。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796897_1_20250322092549.jpg&q=85)
+  
+
+德法英三國外長發表聯合聲明，呼籲立即恢復加沙停火、以色列應恢復人道援助，哈馬斯亦應該釋放人質。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796897-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796897-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796897-20250322.htm)
+
+---
+
 # 特朗普上任後首度有美國國會議員訪華　與馬朝旭討論中美關係
 
 ![外交部副部長馬朝旭昨日會見訪華的美國共和黨參議員戴安斯。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796889_1_20250322080837.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796528-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796528-20250320.htm)
-
----
-
-# 美國聯儲局維持利率不變　鮑威爾指關稅是通脹升溫部分原因
-
-![美國聯儲局維持利率不變，鮑威爾強調，當局並不急於減息。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796518_1_20250320062914.jpg&q=90)
-  
-
-美國聯儲局維持利率不變，利率再度維持於4.25至4.5厘目標區間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796518-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796518-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796518-20250320.htm)
-
----
-
-# 特朗普與澤連斯基通電話　就俄烏停止襲擊能源設施達成一致
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796517_1_20250320062233.jpg&q=90)
-  
-
-美國總統特朗普與烏克蘭總統澤連斯基通電話大約一小時，主要討論特朗普同俄羅斯總統普京前一日的通話。特朗普形容，與澤連斯基通話非常好和進展順利，目的是令俄羅斯和烏克蘭在要求和需求上達成一致。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796517-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796517-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796517-20250320.htm)
 
 ---

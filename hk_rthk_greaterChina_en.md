@@ -1,3 +1,27 @@
+# China, Japan should boost trust, cooperation: FM
+
+![The FM noted that since Ishiba took office, China-Japan ties had improved. Photo: MOFA](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796871_1_20250322034618.jpg&q=90)
+  
+
+China and Japan should enhance mutual trust and cooperation to provide global stability amid complex international challenges, Foreign Minister Wang Yi said on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796871-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796871-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796871-20250322.htm)
+
+---
+
 # Record lap puts 'gobsmacked' Hamilton in pole position
 
 ![Lewis Hamilton in a Ferrari during the sprint qualifier. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796819_1_20250321175331.jpg&q=85)
@@ -1412,29 +1436,5 @@ Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm)
-
----
-
-# Golden era for low-altitude economy: CPPCC delegates
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794701_1_20250307111340.jpg&q=90)
-  
-
-China has ushered in a golden era to develop the so-called "low altitude" economy, or even a "sky city", according to delegates at the country's top political advisory body.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm)
 
 ---

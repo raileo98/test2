@@ -1,3 +1,27 @@
+# Light Rail service disrupted in Tin Shui Wai
+
+![MTR maintenance staff are working to repair the damaged overhead line. Photo courtesy of MTR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796898_1_20250322093945.jpg&q=80)
+  
+
+The MTR suspended parts of the light rail service in Tin Shui Wai on Saturday morning after a crane lorry damaged an overhead line near Tin Yuet at around 7.30 am.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796898-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796898-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796898-20250322.htm)
+
+---
+
 # Separate fees for radiology services 'minimal': HA
 
 ![Hospital Authority director Michael Wong (right) says patients with financial difficulties can apply for an exemption or reduction. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796895_1_20250322085424.jpg&q=90)
@@ -1416,29 +1440,5 @@ The Consumer Council on Monday warned that some makeup bases can affect hormone 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796050-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796050-20250317.htm)
-
----
-
-# HK 'in fast lane to becoming innovation and tech hub'
-
-![Sun Dong said the AI summit next month shows Hong Kong is a hub for global IT cooperation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796043_1_20250317125229.jpg&q=80)
-  
-
-Innovation and technology secretary Sun Dong said on Monday Hong Kong's I&T development was so rapid that the sector is already "in the fast lane."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796043-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796043-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796043-20250317.htm)
 
 ---

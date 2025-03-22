@@ -1,6 +1,55 @@
+# 丘應樺指跨境電商發展屬未來方向　籲本港企業要升級轉型
+
+![丘應樺分享到訪東莞一間港資企業的經驗，表示有關企業把握電商機遇，自行培訓「網紅」直播帶貨，一年生意額達10億人民幣。（商台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796901_1_20250322100532.jpg&q=90)
+  
+
+商務及經濟發展局局長丘應樺表示，跨境電商發展將會是未來方向，呼籲本港企業要升級轉型。特區政府在目前財政困難的時刻，仍在預算案宣布注資15億港元到「BUD專項基金」，顯示政府有意協助企業，利用機遇，尋求改變，發展事業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796901-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796901-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796901-20250322.htm)
+
+---
+
+# 慢病共治計劃至今近650醫生參與
+
+![彭飛舟（左）說，至今參與計劃的醫生有近650人，他形容增幅較緩慢，但明白醫生有不同考慮。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796899_1_20250322100730.jpg&q=90)
+  
+
+「慢性疾病共同治理先導計劃」由本月28日起，擴展至提供血脂檢查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796899-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796899-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796899-20250322.htm)
+
+---
+
 # 天悅站附近有吊臂車損毁架空電纜　部分輕鐵路綫改道
 
 ![天悅站附近有吊臂車損毁架空電纜，影響電力供應，部分輕鐵路綫服務要調整。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796896_1_20250322092031.jpg&q=85)
+![港鐵表示，架空電纜損毁，影響電力供應，正全力搶修。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796896_2_20250322093837.jpg&q=75)
   
 
 輕鐵天悅站附近有吊臂車經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。港鐵表示，正全力進行搶修，由於涉及外來吊臂車令架空電纜損毁，預計需要數個小時修復。
@@ -24,6 +73,7 @@
 
 # 慢病共治計劃擴展至血脂檢查　醫衞局冀更多醫生參與
 
+![彭飛舟說，醫護人員會為被驗出三高的市民，重新再評估其心血管疾病風險。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796894_1_20250322093833.jpg&q=90)
   
 
 「慢性疾病共同治理先導計劃」由本月28日起，擴展至提供血脂檢查。
@@ -47,6 +97,7 @@
 
 # 丘應樺：美國對華加徵關稅只會損人不利己
 
+![丘應樺表示，特區政府為減少對港企業的影響，近年已積極為港商尋求其他經濟體市場。（商台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796892_1_20250322093648.jpg&q=90)
   
 
 商務及經濟發展局局長丘應樺表示，美國對華加徵關稅，將香港產品與來自中國的產品混為一談，是錯誤做法，不單只違反世貿規定，亦是對特區政府的無理打壓，政府已表態將向世貿提出申訴。
@@ -70,7 +121,7 @@
 
 # 輕鐵天悅站附近吊臂車損毁架空電纜影響服務　料需要數小時修復
 
-![港鐵表示，正全力搶修，預計需要數個小時修復。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796891_1_20250322091933.jpg&q=75)
+![吊臂車損毀架空電纜，意外後在天悅站附近停靠。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796891_1_20250322093641.jpg&q=90)
   
 
 輕鐵天悅站附近有吊臂車經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。港鐵已就事件報警，並正全力進行搶修，由於涉及外來吊臂車令架空電纜損毁，預計需要數個小時修復。
@@ -94,7 +145,7 @@
 
 # 吊臂車損毀架空電纜　輕鐵705及706綫不停天悅站及天恆站
 
-![吊臂車損毀架空電纜　輕鐵705及706綫不停天悅站及天恆站](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796885_1_20250322075116.jpg&q=90)
+![輕鐵天悅站附近損毁的架空電纜。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796885_2_20250322094200.jpg&q=90)
   
 
 輕鐵天悅站附近有吊臂車經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。
@@ -1392,53 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm)
-
----
-
-# 盧寵茂：醫療收費調整額外收入用於提升安全網　針對貧急重危人士
-
-![盧寵茂說，醫療收費調整後，額外的收入或節省的開支，將全數用於提升安全網，集中針對貧、急、重、危四類人士。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796735_1_20250321105919.jpg&q=90)
-  
-
-醫務衞生局局長盧寵茂表示，醫療深化改革即將推出，強調相關的撥款開支不會縮減，但會重新分配，有關改革將分5年推行，構築更大、更厚、更密的安全網。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796735-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796735-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796735-20250321.htm)
-
----
-
-# 工程師料機艙氣壓對充電寶影響不大　倡帶上機時可放在膠殼絶緣
-
-![有工程師表示，飛機氣壓可能會對行李中的充電寶有影響，但相信影響不會太大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796731_1_20250321105945.jpg&q=90)
-  
-
-香港航空一架由杭州飛往香港的客機，昨日下午飛行途中機艙行李架起火，改道安全降落福州機場。有工程師表示，飛機氣壓可能會對行李中的充電寶有影響，但相信影響不會太大，估計充電寶可能曾經受過衝擊，例如跌落地，影響了內部裝置，到氣壓及溫度有變化時出現自燃情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796731-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796731-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796731-20250321.htm)
 
 ---
