@@ -1,3 +1,74 @@
+# Coldplay部分門票出錯需更換　據悉政府要求退回手續費
+
+  
+
+英國著名樂隊Coldplay下月將於啟德體育園舉行巡迴演唱會，但部分門票資料出錯，需要更換新版門票。據悉，政府要求售票公司CityLine香港、廣州、深圳設立換票點，並退回手續費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796963-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796963-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796963-20250322.htm)
+
+---
+
+# 王文濤晤寶馬董事長　指妥善解決歐盟電動車反補貼案具重要意義
+
+![王文濤說關稅戰、貿易戰只會雙輸；齊普策說歐洲綠色轉型離不開與中國合作。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796962_1_20250322211928.jpg&q=90)
+  
+
+商務部部長王文濤說，當前國際形勢複雜嚴峻，個別國家的單邊主義、保護主義做法，為全球經濟帶來較大不確定因素。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm)
+
+---
+
+# 中日舉行第六次經濟高層對話　王毅：中日互為伙伴而非對手
+
+![王毅在東京與岩屋毅共同主持召開第六次中日經濟高層對話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796961_1_20250322212132.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在東京同日本外相岩屋毅共同主持召開第六次中日經濟高層對話，雙方15個政府部門負責人出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm)
+
+---
+
 # 天水圍田廈路有貨倉火警　29人疏散沒有受傷
 
 ![警方表示，晚上約7時半接報，起火現場冒出大量濃煙。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796960_1_20250322210924.jpg&q=90)
@@ -96,7 +167,7 @@
 
 # 全港近4000間公司與大廈及地標建築物響應「地球一小時」活動
 
-![維港兩岸多座建築物響應一年一度的「地球一小時」活動。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796956_1_20250322205227.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796956_1_20250322205227.jpg&q=80)
   
 
 維港兩岸多座建築物響應一年一度的「地球一小時」活動，晚上8時30分「熄燈」一小時。

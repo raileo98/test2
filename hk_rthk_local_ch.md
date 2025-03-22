@@ -1,3 +1,26 @@
+# Coldplay部分門票出錯需更換　據悉政府要求退回手續費
+
+  
+
+英國著名樂隊Coldplay下月將於啟德體育園舉行巡迴演唱會，但部分門票資料出錯，需要更換新版門票。據悉，政府要求售票公司CityLine香港、廣州、深圳設立換票點，並退回手續費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796963-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796963-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796963-20250322.htm)
+
+---
+
 # 天水圍田廈路有貨倉火警　29人疏散沒有受傷
 
 ![警方表示，晚上約7時半接報，起火現場冒出大量濃煙。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796960_1_20250322210924.jpg&q=90)
@@ -48,7 +71,7 @@
 
 # 全港近4000間公司與大廈及地標建築物響應「地球一小時」活動
 
-![維港兩岸多座建築物響應一年一度的「地球一小時」活動。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796956_1_20250322205227.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796956_1_20250322205227.jpg&q=80)
   
 
 維港兩岸多座建築物響應一年一度的「地球一小時」活動，晚上8時30分「熄燈」一小時。
@@ -1420,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm)
-
----
-
-# 小鵬汽車在港至今已交付近1000輛車
-
-![顧宏地稱小鵬去年海外銷量突破2萬輛，位列非傳統汽車品牌中第一。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796810_1_20250321170604.jpg&q=85)
-  
-
-小鵬汽車名譽副董事長兼聯席總裁顧宏地表示，公司去年交付量按年增34.2%至19萬輛車，海外銷量突破2萬輛，位列非傳統汽車品牌中第一。今年首兩個月，內地交付量亦居「新勢力」品牌首位，預計首季交付量將按年增長逾3倍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm)
 
 ---

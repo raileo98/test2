@@ -1,3 +1,51 @@
+# 王文濤晤寶馬董事長　指妥善解決歐盟電動車反補貼案具重要意義
+
+![王文濤說關稅戰、貿易戰只會雙輸；齊普策說歐洲綠色轉型離不開與中國合作。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796962_1_20250322211928.jpg&q=90)
+  
+
+商務部部長王文濤說，當前國際形勢複雜嚴峻，個別國家的單邊主義、保護主義做法，為全球經濟帶來較大不確定因素。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm)
+
+---
+
+# 中日舉行第六次經濟高層對話　王毅：中日互為伙伴而非對手
+
+![王毅在東京與岩屋毅共同主持召開第六次中日經濟高層對話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796961_1_20250322212132.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在東京同日本外相岩屋毅共同主持召開第六次中日經濟高層對話，雙方15個政府部門負責人出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm)
+
+---
+
 # 美國將限制加國人進入跨境圖書館　指圖書館運作帶來邊境安全風險
 
 ![圖書館建於1904年，美加國界穿過圖書館。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796959_1_20250322205734.jpg&q=80)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796710-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796710-20250321.htm)
-
----
-
-# 考文垂當選國際奧委會主席　是首名非洲人及女性擔任此職位
-
-![考文垂將在6月接替巴赫，成為首位女性及來自非洲的國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796707_1_20250321063949.jpg&q=90)
-  
-
-津巴布韋體育部長考文垂當選國際奧委會主席，將在6月接替巴赫，成為首位女性及來自非洲的國際奧委會主席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796707-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796707-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796707-20250321.htm)
-
----
-
-# 特朗普正式簽署行政令推動關閉教育部
-
-![特朗普簽署行政命令，要求教育部長推動關閉教育部。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796698_1_20250321064116.jpg&q=90)
-  
-
-美國總統特朗普在白宮簽署行政命令，要求教育部長麥克馬洪採取一切必要措施，推動關閉教育部，將教育管理權歸還各州。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796698-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796698-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796698-20250321.htm)
 
 ---

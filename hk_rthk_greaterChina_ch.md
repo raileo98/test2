@@ -1,3 +1,51 @@
+# 王文濤晤寶馬董事長　指妥善解決歐盟電動車反補貼案具重要意義
+
+![王文濤說關稅戰、貿易戰只會雙輸；齊普策說歐洲綠色轉型離不開與中國合作。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796962_1_20250322211928.jpg&q=90)
+  
+
+商務部部長王文濤說，當前國際形勢複雜嚴峻，個別國家的單邊主義、保護主義做法，為全球經濟帶來較大不確定因素。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm)
+
+---
+
+# 中日舉行第六次經濟高層對話　王毅：中日互為伙伴而非對手
+
+![王毅在東京與岩屋毅共同主持召開第六次中日經濟高層對話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796961_1_20250322212132.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在東京同日本外相岩屋毅共同主持召開第六次中日經濟高層對話，雙方15個政府部門負責人出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm)
+
+---
+
 # 新華社：特朗普政府「交易外交」陷入僵局
 
 ![新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796957_1_20250322203746.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm)
-
----
-
-# 外交部談美俄領導人通話：樂見一切通往停火的努力
-
-![毛寧說，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796419_1_20250319154325.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧回應美俄領導人就俄烏戰事通話時表示，中方從一開始就主張通過對話談判解決危機，樂見一切通往停火的努力，認為這是實現和平的必要一步。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796419-20250319.htm)
-
----
-
-# 理大籌建第三間醫學院專家諮詢委員會21人包括鍾南山及張文宏
-
-![委員會成員包括中國工程院院士鍾南山（左）、國家傳染病醫學中心主任張文宏（中）、前食物及衞生局局長周一嶽（右）。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796410_2_20250319150727.jpg&q=90)
-  
-
-本港三所大學正分別爭取籌建第三間醫學院，其中理大公布籌建第三間醫學院的專家諮詢委員會名單，合共有21人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm)
 
 ---
