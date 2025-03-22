@@ -1,5 +1,6 @@
 # Government demands action on Coldplay ticket errors
 
+![The British band is due to perform at the Kai Tak Sports Park next month. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796977_3_20250323055100.jpg&q=90)
 ![In a statement issued late on Saturday, the Culture, Sports and Tourism Bureau said Cityline should deal with the matter swiftly. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796977_2_20250323043112.jpg&q=90)
   
 
