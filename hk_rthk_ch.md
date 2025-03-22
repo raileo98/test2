@@ -1,3 +1,27 @@
+# 天水圍田廈路有貨倉火警　29人疏散沒有受傷
+
+![警方表示，晚上約7時半接報，起火現場冒出大量濃煙。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796960_1_20250322210924.jpg&q=90)
+  
+
+天水圍田廈路一個貨倉發生火警，消防處派出兩條喉及兩隊煙帽隊到場灌救，29人自行疏散，沒有受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm)
+
+---
+
 # 美國將限制加國人進入跨境圖書館　指圖書館運作帶來邊境安全風險
 
 ![圖書館建於1904年，美加國界穿過圖書館。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796959_1_20250322205734.jpg&q=80)

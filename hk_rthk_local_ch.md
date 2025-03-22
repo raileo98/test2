@@ -1,3 +1,27 @@
+# 天水圍田廈路有貨倉火警　29人疏散沒有受傷
+
+![警方表示，晚上約7時半接報，起火現場冒出大量濃煙。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796960_1_20250322210924.jpg&q=90)
+  
+
+天水圍田廈路一個貨倉發生火警，消防處派出兩條喉及兩隊煙帽隊到場灌救，29人自行疏散，沒有受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm)
+
+---
+
 # 3名機場入境旅客管有未完稅煙及未有申報　分別判囚及罰款
 
 ![海關展示檢獲的部分未完稅香煙。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796958_1_20250322205150.jpg&q=90)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm)
-
----
-
-# 全日12班往來香港及倫敦希斯路機場航班　機管局籲留意最新情況
-
-![倫敦希斯路機場受附近變電站火警影響而需要暫停運作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796809_1_20250321172104.jpg&q=90)
-  
-
-機管局接獲通知，倫敦希斯路機場受附近變電站火警影響而需要暫停運作。今日全日共有12班來往香港及倫敦希斯路機場的航班。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm)
 
 ---
