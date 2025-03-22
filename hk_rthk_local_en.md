@@ -1,6 +1,6 @@
 # SAR government preparing WTO complaint
 
-![Minister Algernon Yau says foreign businesses still have confidence in Hong Kong in spite of geopolitical tensions. Photo: Commercial Radio](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796905_1_20250322103943.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796905_1_20250322103943.jpg&q=90)
   
 
 Secretary for Commerce and Economic Development Algernon Yau said on Saturday that the government is preparing to file a complaint to the World Trade Organization (WTO) regarding US tariffs.
@@ -48,7 +48,7 @@ The MTR says Light Rail services are returning to normal after several routes in
 
 # Separate fees for radiology services 'minimal': HA
 
-![Hospital Authority director Michael Wong (right) says patients with financial difficulties can apply for an exemption or reduction. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796895_1_20250322085424.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796895_1_20250322085424.jpg&q=90)
   
 
 Requiring patients to pay separately for tests and scans at public hospitals will leave them with a "minimal" financial burden as such services will still be "highly subsidised" by the government, health officials say amid plans to adjust medical fees.

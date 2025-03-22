@@ -1,3 +1,49 @@
+# 消息：運動員資助機制檢討近尾聲　桌球及網球項目很大機會留Ａ級
+
+  
+
+行政長官李家超在《施政報告》提出，要求體院檢討運動員資助機制。據了解，檢討接近尾聲，在現有機制中不符合「精英A級」條件的桌球及網球項目，很大機會能夠保留地位。消息指，精英體育事務委員會將於星期一開會討論資助機制的調整，預計兩個項目會符合新資格。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm)
+
+---
+
+# 鄧炳強：國際形勢複雜多變　要居安思危　推動香港全面發展
+
+  
+
+《維護國家安全條例》生效一年，保安局局長鄧炳強出席民建聯新書發布記者會致辭表示，有人形容香港為一本很難讀的書，他相信《基本法》23條立法是最難讀的篇章。由於要對一國兩制的憲制秩序有深刻認識和理解，同時要對回歸以來外部勢力的干預及香港部分政治亂象有切膚之痛的人，才會感受到23條立法帶來的意義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm)
+
+---
+
 # 大熊貓龍鳳胎首度與「盈盈」同一展館與公眾見面　有市民稱感溫馨
 
   
@@ -214,7 +260,7 @@
 
 # 慢病共治計劃擴展至血脂檢查　醫衞局冀更多醫生參與
 
-![彭飛舟說，醫護人員會為被驗出三高的市民，重新再評估其心血管疾病風險。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796894_1_20250322093833.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796894_1_20250322093833.jpg&q=90)
   
 
 「慢性疾病共同治理先導計劃」由本月28日起，擴展至提供血脂檢查。
@@ -1392,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796755-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796755-20250321.htm)
-
----
-
-# 減省公務員工作流程提升效率　楊何蓓茵：並非不理大家死活
-
-![楊何蓓茵說，希望透過減省工作流程，重訂工作優次，令工作更有效率和成效。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796754_1_20250321121718.jpg&q=90)
-  
-
-立法會一個委員會討論公務員2025/26年度凍薪，以及在本屆政府任期內削減約1萬個職位等事項。公務員事務局局長楊何蓓茵表示，現時公務員編制有約10%空缺，希望各部門作出檢視，了解有關職位是否仍有需要，若無需要就不再重新招聘。她強調未來並非「不理大家死活」，要求由10個人做，變成8個人做，而是希望透過減省工作流程，重訂工作優次，令工作更有效率和成效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm)
-
----
-
-# 皇后山邨兩童一度危坐單位外牆及窗台　由消防帶回安全位置
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796753_1_20250321121638.jpg&q=85)
-  
-
-粉嶺皇后山邨皇樂樓一個低層單位，早上有兩名幼童分別危坐大廈外牆及冷氣機窗台，消防及後到場成功將他們帶回安全位置。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796753-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796753-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796753-20250321.htm)
 
 ---

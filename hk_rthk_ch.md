@@ -1,3 +1,73 @@
+# 王毅稱中日韓外長同意為舉行領導人會議營造條件
+
+![三國外長在會後出席聯合記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796910_1_20250322115050.jpg&q=90)
+  
+
+中日韓外長會在東京舉行，中共中央政治局委員兼外長王毅表示，今年是中國人民抗日戰爭暨世界反法西斯戰爭勝利80周年，三國應正視歷史、面向未來，推動中日韓合作健康發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796910-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796910-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796910-20250322.htm)
+
+---
+
+# 消息：運動員資助機制檢討近尾聲　桌球及網球項目很大機會留Ａ級
+
+  
+
+行政長官李家超在《施政報告》提出，要求體院檢討運動員資助機制。據了解，檢討接近尾聲，在現有機制中不符合「精英A級」條件的桌球及網球項目，很大機會能夠保留地位。消息指，精英體育事務委員會將於星期一開會討論資助機制的調整，預計兩個項目會符合新資格。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm)
+
+---
+
+# 鄧炳強：國際形勢複雜多變　要居安思危　推動香港全面發展
+
+  
+
+《維護國家安全條例》生效一年，保安局局長鄧炳強出席民建聯新書發布記者會致辭表示，有人形容香港為一本很難讀的書，他相信《基本法》23條立法是最難讀的篇章。由於要對一國兩制的憲制秩序有深刻認識和理解，同時要對回歸以來外部勢力的干預及香港部分政治亂象有切膚之痛的人，才會感受到23條立法帶來的意義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm)
+
+---
+
 # 大熊貓龍鳳胎首度與「盈盈」同一展館與公眾見面　有市民稱感溫馨
 
   
@@ -286,7 +356,7 @@
 
 # 慢病共治計劃擴展至血脂檢查　醫衞局冀更多醫生參與
 
-![彭飛舟說，醫護人員會為被驗出三高的市民，重新再評估其心血管疾病風險。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796894_1_20250322093833.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796894_1_20250322093833.jpg&q=90)
   
 
 「慢性疾病共同治理先導計劃」由本月28日起，擴展至提供血脂檢查。
@@ -1365,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm)
-
----
-
-# 倫敦希斯路機場因附近火警全日關閉　消防當局稱大火已受控
-
-![倫敦希斯路機場附近變電站在當地周五發生大火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796841_1_20250321201521.jpg&q=90)
-  
-
-英國倫敦希斯路機場因附近變電站大火，在當地星期五全日關閉。倫敦消防局表示，大火已受到控制，火場附近約有150人撤離。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796841-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796841-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796841-20250321.htm)
-
----
-
-# 希斯路機場因火警事故關閉　香港寄往英國郵件派遞服務有延誤
-
-![香港郵政表示，英國希斯路機場因火警事故關閉，寄往英國的郵件派遞服務會有延誤。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796840_1_20250321203258.jpg&q=90)
-  
-
-香港郵政宣布，接獲航空公司通知，英國希斯路機場因火警事故關閉，寄往英國的郵件派遞服務會有延誤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796840-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796840-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796840-20250321.htm)
-
----
-
-# 俄羅斯維持利率不變　指標利率維持21厘
-
-![俄羅斯央行維持指標利率21厘不變，表示未來可能進一步加息，因通脹壓力居高不下。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796839_1_20250321192742.jpg&q=80)
-  
-
-俄羅斯央行維持指標利率21厘不變，符合市場預期，又表示未來仍可能進一步加息，因為通脹壓力居高不下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796839-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796839-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796839-20250321.htm)
 
 ---

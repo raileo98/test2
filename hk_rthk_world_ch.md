@@ -1,3 +1,27 @@
+# 王毅稱中日韓外長同意為舉行領導人會議營造條件
+
+![三國外長在會後出席聯合記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796910_1_20250322115050.jpg&q=90)
+  
+
+中日韓外長會在東京舉行，中共中央政治局委員兼外長王毅表示，今年是中國人民抗日戰爭暨世界反法西斯戰爭勝利80周年，三國應正視歷史、面向未來，推動中日韓合作健康發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796910-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796910-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796910-20250322.htm)
+
+---
+
 # 特朗普撤銷賀錦麗與希拉莉的安全許可
 
 ![希拉莉與賀錦麗的安全許可被特朗普撤銷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796906_1_20250322110433.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796559-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796559-20250320.htm)
-
----
-
-# 梵蒂岡：方濟各病情持續改善　晚上毋須使用呼吸機
-
-![88歲的方濟各因肺炎留醫近5個星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796545_1_20250320100512.jpg&q=90)
-  
-
-梵蒂岡表示，教宗方濟各肺炎病情持續改善，晚上不再需要使用呼吸機，主診醫生相信教宗病情將持續改善。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796545-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796545-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796545-20250320.htm)
 
 ---
