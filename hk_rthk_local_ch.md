@@ -1,3 +1,23 @@
+# Cityline新增廣州及深圳兩個換票點　並研究快遞門票換領
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796967-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796967-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796967-20250322.htm)
+
+---
+
 # Coldplay部分門票出錯需更換　據悉政府要求退回手續費
 
 ![據悉，政府要求CityLine在香港、廣州、深圳設立換票點，並退回手續費。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796963_1_20250322212945.jpg&q=85)
@@ -1420,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm)
-
----
-
-# 證監會高層與財政部副部長廖岷會面　就優化互聯互通等深入交流
-
-![證監會高層日前在北京與財政部副部長廖岷會面。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796812_1_20250321171901.jpg&q=90)
-  
-
-證監會表示，行政總裁梁鳳儀和中介機構部執行董事葉志衡日前在北京拜訪國家財政部副部長廖岷，雙方就香港國際金融中心建設，尤其在固定收益及貨幣市場領域的發展，以及優化兩地金融市場互聯互通機制等合作議題進行深入交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm)
 
 ---
