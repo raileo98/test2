@@ -1,3 +1,27 @@
+# 黎巴嫩總理警告南部局勢升級或引發戰爭
+
+![以軍炮擊後，黎巴嫩南部升起濃煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796979_1_20250323012800.jpg&q=90)
+  
+
+黎巴嫩總理薩拉姆警告，如果黎巴嫩南部邊境地區軍事活動持續升級，黎巴嫩可能被拖入一場「新的毀滅性戰爭」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796979-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796979-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796979-20250323.htm)
+
+---
+
 # 倫敦希斯路機場全面恢復運作　航空公司警告航班仍會有延誤或取消
 
 ![倫敦希斯路機場因停電關閉後，星期六全面恢復運作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796978_1_20250323010752.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796773-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796773-20250321.htm)
-
----
-
-# 變電站大火致嚴重停電　希斯路機場就事故所帶來不便致歉
-
-![機場建議旅客在任何情況下，不要前機場，直至機場重開，並應聯絡航空公司以獲取更多資訊。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796763_1_20250321125214.jpg&q=90)
-  
-
-在英國希斯路機場附近為機場供電的變電站發生大火，機場在當地星期五全日關閉，機場就事故帶來的不便致歉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796763-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796763-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796763-20250321.htm)
 
 ---
