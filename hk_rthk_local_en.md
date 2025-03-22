@@ -1,3 +1,27 @@
+# More school exchange tour members fall ill on mainland
+
+![The secondary school says the affected students and teachers are on an exchange tour to Zhaoqing. Photo: Po Leung Kuk Lo Kit Sing (1983) College's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796941_1_20250322181019.jpg&q=90)
+  
+
+A secondary school said on Saturday that some students and teachers taking part in an exchange tour on the mainland have fallen ill.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm)
+
+---
+
 # Woman remains in coma after tooth extraction
 
 ![The Department of Health says the woman is still in a critical condition. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796933_1_20250322172551.jpg&q=90)
@@ -1416,29 +1440,5 @@ Police said three people have been arrested for their alleged involvement in a m
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796114-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796114-20250317.htm)
-
----
-
-# Henderson Land founder Lee Shau-kee dies at 97
-
-![Property tycoon Lee Shau-kee passed away peacefully on Monday evening. Photo courtesy of Henderson Land](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796117_1_20250317202145.jpg&q=90)
-  
-
-One of Hong Kong's richest people, Henderson Land founder Lee Shau-kee, has died at the age of 97.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm)
 
 ---

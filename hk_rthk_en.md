@@ -1,3 +1,27 @@
+# More school exchange tour members fall ill on mainland
+
+![The secondary school says the affected students and teachers are on an exchange tour to Zhaoqing. Photo: Po Leung Kuk Lo Kit Sing (1983) College's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796941_1_20250322181019.jpg&q=90)
+  
+
+A secondary school said on Saturday that some students and teachers taking part in an exchange tour on the mainland have fallen ill.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm)
+
+---
+
 # Durant scores 42 as Suns eclipse Cavs
 
 ![Phoenix Suns forward Kevin Durant soars above Cleveland Cavaliers forward De'Andre Hunter. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796939_1_20250322180740.jpg&q=90)
@@ -1412,29 +1436,5 @@ Hong Kong has the full support from the central government in maintaining its un
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm)
-
----
-
-# Japan first team to qualify for 2026 World Cup
-
-![Daichi Kamada's ninth goal for Japan sends the 60,000-strong crowd wild. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796672_1_20250320214131.jpg&q=75)
-  
-
-Japan became the first team to qualify for the 2026 World Cup after second-half goals from Daichi Kamada and Takefusa Kubo gave them a 2-0 win over Bahrain on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm)
 
 ---
