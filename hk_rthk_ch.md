@@ -1,3 +1,27 @@
+# 英國首相對以色列在加沙恢復軍事行動表示嚴重關切
+
+![以軍持續在加沙地帶展開地面行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796986_1_20250323062357.jpg&q=90)
+  
+
+英國首相施紀賢與約旦國王阿卜杜拉二世通話，對以色列再次在加沙地帶採取軍事行動以及加沙人道援助短缺表示嚴重關切。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796986-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796986-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796986-20250323.htm)
+
+---
+
 # 德國總統簽署憲法修正案放寬「債務煞車」限制
 
 ![修正案允許政府大規模舉債，投資國防和基礎設施建設。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796985_1_20250323051401.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm)
-
----
-
-# 鄧炳強：國際形勢複雜多變　要居安思危　推動香港全面發展
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796912_1_20250322125216.jpg&q=90)
-  
-
-《維護國家安全條例》生效一年，保安局局長鄧炳強出席民建聯新書發布記者會致辭表示，有人形容香港為一本很難讀的書，他相信《基本法》23條立法是最難讀的篇章。由於要對一國兩制的憲制秩序有深刻認識和理解，同時要對回歸以來外部勢力的干預及香港部分政治亂象有切膚之痛的人，才會感受到23條立法帶來的意義。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm)
 
 ---
