@@ -24,7 +24,7 @@
 
 # 中日舉行第六次經濟高層對話　王毅：中日互為伙伴而非對手
 
-![王毅在東京與岩屋毅共同主持召開第六次中日經濟高層對話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796961_1_20250322212132.jpg&q=90)
+![中日第六次經濟高層對話在東京舉行前，王毅（前排左五）和岩屋毅（前排左六）等官員合照留念。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796961_2_20250322212757.jpg&q=85)
   
 
 中共中央政治局委員、外長王毅在東京同日本外相岩屋毅共同主持召開第六次中日經濟高層對話，雙方15個政府部門負責人出席。

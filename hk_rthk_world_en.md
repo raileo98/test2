@@ -1,3 +1,27 @@
+# Four killed in South Korea wildfire
+
+![Helicopters battle the wildfire that broke out in the southeastern county of Sancheong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796964_1_20250322212803.jpg&q=90)
+  
+
+At least three firefighters and a public servant have been killed in a wildfire in South Korea, prompting the government to declare a state of emergency in southeastern regions, authorities said on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm)
+
+---
+
 # Girl among two killed in Israel strikes on Lebanon
 
 ![Smoke rises after an Israeli strike on the southern Lebanese village of Touline. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796954_1_20250322202858.jpg&q=90)
@@ -1411,29 +1435,5 @@ More than 500 Indonesians freed from online scam centres in Myanmar are expected
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm)
-
----
-
-# Kiribati eyes deep-sea mining deal with China
-
-![View of Kiribati's Parliament House. Kiribati opened discussions with China after a deal with Canada's The Metals Company fell through. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796176_1_20250318084916.jpg&q=85)
-  
-
-Pacific nation Kiribati says it is exploring a deep-sea mining partnership with China, dangling access to a vast patch of Pacific Ocean harbouring coveted metals and minerals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm)
 
 ---

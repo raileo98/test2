@@ -1,8 +1,9 @@
 # Coldplay部分門票出錯需更換　據悉政府要求退回手續費
 
+![據悉，政府要求CityLine在香港、廣州、深圳設立換票點，並退回手續費。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796963_1_20250322212945.jpg&q=85)
   
 
-英國著名樂隊Coldplay下月將於啟德體育園舉行巡迴演唱會，但部分門票資料出錯，需要更換新版門票。據悉，政府要求售票公司CityLine香港、廣州、深圳設立換票點，並退回手續費。
+英國著名樂隊Coldplay下月將於啟德體育園舉行巡迴演唱會，但部分門票資料出錯，需要更換新版門票。據悉，政府要求售票公司CityLine在香港、廣州、深圳設立換票點，並退回手續費。
 
   
 
@@ -47,7 +48,7 @@
 
 # 中日舉行第六次經濟高層對話　王毅：中日互為伙伴而非對手
 
-![王毅在東京與岩屋毅共同主持召開第六次中日經濟高層對話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796961_1_20250322212132.jpg&q=90)
+![中日第六次經濟高層對話在東京舉行前，王毅（前排左五）和岩屋毅（前排左六）等官員合照留念。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796961_2_20250322212757.jpg&q=85)
   
 
 中共中央政治局委員、外長王毅在東京同日本外相岩屋毅共同主持召開第六次中日經濟高層對話，雙方15個政府部門負責人出席。

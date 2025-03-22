@@ -1,3 +1,27 @@
+# Four killed in South Korea wildfire
+
+![Helicopters battle the wildfire that broke out in the southeastern county of Sancheong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796964_1_20250322212803.jpg&q=90)
+  
+
+At least three firefighters and a public servant have been killed in a wildfire in South Korea, prompting the government to declare a state of emergency in southeastern regions, authorities said on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm)
+
+---
+
 # Girl among two killed in Israel strikes on Lebanon
 
 ![Smoke rises after an Israeli strike on the southern Lebanese village of Touline. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796954_1_20250322202858.jpg&q=90)
@@ -1412,29 +1436,5 @@ The United States fell to its lowest happiness ranking ever partly due to a rise
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm)
-
----
-
-# White House promises 'big tariffs' on April 2
-
-![White House Press Secretary Karoline Leavitt says America "has been ripped off by every country around the world." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796689_1_20250321011627.jpg&q=90)
-  
-
-The White House on Thursday vowed to impose "big tariffs" on April 2 when US President Donald Trump is to unveil reciprocal levies in a major escalation of his trade war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm)
 
 ---
