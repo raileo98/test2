@@ -1,3 +1,27 @@
+# FS encourages mainland firms to use city's advantages
+
+![Paul Chan encouraged one AI firm to utilise Hong Kong's capital, talent, and professional services to expand internationally. Photo: GIS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796969_1_20250322222525.jpg&q=90)
+  
+
+Financial Secretary Paul Chan visited two mainland firms in Beijing on Friday, highlighting Hong Kong's role as a gateway for business expansion and global market access.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm)
+
+---
+
 # Fatah movement urges Hamas to cede power in Gaza
 
 ![Mahmoud Abbas's Fatah movement says the very existence of Palestinians in Gaza depends on Hamas giving up control. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796966_1_20250322215125.jpg&q=80)
@@ -1412,29 +1436,5 @@ Tesla was removed from the Vancouver International Auto Show in Canada because o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm)
-
----
-
-# Oxygen detected in most distant galaxy: astronomers
-
-![Dutch and Italian astronomers probed the JADES-GS-z14-0 galaxy using the ALMA radio telescope in Chile's Atacama desert. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796693_1_20250321032017.jpg&q=90)
-  
-
-Oxygen has been detected in the most distant galaxy ever discovered, surprised astronomers said on Thursday, offering further evidence that stars in the early universe matured far quicker than had been thought possible.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm)
 
 ---

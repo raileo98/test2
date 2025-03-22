@@ -1,3 +1,27 @@
+# 消委會暫接17宗投訴涉Coldplay香港演唱會需更換門票
+
+![消委會暫接獲17宗有關Coldplay香港演唱會需更換門票的投訴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796971_1_20250322223427.jpg&q=85)
+  
+
+消委會表示，截至晚上7時，接獲17宗有關Coldplay香港演唱會需更換門票的投訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm)
+
+---
+
 # Cityline新增廣州及深圳兩個換票點　並研究快遞門票換領
 
 ![Cityline對於造成的不便深感抱歉。（Cityline社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796967_1_20250322221708.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796722-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796722-20250321.htm)
-
----
-
-# 監管沙盒試點項目遍布不同地域　陳美寶：初時會在視線範圍進行
-
-![陳美寶強調安全是重要考慮，無人機有包括螺旋槳等安全裝置及後備功能，要應對突發情況，以及有適合地點降落。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796719_1_20250321092457.jpg&q=90)
-  
-
-政府正推動低空經濟，首批「監管沙盒」38個試點項目出爐。運輸及物流局局長陳美寶形容反應熱烈，是從72個申請者經審批選出的首批優先試驗項目，試點項目涉及物流配送、空中交通管理系統、緊急救援、貨物配送，以及公共基礎設施巡查等範疇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm)
 
 ---

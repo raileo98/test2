@@ -1,3 +1,27 @@
+# 消委會暫接17宗投訴涉Coldplay香港演唱會需更換門票
+
+![消委會暫接獲17宗有關Coldplay香港演唱會需更換門票的投訴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796971_1_20250322223427.jpg&q=85)
+  
+
+消委會表示，截至晚上7時，接獲17宗有關Coldplay香港演唱會需更換門票的投訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm)
+
+---
+
 # 消防處籲如受廈村貨倉火警煙霧或異味影響　關閉窗戶保持鎮定
 
 ![消防處派出三條喉及三隊煙帽隊到場灌救。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796968_1_20250322221753.jpg&q=90)
@@ -1421,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796821-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796821-20250321.htm)
-
----
-
-# 何永賢稱新措施讓有能力公屋富戶騰出單位　有需要市民有安身之處
-
-![房委會通過收緊公屋富戶政策。（何永賢社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796818_1_20250321181256.jpg&q=90)
-  
-
-房委會通過收緊公屋富戶政策，每月入息超過限額2倍至不高於5倍的富戶，額外租金由1.5倍至2倍，上調至2.5倍至4.5倍。另外，若富戶在兩個申報周期即合共4年，每月入息均處於4倍至5倍之間，會被要求遷出公屋。房屋局局長何永賢認為，新措施可以讓有能力的富戶及時騰出公屋單位，同時也有4年時間讓他們做好上流的準備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796818-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796818-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796818-20250321.htm)
 
 ---

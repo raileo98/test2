@@ -1,3 +1,27 @@
+# 消委會暫接17宗投訴涉Coldplay香港演唱會需更換門票
+
+![消委會暫接獲17宗有關Coldplay香港演唱會需更換門票的投訴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796971_1_20250322223427.jpg&q=85)
+  
+
+消委會表示，截至晚上7時，接獲17宗有關Coldplay香港演唱會需更換門票的投訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm)
+
+---
+
 # 南韓東南部山火釀最少4名參與救火行動人員遇難
 
   

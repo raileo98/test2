@@ -1,3 +1,27 @@
+# FS encourages mainland firms to use city's advantages
+
+![Paul Chan encouraged one AI firm to utilise Hong Kong's capital, talent, and professional services to expand internationally. Photo: GIS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796969_1_20250322222525.jpg&q=90)
+  
+
+Financial Secretary Paul Chan visited two mainland firms in Beijing on Friday, highlighting Hong Kong's role as a gateway for business expansion and global market access.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm)
+
+---
+
 # More school exchange tour members fall ill on mainland
 
 ![The secondary school says the affected students and teachers are on an exchange tour to Zhaoqing. Photo: Po Leung Kuk Lo Kit Sing (1983) College's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796941_1_20250322181019.jpg&q=90)
@@ -1416,29 +1440,5 @@ The government said on Monday it received three proposals for establishing the c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm)
-
----
-
-# Police arrest three over Fo Tan murder case
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796114_1_20250317200724.jpg&q=80)
-  
-
-Police said three people have been arrested for their alleged involvement in a murder case in Fo Tan on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796114-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796114-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796114-20250317.htm)
 
 ---

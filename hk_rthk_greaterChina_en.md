@@ -1,3 +1,27 @@
+# FS encourages mainland firms to use city's advantages
+
+![Paul Chan encouraged one AI firm to utilise Hong Kong's capital, talent, and professional services to expand internationally. Photo: GIS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796969_1_20250322222525.jpg&q=90)
+  
+
+Financial Secretary Paul Chan visited two mainland firms in Beijing on Friday, highlighting Hong Kong's role as a gateway for business expansion and global market access.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm)
+
+---
+
 # China, Japan, S Korea agree to deepen cooperation
 
 ![Foreign Minister Wang Yi and South Korea's Foreign Minister Cho Tae-yul shake hands as Japan's Foreign Minister Takeshi Iwaya looks on. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796925_1_20250322153847.jpg&q=90)
@@ -1412,29 +1436,5 @@ Vice Premier Ding Xuexiang has urged Hong Kong to act more firmly in safeguardin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm)
-
----
-
-# Good to improve NSL, Beijing official says
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794721_1_20250307130357.jpg&q=90)
-  
-
-A Beijing official on Friday said that it'll be the right thing to do to keep improving the National Security Law.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm)
 
 ---
