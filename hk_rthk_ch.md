@@ -95,7 +95,7 @@
 
 # 王毅稱中日韓外長同意為舉行領導人會議營造條件
 
-![三國外長在會後出席聯合記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796910_1_20250322115050.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796910_1_20250322115050.jpg&q=90)
   
 
 中日韓外長會在東京舉行，中共中央政治局委員兼外長王毅表示，今年是中國人民抗日戰爭暨世界反法西斯戰爭勝利80周年，三國應正視歷史、面向未來，推動中日韓合作健康發展。
