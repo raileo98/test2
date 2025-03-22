@@ -1,3 +1,26 @@
+# 南韓東南部山火釀最少4名參與救火行動人員遇難
+
+  
+
+南韓東南部發生山火，至今造成4名救火人員遇難。因火勢猛烈，政府宣布受影響地區進入災難事態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm)
+
+---
+
 # 中國代表在聯合國人權理事會闡述中國人權理念、反對人權政治化
 
 ![陳旭發言時闡述中國人權理念，反對人權政治化。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796965_1_20250322214923.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796716-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796716-20250321.htm)
-
----
-
-# 《環看天下》： 分析指美俄就俄烏停火內容仍存分歧
-
-![美俄、美烏元首通話， 分析指美俄就停火內容仍存分歧。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796714_1_20250321081812.jpg&q=90)
-  
-
-美國總統特朗普日前先後分别再同俄羅斯總統普京，以及烏克蘭總統澤連斯基通電話，討論俄烏停火協議。美方透露，美俄代表星期日會再在沙特阿拉伯繼續會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796714-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796714-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796714-20250321.htm)
 
 ---

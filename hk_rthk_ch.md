@@ -1,3 +1,26 @@
+# 南韓東南部山火釀最少4名參與救火行動人員遇難
+
+  
+
+南韓東南部發生山火，至今造成4名救火人員遇難。因火勢猛烈，政府宣布受影響地區進入災難事態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm)
+
+---
+
 # 消防處籲如受廈村貨倉火警煙霧或異味影響　關閉窗戶保持鎮定
 
 ![消防處派出三條喉及三隊煙帽隊到場灌救。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796968_1_20250322221753.jpg&q=90)
