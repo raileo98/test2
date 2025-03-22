@@ -1,3 +1,27 @@
+# Separate fees for radiology services 'minimal': HA
+
+![Hospital Authority director Michael Wong (right) says patients with financial difficulties can apply for an exemption or reduction. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796895_1_20250322085424.jpg&q=90)
+  
+
+Requiring patients to pay separately for tests and scans at public hospitals will leave them with a "minimal" financial burden as such services will still be "highly subsidised" by the government, health officials say amid plans to adjust medical fees.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm)
+
+---
+
 # HK Investment Corp chips in with strategic deal
 
 ![Paul Chan says the design and application of RISC-V open-source chips will speed up industrial revolutions. Photo: Courtesy of Government Information Services](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796829_1_20250321182218.jpg&q=90)
@@ -1416,29 +1440,5 @@ Innovation and technology secretary Sun Dong said on Monday Hong Kong's I&T deve
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796043-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796043-20250317.htm)
-
----
-
-# Experts weigh in on extending cryopreservation storage
-
-![Extending the storage of embryos and gamets could raise new issues for patients according to some fertility doctors. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796041_1_20250317124547.jpg&q=90)
-  
-
-A specialist in obstetrics and gynaecology said it remains uncertain whether patients will return for tailored counselling after storing their embryos or gametes for a certain period of time.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796041-20250317.htm)
 
 ---

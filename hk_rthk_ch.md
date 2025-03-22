@@ -1,3 +1,121 @@
+# 天悅站附近有吊臂車損毁架空電纜　部分輕鐵路綫改道
+
+![天悅站附近有吊臂車損毁架空電纜，影響電力供應，部分輕鐵路綫服務要調整。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796896_1_20250322092031.jpg&q=85)
+  
+
+輕鐵天悅站附近有吊臂車經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。港鐵表示，正全力進行搶修，由於涉及外來吊臂車令架空電纜損毁，預計需要數個小時修復。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796896-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796896-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796896-20250322.htm)
+
+---
+
+# 慢病共治計劃擴展至血脂檢查　醫衞局冀更多醫生參與
+
+  
+
+「慢性疾病共同治理先導計劃」由本月28日起，擴展至提供血脂檢查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796894-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796894-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796894-20250322.htm)
+
+---
+
+# 《環看天下》：考文垂當選下任國際奧委會主席　面臨不少挑戰
+
+![考文垂成為首位女性及來自非洲的代表，擔任國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796893_1_20250322084815.jpg&q=90)
+  
+
+國際奧委會公布下任主席人選，將會由津巴布韋體育部長，前奧運游泳金牌得主考文垂出任。她亦將會成為首位女性及來自非洲的代表，擔任國際奧委會主席一職。中國等多國的奧委會都先後向考文垂發信祝賀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796893-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796893-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796893-20250322.htm)
+
+---
+
+# 丘應樺：美國對華加徵關稅只會損人不利己
+
+  
+
+商務及經濟發展局局長丘應樺表示，美國對華加徵關稅，將香港產品與來自中國的產品混為一談，是錯誤做法，不單只違反世貿規定，亦是對特區政府的無理打壓，政府已表態將向世貿提出申訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm)
+
+---
+
+# 輕鐵天悅站附近吊臂車損毁架空電纜影響服務　料需要數小時修復
+
+![港鐵表示，正全力搶修，預計需要數個小時修復。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796891_1_20250322091933.jpg&q=75)
+  
+
+輕鐵天悅站附近有吊臂車經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。港鐵已就事件報警，並正全力進行搶修，由於涉及外來吊臂車令架空電纜損毁，預計需要數個小時修復。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796891-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796891-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796891-20250322.htm)
+
+---
+
 # 特朗普上任後首度有美國國會議員訪華　與馬朝旭討論中美關係
 
 ![外交部副部長馬朝旭昨日會見訪華的美國共和黨參議員戴安斯。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796889_1_20250322080837.jpg&q=90)
@@ -96,7 +214,7 @@
 
 # 醫管局：市民共付放射服務部分費用是考慮方向
 
-![黃立己相信，涉及的共付額，大部分市民都接受得到。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796878_1_20250322064817.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796878_1_20250322064817.jpg&q=90)
   
 
 政府正檢討公營醫療服務收費。現時公立醫院放射服務獲政府百分之一百補貼，即是無額外收費。醫管局指出，相關服務需求大，在2023至24年度，磁力共振掃瞄造影實際服務約87000人次，例行個案輪候時間達3年9個月。而在私營醫療市場，要接受磁力共振掃瞄造影檢查，每次要至少數千元。
@@ -1319,125 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796824-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796824-20250321.htm)
-
----
-
-# 世界50最佳酒吧頒獎禮首落戶香港　10月連同美酒佳餚巡禮登場
-
-![旅發局宣布，成功爭取全球酒吧業年度盛事「世界50最佳酒吧」2025頒獎典禮，首度落戶香港。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796822_1_20250321182134.jpg&q=85)
-  
-
-旅發局宣布，成功爭取全球酒吧業年度盛事「世界50最佳酒吧」2025頒獎典禮，首度落戶香港，於今年10月8日在啟德郵輪碼頭舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm)
-
----
-
-# 有乘客稱飛行約3小時後折返香港　獲安排明早另一航班無額外補償
-
-![本港今日有兩班前往倫敦希斯路機場的航班取消，另一班由香港出發的航班需要折返。（陳豊贊攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796821_1_20250321181651.jpg&q=80)
-  
-
-英國倫敦希斯路機場因附近變電站大火，在當地星期五全日關閉。估計全日至少超過1350個航班可能取消。本港今日有兩班前往倫敦希斯路機場的航班取消，另一班由香港出發的航班需要折返。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796821-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796821-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796821-20250321.htm)
-
----
-
-# 世茂集團盈警去年虧損擴大逾80%
-
-![世茂集團預計去年錄得淨虧損約429億至439億元人民幣，按年擴大約82%至86%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796820_1_20250321180321.jpg&q=80)
-  
-
-世茂集團發盈警，預計去年錄得淨虧損約429億至439億元人民幣，按年擴大約82%至86%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm)
-
----
-
-# 何永賢稱新措施讓有能力公屋富戶騰出單位　有需要市民有安身之處
-
-![房委會通過收緊公屋富戶政策。（何永賢社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796818_1_20250321181256.jpg&q=90)
-  
-
-房委會通過收緊公屋富戶政策，每月入息超過限額2倍至不高於5倍的富戶，額外租金由1.5倍至2倍，上調至2.5倍至4.5倍。另外，若富戶在兩個申報周期即合共4年，每月入息均處於4倍至5倍之間，會被要求遷出公屋。房屋局局長何永賢認為，新措施可以讓有能力的富戶及時騰出公屋單位，同時也有4年時間讓他們做好上流的準備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796818-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796818-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796818-20250321.htm)
-
----
-
-# 名創優品去年多賺逾16%
-
-![名創優品去年盈利26.2億元人民幣，按年升16.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796811_1_20250321170723.jpg&q=90)
-  
-
-名創優品（MINISO）去年盈利26.2億元人民幣，按年升16.2%。經調整盈利27.02億元，按年升15.7%。派發末期息每股美國存託股0.3268美元，或每股普通股0.0817美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm)
 
 ---

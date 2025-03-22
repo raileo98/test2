@@ -1,3 +1,97 @@
+# 天悅站附近有吊臂車損毁架空電纜　部分輕鐵路綫改道
+
+![天悅站附近有吊臂車損毁架空電纜，影響電力供應，部分輕鐵路綫服務要調整。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796896_1_20250322092031.jpg&q=85)
+  
+
+輕鐵天悅站附近有吊臂車經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。港鐵表示，正全力進行搶修，由於涉及外來吊臂車令架空電纜損毁，預計需要數個小時修復。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796896-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796896-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796896-20250322.htm)
+
+---
+
+# 慢病共治計劃擴展至血脂檢查　醫衞局冀更多醫生參與
+
+  
+
+「慢性疾病共同治理先導計劃」由本月28日起，擴展至提供血脂檢查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796894-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796894-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796894-20250322.htm)
+
+---
+
+# 丘應樺：美國對華加徵關稅只會損人不利己
+
+  
+
+商務及經濟發展局局長丘應樺表示，美國對華加徵關稅，將香港產品與來自中國的產品混為一談，是錯誤做法，不單只違反世貿規定，亦是對特區政府的無理打壓，政府已表態將向世貿提出申訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm)
+
+---
+
+# 輕鐵天悅站附近吊臂車損毁架空電纜影響服務　料需要數小時修復
+
+![港鐵表示，正全力搶修，預計需要數個小時修復。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796891_1_20250322091933.jpg&q=75)
+  
+
+輕鐵天悅站附近有吊臂車經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。港鐵已就事件報警，並正全力進行搶修，由於涉及外來吊臂車令架空電纜損毁，預計需要數個小時修復。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796891-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796891-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796891-20250322.htm)
+
+---
+
 # 吊臂車損毀架空電纜　輕鐵705及706綫不停天悅站及天恆站
 
 ![吊臂車損毀架空電纜　輕鐵705及706綫不停天悅站及天恆站](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796885_1_20250322075116.jpg&q=90)
@@ -48,7 +142,7 @@
 
 # 醫管局：市民共付放射服務部分費用是考慮方向
 
-![黃立己相信，涉及的共付額，大部分市民都接受得到。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796878_1_20250322064817.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796878_1_20250322064817.jpg&q=90)
   
 
 政府正檢討公營醫療服務收費。現時公立醫院放射服務獲政府百分之一百補貼，即是無額外收費。醫管局指出，相關服務需求大，在2023至24年度，磁力共振掃瞄造影實際服務約87000人次，例行個案輪候時間達3年9個月。而在私營醫療市場，要接受磁力共振掃瞄造影檢查，每次要至少數千元。
@@ -1346,101 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796731-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796731-20250321.htm)
-
----
-
-# 陳美寶冀無人機為偏遠居民送物資　北都研預留空間發展低空經濟
-
-![陳美寶表示，試驗項目包括物流配送，期望未來為在離島或偏遠地區的居民，由無人機配送物資。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796730_1_20250321110104.jpg&q=90)
-  
-
-低空經濟有38個沙盒項目獲批，運輸及物流局局長陳美寶表示，除了試驗安全配套，亦要考慮起落點等設施、數據監察、無人機定位等，希望可從中試驗及累積經驗。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm)
-
----
-
-# 監管沙盒試點項目遍布不同地域　陳美寶：初時會在視線範圍進行
-
-![陳美寶強調安全是重要考慮，無人機有包括螺旋槳等安全裝置及後備功能，要應對突發情況，以及有適合地點降落。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796719_1_20250321092457.jpg&q=90)
-  
-
-政府正推動低空經濟，首批「監管沙盒」38個試點項目出爐。運輸及物流局局長陳美寶形容反應熱烈，是從72個申請者經審批選出的首批優先試驗項目，試點項目涉及物流配送、空中交通管理系統、緊急救援、貨物配送，以及公共基礎設施巡查等範疇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796719-20250321.htm)
-
----
-
-# 香港報業評議會上年度接獲投訴按年增逾兩倍　九成涉及失實
-
-![香港報業評議會召開會員大會，改選新一屆執行委員會。(香港報業評議會提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796688_1_20250321010509.jpg&q=90)
-  
-
-香港報業評議會上年度接獲涉及報章及網站新聞內容的投訴有240宗投訴，按年增加逾兩倍。當中九成涉及失實，有217宗；其餘涉及誤導、偏頗、私隱、淫褺不雅或血腥暴力等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796688-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796688-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796688-20250321.htm)
-
----
-
-# 香港航空乘客憶述行李架著火時感到害怕　自費坐其他公司航機返港
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796683_1_20250320235720.jpg&q=90)
-  
-
-香港航空下午一架由杭州飛往香港的客機，飛行途中機艙行李架起火，改道安全降落於福州機場。港航安排另一班航機到福州接載乘客返港，預計深夜返抵本港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796683-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796683-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796683-20250320.htm)
 
 ---

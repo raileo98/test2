@@ -1,3 +1,27 @@
+# Separate fees for radiology services 'minimal': HA
+
+![Hospital Authority director Michael Wong (right) says patients with financial difficulties can apply for an exemption or reduction. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796895_1_20250322085424.jpg&q=90)
+  
+
+Requiring patients to pay separately for tests and scans at public hospitals will leave them with a "minimal" financial burden as such services will still be "highly subsidised" by the government, health officials say amid plans to adjust medical fees.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm)
+
+---
+
 # Tuchel starts his reign as England coach with a win
 
 ![England beat Albania 2-0 in their opening World Cup qualifier on Friday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796888_1_20250322075914.jpg&q=90)
@@ -1416,29 +1440,5 @@ The city's de facto central bank has cautioned that local borrowing costs will r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm)
-
----
-
-# Complete eHealth database 'key for treating patients'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796581_1_20250320122653.jpg&q=80)
-  
-
-Healthcare officials said on Thursday that patients should not get to pick the medical record to be stored on a government-run electronic platform.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796581-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796581-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796581-20250320.htm)
 
 ---
