@@ -1,3 +1,26 @@
+# Coldplay有門票出錯需更換　文體旅局促售票公司妥善處理
+
+  
+
+文化體育及旅遊局表示，高度關注 Cityline 印製 Coldplay 演唱會部分門票資料出錯的事件，局方得知事件後已立即要求Cityline作出快速和妥善處理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796973-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796973-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796973-20250322.htm)
+
+---
+
 # 解放軍駐港部隊參與植樹日活動　傳播環保意識增進與市民情感
 
 ![官兵代表整齊列隊，與香港社會各界代表一起參加啓動典禮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796972_3_20250322224844.jpg&q=50)
