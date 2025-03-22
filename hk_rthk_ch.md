@@ -1,3 +1,26 @@
+# 3名機場入境旅客管有未完稅煙及未有申報　分別判囚及罰款
+
+  
+
+3名從機場入境旅客因管有未完稅香煙以及未有向海關人員作出申報，違反《應課稅品條例》，在九龍城裁判法院分別被判處監禁38天至48天，以及罰款1000元至1200元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm)
+
+---
+
 # 新華社：特朗普政府「交易外交」陷入僵局
 
 ![新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796957_1_20250322203746.jpg&q=90)

@@ -1,3 +1,26 @@
+# 3名機場入境旅客管有未完稅煙及未有申報　分別判囚及罰款
+
+  
+
+3名從機場入境旅客因管有未完稅香煙以及未有向海關人員作出申報，違反《應課稅品條例》，在九龍城裁判法院分別被判處監禁38天至48天，以及罰款1000元至1200元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm)
+
+---
+
 # 全港近4000間公司與大廈及地標建築物響應「地球一小時」活動
 
   
@@ -1418,30 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm)
-
----
-
-# 園方稱「家姐」「細佬」進入新成長階段　「盈盈」有能力照顧子女
-
-![「家姐」、「細佬」進入新的成長階段，會探索不同事物，在母親身邊可以學習一些人類無法教授的知識。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796808_2_20250321171856.jpg&q=90)
-![「家姐」、「細佬」初生時，盈盈會關注牠們飲奶及排泄，現在就會留意牠們玩耍時的情況。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796808_1_20250321170719.jpg&q=80)
-  
-
-海洋公園一對大熊貓龍鳳胎「家姐」、「細佬」明日起與媽媽「盈盈」於同一展館亮相。公園工作人員盧芷珊表示，「家姐」、「細佬」進入新的成長階段，會探索不同事物，在母親身邊可以學習一些人類無法教授的知識，例如分辨氣味，園方認為，兩隻大熊貓BB已足夠成熟與媽媽一起與公眾見面，「盈盈」亦已具備能力同時間照顧兩名子女，相信牠們可以適應新安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796808-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796808-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796808-20250321.htm)
 
 ---
