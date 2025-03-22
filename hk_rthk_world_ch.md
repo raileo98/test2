@@ -1,5 +1,6 @@
 # 美國新墨西哥州發生槍擊案3死14人傷
 
+![美國新墨西哥州發生槍擊案3死14人傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796976_1_20250323003039.jpg&q=90)
   
 
 美國新墨西哥州發生槍擊事件，造成3人死亡，14人受傷。
