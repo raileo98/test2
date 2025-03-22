@@ -1,3 +1,26 @@
+# 衞生署調查一名女子深度鎮靜麻醉下拔牙未能復甦　需送院仍危殆
+
+  
+
+衞生署接獲一宗由一間牙科日間醫療中心呈報的醫療風險警示事件，涉及一名35歲女病人，她於今年1月22日在涉事的牙科日間醫療中心，在深度鎮靜麻醉的程序下進行外科手術拔牙，期間未能從鎮靜狀態下復甦，被送往急症室救治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796929-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796929-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796929-20250322.htm)
+
+---
+
 # 大熊貓龍鳳胎與媽媽首度「同框」與公眾見面　3千多張時間票派完
 
 ![早上開園後，首批訪客即時進入展館探訪大熊貓。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796919_1_20250322132321.jpg&q=80)
@@ -96,7 +119,7 @@
 
 # 鄧炳強：國際形勢複雜多變　要居安思危　推動香港全面發展
 
-![鄧炳強說，作為負責推動23條立法的官員，這一章既難讀亦難忘，可以說是他工作生涯的最大挑戰。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796912_1_20250322125216.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796912_1_20250322125216.jpg&q=90)
   
 
 《維護國家安全條例》生效一年，保安局局長鄧炳強出席民建聯新書發布記者會致辭表示，有人形容香港為一本很難讀的書，他相信《基本法》23條立法是最難讀的篇章。由於要對一國兩制的憲制秩序有深刻認識和理解，同時要對回歸以來外部勢力的干預及香港部分政治亂象有切膚之痛的人，才會感受到23條立法帶來的意義。
@@ -1422,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796767-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796767-20250321.htm)
-
----
-
-# 海關搜上水元朗5店拘5人　檢9千件冒牌化妝品護膚品香水
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796764_1_20250321130729.jpg&q=80)
-  
-
-海關在打擊售賣冒牌物品的行動中，檢獲約9000件懷疑冒牌香水、化妝品及護膚品，估計市值約200萬元，行動中5人被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796764-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796764-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796764-20250321.htm)
 
 ---
