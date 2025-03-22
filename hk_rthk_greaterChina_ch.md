@@ -1,3 +1,27 @@
+# 第六次中日經濟高層對話達成20項重要共識
+
+![第六次中日經濟高層對話在東京舉行。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796974_1_20250322235617.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在日本東京與日本外相岩屋毅，共同主持第六次中日經濟高層對話，達成20項重要共識。新華社報道，關於福島核污水排海問題和日本水產品輸華問題，中方反對日方單方面啟動排海的立場沒有變化。雙方重申完整準確全面理解2024年9月20日發表的共識，確認持續開展針對排海的長期國際監測和中方獨立取樣監測，在結果沒有異常前提下，就日本水產品輸華問題開展相關磋商。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm)
+
+---
+
 # 中國代表在聯合國人權理事會闡述中國人權理念、反對人權政治化
 
 ![陳旭發言時闡述中國人權理念，反對人權政治化。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796965_1_20250322214923.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796430-20250319.htm)
-
----
-
-# 外交部駐港公署：強烈不滿澳方為反中亂港分子撐腰打氣
-
-![發言人說，中方敦促澳方停止為犯罪分子提供「庇護所」。（外交部駐港公署網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796426_1_20250319160822.jpg&q=90)
-  
-
-外交部駐港公署發言人說，澳洲個別政客對所謂「香港警方在澳洲開展執法行動」表達關切，公然為反中亂港分子撐腰打氣，栽贓抹黑香港特區政府，公署表示強烈不滿和堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm)
 
 ---

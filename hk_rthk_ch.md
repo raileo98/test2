@@ -1,3 +1,27 @@
+# 第六次中日經濟高層對話達成20項重要共識
+
+![第六次中日經濟高層對話在東京舉行。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796974_1_20250322235617.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在日本東京與日本外相岩屋毅，共同主持第六次中日經濟高層對話，達成20項重要共識。新華社報道，關於福島核污水排海問題和日本水產品輸華問題，中方反對日方單方面啟動排海的立場沒有變化。雙方重申完整準確全面理解2024年9月20日發表的共識，確認持續開展針對排海的長期國際監測和中方獨立取樣監測，在結果沒有異常前提下，就日本水產品輸華問題開展相關磋商。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm)
+
+---
+
 # Coldplay有門票出錯需更換　文體旅局促售票公司妥善處理
 
 ![文化體育及旅遊局表示，高度關注 Cityline 印製 Coldplay 演唱會部分門票資料出錯的事件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796973_1_20250322225841.jpg&q=80)

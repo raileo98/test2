@@ -1,3 +1,27 @@
+# 第六次中日經濟高層對話達成20項重要共識
+
+![第六次中日經濟高層對話在東京舉行。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796974_1_20250322235617.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在日本東京與日本外相岩屋毅，共同主持第六次中日經濟高層對話，達成20項重要共識。新華社報道，關於福島核污水排海問題和日本水產品輸華問題，中方反對日方單方面啟動排海的立場沒有變化。雙方重申完整準確全面理解2024年9月20日發表的共識，確認持續開展針對排海的長期國際監測和中方獨立取樣監測，在結果沒有異常前提下，就日本水產品輸華問題開展相關磋商。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm)
+
+---
+
 # 南韓東南部山火釀最少4名參與救火行動人員遇難
 
 ![南韓東南部發生山火，至今造成4名救火人員遇難。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796970_1_20250322223736.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796718-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796718-20250321.htm)
-
----
-
-# 特朗普：美國很快與烏克蘭簽署礦產和自然資源協議
-
-![特朗普表示，美國將很快與烏克蘭簽署礦產和自然資源協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796716_1_20250321084902.jpg&q=90)
-  
-
-美國總統特朗普表示，美國將很快與烏克蘭簽署礦產和自然資源協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796716-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796716-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796716-20250321.htm)
 
 ---
