@@ -143,7 +143,7 @@
 
 # 大熊貓龍鳳胎首度與「盈盈」同一展館與公眾見面　有市民稱感溫馨
 
-![有市民指今日見證「家姐」「細佬」與媽媽「盈盈」首度同場，感到興奮。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796911_1_20250322124736.jpg&q=80)
+![早上約10時半，園方職員已向訪客派發中午12時的「時間票」，現場不少人輪候領取，希望見到大熊貓，有內地旅客認為仍然值得。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796911_3_20250322162828.jpg&q=85)
 ![有市民花費1500元，在開園前與大熊貓見面半小時，又形容3隻大熊貓經常貼在一起，感到溫馨。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796911_2_20250322124736.jpg&q=85)
   
 

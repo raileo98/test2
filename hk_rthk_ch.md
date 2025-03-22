@@ -1,3 +1,26 @@
+# 衞生署調查一名女子深度鎮靜麻醉下拔牙未能復甦　需送院仍危殆
+
+  
+
+衞生署接獲一宗由一間牙科日間醫療中心呈報的醫療風險警示事件，涉及一名35歲女病人，她於今年1月22日在涉事的牙科日間醫療中心，在深度鎮靜麻醉的程序下進行外科手術拔牙，期間未能從鎮靜狀態下復甦，被送往急症室救治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796929-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796929-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796929-20250322.htm)
+
+---
+
 # 倫敦希斯路機場全面恢復運作　行政總裁稱無法百分百預防突發事件
 
   
@@ -310,7 +333,7 @@
 
 # 大熊貓龍鳳胎首度與「盈盈」同一展館與公眾見面　有市民稱感溫馨
 
-![有市民指今日見證「家姐」「細佬」與媽媽「盈盈」首度同場，感到興奮。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796911_1_20250322124736.jpg&q=80)
+![早上約10時半，園方職員已向訪客派發中午12時的「時間票」，現場不少人輪候領取，希望見到大熊貓，有內地旅客認為仍然值得。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796911_3_20250322162828.jpg&q=85)
 ![有市民花費1500元，在開園前與大熊貓見面半小時，又形容3隻大熊貓經常貼在一起，感到溫馨。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796911_2_20250322124736.jpg&q=85)
   
 
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796853-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796853-20250321.htm)
-
----
-
-# 美股開市後下跌
-
-![美股開市後跌約1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796852_1_20250321214305.jpg&q=90)
-  
-
-紐約股市開市後跌1%，繼續受關稅戰的憂慮影響。快遞公司聯邦快遞因經濟環境不確定，下調全年業績預測。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796852-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796852-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796852-20250321.htm)
 
 ---
