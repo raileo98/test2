@@ -1,5 +1,29 @@
+# 鄧炳強：要以居安思危意識及守正創新思維　推動香港全面發展
+
+  
+
+《維護國家安全條例》生效一年，保安局局長鄧炳強表示，推動《基本法》23條立法是他工作生涯的最大挑戰，他與律政司司長及副司長3人拼盡全力去做，當條例獲立法會通過，大家都覺得值得。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm)
+
+---
+
 # 購票公司稱需更換Coldplay演唱會新版門票　為不便表歉意
 
+![Cityline表示，原有門票將會被作廢，不可用作入場，並對於事件造成的不便，表示歉意。（Coldplayhongkong 社交網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796946_1_20250322201004.jpg&q=90)
   
 
 英國著名樂隊Coldplay下月將於啟德體育園，舉行巡迴演唱會。
@@ -1419,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796789-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796789-20250321.htm)
-
----
-
-# 李家超：四理念開啟創科新局面　今年將選合適地徵私人發展
-
-![李家超表示，政府會為園區的發展拆牆鬆綁，以變革思維突破發展局限。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796788_1_20250321160425.jpg&q=90)
-  
-
-港深創新及科技園8號及9號大樓平頂儀式下午舉行，行政長官李家超致辭表示，兩座大樓平頂，以及11號大樓全面完成，標誌著香港特區在創新科技領域與港深創科合作，踏上另一個高峰台階。他表示，今年很快會選擇合適地塊，徵求私人發展計劃，利用市場的力量，加速園區發展，並在今年內完成園區第二期的詳細規劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm)
 
 ---

@@ -1,3 +1,72 @@
+# 尼日爾軍政府指西部省份發生恐襲最少44死　全國哀悼3日
+
+  
+
+尼日爾軍政府指西部發生恐怖襲擊，最少44名平民遇害、13人受傷，其中4人傷勢嚴重。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm)
+
+---
+
+# 鄧炳強：要以居安思危意識及守正創新思維　推動香港全面發展
+
+  
+
+《維護國家安全條例》生效一年，保安局局長鄧炳強表示，推動《基本法》23條立法是他工作生涯的最大挑戰，他與律政司司長及副司長3人拼盡全力去做，當條例獲立法會通過，大家都覺得值得。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm)
+
+---
+
+# 何立峰晤美國訪客　稱中方堅決反對將經貿問題政治化
+
+  
+
+中共中央政治局委員、國務院副總理何立峰在北京分別會見美國聯邦參議員戴安斯，以及新加坡淡馬錫董事長林文興。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm)
+
+---
+
 # 以色列空襲黎巴嫩南部真主黨目標　回應遭火箭炮攻擊
 
 ![以色列北部邊境城市梅圖拉早前受到火箭炮攻擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796948_1_20250322195257.jpg&q=65)
@@ -24,6 +93,7 @@
 
 # 購票公司稱需更換Coldplay演唱會新版門票　為不便表歉意
 
+![Cityline表示，原有門票將會被作廢，不可用作入場，並對於事件造成的不便，表示歉意。（Coldplayhongkong 社交網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796946_1_20250322201004.jpg&q=90)
   
 
 英國著名樂隊Coldplay下月將於啟德體育園，舉行巡迴演唱會。

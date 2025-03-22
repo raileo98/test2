@@ -1,3 +1,26 @@
+# 何立峰晤美國訪客　稱中方堅決反對將經貿問題政治化
+
+  
+
+中共中央政治局委員、國務院副總理何立峰在北京分別會見美國聯邦參議員戴安斯，以及新加坡淡馬錫董事長林文興。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm)
+
+---
+
 # 中日韓外長會　王毅：推動三國合作發揮1+1+1大於3作用
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796938_1_20250322183010.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm)
-
----
-
-# 謝展寰前往北京拜訪國家海關總署　就保障供港食物供應等議題交流
-
-![謝展寰下午啟程前赴北京，訪京期間將拜訪包括國家海關總署。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796373_1_20250319104528.jpg&q=90)
-  
-
-環境及生態局局長謝展寰今日下午啟程前赴北京，訪京期間將拜訪國家海關總署，就保障供港食物供應、便利香港製造食品輸入內地的通關安排，以及加強食品貿易方面的合作等議題進行交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm)
 
 ---

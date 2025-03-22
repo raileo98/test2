@@ -1,3 +1,49 @@
+# 尼日爾軍政府指西部省份發生恐襲最少44死　全國哀悼3日
+
+  
+
+尼日爾軍政府指西部發生恐怖襲擊，最少44名平民遇害、13人受傷，其中4人傷勢嚴重。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm)
+
+---
+
+# 何立峰晤美國訪客　稱中方堅決反對將經貿問題政治化
+
+  
+
+中共中央政治局委員、國務院副總理何立峰在北京分別會見美國聯邦參議員戴安斯，以及新加坡淡馬錫董事長林文興。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm)
+
+---
+
 # 以色列空襲黎巴嫩南部真主黨目標　回應遭火箭炮攻擊
 
 ![以色列北部邊境城市梅圖拉早前受到火箭炮攻擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796948_1_20250322195257.jpg&q=65)
@@ -1386,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796692-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796692-20250321.htm)
-
----
-
-# 歐盟向烏克蘭再提供10億歐元貸款
-
-![馮德萊恩強調歐盟正幫助烏克蘭經濟保持正常運轉，重建被破壞的關鍵基礎設施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796691_1_20250322001659.jpg&q=90)
-  
-
-歐盟委員會表示，向烏克蘭再提供10億歐元貸款，相關貸款將以被凍結的俄羅斯資產收益來償還，連同這筆貸款，歐盟今年來向烏克蘭提供的貸款總額達40億歐元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796691-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796691-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796691-20250321.htm)
-
----
-
-# 施紀賢︰若俄烏達成和平協議　英國及盟友須迅速反應
-
-![施紀賢表示，將與盟友集中討論對烏克蘭支持計劃的細節。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796690_1_20250321013054.jpg&q=90)
-  
-
-英國首相施紀賢與來自20多個國家的高級軍方領袖舉行會議，集中討論「自願聯盟」支持烏克蘭的具體方案。英國傳媒報道，會議可能標誌著建立「烏克蘭維和部隊」進入行動階段。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796690-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796690-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796690-20250321.htm)
 
 ---
