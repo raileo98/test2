@@ -1,5 +1,6 @@
 # Coldplay有門票出錯需更換　文體旅局促售票公司妥善處理
 
+![文化體育及旅遊局表示，高度關注 Cityline 印製 Coldplay 演唱會部分門票資料出錯的事件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796973_1_20250322225841.jpg&q=80)
   
 
 文化體育及旅遊局表示，高度關注 Cityline 印製 Coldplay 演唱會部分門票資料出錯的事件，局方得知事件後已立即要求Cityline作出快速和妥善處理。
@@ -170,10 +171,10 @@
 
 # Coldplay部分門票出錯需更換　據悉政府要求退回手續費
 
-![據悉，政府要求CityLine在香港、廣州、深圳設立換票點，並退回手續費。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796963_1_20250322212945.jpg&q=85)
+![據悉，政府要求Cityline在香港、廣州、深圳設立換票點，並退回手續費。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796963_1_20250322212945.jpg&q=85)
   
 
-英國著名樂隊Coldplay下月將於啟德體育園舉行巡迴演唱會，但部分門票資料出錯，需要更換新版門票。據悉，政府要求售票公司CityLine在香港、廣州、深圳設立換票點，並退回手續費。
+英國著名樂隊Coldplay下月將於啟德體育園舉行巡迴演唱會，但部分門票資料出錯，需要更換新版門票。據悉，政府要求售票公司Cityline在香港、廣州、深圳設立換票點，並退回手續費。
 
   
 
