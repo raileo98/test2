@@ -1,3 +1,26 @@
+# 美國新墨西哥州發生槍擊案3死14人傷
+
+  
+
+美國新墨西哥州發生槍擊事件，造成3人死亡，14人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796976-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796976-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796976-20250323.htm)
+
+---
+
 # 澤連斯基視察烏東前線前指所
 
 ![澤連斯基到東部頓涅茨克地區視察，並在波克羅夫斯克烏軍指揮所聽取前線局勢報告。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796975_1_20250323002251.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796740-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796740-20250321.htm)
-
----
-
-# 俄羅斯聯邦安全會議秘書紹伊古據報抵達平壤　將晤金正恩
-
-![紹伊古據報將與北韓領袖金正恩及其他高級官員會面。(路透社資料圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796734_1_20250321101345.jpg&q=90)
-  
-
-俄羅斯傳媒報道，俄羅斯聯邦安全會議秘書紹伊古已抵達平壤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796734-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796734-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796734-20250321.htm)
 
 ---

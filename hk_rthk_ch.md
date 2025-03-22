@@ -1,3 +1,26 @@
+# 美國新墨西哥州發生槍擊案3死14人傷
+
+  
+
+美國新墨西哥州發生槍擊事件，造成3人死亡，14人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796976-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796976-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796976-20250323.htm)
+
+---
+
 # 澤連斯基視察烏東前線前指所
 
 ![澤連斯基到東部頓涅茨克地區視察，並在波克羅夫斯克烏軍指揮所聽取前線局勢報告。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796975_1_20250323002251.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796900-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796900-20250322.htm)
-
----
-
-# 丘應樺指跨境電商發展屬未來方向　籲本港企業要升級轉型
-
-![丘應樺分享到訪東莞一間港資企業的經驗，表示有關企業把握電商機遇，自行培訓「網紅」直播帶貨，一年生意額達10億人民幣。（商台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796901_1_20250322100532.jpg&q=90)
-  
-
-商務及經濟發展局局長丘應樺表示，跨境電商發展將會是未來方向，呼籲本港企業要升級轉型。特區政府在目前財政困難的時刻，仍在預算案宣布注資15億港元到兩個基金協助中小企，顯示政府有意幫助企業，利用機遇，尋求改變，發展事業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796901-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796901-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796901-20250322.htm)
 
 ---
