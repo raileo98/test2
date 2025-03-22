@@ -1,3 +1,27 @@
+# 中國代表在聯合國人權理事會闡述中國人權理念、反對人權政治化
+
+![陳旭發言時闡述中國人權理念，反對人權政治化。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796965_1_20250322214923.jpg&q=90)
+  
+
+中國常駐聯合國日內瓦辦事處和瑞士其他國際組織代表陳旭在聯合國人權理事會第58屆會議國別人權問題環節發言，闡述中國人權理念，反對人權政治化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm)
+
+---
+
 # 王文濤晤寶馬董事長　指妥善解決歐盟電動車反補貼案具重要意義
 
 ![王文濤說關稅戰、貿易戰只會雙輸；齊普策說歐洲綠色轉型離不開與中國合作。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796962_1_20250322211928.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796426-20250319.htm)
-
----
-
-# 中方促美方立即停止封鎖制裁古巴　多做有利美古關係改善事情
-
-![毛寧說， 所謂「強迫勞動」已成為美國打壓異己的完美藉口和霸權工具。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796423_1_20250319155848.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧表示，中方反對濫施脅迫外交，敦促美方立即停止打著任何旗號，對古巴實施封鎖制裁，把古巴從支恐國家名單中移除，多做有利美古關係改善的事情，多做真正幫助加勒比國家的實事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796423-20250319.htm)
 
 ---

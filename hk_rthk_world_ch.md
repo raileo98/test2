@@ -1,3 +1,27 @@
+# 中國代表在聯合國人權理事會闡述中國人權理念、反對人權政治化
+
+![陳旭發言時闡述中國人權理念，反對人權政治化。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796965_1_20250322214923.jpg&q=90)
+  
+
+中國常駐聯合國日內瓦辦事處和瑞士其他國際組織代表陳旭在聯合國人權理事會第58屆會議國別人權問題環節發言，闡述中國人權理念，反對人權政治化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm)
+
+---
+
 # 王文濤晤寶馬董事長　指妥善解決歐盟電動車反補貼案具重要意義
 
 ![王文濤說關稅戰、貿易戰只會雙輸；齊普策說歐洲綠色轉型離不開與中國合作。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796962_1_20250322211928.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796714-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796714-20250321.htm)
-
----
-
-# 傳媒稱加拿大總理卡尼將宣布提前在下月底舉行大選
-
-![加拿大傳媒報道，總理卡尼將宣布提前大選。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796710_1_20250321080839.jpg&q=90)
-  
-
-加拿大傳媒報道，總理卡尼將宣布提前大選。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796710-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796710-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796710-20250321.htm)
 
 ---

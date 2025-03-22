@@ -1,3 +1,27 @@
+# 中國代表在聯合國人權理事會闡述中國人權理念、反對人權政治化
+
+![陳旭發言時闡述中國人權理念，反對人權政治化。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796965_1_20250322214923.jpg&q=90)
+  
+
+中國常駐聯合國日內瓦辦事處和瑞士其他國際組織代表陳旭在聯合國人權理事會第58屆會議國別人權問題環節發言，闡述中國人權理念，反對人權政治化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm)
+
+---
+
 # Coldplay部分門票出錯需更換　據悉政府要求退回手續費
 
 ![據悉，政府要求CityLine在香港、廣州、深圳設立換票點，並退回手續費。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796963_1_20250322212945.jpg&q=85)
