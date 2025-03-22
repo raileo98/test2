@@ -46,12 +46,12 @@ Former heavyweight champion George Foreman, who fought and lost against Muhammad
 
 ---
 
-# Light Rail services gradually resume normal
+# Light Rail returning to normal after disruption
 
 ![It took MTR maintenance staff about four hours to repair the damaged overhead line. Photo courtesy of MTR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796898_1_20250322093945.jpg&q=80)
   
 
-The MTR says light rail services are resuming normal after several routes in Tin Shui Wai were disrupted on Saturday morning.
+The MTR says Light Rail services are returning to normal after several routes in Tin Shui Wai were disrupted on Saturday morning.
 
   
 
