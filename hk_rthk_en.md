@@ -1,3 +1,27 @@
+# Pope to make first public appearance since illness
+
+![The pontiff was admitted to Rome's Gemelli Hospital on February 14 with breathing difficulties. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796947_1_20250322191242.jpg&q=85)
+  
+
+Pope Francis will make his first public appearance on Sunday with a blessing and a wave from a window at Rome's Gemelli Hospital where he was admitted on February 14.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm)
+
+---
+
 # Heathrow 'fully operational' again after fire shutdown
 
 ![Delays and cancellations are expected on Saturday as airlines scramble to clear a backlog of flights. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796942_1_20250322182905.jpg&q=90)
@@ -1412,29 +1436,5 @@ Hamas said it fired rockets at Israeli commercial hub Tel Aviv on Thursday in it
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796687-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796687-20250321.htm)
-
----
-
-# Kirsty Coventry elected first woman president of IOC
-
-![The two-time Olympic swimming champion succeeds Thomas Bach. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796684_1_20250321001616.jpg&q=90)
-  
-
-Zimbabwean Kirsty Coventry became the first woman and African to be elected president of the International Olympic Committee on Thursday declaring it to be an "extraordinary moment."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm)
 
 ---

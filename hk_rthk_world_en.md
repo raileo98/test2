@@ -1,3 +1,27 @@
+# Pope to make first public appearance since illness
+
+![The pontiff was admitted to Rome's Gemelli Hospital on February 14 with breathing difficulties. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796947_1_20250322191242.jpg&q=85)
+  
+
+Pope Francis will make his first public appearance on Sunday with a blessing and a wave from a window at Rome's Gemelli Hospital where he was admitted on February 14.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm)
+
+---
+
 # Heathrow 'fully operational' again after fire shutdown
 
 ![Delays and cancellations are expected on Saturday as airlines scramble to clear a backlog of flights. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796942_1_20250322182905.jpg&q=90)
@@ -1411,29 +1435,5 @@ Starbucks has been ordered to pay US$50 million to a customer who was burned whe
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796175-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796175-20250318.htm)
-
----
-
-# Carney says Canada must reduce reliance on US
-
-![Canada's Prime Minister Mark Carney speaks during a bilateral meeting with Britain's Prime Minister. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796162_1_20250318063858.jpg&q=90)
-  
-
-Canadian Prime Minister Mark Carney on Monday warned his country must reduce its reliance on the United States and would turn towards its "reliable" European allies instead on his first trip abroad.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm)
 
 ---
