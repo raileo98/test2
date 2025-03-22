@@ -1,5 +1,54 @@
+# 新華社：特朗普政府「交易外交」陷入僵局
+
+![新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796957_1_20250322203746.jpg&q=90)
+  
+
+新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章，認為在烏克蘭危機上，美國與俄烏兩國的分歧顯現；在巴以問題上，加沙和也門戰火重燃；另外，為解決美國國內的非法移民和芬太尼問題，美國向墨西哥和加拿大揮起「關稅大棒」，但多國反制美國加徵關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm)
+
+---
+
+# 聯合國指以色列新撤離令直接影響加沙地帶內共19個社區逾6萬人
+
+![汗尤尼斯數以萬計民眾受撤離令影響。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796953_1_20250322203852.jpg&q=75)
+  
+
+聯合國指自從以色列在過去的星期二，對加沙多個地區發布新的撤離令以來，地帶內共19個社區受到直接影響，包括北部的13個社區，以及汗尤尼斯東部的6個社區，受影響人數分別約3萬人及3萬5千人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm)
+
+---
+
 # 尼日爾軍政府指西部省份發生恐襲最少44死　全國哀悼3日
 
+![尼日爾軍政府指西部省份發生恐襲最少44死　全國哀悼3日](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796951_1_20250322204009.jpg&q=90)
   
 
 尼日爾軍政府指西部發生恐怖襲擊，最少44名平民遇害、13人受傷，其中4人傷勢嚴重。
@@ -1384,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796696-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796696-20250321.htm)
-
----
-
-# 加沙衛生部門稱以軍持續空襲造成超過90人死亡
-
-![一架坦克部署在以色列接壤加沙邊境。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796694_1_20250321034148.jpg&q=90)
-  
-
-以色列持續空襲加沙，並恢復在加沙展開地面行動，當地衛生部門說，星期四的轟炸已經造成至少91名巴勒斯坦人死亡，數十人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796694-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796694-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796694-20250321.htm)
-
----
-
-# 中國奧委會祝賀考文垂當選國際奧委會主席
-
-![中方祝賀考文垂當選國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796692_1_20250321015604.jpg&q=90)
-  
-
-中國奧委會祝賀考文垂當選國際奧委會主席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796692-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796692-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796692-20250321.htm)
 
 ---

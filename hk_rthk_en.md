@@ -1,3 +1,27 @@
+# Girl among two killed in Israel strikes on Lebanon
+
+![Smoke rises after an Israeli strike on the southern Lebanese village of Touline. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796954_1_20250322202858.jpg&q=90)
+  
+
+Two people including a girl were killed in an Israeli attack on a southern Lebanese town on Saturday, state media reported, after Israel launched air strikes in response to cross-border rocket fire.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm)
+
+---
+
 # Pope to make first public appearance since illness
 
 ![The pontiff was admitted to Rome's Gemelli Hospital on February 14 with breathing difficulties. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796947_1_20250322191242.jpg&q=85)
@@ -1412,29 +1436,5 @@ The White House on Thursday vowed to impose "big tariffs" on April 2 when US Pre
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm)
-
----
-
-# Hamas fires at Tel Aviv in response to Israeli strikes
-
-![Gaza's civil defence agency says more than 500 Palestinians have been killed by Israeli strikes this week. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796687_1_20250321005439.jpg&q=85)
-  
-
-Hamas said it fired rockets at Israeli commercial hub Tel Aviv on Thursday in its first military response to the growing civilian death toll from Israel's resumption of air and ground operations in Gaza.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796687-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796687-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796687-20250321.htm)
 
 ---

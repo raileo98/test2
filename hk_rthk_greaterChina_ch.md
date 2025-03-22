@@ -1,3 +1,52 @@
+# 新華社：特朗普政府「交易外交」陷入僵局
+
+![新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796957_1_20250322203746.jpg&q=90)
+  
+
+新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章，認為在烏克蘭危機上，美國與俄烏兩國的分歧顯現；在巴以問題上，加沙和也門戰火重燃；另外，為解決美國國內的非法移民和芬太尼問題，美國向墨西哥和加拿大揮起「關稅大棒」，但多國反制美國加徵關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm)
+
+---
+
+# 陳茂波鼓勵內企利用香港拓展全球業務　在港開設更多實體銷售網絡
+
+![陳茂波（右二）到訪了一家內地領先的潮流文化娛樂公司，並與負責人會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_2_20250322202451.jpg&q=85)
+![陳茂波（右二）到訪一家專注於高精度人工智能產品研發應用的企業。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_1_20250322202451.jpg&q=85)
+  
+
+財政司司長陳茂波鼓勵內地企業利用香港國際化的資金、人才和專業服務，將業務拓展至全球，亦歡迎公司在香港開設更多實體銷售網絡，以及開拓更多元服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm)
+
+---
+
 # 何立峰晤美國訪客　稱中方堅決反對將經貿問題政治化
 
   
@@ -1386,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796410-20250319.htm)
-
----
-
-# 李家超與江門市委書記會面　就深化港邑合作及推動大灣區發展交流
-
-![李家超（右）與江門市委書記陳岸明（左）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796400_1_20250319135325.jpg&q=90)
-  
-
-行政長官李家超今日與江門市委書記陳岸明會面，就進一步深化港邑合作及推動粵港澳大灣區高質量發展交流意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796400-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796400-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796400-20250319.htm)
-
----
-
-# 王受文晤百事高層　稱穩定健康可持續中美經貿關係符合兩國利益
-
-![商務部國際貿易談判代表兼副部長王受文會見美國百事公司董事長兼首席執行官龍嘉德。（商務部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796383_1_20250319115656.jpg&q=90)
-  
-
-在北京，商務部國際貿易談判代表兼副部長王受文會見美國百事公司董事長兼首席執行官龍嘉德。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796383-20250319.htm)
 
 ---

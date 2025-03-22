@@ -1,3 +1,52 @@
+# 林定國鼓勵私營機構參考政府合約加入調解條款　推廣調解為先文化
+
+![林定國說，朋輩調解能為雙方提供一個公平表達意見的平台，促進溝通和理解。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796955_1_20250322203344.jpg&q=90)
+  
+
+律政司司長林定國說，為了深化調解文化，政府以身作則，自今年2月6日起，有關在政府合約中加入調解條款的政策正式生效，表示政府和當事人同意在訴諸仲裁或訴訟前，先嘗試調解解決爭議，期望透過牽頭在政府合約中加入調解條款，鼓勵私營機構參考並在其合約中加入類近的調解條款，進一步推廣「調解為先」的文化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm)
+
+---
+
+# 陳茂波鼓勵內企利用香港拓展全球業務　在港開設更多實體銷售網絡
+
+![陳茂波（右二）到訪了一家內地領先的潮流文化娛樂公司，並與負責人會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_2_20250322202451.jpg&q=85)
+![陳茂波（右二）到訪一家專注於高精度人工智能產品研發應用的企業。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_1_20250322202451.jpg&q=85)
+  
+
+財政司司長陳茂波鼓勵內地企業利用香港國際化的資金、人才和專業服務，將業務拓展至全球，亦歡迎公司在香港開設更多實體銷售網絡，以及開拓更多元服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm)
+
+---
+
 # 丘應樺：美國對華加徵關稅只會損人不利己
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796892_1_20250322093648.jpg&q=90)
@@ -1388,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796717-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796717-20250321.htm)
-
----
-
-# 日本2月全國核心CPI按年升3%　升幅高過預期
-
-![日本2月全國核心CPI按年升3%，高過市場預期的2.9%，但較1月3.2%的升幅有所放緩。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796715_1_20250321082605.jpg&q=80)
-  
-
-日本政府數據顯示，日本2月全國整體消費物價指數（CPI）按年上升3.7%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796715-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796715-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796715-20250321.htm)
-
----
-
-# 韓股初段偏軟
-
-![首爾綜合指數較早時報2630點，跌6點，跌幅0.26%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796713_1_20250321081207.jpg&q=85)
-  
-
-南韓股市在開市初段偏軟，首爾綜合指數較早時報2630點，跌6點，跌幅0.26%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796713-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796713-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796713-20250321.htm)
 
 ---

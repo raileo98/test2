@@ -1,5 +1,126 @@
+# 新華社：特朗普政府「交易外交」陷入僵局
+
+![新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796957_1_20250322203746.jpg&q=90)
+  
+
+新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章，認為在烏克蘭危機上，美國與俄烏兩國的分歧顯現；在巴以問題上，加沙和也門戰火重燃；另外，為解決美國國內的非法移民和芬太尼問題，美國向墨西哥和加拿大揮起「關稅大棒」，但多國反制美國加徵關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm)
+
+---
+
+# 全港近4000間公司與大廈及地標建築物響應「地球一小時」活動
+
+  
+
+維港兩岸多座的建築物響應一年一度的「地球一小時」活動，晚上8時30分「熄燈」一小時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796956-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796956-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796956-20250322.htm)
+
+---
+
+# 林定國鼓勵私營機構參考政府合約加入調解條款　推廣調解為先文化
+
+![林定國說，朋輩調解能為雙方提供一個公平表達意見的平台，促進溝通和理解。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796955_1_20250322203344.jpg&q=90)
+  
+
+律政司司長林定國說，為了深化調解文化，政府以身作則，自今年2月6日起，有關在政府合約中加入調解條款的政策正式生效，表示政府和當事人同意在訴諸仲裁或訴訟前，先嘗試調解解決爭議，期望透過牽頭在政府合約中加入調解條款，鼓勵私營機構參考並在其合約中加入類近的調解條款，進一步推廣「調解為先」的文化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm)
+
+---
+
+# 聯合國指以色列新撤離令直接影響加沙地帶內共19個社區逾6萬人
+
+![汗尤尼斯數以萬計民眾受撤離令影響。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796953_1_20250322203852.jpg&q=75)
+  
+
+聯合國指自從以色列在過去的星期二，對加沙多個地區發布新的撤離令以來，地帶內共19個社區受到直接影響，包括北部的13個社區，以及汗尤尼斯東部的6個社區，受影響人數分別約3萬人及3萬5千人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm)
+
+---
+
+# 陳茂波鼓勵內企利用香港拓展全球業務　在港開設更多實體銷售網絡
+
+![陳茂波（右二）到訪了一家內地領先的潮流文化娛樂公司，並與負責人會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_2_20250322202451.jpg&q=85)
+![陳茂波（右二）到訪一家專注於高精度人工智能產品研發應用的企業。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_1_20250322202451.jpg&q=85)
+  
+
+財政司司長陳茂波鼓勵內地企業利用香港國際化的資金、人才和專業服務，將業務拓展至全球，亦歡迎公司在香港開設更多實體銷售網絡，以及開拓更多元服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm)
+
+---
+
 # 尼日爾軍政府指西部省份發生恐襲最少44死　全國哀悼3日
 
+![尼日爾軍政府指西部省份發生恐襲最少44死　全國哀悼3日](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796951_1_20250322204009.jpg&q=90)
   
 
 尼日爾軍政府指西部發生恐怖襲擊，最少44名平民遇害、13人受傷，其中4人傷勢嚴重。

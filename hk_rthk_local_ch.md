@@ -1,3 +1,75 @@
+# 全港近4000間公司與大廈及地標建築物響應「地球一小時」活動
+
+  
+
+維港兩岸多座的建築物響應一年一度的「地球一小時」活動，晚上8時30分「熄燈」一小時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796956-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796956-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796956-20250322.htm)
+
+---
+
+# 林定國鼓勵私營機構參考政府合約加入調解條款　推廣調解為先文化
+
+![林定國說，朋輩調解能為雙方提供一個公平表達意見的平台，促進溝通和理解。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796955_1_20250322203344.jpg&q=90)
+  
+
+律政司司長林定國說，為了深化調解文化，政府以身作則，自今年2月6日起，有關在政府合約中加入調解條款的政策正式生效，表示政府和當事人同意在訴諸仲裁或訴訟前，先嘗試調解解決爭議，期望透過牽頭在政府合約中加入調解條款，鼓勵私營機構參考並在其合約中加入類近的調解條款，進一步推廣「調解為先」的文化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm)
+
+---
+
+# 陳茂波鼓勵內企利用香港拓展全球業務　在港開設更多實體銷售網絡
+
+![陳茂波（右二）到訪了一家內地領先的潮流文化娛樂公司，並與負責人會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_2_20250322202451.jpg&q=85)
+![陳茂波（右二）到訪一家專注於高精度人工智能產品研發應用的企業。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_1_20250322202451.jpg&q=85)
+  
+
+財政司司長陳茂波鼓勵內地企業利用香港國際化的資金、人才和專業服務，將業務拓展至全球，亦歡迎公司在香港開設更多實體銷售網絡，以及開拓更多元服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm)
+
+---
+
 # 鄧炳強：要以居安思危意識及守正創新思維　推動香港全面發展
 
   
@@ -1371,77 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796808-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796808-20250321.htm)
-
----
-
-# 首季21宗致命車禍23人死亡　警下周將不定時不定點嚴厲執法
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796801_1_20250321170642.jpg&q=90)
-  
-
-警方表示，去年香港發生1萬8千多宗有人受傷的交通意外，涉及2萬3千多人，當中88人死亡，較前年減少8%，42名行人在交通意外中死亡，亦按年減少32%，交通意外死亡人數及行人死亡數字均創歷史新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796801-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796801-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796801-20250321.htm)
-
----
-
-# 港股低收530點　恒指本周累計跌逾1%
-
-![恒生指數收市報23689點，創逾1星期新低，全日跌530點，跌幅約2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796796_1_20250321161603.jpg&q=85)
-  
-
-港股連跌兩日，恒生指數失守24000點關口，最多跌逾640點，低見23577點，收市報23689點，創逾1星期新低，全日跌530點，跌幅約2.2%，主板成交額增至約3391億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm)
-
----
-
-# 中大發現人體一種細胞蛋白會協調釋放更多病毒　抑制活性可抗感染
-
-![中大醫學院與國際研究夥伴合作研究發現，人體感染病毒後，體內一種重要細胞蛋白「ARF4」會協調受感染細胞釋放更多致病病毒。（中大提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796789_1_20250321170126.jpg&q=90)
-  
-
-中大醫學院與國際研究夥伴合作研究發現，人體感染病毒後，體內一種重要細胞蛋白「ARF4」會協調受感染細胞釋放更多致病病毒，而抑制這種細胞蛋白的活性，可以成為抗病毒感染的新方法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796789-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796789-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796789-20250321.htm)
 
 ---

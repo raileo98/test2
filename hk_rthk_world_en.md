@@ -1,3 +1,27 @@
+# Girl among two killed in Israel strikes on Lebanon
+
+![Smoke rises after an Israeli strike on the southern Lebanese village of Touline. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796954_1_20250322202858.jpg&q=90)
+  
+
+Two people including a girl were killed in an Israeli attack on a southern Lebanese town on Saturday, state media reported, after Israel launched air strikes in response to cross-border rocket fire.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm)
+
+---
+
 # Pope to make first public appearance since illness
 
 ![The pontiff was admitted to Rome's Gemelli Hospital on February 14 with breathing difficulties. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796947_1_20250322191242.jpg&q=85)
@@ -1411,29 +1435,5 @@ Pacific nation Kiribati says it is exploring a deep-sea mining partnership with 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm)
-
----
-
-# Starbucks ordered to pay US$50m for hot tea spill
-
-![A spokesperson for the coffee chain said the company would appeal the award. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796175_1_20250318083745.jpg&q=90)
-  
-
-Starbucks has been ordered to pay US$50 million to a customer who was burned when hot tea spilled on his lap at a California drive-through.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796175-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796175-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796175-20250318.htm)
 
 ---
