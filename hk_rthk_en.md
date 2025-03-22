@@ -1,3 +1,27 @@
+# Boxing legend George Foreman dies aged 76
+
+![The former heavyweight boxing champion is renowned for his iconic battle with Muhammad Ali. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796902_1_20250322102434.jpg&q=90)
+  
+
+Former heavyweight champion George Foreman, who fought and lost against Muhammad Ali in boxing's iconic 1974 "Rumble in the Jungle" before reclaiming the title two decades later, died on Friday aged 76, his family announced in a statement.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796902-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796902-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796902-20250322.htm)
+
+---
+
 # Light Rail service disrupted in Tin Shui Wai
 
 ![MTR maintenance staff are working to repair the damaged overhead line. Photo courtesy of MTR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796898_1_20250322093945.jpg&q=80)
@@ -1416,29 +1440,5 @@ Drones will be tasked with carrying out services ranging from power line inspect
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796605-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796605-20250320.htm)
-
----
-
-# HK Airlines flight diverts to Fuzhou after cabin fire
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796611_1_20250320162509.jpg&q=90)
-  
-
-A Hong Kong Airlines flight was forced to make an emergency landing in Fuzhou after a fire broke out in the cabin on Thursday afternoon.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm)
 
 ---

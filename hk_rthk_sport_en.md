@@ -1,3 +1,27 @@
+# Boxing legend George Foreman dies aged 76
+
+![The former heavyweight boxing champion is renowned for his iconic battle with Muhammad Ali. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796902_1_20250322102434.jpg&q=90)
+  
+
+Former heavyweight champion George Foreman, who fought and lost against Muhammad Ali in boxing's iconic 1974 "Rumble in the Jungle" before reclaiming the title two decades later, died on Friday aged 76, his family announced in a statement.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796902-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796902-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796902-20250322.htm)
+
+---
+
 # Tuchel starts his reign as England coach with a win
 
 ![England beat Albania 2-0 in their opening World Cup qualifier on Friday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796888_1_20250322075914.jpg&q=90)
@@ -1417,29 +1441,5 @@ Shai Gilgeous-Alexander outdueled MVP rival Nikola Jokic with a 40-point perform
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795042-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795042-20250310.htm)
-
----
-
-# India beat NZ to win Champions Trophy final
-
-![India players celebrate on the podium after winning the ICC Men's Champions Trophy. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795030_1_20250310061006.jpg&q=85)
-  
-
-Rohit Sharma made a combative 76 to back up a potent spin bowling display as India beat New Zealand by four wickets to win a record third Champions Trophy title.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795030-20250310.htm)
 
 ---

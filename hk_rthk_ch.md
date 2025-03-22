@@ -1,4 +1,51 @@
-# 中日韓外長會在東京舉行　王毅稱加強合作將令各國共同抵禦風險
+# 輕鐵天悅站架空電纜受損影響電力供應　港鐵料需數小時修復
+
+![輕鐵天悅站架空電纜受損，港鐵正全力進行搶修，預計需要數個小時修復。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796904_1_20250322103357.jpg&q=75)
+  
+
+一輛吊臂車早上7時許，在輕鐵天悅站附近經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。港鐵正全力進行搶修，預計需要數個小時修復。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796904-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796904-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796904-20250322.htm)
+
+---
+
+# 今年首兩個月網上續領「行車證」申請　較去年同期升逾八成
+
+  
+
+運輸署表示，優化車輛牌照措施去年底實施，今年1至2月，透過網上續領「行車證」的申請共有約36800宗，較去年同期大幅上升超過八成，至今發出超過19萬張新證。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796903-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796903-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796903-20250322.htm)
+
+---
+
+# 中日韓外長會在東京舉行　王毅稱三國應正視歷史、面向未來
 
 ![中日韓外長會在東京舉行。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796900_1_20250322095212.jpg&q=90)
   
@@ -27,7 +74,7 @@
 ![丘應樺分享到訪東莞一間港資企業的經驗，表示有關企業把握電商機遇，自行培訓「網紅」直播帶貨，一年生意額達10億人民幣。（商台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796901_1_20250322100532.jpg&q=90)
   
 
-商務及經濟發展局局長丘應樺表示，跨境電商發展將會是未來方向，呼籲本港企業要升級轉型。特區政府在目前財政困難的時刻，仍在預算案宣布注資15億港元到「BUD專項基金」，顯示政府有意協助企業，利用機遇，尋求改變，發展事業。
+商務及經濟發展局局長丘應樺表示，跨境電商發展將會是未來方向，呼籲本港企業要升級轉型。特區政府在目前財政困難的時刻，仍在預算案宣布注資15億港元到兩個基金協助中小企，顯示政府有意幫助企業，利用機遇，尋求改變，發展事業。
 
   
 
@@ -1392,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm)
-
----
-
-# 大熊貓龍鳳胎明起與盈盈在海洋公園同一展館與公眾見面
-
-![大熊貓龍鳳胎家姐、細佬明日起，首度與媽媽盈盈在海洋公園同一個展館同框與公眾見面。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796827_1_20250321194119.jpg&q=80)
-  
-
-大熊貓龍鳳胎家姐、細佬明日起，首度與媽媽盈盈在海洋公園同一個展館同框與公眾見面。展館開放時間將延長至下午4時半，及實施新入場安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796827-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796827-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796827-20250321.htm)
-
----
-
-# 警方下周展開行動打擊不小心駕駛、超速、不遵守交通燈號過馬路等
-
-![陳倩衡表示，今年首季截至3月中，有21宗致命交通意外，導致23人死亡。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796826_1_20250321194046.jpg&q=90)
-  
-
-警方表示，去年香港發生1萬8千多宗有人受傷的交通意外，涉及2萬3千多人，其中88人死亡，較前年年減少8%。交通意外死亡人數及行人死亡數字均創歷史新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796826-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796826-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796826-20250321.htm)
 
 ---
