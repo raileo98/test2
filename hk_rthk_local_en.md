@@ -1,3 +1,27 @@
+# Scheme aims to identify patients with high cholesterol
+
+![Pang Fei-chau said people have a much higher risk for cardiac disease if they have diabetes and high cholesterol at the same time. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796918_1_20250322131755.jpg&q=90)
+  
+
+Commissioner for primary healthcare Pang Fei-chau said on Saturday that it is expected more patients will be detected with high cholesterol after a government-led primary healthcare scheme expands to cover blood lipid testing from Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796918-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796918-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796918-20250322.htm)
+
+---
+
 # SAR government preparing WTO complaint
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796905_1_20250322103943.jpg&q=90)
@@ -1416,29 +1440,5 @@ Police on Monday raided a building in Mong Kok, with sources saying the operatio
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796085-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796085-20250317.htm)
-
----
-
-# New transit route 'needs to seamlessly link Kai Tak'
-
-![The proposed mass transit system will connect the Kai Tak MTR Station with the Kai Tak Cruise Terminal with six stations in total. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796048_1_20250317132335.jpg&q=85)
-  
-
-A think tank on Monday urged the government to give full play to undeveloped land along the planned elevated mass transit system in Kai Tak to connect the line "seamlessly" with buildings in the neighbourhood.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796048-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796048-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796048-20250317.htm)
 
 ---

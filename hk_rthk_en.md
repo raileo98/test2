@@ -1,3 +1,27 @@
+# Scheme aims to identify patients with high cholesterol
+
+![Pang Fei-chau said people have a much higher risk for cardiac disease if they have diabetes and high cholesterol at the same time. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796918_1_20250322131755.jpg&q=90)
+  
+
+Commissioner for primary healthcare Pang Fei-chau said on Saturday that it is expected more patients will be detected with high cholesterol after a government-led primary healthcare scheme expands to cover blood lipid testing from Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796918-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796918-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796918-20250322.htm)
+
+---
+
 # Lewis Hamilton wins Chinese Grand Prix sprint race
 
 ![Ferrari's British driver Lewis Hamilton celebrates his victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796915_1_20250322130258.jpg&q=90)
@@ -1412,29 +1436,5 @@ CK Hutchison has reported a 27 percent drop in net profit.
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796631-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796631-20250320.htm)
-
----
-
-# Legendary F1 team owner Eddie Jordan dies
-
-![Eddie Jordan had been undergoing treatment for what he had called 'quite aggressive' cancer of the bladder and prostate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796629_1_20250320172623.jpg&q=85)
-  
-
-Ex-Formula 1 team owner and media personality Eddie Jordan has died, according to his family. He was 76.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm)
 
 ---

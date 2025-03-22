@@ -1,5 +1,6 @@
 # 希斯路機場踏入星期六早上陸續恢復航班升降
 
+![希斯路機場恢復運作。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796920_1_20250322140902.jpg&q=85)
   
 
 因變電站火警而停運大半日的英國倫敦希斯路機場，踏入當地星期六早上，開始恢復航班升降。
