@@ -1,3 +1,26 @@
+# 美國邁阿密網球公開賽　香港球手黃澤林淘汰13號種子晉級第三圈
+
+  
+
+美國邁阿密網球公開賽男單次圈，20歲、持「外卡」參賽的本港球手黃澤林，爆冷淘汰13號種子、美國的舒爾頓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm)
+
+---
+
 # 世界盃歐洲區外圍賽　威爾士3:1擊敗哈薩克
 
 ![威爾士在J組首輪賽事，3:1擊敗哈薩克。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796988_1_20250323070655.jpg&q=85)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm)
-
----
-
-# 王毅稱中日韓外長同意為舉行領導人會議營造條件
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796910_1_20250322115050.jpg&q=90)
-  
-
-中日韓外長會在東京舉行，中共中央政治局委員兼外長王毅表示，今年是中國人民抗日戰爭暨世界反法西斯戰爭勝利80周年，三國應正視歷史、面向未來，推動中日韓合作健康發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796910-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796910-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796910-20250322.htm)
 
 ---
