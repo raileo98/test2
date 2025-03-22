@@ -1,3 +1,27 @@
+# Pope Francis to be discharged from hospital
+
+![Professor Sergio Alfieri (R) gives a press conference at the Gemelli Hospital. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796991_1_20250323072549.jpg&q=90)
+  
+
+Pope Francis, who has been battling pneumonia for more than five weeks, will be discharged from hospital on Sunday but will need a further two months of rest at the Vatican, the head of his medical team said on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796991-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796991-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796991-20250323.htm)
+
+---
+
 # Fatah movement urges Hamas to cede power in Gaza
 
 ![Mahmoud Abbas's Fatah movement says the very existence of Palestinians in Gaza depends on Hamas giving up control. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796966_1_20250322215125.jpg&q=80)
@@ -1411,29 +1435,5 @@ Irish mixed martial arts fighter Conor McGregor, who has been found liable of se
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796184-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796184-20250318.htm)
-
----
-
-# Stranded astronauts set to return after nine months
-
-![Nasa livestream shows a Crew-10 member greeting International Space Station crew shortly after docking on Sunday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796180_1_20250318090524.jpg&q=90)
-  
-
-After more than nine months aboard the International Space Station, a pair of astronauts are finally set to depart for Earth early Tuesday, ending a prolonged mission that has captivated global attention.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm)
 
 ---

@@ -1,3 +1,51 @@
+# UK to announce more cuts in budget update
+
+![Finance minister Rachel Reeves is expected to reduce the administration budgets for the civil service by 10 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796992_1_20250323073004.jpg&q=90)
+  
+
+British finance minister Rachel Reeves is eyeing spending cuts for government officials who work in departments to the value of around 1.5 billion pounds (US$1.94 billion) a year by 2028-29, The Times newspaper reported on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm)
+
+---
+
+# Pope Francis to be discharged from hospital
+
+![Professor Sergio Alfieri (R) gives a press conference at the Gemelli Hospital. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796991_1_20250323072549.jpg&q=90)
+  
+
+Pope Francis, who has been battling pneumonia for more than five weeks, will be discharged from hospital on Sunday but will need a further two months of rest at the Vatican, the head of his medical team said on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796991-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796991-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796991-20250323.htm)
+
+---
+
 # Oscar Piastri on pole for Chinese Grand Prix
 
 ![Now in his third season in Formula One, the Australian already has two wins to his name and starts as favourite. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796987_1_20250323065602.jpg&q=90)
@@ -1389,53 +1437,5 @@ US President Donald Trump on Thursday signed an executive order aimed at shuttin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm)
-
----
-
-# Perisic stars as Croatia stun France in Nations League
-
-![Croatia's Ivan Perisic celebrates after scoring his team's second goal against France. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796706_1_20250321061557.jpg&q=90)
-  
-
-Ivan Perisic scored one goal and made another as Croatia beat France 2-0 to seize the upper hand in the first leg of their Uefa Nations League quarter-final tie.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm)
-
----
-
-# US stocks edge lower as Fed rally falters
-
-![The Dow Jones Industrial Average closed down less than 0.1 percent at 41,953. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796704_1_20250321061012.jpg&q=75)
-  
-
-US stocks closed lower on Thursday, as a Fed-related rally lost steam, and traders looked ahead to the prospect of additional tariffs next month.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm)
 
 ---

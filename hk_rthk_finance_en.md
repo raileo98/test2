@@ -1,3 +1,27 @@
+# UK to announce more cuts in budget update
+
+![Finance minister Rachel Reeves is expected to reduce the administration budgets for the civil service by 10 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796992_1_20250323073004.jpg&q=90)
+  
+
+British finance minister Rachel Reeves is eyeing spending cuts for government officials who work in departments to the value of around 1.5 billion pounds (US$1.94 billion) a year by 2028-29, The Times newspaper reported on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm)
+
+---
+
 # US stocks close higher ahead of April tariffs
 
 ![All the major indices made minor gains. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796882_1_20250322065918.jpg&q=90)
@@ -1411,29 +1435,5 @@ Net profit at the MTR Corporation more than doubled last year, thanks largely to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm)
-
----
-
-# 'Growth target can be met despite uncertainty'
-
-![Pan Gongsheng says the People's Bank of China will cut interest rates and banks' reserve requirement at an appropriate time. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794573_1_20250306170016.jpg&q=90)
-  
-
-The head of the National Development and Reform Commission said he's confident that the 5 percent GDP growth target set by China for 2025 can be met, despite external headwinds and weak domestic demand.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794573-20250306.htm)
 
 ---

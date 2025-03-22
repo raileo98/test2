@@ -1,6 +1,7 @@
 # 土耳其民眾連續4晚示威　抗議伊斯坦布爾市長被捕
 
 ![在伊斯坦布爾，民眾連續第4晚示威，抗議市長伊馬姆奧盧被捕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796990_1_20250323072356.jpg&q=85)
+![示威者與防暴警察衝突。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796990_2_20250323073117.jpg&q=80)
   
 
 土耳其大批民眾連續第4晚示威，抗議最大城市伊斯坦布爾市長伊馬姆奧盧被捕。

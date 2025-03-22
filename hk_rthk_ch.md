@@ -1,3 +1,28 @@
+# 土耳其民眾連續4晚示威　抗議伊斯坦布爾市長被捕
+
+![在伊斯坦布爾，民眾連續第4晚示威，抗議市長伊馬姆奧盧被捕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796990_1_20250323072356.jpg&q=85)
+![示威者與防暴警察衝突。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796990_2_20250323073117.jpg&q=80)
+  
+
+土耳其大批民眾連續第4晚示威，抗議最大城市伊斯坦布爾市長伊馬姆奧盧被捕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796990-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796990-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796990-20250323.htm)
+
+---
+
 # 美國邁阿密網球公開賽　香港球手黃澤林淘汰13號種子晉級第三圈
 
   
@@ -1415,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796916-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796916-20250322.htm)
-
----
-
-# 金正恩：繼續支持俄羅斯維護國家主權、領土完整和安全利益
-
-![金正恩會見到訪的俄羅斯聯邦安全會議秘書紹伊古。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796914_1_20250322125000.jpg&q=90)
-  
-
-朝中社報道，北韓領袖金正恩會見到訪的俄羅斯聯邦安全會議秘書紹伊古。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm)
 
 ---
