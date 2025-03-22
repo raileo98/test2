@@ -1,3 +1,27 @@
+# 以軍向黎巴嫩南主黨目標發動兩輪空襲　報復火箭彈襲擊
+
+![以軍報復襲擊，黎巴嫩南部升起濃。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796984_1_20250323044756.jpg&q=90)
+  
+
+以色列軍方說，攔截來自黎巴嫩的火箭彈後，炮擊並空襲黎巴嫩南部作為回應，說要打搫黎巴嫩真主黨的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796984-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796984-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796984-20250323.htm)
+
+---
+
 # 哈馬斯：只要以色列持續佔領　哈馬斯就不會解除武裝
 
 ![哈馬斯高級官員表示，只要以色列持續對巴勒斯坦進行佔領，這樣的提議就毫無意義。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796983_1_20250323041154.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796792-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796792-20250321.htm)
-
----
-
-# 保安局致函4澳洲媒體不滿刊登任建峰文章
-
-![保安局指特區政府從沒有發出任何匿名信件，亦沒有以任何非法手段促使這些人士回港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796787_1_20250321155006.jpg&q=80)
-  
-
-保安局致函4個澳洲媒體，對有關媒體刊登一篇由被列為指明危害國家安全罪行的潛逃者任建峰撰寫的評論文章表達不滿。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm)
 
 ---

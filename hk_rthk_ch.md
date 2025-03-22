@@ -1,3 +1,27 @@
+# 以軍向黎巴嫩南主黨目標發動兩輪空襲　報復火箭彈襲擊
+
+![以軍報復襲擊，黎巴嫩南部升起濃。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796984_1_20250323044756.jpg&q=90)
+  
+
+以色列軍方說，攔截來自黎巴嫩的火箭彈後，炮擊並空襲黎巴嫩南部作為回應，說要打搫黎巴嫩真主黨的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796984-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796984-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796984-20250323.htm)
+
+---
+
 # 哈馬斯：只要以色列持續佔領　哈馬斯就不會解除武裝
 
 ![哈馬斯高級官員表示，只要以色列持續對巴勒斯坦進行佔領，這樣的提議就毫無意義。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796983_1_20250323041154.jpg&q=85)
@@ -1415,31 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796911-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796911-20250322.htm)
-
----
-
-# 李家超：政府已經公布可持續金融行動計劃　支持本地綠色科技發展
-
-![李家超表示，香港是亞洲最早採取應對天氣變化的城市之一，積極推進各種減碳的策略。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796909_1_20250322124153.jpg&q=80)
-![行政長官李家超、中聯辦副主任尹宗華、多名政府官員出席「香港植樹日2025」活動。（（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796909_2_20250322124153.jpg&q=90)
-![李家超特別感謝參與活動的解放軍駐港部隊。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796909_3_20250322145315.jpg&q=70)
-  
-
-元朗大棠舉行「香港植樹日2025」活動，有200名解放軍駐港部隊人員與市民合共約2000人一同參與植樹，行政長官李家超、中聯辦副主任尹宗華、多名政府官員，包括房屋局局長何永賢、教育局局長蔡若蓮、民政及青年事務局局長麥美娟等參與。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm)
 
 ---
