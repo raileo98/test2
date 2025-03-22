@@ -1,3 +1,27 @@
+# 王毅晤日本外相　強調應正視歷史並積極推動關係改善和發展
+
+![外長王毅與日本外相岩屋毅在東京會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796922_1_20250322145841.jpg&q=90)
+  
+
+中共中央政治局委員兼外長王毅，與日本外相岩屋毅在東京會面，討論雙邊關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm)
+
+---
+
 # 日本政府就富士山爆發降火山灰公布應對方案
 
 ![日本政府公布富士山一旦爆發引發火山灰沉積的應對方案。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796921_1_20250322140722.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796649-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796649-20250320.htm)
-
----
-
-# 外交部：經貿分歧應透過對話協商解決而非讓全球經濟承擔代價
-
-![毛寧說，無論外部環境如何變化，中方將堅持對外開放，與世界各國共同發展，互利共贏。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796637_1_20250320175602.jpg&q=90)
-  
-
-經濟合作暨發展組織最新發布的中期經濟展望報告下調全球的經濟增長預期，認為一些國家近期採取的貿易壁壘措施將影響世界經濟的增速，導致通脹上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm)
 
 ---

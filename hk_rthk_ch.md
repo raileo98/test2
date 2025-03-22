@@ -1,3 +1,27 @@
+# 王毅晤日本外相　強調應正視歷史並積極推動關係改善和發展
+
+![外長王毅與日本外相岩屋毅在東京會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796922_1_20250322145841.jpg&q=90)
+  
+
+中共中央政治局委員兼外長王毅，與日本外相岩屋毅在東京會面，討論雙邊關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm)
+
+---
+
 # 日本政府就富士山爆發降火山灰公布應對方案
 
 ![日本政府公布富士山一旦爆發引發火山灰沉積的應對方案。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796921_1_20250322140722.jpg&q=90)
@@ -1419,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796849-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796849-20250321.htm)
-
----
-
-# 有券商認為證監會限制新股孖展最高借九成對市場氣氛影響不大
-
-![證監會向所有持牌法團發出內部監控措施指引，要求業界對新股孖展最高只可以借九成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796848_1_20250321210308.jpg&q=90)
-  
-
-近月多隻新股錄得數以千倍超額認購。證監會近日完成檢視數家選定持牌法團的新股融資活動，發現存在缺失，包括部分券商被發現曾採取不謹慎和過分進取的融資手法，接納超出客戶財政能力認購指示。證監會向所有持牌法團發出內部監控措施指引，加強風險管理，包括要求業界應向客戶收取最低相等於認購金額10%的預付認購資金，即新股孖展最高只可以借九成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm)
 
 ---
