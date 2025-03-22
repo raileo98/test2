@@ -1,3 +1,26 @@
+# 特朗普撤銷賀錦麗與希拉莉的安全許可
+
+  
+
+美國總統特朗普表示，已撤銷民主黨籍的前副總統賀錦麗和前國務卿希拉莉的安全許可。特朗普表示，認為這些人士獲取機密資料不再符合國家利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796906-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796906-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796906-20250322.htm)
+
+---
+
 # 中日韓外長會在東京舉行　王毅稱三國應正視歷史、面向未來
 
 ![中日韓外長會在東京舉行。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796900_1_20250322095212.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796545-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796545-20250320.htm)
-
----
-
-# 歐盟國防白皮書提出到2030年歐洲擁有強大和充份國防能力
-
-![卡拉斯指出，國際秩序正經歷1945年以來前所未有的巨大變化。這是歐洲安全的關鍵時刻。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796528_1_20250320082408.jpg&q=90)
-  
-
-歐盟委員會發表國防白皮書，提出通過增加對國防工業的投資、鼓勵聯合採購、提高軍工產能等措施，令歐洲到2030年擁有強大和充份的國防能力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796528-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796528-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796528-20250320.htm)
 
 ---

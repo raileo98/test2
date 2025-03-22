@@ -1,3 +1,26 @@
+# 特朗普撤銷賀錦麗與希拉莉的安全許可
+
+  
+
+美國總統特朗普表示，已撤銷民主黨籍的前副總統賀錦麗和前國務卿希拉莉的安全許可。特朗普表示，認為這些人士獲取機密資料不再符合國家利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796906-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796906-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796906-20250322.htm)
+
+---
+
 # 輕鐵天悅站架空電纜受損影響電力供應　港鐵料需數小時修復
 
 ![輕鐵天悅站架空電纜受損，港鐵正全力進行搶修，預計需要數個小時修復。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796904_1_20250322103357.jpg&q=75)
@@ -216,7 +239,7 @@
 
 # 丘應樺：美國對華加徵關稅只會損人不利己
 
-![丘應樺表示，特區政府為減少對港企業的影響，近年已積極為港商尋求其他經濟體市場。（商台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796892_1_20250322093648.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796892_1_20250322093648.jpg&q=90)
   
 
 商務及經濟發展局局長丘應樺表示，美國對華加徵關稅，將香港產品與來自中國的產品混為一談，是錯誤做法，不單只違反世貿規定，亦是對特區政府的無理打壓，政府已表態將向世貿提出申訴。
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm)
-
----
-
-# 李家超：今年內完成港深創新及科技園區第二期詳細規劃
-
-![李家超表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796833_1_20250321194247.jpg&q=25)
-  
-
-行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm)
 
 ---
