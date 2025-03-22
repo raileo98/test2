@@ -1,3 +1,27 @@
+# 日本政府就富士山爆發降火山灰公布應對方案
+
+![日本政府公布富士山一旦爆發引發火山灰沉積的應對方案。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796921_1_20250322140722.jpg&q=90)
+  
+
+日本政府公布富士山一旦爆發引發火山灰沉積的應對方案，根據不同嚴重程度擬定四套對策，是日本政府首次就富士山降灰發布應對方案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796921-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796921-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796921-20250322.htm)
+
+---
+
 # 希斯路機場踏入星期六早上陸續恢復航班升降
 
 ![希斯路機場恢復運作。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796920_1_20250322140902.jpg&q=85)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm)
-
----
-
-# 劉建超晤日本訪客　稱兩國政黨對中日關係改善發展肩負重要責任
-
-![劉建超說，兩國政黨對中日關係改善發展肩負重要責任。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796847_1_20250321210225.jpg&q=90)
-  
-
-中共中央對外聯絡部部長劉建超在北京會見由日本立憲民主黨常任顧問、前幹事長岡田克也率領的代表團。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm)
 
 ---
