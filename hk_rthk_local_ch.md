@@ -1,3 +1,27 @@
+# 大熊貓龍鳳胎與媽媽首度「同框」與公眾見面　3千多張時間票派完
+
+![早上開園後，首批訪客即時進入展館探訪大熊貓。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796919_1_20250322132321.jpg&q=80)
+  
+
+大熊貓龍鳳胎「家姐」及「細佬」由今日起，首度與媽媽「盈盈」在海洋公園同一個展館「同框」與公眾見面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796919-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796919-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796919-20250322.htm)
+
+---
+
 # 香港花卉展覽明晚9時閉幕　大會料將向市民派約3500盆花卉
 
   
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796764-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796764-20250321.htm)
-
----
-
-# 工傷及職業病補償4.17起提高　職業性失聰最低額增至58萬
-
-![政府刊憲，工傷及職業病的補償金額，下月17日起提高，增幅介乎3.8%至86.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796761_1_20250321125201.jpg&q=90)
-  
-
-政府刊憲，工傷及職業病的補償金額，下月17日起提高，增幅介乎3.8%至86.3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796761-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796761-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796761-20250321.htm)
 
 ---
