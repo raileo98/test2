@@ -1,3 +1,27 @@
+# SAR government preparing WTO complaint
+
+![Minister Algernon Yau says foreign businesses still have confidence in Hong Kong in spite of geopolitical tensions. Photo: Commercial Radio](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796905_1_20250322103943.jpg&q=90)
+  
+
+Secretary for Commerce and Economic Development Algernon Yau said on Saturday that the government is preparing to file a complaint to the World Trade Organization (WTO) regarding US tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm)
+
+---
+
 # Boxing legend George Foreman dies aged 76
 
 ![The former heavyweight boxing champion is renowned for his iconic battle with Muhammad Ali. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796902_1_20250322102434.jpg&q=90)
@@ -1412,33 +1436,5 @@ Stocks mostly rose on Thursday after US Federal Reserve boss Jerome Powell sugge
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm)
-
----
-
-# Drone trials to provide diverse services in Hong Kong
-
-![People attend the launch event for the Low-altitude Economy Regulatory Sandbox. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_5_20250320164211.jpg&q=80)
-![CLP Power says engineering staff can operate drones from a safe distance. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_1_20250320153334.jpg&q=75)
-![Alpha AI drones can monitor building conditions during the rainy season and even before and after typhoons. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_2_20250320153334.jpg&q=90)
-![Residents of outlying islands can soon receive deliveries by drone. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_3_20250320153334.jpg&q=90)
-![China Mobile will use drones to transport medical supplies between buildings at Princess Margaret Hospital. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_4_20250320153334.jpg&q=90)
-  
-
-Drones will be tasked with carrying out services ranging from power line inspections to emergency medical deliveries in Hong Kong’s first-ever low-altitude economy test run.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796605-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796605-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796605-20250320.htm)
 
 ---
