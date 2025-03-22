@@ -1,3 +1,27 @@
+# Lewis Hamilton wins Chinese Grand Prix sprint race
+
+![Ferrari's British driver Lewis Hamilton celebrates his victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796915_1_20250322130258.jpg&q=90)
+  
+
+Lewis Hamilton dominated from pole position to take his maiden victory for Ferrari in the sprint race at the Chinese Grand Prix on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm)
+
+---
+
 # Boxing legend George Foreman dies aged 76
 
 ![The former heavyweight boxing champion is renowned for his iconic battle with Muhammad Ali. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796902_1_20250322102434.jpg&q=90)
@@ -1416,30 +1440,5 @@ Newcastle reignited their bid to qualify for the Champions League as Bruno Guima
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795186-20250311.htm)
-
----
-
-# Shai outguns Jokic as Thunder roll past Nuggets
-
-![Shai Gilgeous-Alexander put up 40 points in Oklahoma City's win over the Denver Nuggets. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795042_1_20250310082123.jpg&q=90)
-![Three-time NBA MVP Nikola Jokic finished one assist shy of a triple-double in the defeat. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795042_2_20250310082123.jpg&q=90)
-  
-
-Shai Gilgeous-Alexander outdueled MVP rival Nikola Jokic with a 40-point performance as the Oklahoma City Thunder produced a late barrage to defeat the Denver Nuggets 127-103.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795042-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795042-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795042-20250310.htm)
 
 ---

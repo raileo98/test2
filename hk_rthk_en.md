@@ -1,3 +1,27 @@
+# Lewis Hamilton wins Chinese Grand Prix sprint race
+
+![Ferrari's British driver Lewis Hamilton celebrates his victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796915_1_20250322130258.jpg&q=90)
+  
+
+Lewis Hamilton dominated from pole position to take his maiden victory for Ferrari in the sprint race at the Chinese Grand Prix on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm)
+
+---
+
 # SAR government preparing WTO complaint
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796905_1_20250322103943.jpg&q=90)
@@ -48,7 +72,7 @@ Former heavyweight champion George Foreman, who fought and lost against Muhammad
 
 # Light Rail returning to normal after disruption
 
-![It took MTR maintenance staff about four hours to repair the damaged overhead line. Photo courtesy of MTR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796898_1_20250322093945.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796898_1_20250322093945.jpg&q=80)
   
 
 The MTR says Light Rail services are returning to normal after several routes in Tin Shui Wai were disrupted on Saturday morning.
@@ -240,7 +264,7 @@ Wall Street stocks closed higher Friday after fluctuations, shaking off ongoing 
 
 # Flights at London Heathrow resume after power outage
 
-![The closure not only caused misery for travellers but provoked anger from airlines. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796876_1_20250322061716.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796876_1_20250322061716.jpg&q=85)
   
 
 Flights at Britain's Heathrow resumed late on Friday after a fire knocked out its power supply and shut Europe's busiest airport for the day, stranding tens of thousands of passengers and causing travel turmoil worldwide.
@@ -1412,29 +1436,5 @@ Ex-Formula 1 team owner and media personality Eddie Jordan has died, according t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm)
-
----
-
-# Streak ends as Hang Seng bucks rising trend
-
-![The Hang Seng Index ended down 2.23 percent to close at 24,219.95. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796620_1_20250320170712.jpg&q=90)
-  
-
-Stocks mostly rose on Thursday after US Federal Reserve boss Jerome Powell suggested any increase in consumer prices caused by tariffs would likely be short-lived, even as the central bank slashed its growth outlook and hiked inflation expectations.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm)
 
 ---

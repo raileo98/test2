@@ -72,7 +72,7 @@ The foreign ministers of Germany, France and Britain called late on Friday for a
 
 # Flights at London Heathrow resume after power outage
 
-![The closure not only caused misery for travellers but provoked anger from airlines. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796876_1_20250322061716.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796876_1_20250322061716.jpg&q=85)
   
 
 Flights at Britain's Heathrow resumed late on Friday after a fire knocked out its power supply and shut Europe's busiest airport for the day, stranding tens of thousands of passengers and causing travel turmoil worldwide.

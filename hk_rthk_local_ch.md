@@ -1,3 +1,50 @@
+# 香港花卉展覽明晚9時閉幕　大會料將向市民派約3500盆花卉
+
+  
+
+在維園舉行的香港花卉展覽，明日晚上9時閉幕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796917-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796917-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796917-20250322.htm)
+
+---
+
+# 輕鐵天悅站有吊臂車損毁架空電纜　吊臂車司機被捕
+
+![港鐵人員搶修後，受損的架空電纜於上午11時10分完成臨時修復，輕鐵服務陸續回復正常。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796916_1_20250322130612.jpg&q=85)
+  
+
+輕鐵天悅站附近早上有吊臂車損毁架空電纜，影響電力供應，輕鐵服務一度受阻約4小時。警方拘捕涉事的吊臂車司機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796916-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796916-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796916-20250322.htm)
+
+---
+
 # 消息：運動員資助機制檢討近尾聲　桌球及網球項目很大機會留Ａ級
 
   
@@ -1395,53 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796761-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796761-20250321.htm)
-
----
-
-# 港投與芯片公司合作　陳茂波稱加快芯片行業變革有更大創新空間
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796758_1_20250321125135.jpg&q=85)
-  
-
-香港投資管理公司和芯片研發公司賽昉科技啟動戰略合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm)
-
----
-
-# 收緊公屋富戶政策　4年入息超額逾4倍須遷出料約400戶
-
-![房委會資助房屋小組委員會通過收緊「富戶政策」，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796755_1_20250321121755.jpg&q=80)
-  
-
-房委會資助房屋小組委員會開會通過收緊「富戶政策」，富戶的額外租金水平將由過往的三級制，變為四級制。若「富戶」在兩個申報周期，即4年的入息限額超出4倍，但不多於5倍，有關租戶亦要遷出單位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796755-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796755-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796755-20250321.htm)
 
 ---

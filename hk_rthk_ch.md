@@ -1,3 +1,50 @@
+# 香港花卉展覽明晚9時閉幕　大會料將向市民派約3500盆花卉
+
+  
+
+在維園舉行的香港花卉展覽，明日晚上9時閉幕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796917-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796917-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796917-20250322.htm)
+
+---
+
+# 輕鐵天悅站有吊臂車損毁架空電纜　吊臂車司機被捕
+
+![港鐵人員搶修後，受損的架空電纜於上午11時10分完成臨時修復，輕鐵服務陸續回復正常。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796916_1_20250322130612.jpg&q=85)
+  
+
+輕鐵天悅站附近早上有吊臂車損毁架空電纜，影響電力供應，輕鐵服務一度受阻約4小時。警方拘捕涉事的吊臂車司機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796916-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796916-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796916-20250322.htm)
+
+---
+
 # 金正恩：繼續支持俄羅斯維護國家主權、領土完整和安全利益
 
 ![金正恩會見到訪的俄羅斯聯邦安全會議秘書紹伊古。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796914_1_20250322125000.jpg&q=90)
@@ -1392,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796845-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796845-20250321.htm)
-
----
-
-# 中證監：要持續完善資本市場基礎制度　堅持保護投資者導向
-
-![中證監稱要堅持服務實體經濟，支持新質生產力發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796842_1_20250321202837.jpg&q=90)
-  
-
-中國證監會就推進資本市場法治建設表示，要持續完善資本市場基礎制度體系，牢牢守住不發生系統性風險底線；堅持保護投資者的鮮明導向，不斷健全投資者保護制度機制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796842-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796842-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796842-20250321.htm)
-
----
-
-# 人行貨幣政策委員會建議下階段加大貨幣政策調控強度
-
-![人行稱，根據國內外經濟金融形勢及金融市場運行情況，擇機降準減息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796844_1_20250321203237.jpg&q=90)
-  
-
-人民銀行貨幣政策委員會近日召開今年首季度例會，表示要實施適度寬鬆貨幣政策，加強逆周期調節；建議下階段加大貨幣政策調控強度，提高貨幣政策調控前瞻性、針對性、有效性，根據國內外經濟金融形勢及金融市場運行情況，擇機降準減息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm)
 
 ---
