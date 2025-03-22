@@ -1,3 +1,28 @@
+# Fans excited to see Ying Ying appear with panda twins
+
+![Visitors join the long queue for a short visit with Ying Ying and her cubs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796927_1_20250322155956.jpg&q=85)
+![People who collect an entry ticket can see the pandas for three minutes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796927_2_20250322155956.jpg&q=90)
+  
+
+Thousands of people flocked to Ocean Park on Saturday as they can now see the panda twins and their mother, Ying Ying, all in one go.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796927-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796927-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796927-20250322.htm)
+
+---
+
 # Online vehicle license renewals up by 80 percent
 
 ![Vehicle owners can scan a QR code on the license to check the expiry date. Image: Transport Department's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796923_1_20250322151024.jpg&q=90)
@@ -1416,29 +1441,5 @@ Triathletes from the SAR will try to book a spot in this year's National Games b
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm)
-
----
-
-# Animal groups vent concerns on pets aboard trains
-
-![Twenty groups under the Animal Welfare Advocacy Alliance, together with DAB lawmaker Edward Lau, front row centre, have held talks with MTR officials. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796100_1_20250317182151.jpg&q=90)
-  
-
-Animal welfare groups on Monday held talks with MTR Corporation officials as the railway company looks into allowing pets on trains.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796100-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796100-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796100-20250317.htm)
 
 ---

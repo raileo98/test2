@@ -1,3 +1,26 @@
+# 倫敦希斯路機場全面恢復運作　行政總裁稱無法百分百預防突發事件
+
+  
+
+英國倫敦希斯路機場因附近變電站大火停電，機場關閉大半日後，逐步恢復航班升降，並在星期六全面恢復運作。倫敦警方說，初步相信火警沒有可疑。倫敦消防局表示，調查將聚焦在配電設備。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm)
+
+---
+
 # 王毅晤林芳正　冀日方樹立正確對華認知並於重大問題排除雜音干擾
 
   
@@ -1415,32 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796852-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796852-20250321.htm)
-
----
-
-# 中大文物館新翼開幕　9件國家一級文物首次在港展出
-
-![白玉蘭花紋盒—「嘉靖辛酉陸子剛製」款（中大提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796851_1_20250321215132.jpg&q=90)
-![竹編朱漆描彩人物紋長方盒（左）。沈大生竹雕庭園讀書圖筆筒（右）。（中大提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796851_2_20250321215132.jpg&q=90)
-![中大文物館新翼羅桂祥閣由建築師嚴迅奇設計，以懸臂式結構立足中大斜坡之上。(中大提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796851_5_20250321221250.jpg&q=80)
-![中大文物館新翼羅桂祥閣開幕典禮嘉賓合照。（中大提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796851_4_20250321215132.jpg&q=80)
-  
-
-中文大學文物館新翼「羅桂祥閣」今日舉行開幕典禮，新翼開幕展覽「浮世清音——晚明江南藝術與文化」亦同時揭幕，將展出來自本地及海內外共193件珍品，涵蓋書畫及各類器物，呈現晚明的物質生活與藝文風貌，其中9件國家一級文物更是首次在港展出。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm)
 
 ---

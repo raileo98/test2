@@ -1,3 +1,26 @@
+# 倫敦希斯路機場全面恢復運作　行政總裁稱無法百分百預防突發事件
+
+  
+
+英國倫敦希斯路機場因附近變電站大火停電，機場關閉大半日後，逐步恢復航班升降，並在星期六全面恢復運作。倫敦警方說，初步相信火警沒有可疑。倫敦消防局表示，調查將聚焦在配電設備。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm)
+
+---
+
 # 王毅晤林芳正　冀日方樹立正確對華認知並於重大問題排除雜音干擾
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm)
-
----
-
-# 以軍稱在加沙地帶北部展開地面行動
-
-![以色列在加沙最新一輪空襲，導致有建築物變成廢墟。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796671_1_20250320212840.jpg&q=85)
-  
-
-以色列國防軍表示，以軍已開始在加沙地帶北部展開地面行動，並在行動前打擊當地隸屬巴勒斯坦武裝組織哈馬斯的基礎設施和反坦克導彈陣地，目前已推進至拜特拉希耶附近的沿海公路。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm)
 
 ---

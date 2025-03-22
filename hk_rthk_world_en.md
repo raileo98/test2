@@ -1,3 +1,27 @@
+# China, Japan, S Korea agree to deepen cooperation
+
+![Foreign Minister Wang Yi and South Korea's Foreign Minister Cho Tae-yul shake hands as Japan's Foreign Minister Takeshi Iwaya looks on. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796925_1_20250322153847.jpg&q=90)
+  
+
+Foreign Minister Wang Yi said on Saturday that China, Japan and the South Korea have agreed to further strengthen communication, enhance mutual trust, and deepen cooperation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm)
+
+---
+
 # French film star Depardieu to go on trial next week
 
 ![Depardieu has faced a growing number of sexual assault allegations in recent years. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796836_1_20250321191832.jpg&q=90)
@@ -1411,29 +1435,5 @@ Tens of thousands of people protested in Houthi-controlled parts of Yemen on Mon
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796143-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796143-20250318.htm)
-
----
-
-# Rwanda cuts diplomatic relations with Belgium
-
-![People gather next to some vehicles as they flee the Masisi territory following clashes between M23 rebels and government forces. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796111_1_20250317194926.jpg&q=90)
-  
-
-Belgium and Rwanda have announced the expulsion of each other's diplomats, as relations deteriorated over allegations about their respective roles in the conflict in eastern Democratic Republic of Congo.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796111-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796111-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796111-20250317.htm)
 
 ---

@@ -1,3 +1,27 @@
+# China, Japan, S Korea agree to deepen cooperation
+
+![Foreign Minister Wang Yi and South Korea's Foreign Minister Cho Tae-yul shake hands as Japan's Foreign Minister Takeshi Iwaya looks on. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796925_1_20250322153847.jpg&q=90)
+  
+
+Foreign Minister Wang Yi said on Saturday that China, Japan and the South Korea have agreed to further strengthen communication, enhance mutual trust, and deepen cooperation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm)
+
+---
+
 # China, Japan should boost trust, cooperation: FM
 
 ![The FM noted that since Ishiba took office, China-Japan ties had improved. Photo: MOFA](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796871_1_20250322034618.jpg&q=90)
@@ -1412,29 +1436,5 @@ A Beijing official on Friday said that it'll be the right thing to do to keep im
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794721-20250307.htm)
-
----
-
-# 'China's diplomacy gives certainty to uncertain world'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794711_2_20250307125909.jpg&q=90)
-  
-
-Foreign Minister Wang Yi on Friday said China's diplomacy provides much-needed stability in a turbulent world.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794711-20250307.htm)
 
 ---
