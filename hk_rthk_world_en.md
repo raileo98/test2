@@ -1,3 +1,27 @@
+# Germany, France and UK call for Gaza ceasefire return
+
+![The joint appeal came after Israeli Defence Minister Israel Katz threatened Friday to annex parts of the Gaza Strip. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796887_1_20250322075550.jpg&q=90)
+  
+
+The foreign ministers of Germany, France and Britain called late on Friday for an "immediate return" to a Gaza ceasefire, as Israel's military pressed its renewed offensive in the Palestinian territory.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm)
+
+---
+
 # Flights at London Heathrow resume after power outage
 
 ![The closure not only caused misery for travellers but provoked anger from airlines. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796876_1_20250322061716.jpg&q=85)
@@ -1411,29 +1435,5 @@ Hikers attempting any of Mount Fuji's four main trails will be charged an entry 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796065-20250317.htm)
-
----
-
-# Trump and Putin to discuss Ukraine this week
-
-![US officials have expressed optimism that a Ukraine-Russia ceasefire deal could be reached in weeks. Photo combo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796061_1_20250317152607.jpg&q=90)
-  
-
-US President Donald Trump says he plans to speak to his Russian counterpart Vladimir Putin on Tuesday about ending the war in Ukraine, adding discussions are already ongoing about "dividing up certain assets" between the warring parties.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796061-20250317.htm)
 
 ---

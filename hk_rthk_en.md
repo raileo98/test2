@@ -1,3 +1,51 @@
+# Tuchel starts his reign as England coach with a win
+
+![England beat Albania 2-0 in their opening World Cup qualifier on Friday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796888_1_20250322075914.jpg&q=90)
+  
+
+Thomas Tuchel made a winning start to his England reign without delivering on his promise of a vibrant new era as the Three Lions beat Albania 2-0 in their opening World Cup qualifier on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796888-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796888-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796888-20250322.htm)
+
+---
+
+# Germany, France and UK call for Gaza ceasefire return
+
+![The joint appeal came after Israeli Defence Minister Israel Katz threatened Friday to annex parts of the Gaza Strip. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796887_1_20250322075550.jpg&q=90)
+  
+
+The foreign ministers of Germany, France and Britain called late on Friday for an "immediate return" to a Gaza ceasefire, as Israel's military pressed its renewed offensive in the Palestinian territory.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm)
+
+---
+
 # US stocks close higher ahead of April tariffs
 
 ![All the major indices made minor gains. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796882_1_20250322065918.jpg&q=90)
@@ -1392,53 +1440,5 @@ Healthcare officials said on Thursday that patients should not get to pick the m
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796581-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796581-20250320.htm)
-
----
-
-# Low-altitude economy a new growth engine: CE
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796579_1_20250320122305.jpg&q=85)
-  
-
-Chief Executive John Lee on Thursday said the low-altitude economy will be a new growth engine, with a trial programme on drone operations set to help such activities take off and "fly steadily and far".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm)
-
----
-
-# Indonesia passes controversial military law revisions
-
-![Defence Minister Sjafrie Sjamsoeddin speaks in the House of Representatives ahead of law revisions' passage. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796583_2_20250320134731.jpg&q=80)
-  
-
-Indonesia's parliament on Thursday passed contentious revisions to the country's military law, which will allocate more civilian posts for military officers, and street protests against the changes are expected to take place.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm)
 
 ---

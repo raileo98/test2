@@ -1,3 +1,51 @@
+# 特朗普上任後首度有美國國會議員訪華　與馬朝旭討論中美關係
+
+![外交部副部長馬朝旭昨日會見訪華的美國共和黨參議員戴安斯。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796889_1_20250322080837.jpg&q=90)
+  
+
+外交部副部長馬朝旭昨日會見訪華的美國共和黨參議員戴安斯，雙方就中美關係和共同關心的問題深入交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm)
+
+---
+
+# 特朗普否認馬斯克訪五角大樓聽取涉中國的機密簡報
+
+![特朗普和赫格塞斯都表示，馬斯克訪問國防部主要討論創新和削減成本。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796890_1_20250322082025.jpg&q=90)
+  
+
+美國總統特朗普明確表示，不會讓領導政府效率部的富商馬斯克，聽取涉及中國的機密匯報，指他在中國有商業利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm)
+
+---
+
 # 吊臂車損毀架空電纜　輕鐵705及706綫不停天悅站及天恆站
 
 ![吊臂車損毀架空電纜　輕鐵705及706綫不停天悅站及天恆站](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796885_1_20250322075116.jpg&q=90)
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm)
-
----
-
-# 交通銀行去年盈利增近1%
-
-![交通銀行去年盈利增長近1%，派末期息每股0.197元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796817_1_20250321173606.jpg&q=90)
-  
-
-交通銀行去年盈利935.9億元人民幣，按年增長近1%，派末期息每股0.197元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796817-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796817-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796817-20250321.htm)
-
----
-
-# 中遠海運港口去年少賺約5%　總吞吐量升6%
-
-![中遠海運港口去年盈利3.09億美元，按年跌4.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796816_1_20250321173218.jpg&q=90)
-  
-
-中遠海運港口去年盈利3.09億美元，按年跌4.8%。派第二次中期股息每股14.2港仙，按年跌8.4%，可以股代息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796816-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796816-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796816-20250321.htm)
 
 ---

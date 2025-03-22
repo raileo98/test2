@@ -1,3 +1,51 @@
+# 特朗普上任後首度有美國國會議員訪華　與馬朝旭討論中美關係
+
+![外交部副部長馬朝旭昨日會見訪華的美國共和黨參議員戴安斯。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796889_1_20250322080837.jpg&q=90)
+  
+
+外交部副部長馬朝旭昨日會見訪華的美國共和黨參議員戴安斯，雙方就中美關係和共同關心的問題深入交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm)
+
+---
+
+# 特朗普否認馬斯克訪五角大樓聽取涉中國的機密簡報
+
+![特朗普和赫格塞斯都表示，馬斯克訪問國防部主要討論創新和削減成本。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796890_1_20250322082025.jpg&q=90)
+  
+
+美國總統特朗普明確表示，不會讓領導政府效率部的富商馬斯克，聽取涉及中國的機密匯報，指他在中國有商業利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm)
+
+---
+
 # 王毅晤南韓外長　冀韓方奉行積極友好對華政策
 
 ![王毅在日本東京會見共同出席第11次中日韓外長會的南韓外長趙兌烈。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796864_1_20250322032350.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm)
-
----
-
-# 世界知識產權組織數據指中國是國際專利申請最大來源國
-
-![世界知識產權組織數據指中國是國際專利申請最大來源國。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796294_1_20250318210928.jpg&q=90)
-  
-
-世界知識產權組織數據顯示，中國是國際專利申請最大來源國。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796294-20250318.htm)
-
----
-
-# 回應內地是否評估長和出售資產　外交部建議向主管部門詢問
-
-![毛寧說中方一貫堅決反對利用經濟脅迫、霸道霸凌侵害損害他國正當權益的行為。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796292_1_20250318212809.jpg&q=90)
-  
-
-長和計劃向美國財團出售巴拿馬運河兩端港口等資產。彭博引述消息人士指，內地有關部門開始評估長和出售海外港口業務的交易，研究是否存在國家安全漏洞或反壟斷違規行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796292-20250318.htm)
 
 ---

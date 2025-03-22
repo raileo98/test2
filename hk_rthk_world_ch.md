@@ -1,3 +1,51 @@
+# 特朗普上任後首度有美國國會議員訪華　與馬朝旭討論中美關係
+
+![外交部副部長馬朝旭昨日會見訪華的美國共和黨參議員戴安斯。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796889_1_20250322080837.jpg&q=90)
+  
+
+外交部副部長馬朝旭昨日會見訪華的美國共和黨參議員戴安斯，雙方就中美關係和共同關心的問題深入交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm)
+
+---
+
+# 特朗普否認馬斯克訪五角大樓聽取涉中國的機密簡報
+
+![特朗普和赫格塞斯都表示，馬斯克訪問國防部主要討論創新和削減成本。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796890_1_20250322082025.jpg&q=90)
+  
+
+美國總統特朗普明確表示，不會讓領導政府效率部的富商馬斯克，聽取涉及中國的機密匯報，指他在中國有商業利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm)
+
+---
+
 # 倫敦希斯路機場重開　警方相信變電站火警沒可疑
 
 ![希斯路機場重開，有飛抵的航班降落。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796881_1_20250322065504.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796517-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796517-20250320.htm)
-
----
-
-# 也門胡塞武裝指美軍新一輪空襲造成至少7名婦孺受傷
-
-![也門首都薩那受到空襲，現場升起濃煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796510_1_20250320061623.jpg&q=90)
-  
-
-也門胡塞武裝控制的電視台報道，美軍當地星期三晚，對也門首都薩那等地的胡塞武裝目標發動新一輪空襲，造成至少7名婦女和2名兒童受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796510-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796510-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796510-20250320.htm)
-
----
-
-# 澤連斯基︰與特朗普對話積極、非常實質和坦誠
-
-![澤連斯基說，烏克蘭相信，在美國領導下，今年就能實現持久和平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796504_1_20250320051222.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基表示，與美國總統特朗普進行了積極、非常實質和坦誠的對話，雙方一致認為烏美兩國應繼續共同努力，真正結束衝突，實現持久和平。烏克蘭相信，在美國領導下，今年就能實現持久和平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796504-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796504-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796504-20250320.htm)
 
 ---
