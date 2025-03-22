@@ -1,3 +1,27 @@
+# 倫敦希斯路機場全面恢復運作　航空公司警告航班仍會有延誤或取消
+
+![倫敦希斯路機場因停電關閉後，星期六全面恢復運作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796978_1_20250323010752.jpg&q=90)
+  
+
+倫敦希斯路機場因停電關閉後，星期六全面恢復運作。航空公司警告，由於要重新調整航班時間表，航班仍會延誤和取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796978-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796978-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796978-20250323.htm)
+
+---
+
 # 美國新墨西哥州發生槍擊案3死14人傷
 
 ![美國新墨西哥州發生槍擊案3死14人傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796976_1_20250323003039.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796763-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796763-20250321.htm)
-
----
-
-# 希斯路機場因變電站起火停電　機場要暫停運作
-
-![希斯路機場因變電站起火停電，機場要暫停運作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796740_1_20250321105042.jpg&q=85)
-  
-
-英國希斯路機場表示，由於為機場供電的變電站發生火警，機場出現嚴重停電，為了確保乘客和員工安全，機場將暫停運作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796740-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796740-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796740-20250321.htm)
 
 ---
