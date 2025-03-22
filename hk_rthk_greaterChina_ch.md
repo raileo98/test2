@@ -1,3 +1,26 @@
+# 中日韓外長會　王毅：推動三國合作發揮「1+1+1>3」作用
+
+  
+
+中日韓外長會於東京舉行，中共中央政治局委員、外長王毅說，三國應重溫正視歷史、面向未來的共識，推動中日韓合作，發揮一加一加一大過三的作用，造福三國、地區同世界。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm)
+
+---
+
 # 王毅晤林芳正　冀日方樹立正確對華認知並於重大問題排除雜音干擾
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796373-20250319.htm)
-
----
-
-# 王毅：中歐透過磋商解決具體經貿摩擦具重要與正面意義
-
-![中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796313_1_20250318235236.jpg&q=90)
-  
-
-中共中央政治局委員、中央外辦主任王毅與法國總統外事顧問博納通電話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796313-20250319.htm)
 
 ---

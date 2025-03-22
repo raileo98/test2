@@ -1,3 +1,26 @@
+# 中日韓外長會　王毅：推動三國合作發揮「1+1+1>3」作用
+
+  
+
+中日韓外長會於東京舉行，中共中央政治局委員、外長王毅說，三國應重溫正視歷史、面向未來的共識，推動中日韓合作，發揮一加一加一大過三的作用，造福三國、地區同世界。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm)
+
+---
+
 # 石破茂：強化防衛力量對加強日本威懾力是不可或缺
 
 ![石破茂到神奈川縣橫須賀市出席防衛大學畢業典禮並致辭。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796934_1_20250322173725.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796686-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796686-20250321.htm)
-
----
-
-# 津巴布韋體育部長考文垂當選國際奧委會主席
-
-![考文垂將成為首位女性及來自非洲的國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796685_1_20250321002325.jpg&q=90)
-  
-
-津巴布韋體育部長考文垂當選國際奧委會主席，將在6月接替巴赫，成為首位女性及來自非洲的國際奧委會主席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm)
 
 ---
