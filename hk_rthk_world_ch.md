@@ -1,3 +1,26 @@
+# 王毅晤林芳正　冀日方樹立正確對華認知並於重大問題排除雜音干擾
+
+  
+
+中共中央政治局委員、外長王毅在東京，會見日本內閣官房長官林芳正。王毅說中方願意與日方共同落實國家主席習近平與日本首相石破茂之前在利馬會晤達成的重要共識，按照中日四個政治文件全面推進戰略互惠關係；文件就妥善處理歷史與台灣問題，立下規矩，希望日方樹立正確對華認知，在重大原則問題上重信守諾，排除雜音干擾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796926-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796926-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796926-20250322.htm)
+
+---
+
 # 王毅稱中日韓要深化經貿合作　推動科技創新及擴大人文交流
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796671-20250320.htm)
-
----
-
-# 第六次中日經濟高層對話後天東京舉行　時隔六年重啟
-
-![何咏前說，當前中日關係呈現改善發展的良好積極勢頭。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796651_1_20250320183913.jpg&q=90)
-  
-
-第六次中日經濟高層對話本月22日將在日本東京舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm)
 
 ---
