@@ -23,6 +23,7 @@
 
 # 王毅稱中日韓要深化經貿合作　推動科技創新及擴大人文交流
 
+![中日韓外長在東京會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796924_1_20250322154611.jpg&q=90)
   
 
 中日韓在東京舉行外長會。
