@@ -1,3 +1,27 @@
+# 以色列空襲黎巴嫩南部真主黨目標　回應遭火箭炮攻擊
+
+![以色列北部邊境城市梅圖拉早前受到火箭炮攻擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796948_1_20250322195257.jpg&q=65)
+  
+
+以色列向黎巴嫩南部的真主黨目標發動空襲，回應以黎邊境以色列一側早前受到火箭炮攻擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796948-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796948-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796948-20250322.htm)
+
+---
+
 # 中日韓外長會　王毅：推動三國合作發揮1+1+1大於3作用
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796938_1_20250322183010.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796690-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796690-20250321.htm)
-
----
-
-# 俄方稱下周一與美會談　澤連斯基︰烏美代表將同日在沙特會談
-
-![澤連斯基表示，烏美代表團周一將在沙特阿拉伯會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796686_1_20250321010823.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基表示，烏克蘭代表團下星期一將在沙特阿拉伯與美國代表團舉行會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796686-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796686-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796686-20250321.htm)
 
 ---

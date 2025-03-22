@@ -1,3 +1,27 @@
+# 以色列空襲黎巴嫩南部真主黨目標　回應遭火箭炮攻擊
+
+![以色列北部邊境城市梅圖拉早前受到火箭炮攻擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796948_1_20250322195257.jpg&q=65)
+  
+
+以色列向黎巴嫩南部的真主黨目標發動空襲，回應以黎邊境以色列一側早前受到火箭炮攻擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796948-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796948-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796948-20250322.htm)
+
+---
+
 # 購票公司稱需更換Coldplay演唱會新版門票　為不便表歉意
 
   
