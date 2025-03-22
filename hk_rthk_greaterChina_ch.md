@@ -1,3 +1,27 @@
+# 王毅晤日本外相　強調應正視歷史並積極推動關係改善和發展
+
+![外長王毅與日本外相岩屋毅在東京會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796922_1_20250322145841.jpg&q=90)
+  
+
+中共中央政治局委員兼外長王毅，與日本外相岩屋毅在東京會面，討論雙邊關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm)
+
+---
+
 # 特朗普上任後首度有美國國會議員訪華　與馬朝旭討論中美關係
 
 ![外交部副部長馬朝旭昨日會見訪華的美國共和黨參議員戴安斯。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796889_1_20250322080837.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796302-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796302-20250318.htm)
-
----
-
-# 被問是否調查長和出售港口　外交部稱中方反對霸凌損害他國權益
-
-![毛寧被重申中方堅決反對經濟脅迫、霸凌等損害他國權益。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796298_1_20250318222759.jpg&q=90)
-  
-
-長和計劃向美國財團出售巴拿馬運河兩端港口等資產，彭博引述消息人士指，內地有關部門開始評估長和出售海外港口業務的交易，研究是否存在國家安全漏洞或反壟斷違規行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796298-20250318.htm)
 
 ---
