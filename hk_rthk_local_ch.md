@@ -1,3 +1,49 @@
+# 張欣宇：新登記及今年9月後年檢之吊臂車須裝警報器提示收妥吊臂
+
+  
+
+天水圍有夾斗吊臂車的吊臂，撞到輕鐵天悅站附近的架空電纜，輕鐵服務一度受阻約4小時，41歲的吊臂車司機涉嫌駕駛危險車輛，被拘捕警方。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm)
+
+---
+
+# 放射檢查擬逐項收費　醫管局：仍有高度補貼及減免機制
+
+  
+
+政府正檢討公營醫療服務收費，放射服務有機會逐項收費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm)
+
+---
+
 # 丘應樺：美國做法「日新月異」　向世貿提出申訴需時準備
 
   
@@ -1397,53 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796779-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796779-20250321.htm)
-
----
-
-# 法國領先航空與機管局簽署備忘錄　陳茂波：香港商業環境充滿活力
-
-![陳茂波表示，今次備忘錄的簽訂，印證香港充滿活力的商業環境以及龐大的增長潛力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796778_1_20250321143912.jpg&q=85)
-  
-
-法國領先航空服務公司Elior Group SA計劃拓展香港業務，與機管局簽署合作備忘錄，探討在港提供飛機拆解、部件回收、人才培訓等專業服務，推動香港發展成為亞洲首個飛機部件處理及交易中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm)
-
----
-
-# 國泰今日兩班往倫敦航班及所有由倫敦回港航班取消
-
-![國泰航空今日由香港前往倫敦的CX239及CX253航班已經取消。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796774_1_20250321140504.jpg&q=90)
-  
-
-國泰航空表示，知悉倫敦希斯路機場臨時關閉至直另行通知。公司今日由香港前往倫敦的CX239及CX253航班已經取消；而今日所有由倫敦前往香港的國泰航班亦已全部取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796774-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796774-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796774-20250321.htm)
 
 ---

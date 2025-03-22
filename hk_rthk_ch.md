@@ -1,3 +1,49 @@
+# 張欣宇：新登記及今年9月後年檢之吊臂車須裝警報器提示收妥吊臂
+
+  
+
+天水圍有夾斗吊臂車的吊臂，撞到輕鐵天悅站附近的架空電纜，輕鐵服務一度受阻約4小時，41歲的吊臂車司機涉嫌駕駛危險車輛，被拘捕警方。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm)
+
+---
+
+# 放射檢查擬逐項收費　醫管局：仍有高度補貼及減免機制
+
+  
+
+政府正檢討公營醫療服務收費，放射服務有機會逐項收費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm)
+
+---
+
 # 丘應樺：美國做法「日新月異」　向世貿提出申訴需時準備
 
   
