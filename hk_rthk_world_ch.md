@@ -1,3 +1,26 @@
+# 哈馬斯：只要以色列持續佔領　哈馬斯就不會解除武裝
+
+  
+
+針對美國中東問題特使威特科夫要求哈馬斯解除武裝的提議，巴勒斯坦武裝組織哈馬斯高級官員巴德蘭接受巴勒斯坦媒體《聖城新聞網》採訪時表示，只要以色列持續對巴勒斯坦進行佔領，這樣的提議就毫無意義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm)
+
+---
+
 # 以軍空襲黎巴嫩南部提爾市造成1死7傷
 
 ![以軍攔截來自黎巴嫩的火箭彈後，炮擊和空襲黎巴嫩南部作為回應。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796982_1_20250323031707.jpg&q=80)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm)
-
----
-
-# 法國領先航空與機管局簽署備忘錄　陳茂波：香港商業環境充滿活力
-
-![陳茂波表示，今次備忘錄的簽訂，印證香港充滿活力的商業環境以及龐大的增長潛力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796778_1_20250321143912.jpg&q=85)
-  
-
-法國領先航空服務公司Elior Group SA計劃拓展香港業務，與機管局簽署合作備忘錄，探討在港提供飛機拆解、部件回收、人才培訓等專業服務，推動香港發展成為亞洲首個飛機部件處理及交易中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm)
 
 ---

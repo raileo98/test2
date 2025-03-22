@@ -1,3 +1,26 @@
+# 哈馬斯：只要以色列持續佔領　哈馬斯就不會解除武裝
+
+  
+
+針對美國中東問題特使威特科夫要求哈馬斯解除武裝的提議，巴勒斯坦武裝組織哈馬斯高級官員巴德蘭接受巴勒斯坦媒體《聖城新聞網》採訪時表示，只要以色列持續對巴勒斯坦進行佔領，這樣的提議就毫無意義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm)
+
+---
+
 # 以軍空襲黎巴嫩南部提爾市造成1死7傷
 
 ![以軍攔截來自黎巴嫩的火箭彈後，炮擊和空襲黎巴嫩南部作為回應。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796982_1_20250323031707.jpg&q=80)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm)
-
----
-
-# 輕鐵天悅站受損架空電纜已復修　港鐵指服務逐步回復正常
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796908_1_20250322111938.jpg&q=75)
-  
-
-港鐵表示，輕鐵天悅站受損的架空電纜已復修，輕鐵服務逐步回復正常。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm)
 
 ---
