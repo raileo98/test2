@@ -1,3 +1,26 @@
+# 希斯路機場踏入星期六早上陸續恢復航班升降
+
+  
+
+因變電站火警而停運大半日的英國倫敦希斯路機場，踏入當地星期六早上，開始恢復航班升降。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796920-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796920-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796920-20250322.htm)
+
+---
+
 # 金正恩：繼續支持俄羅斯維護國家主權、領土完整和安全利益
 
 ![金正恩會見到訪的俄羅斯聯邦安全會議秘書紹伊古。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796914_1_20250322125000.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm)
-
----
-
-# 外交部：美方不得對中國留學生採取歧視性限制措施
-
-![毛寧說，中方敦促美方停止泛化國家安全，不得對中國留學生採取歧視性限制措施。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796635_1_20250320175000.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧表示，中方敦促美方停止泛化國家安全，實際保障中國留學生的正當合法權利，不得對中國留學生採取歧視性限制措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm)
 
 ---
