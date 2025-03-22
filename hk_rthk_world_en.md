@@ -1,3 +1,27 @@
+# Fatah movement urges Hamas to cede power in Gaza
+
+![Mahmoud Abbas's Fatah movement says the very existence of Palestinians in Gaza depends on Hamas giving up control. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796966_1_20250322215125.jpg&q=80)
+  
+
+Palestinian president Mahmoud Abbas's Fatah movement called on its Islamist rivals Hamas on Saturday to relinquish power in order to safeguard the "existence" of Palestinians in the Gaza Strip.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796966-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796966-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796966-20250322.htm)
+
+---
+
 # Four killed in South Korea wildfire
 
 ![Helicopters battle the wildfire that broke out in the southeastern county of Sancheong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796964_1_20250322212803.jpg&q=90)
@@ -1411,29 +1435,5 @@ After more than nine months aboard the International Space Station, a pair of as
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796180-20250318.htm)
-
----
-
-# Indonesia to repatriate hundreds of scam workers
-
-![View of the scam centres in Shwe Kokko as seen from the Thai side of the border in early March. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796178_1_20250318085711.jpg&q=85)
-  
-
-More than 500 Indonesians freed from online scam centres in Myanmar are expected to be repatriated via Thailand in the coming days.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796178-20250318.htm)
 
 ---

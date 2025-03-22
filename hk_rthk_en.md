@@ -1,3 +1,27 @@
+# Fatah movement urges Hamas to cede power in Gaza
+
+![Mahmoud Abbas's Fatah movement says the very existence of Palestinians in Gaza depends on Hamas giving up control. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796966_1_20250322215125.jpg&q=80)
+  
+
+Palestinian president Mahmoud Abbas's Fatah movement called on its Islamist rivals Hamas on Saturday to relinquish power in order to safeguard the "existence" of Palestinians in the Gaza Strip.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796966-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796966-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796966-20250322.htm)
+
+---
+
 # Four killed in South Korea wildfire
 
 ![Helicopters battle the wildfire that broke out in the southeastern county of Sancheong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796964_1_20250322212803.jpg&q=90)
@@ -1412,29 +1436,5 @@ Oxygen has been detected in the most distant galaxy ever discovered, surprised a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm)
-
----
-
-# Finns still happiest, but US happiness sinks
-
-![Finland's grand lakes and strong welfare system boost its mood. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796695_1_20250321033221.jpg&q=75)
-  
-
-The United States fell to its lowest happiness ranking ever partly due to a rise in the number of Americans eating their meals alone, an annual UN-sponsored report said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm)
 
 ---

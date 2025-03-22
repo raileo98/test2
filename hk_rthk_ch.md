@@ -1,5 +1,7 @@
 # 消防處籲如受廈村貨倉火警煙霧或異味影響　關閉窗戶保持鎮定
 
+![消防處派出三條喉及三隊煙帽隊到場灌救。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796968_1_20250322221753.jpg&q=90)
+![起火現場冒出大量濃煙。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796968_2_20250322221753.jpg&q=90)
   
 
 天水圍廈村附近一個貨倉發生火警，消防處正進行滅火行動，提醒附近居民如果受到隨風飄散的煙霧和異味影響，要關閉門窗及保持鎮定。
@@ -23,6 +25,7 @@
 
 # Cityline新增廣州及深圳兩個換票點　並研究快遞門票換領
 
+![Cityline對於造成的不便深感抱歉。（Cityline社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796967_1_20250322221708.jpg&q=90)
   
 
 英國著名樂隊Coldplay下月將於啟德體育園，舉行巡迴演唱會，但部份門票資料出錯，需要更換新版門票。
@@ -145,7 +148,7 @@
 ![警方表示，晚上約7時半接報，起火現場冒出大量濃煙。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796960_1_20250322210924.jpg&q=90)
   
 
-天水圍田廈路一個貨倉發生火警，消防處派出兩條喉及兩隊煙帽隊到場灌救，29人自行疏散，沒有受傷。
+天水圍田廈路一個貨倉發生火警，消防處派出兩條喉及兩隊煙帽隊到場灌救，29人自行疏散，沒有人受傷。
 
   
 

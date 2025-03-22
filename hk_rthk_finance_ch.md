@@ -1,5 +1,6 @@
 # Cityline新增廣州及深圳兩個換票點　並研究快遞門票換領
 
+![Cityline對於造成的不便深感抱歉。（Cityline社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796967_1_20250322221708.jpg&q=90)
   
 
 英國著名樂隊Coldplay下月將於啟德體育園，舉行巡迴演唱會，但部份門票資料出錯，需要更換新版門票。
