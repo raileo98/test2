@@ -1,3 +1,26 @@
+# 保良局羅傑承（一九八三）中學肇慶交流團　有師生現嘔吐發燒徵狀
+
+  
+
+保良局羅傑承（一九八三）中學的120名中五學生，本星期四至今日參加肇慶交流團，其中部分學生及老師自昨晚起出現嘔吐及發燒等病徵，學校隨即安排學生及老師前往當地醫院接受治療，經診治後師生情況穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796940-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796940-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796940-20250322.htm)
+
+---
+
 # 中日韓外長會　王毅：推動三國合作發揮「1+1+1>3」作用
 
   

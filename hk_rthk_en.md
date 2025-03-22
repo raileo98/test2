@@ -1,3 +1,27 @@
+# Durant scores 42 as Suns eclipse Cavs
+
+![Phoenix Suns forward Kevin Durant soars above Cleveland Cavaliers forward De'Andre Hunter. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796939_1_20250322180740.jpg&q=90)
+  
+
+Kevin Durant scored 42 points as the Phoenix Suns reignited their playoff hopes with a 123-112 upset of the Eastern Conference-leading Cleveland Cavaliers on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796939-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796939-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796939-20250322.htm)
+
+---
+
 # Woman remains in coma after tooth extraction
 
 ![The Department of Health says the woman is still in a critical condition. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796933_1_20250322172551.jpg&q=90)
@@ -1412,29 +1436,5 @@ Japan became the first team to qualify for the 2026 World Cup after second-half 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm)
-
----
-
-# HK ranked Asia's top financial centre, third globally
-
-![Hong Kong retains its spot as Asia's top financial centre, having only reclaimed it from Singapore in September 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796664_1_20250320203327.jpg&q=90)
-  
-
-Hong Kong remains Asia's top financial hub, and third in the world behind New York and London, according to a half-yearly index of global financial centres.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm)
 
 ---
