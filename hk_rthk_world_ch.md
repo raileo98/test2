@@ -1,3 +1,27 @@
+# 金正恩：繼續支持俄羅斯維護國家主權、領土完整和安全利益
+
+![金正恩會見到訪的俄羅斯聯邦安全會議秘書紹伊古。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796914_1_20250322125000.jpg&q=90)
+  
+
+朝中社報道，北韓領袖金正恩會見到訪的俄羅斯聯邦安全會議秘書紹伊古。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm)
+
+---
+
 # 王毅稱中日韓外長同意為舉行領導人會議營造條件
 
 ![三國外長在會後出席聯合記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796910_1_20250322115050.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm)
-
----
-
-# 美媒稱特朗普將簽署行政命令關閉教育部
-
-![美國有傳媒報道，特朗普將簽署行政命令，正式啟動教育部關閉程序。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796559_1_20250320111712.jpg&q=90)
-  
-
-美國有傳媒報道，美國總統特朗普將簽署行政命令，正式啟動教育部關閉程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796559-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796559-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796559-20250320.htm)
 
 ---

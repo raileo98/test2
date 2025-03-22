@@ -1,3 +1,27 @@
+# 金正恩：繼續支持俄羅斯維護國家主權、領土完整和安全利益
+
+![金正恩會見到訪的俄羅斯聯邦安全會議秘書紹伊古。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796914_1_20250322125000.jpg&q=90)
+  
+
+朝中社報道，北韓領袖金正恩會見到訪的俄羅斯聯邦安全會議秘書紹伊古。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm)
+
+---
+
 # 王毅稱中日韓外長同意為舉行領導人會議營造條件
 
 ![三國外長在會後出席聯合記者會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796910_1_20250322115050.jpg&q=90)
@@ -47,6 +71,7 @@
 
 # 鄧炳強：國際形勢複雜多變　要居安思危　推動香港全面發展
 
+![鄧炳強說，作為負責推動23條立法的官員，這一章既難讀亦難忘，可以說是他工作生涯的最大挑戰。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796912_1_20250322125216.jpg&q=90)
   
 
 《維護國家安全條例》生效一年，保安局局長鄧炳強出席民建聯新書發布記者會致辭表示，有人形容香港為一本很難讀的書，他相信《基本法》23條立法是最難讀的篇章。由於要對一國兩制的憲制秩序有深刻認識和理解，同時要對回歸以來外部勢力的干預及香港部分政治亂象有切膚之痛的人，才會感受到23條立法帶來的意義。
@@ -70,6 +95,8 @@
 
 # 大熊貓龍鳳胎首度與「盈盈」同一展館與公眾見面　有市民稱感溫馨
 
+![有市民指今日見證「家姐」「細佬」與媽媽「盈盈」首度同場，感到興奮。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796911_1_20250322124736.jpg&q=80)
+![有市民花費1500元，在開園前與大熊貓見面半小時，又形容3隻大熊貓經常貼在一起，感到溫馨。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796911_2_20250322124736.jpg&q=85)
   
 
 大熊貓龍鳳胎「家姐」及「細佬」今日起，首度與媽媽「盈盈」在海洋公園同一個展館「同框」與公眾見面。
@@ -1413,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm)
-
----
-
-# 外交部：美國應停止干擾破壞中國和伊朗正常商貿合作
-
-![毛寧說，美國應停止干擾破壞中國和伊朗正常的商貿合作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796843_1_20250321203038.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧表示，中方一貫反對濫施非法單邊制裁和長臂管轄，美國應停止干擾破壞中國和伊朗正常的商貿合作。中方將採取一切必要措施，堅決維護中國企業的合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm)
 
 ---
