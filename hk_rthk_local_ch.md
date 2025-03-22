@@ -1,5 +1,29 @@
+# 海關尖沙咀一商廈單位檢獲39公斤懷疑可卡因　37歲男子被捕
+
+  
+
+海關檢獲39公斤懷疑可卡因，市值約3300萬元，拘捕一名報稱技術員的37歲男子，案件仍在調查中，不排除有更多人被捕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm)
+
+---
+
 # 衞生署調查一名女子深度鎮靜麻醉下拔牙未能復甦　需送院仍危殆
 
+![衞生署接獲一宗由一間牙科日間醫療中心呈報的醫療風險警示事件，涉及一名35歲女病人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796929_1_20250322163308.jpg&q=90)
   
 
 衞生署接獲一宗由一間牙科日間醫療中心呈報的醫療風險警示事件，涉及一名35歲女病人，她於今年1月22日在涉事的牙科日間醫療中心，在深度鎮靜麻醉的程序下進行外科手術拔牙，期間未能從鎮靜狀態下復甦，被送往急症室救治。
@@ -1421,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796770-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796770-20250321.htm)
-
----
-
-# 黃碧如：修訂富戶政策非為增加政府收入　優化措施鼓勵富戶向上流
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796767_1_20250321141902.jpg&q=90)
-  
-
-房委會資助房屋小組委員會通過修訂「富戶」政策，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。委員會主席黃碧如會後表示，小組委員經審視後，決定暫不降低要求富戶遷出的水平，主要考慮到最近有關「簡樸房」的規定，措施可能令市場上細小單位減少，加上外來專才亦有住屋需求，因此現時並不適合降低富戶遷出水平，增加私人市場的租屋需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796767-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796767-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796767-20250321.htm)
 
 ---

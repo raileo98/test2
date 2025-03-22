@@ -1,5 +1,29 @@
+# 海關尖沙咀一商廈單位檢獲39公斤懷疑可卡因　37歲男子被捕
+
+  
+
+海關檢獲39公斤懷疑可卡因，市值約3300萬元，拘捕一名報稱技術員的37歲男子，案件仍在調查中，不排除有更多人被捕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm)
+
+---
+
 # 衞生署調查一名女子深度鎮靜麻醉下拔牙未能復甦　需送院仍危殆
 
+![衞生署接獲一宗由一間牙科日間醫療中心呈報的醫療風險警示事件，涉及一名35歲女病人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796929_1_20250322163308.jpg&q=90)
   
 
 衞生署接獲一宗由一間牙科日間醫療中心呈報的醫療風險警示事件，涉及一名35歲女病人，她於今年1月22日在涉事的牙科日間醫療中心，在深度鎮靜麻醉的程序下進行外科手術拔牙，期間未能從鎮靜狀態下復甦，被送往急症室救治。
@@ -23,6 +47,7 @@
 
 # 倫敦希斯路機場全面恢復運作　行政總裁稱無法百分百預防突發事件
 
+![倫敦希斯路機場全面恢復運作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796928_1_20250322163548.jpg&q=90)
   
 
 英國倫敦希斯路機場因附近變電站大火停電，機場關閉大半日後，逐步恢復航班升降，並在星期六全面恢復運作。倫敦警方說，初步相信火警沒有可疑。倫敦消防局表示，調查將聚焦在配電設備。
@@ -1412,30 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796854-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796854-20250321.htm)
-
----
-
-# 發展局：葵青區工廈整幢改裝撥部分樓面作建築技術研究用途
-
-![安樂工程集團集團新總部舉行開幕典禮，發展局局長甯漢豪出席儀式並參觀設計研發及培訓中心。（安樂工程提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796853_2_20250321232101.jpg&q=75)
-![安樂工程大廈從工廈蛻變為智慧建築，成為政府活化工廈計劃的項目之一。（安樂工程提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796853_3_20250321232101.jpg&q=90)
-  
-
-發展局局長甯漢豪出席「活化工廈」計劃下一個整幢改裝項目的開幕典禮。這座位於葵青區的工廈完成改裝後，業主便按照政府的要求，撥出不少於百分之十樓面面積，設立「設計、研究及訓練中心」。中心會就各項嶄新的建築技術進行研究，其中包括「機電裝備合成法」技術，即「MiMEP」技術。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796853-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796853-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796853-20250321.htm)
 
 ---
