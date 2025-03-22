@@ -1,3 +1,27 @@
+# 澤連斯基視察烏東前線前指所
+
+![澤連斯基到東部頓涅茨克地區視察，並在波克羅夫斯克烏軍指揮所聽取前線局勢報告。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796975_1_20250323002251.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基到東部頓涅茨克地區視察並在波克羅夫斯克烏軍指揮所聽取前線局勢報告。這是近期波克羅夫斯克局勢趨於穩定後，澤連斯基首次到訪烏東前線。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796975-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796975-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796975-20250323.htm)
+
+---
+
 # 第六次中日經濟高層對話達成20項重要共識
 
 ![第六次中日經濟高層對話在東京舉行。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796974_1_20250322235617.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796734-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796734-20250321.htm)
-
----
-
-# 北韓試射最新型防空導彈武器系統
-
-![北韓領袖金正恩觀摩了最新型防空導彈武器系統試射。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796718_1_20250321091454.jpg&q=90)
-  
-
-朝中社報道，北韓導彈總局昨日對相關軍工企業正式開始生產的最新型防空導彈武器系統，進行綜合戰鬥性能檢驗試射，領袖金正恩觀摩了試射。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796718-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796718-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796718-20250321.htm)
 
 ---
