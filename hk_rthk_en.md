@@ -1,3 +1,27 @@
+# Woman remains in coma after tooth extraction
+
+![The Department of Health says the woman is still in a critical condition. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796933_1_20250322172551.jpg&q=90)
+  
+
+The Department of Health said on Saturday that a 35-year-old woman remains in a critical condition, after she was sedated before a tooth extraction at a dental clinic in Central two months ago.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796933-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796933-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796933-20250322.htm)
+
+---
+
 # Fans excited to see Ying Ying appear with panda twins
 
 ![People who collect an entry ticket can see the pandas for three minutes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796927_2_20250322155956.jpg&q=90)
@@ -1412,29 +1436,5 @@ Hong Kong remains Asia's top financial hub, and third in the world behind New Yo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm)
-
----
-
-# Zelensky, EU leaders discuss support for Ukraine
-
-![Ukrainian President Volodymyr Zelensky was set to address the summit by video link. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796668_1_20250320205411.jpg&q=90)
-  
-
-European Union foreign policy chief Kaja Kallas urged EU leaders on Thursday to pledge 5 billion euros for artillery shells for Ukraine to strengthen its hand in peace talks, amid divergences over how to bolster Kyiv and the EU's own military capabilities.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm)
 
 ---

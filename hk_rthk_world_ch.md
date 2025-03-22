@@ -1,3 +1,27 @@
+# 石破茂：強化防衛力量對加強日本威懾力是不可或缺
+
+![石破茂到神奈川縣橫須賀市出席防衛大學畢業典禮並致辭。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796934_1_20250322173725.jpg&q=90)
+  
+
+日本首相石破茂說，從根本上強化防衛力量，對於加強日本的威懾力而言是不可或缺，會基於國家安全保障戰略等繼續採取措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796934-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796934-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796934-20250322.htm)
+
+---
+
 # 美國特使：澤連斯基很大程度接受烏克蘭不會成為北約成員國
 
 ![威特科夫說，澤連斯基已在很大程度上接受烏克蘭不會成為北約成員國。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796932_1_20250322171941.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm)
-
----
-
-# 東京地鐵沙林毒氣襲擊事件30周年　民眾在出事地鐵站悼念
-
-![有遇難者家屬到當年事發的東京霞關地鐵站悼念離世的親人。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796674_1_20250320223035.jpg&q=90)
-  
-
-日本東京地鐵沙林毒氣襲擊事件30周年，在當年事發的東京霞關地鐵站，遇難者家屬、受害者和乘客前往站內的獻花台，獻上鮮花並雙手合十，悼念遇難者，車站工作人員等人在事件發生的一刻默哀。日本國土交通相中野洋昌亦到現場獻花。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796674-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796674-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796674-20250320.htm)
 
 ---

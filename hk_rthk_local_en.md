@@ -1,3 +1,27 @@
+# Woman remains in coma after tooth extraction
+
+![The Department of Health says the woman is still in a critical condition. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796933_1_20250322172551.jpg&q=90)
+  
+
+The Department of Health said on Saturday that a 35-year-old woman remains in a critical condition, after she was sedated before a tooth extraction at a dental clinic in Central two months ago.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796933-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796933-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796933-20250322.htm)
+
+---
+
 # Fans excited to see Ying Ying appear with panda twins
 
 ![People who collect an entry ticket can see the pandas for three minutes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796927_2_20250322155956.jpg&q=90)
@@ -1416,29 +1440,5 @@ One of Hong Kong's richest people, Henderson Land founder Lee Shau-kee, has died
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796117-20250317.htm)
-
----
-
-# HK triathletes race for a spot in National Games
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796101_1_20250317182204.jpg&q=85)
-  
-
-Triathletes from the SAR will try to book a spot in this year's National Games by competing in a selection race next month along Victoria Harbour.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm)
 
 ---
