@@ -46,12 +46,12 @@ Former heavyweight champion George Foreman, who fought and lost against Muhammad
 
 ---
 
-# Light Rail service disrupted in Tin Shui Wai
+# Light Rail services gradually resume normal
 
-![MTR maintenance staff are working to repair the damaged overhead line. Photo courtesy of MTR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796898_1_20250322093945.jpg&q=80)
+![It took MTR maintenance staff about four hours to repair the damaged overhead line. Photo courtesy of MTR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796898_1_20250322093945.jpg&q=80)
   
 
-The MTR suspended parts of the light rail service in Tin Shui Wai on Saturday morning after a crane lorry damaged an overhead line near Tin Yuet at around 7.30 am.
+The MTR says light rail services are resuming normal after several routes in Tin Shui Wai were disrupted on Saturday morning.
 
   
 
