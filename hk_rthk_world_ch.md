@@ -1,3 +1,27 @@
+# 委內瑞拉與美國達成協議　恢復遣返移民安排
+
+![委內瑞拉說，與美國達成協議，從周日起恢復與美國遣返移民的安排。圖為委內瑞拉日前從墨西哥接收一批移民。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796980_1_20250323014117.jpg&q=90)
+  
+
+委內瑞拉說，與美國達成協議，從周日起恢復與美國遣返移民的安排，在保證委內瑞拉人人權的情況下，讓委內瑞拉移民有尊嚴地返回委內瑞拉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796980-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796980-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796980-20250323.htm)
+
+---
+
 # 黎巴嫩總理警告南部局勢升級或引發戰爭
 
 ![以軍炮擊後，黎巴嫩南部升起濃煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796979_1_20250323012800.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796774-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796774-20250321.htm)
-
----
-
-# 韓媒稱南韓在野黨向國會提請彈劾代總統崔相穆
-
-![韓聯社報道，南韓在野黨向國會提請彈劾代總統崔相穆。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796773_1_20250321134435.jpg&q=90)
-  
-
-韓聯社報道，南韓在野黨向國會提請彈劾代總統崔相穆。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796773-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796773-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796773-20250321.htm)
 
 ---

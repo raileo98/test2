@@ -1,3 +1,27 @@
+# 委內瑞拉與美國達成協議　恢復遣返移民安排
+
+![委內瑞拉說，與美國達成協議，從周日起恢復與美國遣返移民的安排。圖為委內瑞拉日前從墨西哥接收一批移民。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796980_1_20250323014117.jpg&q=90)
+  
+
+委內瑞拉說，與美國達成協議，從周日起恢復與美國遣返移民的安排，在保證委內瑞拉人人權的情況下，讓委內瑞拉移民有尊嚴地返回委內瑞拉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796980-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796980-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796980-20250323.htm)
+
+---
+
 # 黎巴嫩總理警告南部局勢升級或引發戰爭
 
 ![以軍炮擊後，黎巴嫩南部升起濃煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796979_1_20250323012800.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796906-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796906-20250322.htm)
-
----
-
-# 輕鐵天悅站架空電纜受損影響電力供應　港鐵料需數小時修復
-
-![輕鐵天悅站架空電纜受損，港鐵正全力進行搶修，預計需要數個小時修復。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796904_1_20250322103357.jpg&q=75)
-  
-
-一輛吊臂車早上約7時，在輕鐵天悅站附近經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。港鐵正全力進行搶修，預計需要數個小時修復。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796904-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796904-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796904-20250322.htm)
 
 ---
