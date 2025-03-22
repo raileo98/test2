@@ -1,6 +1,6 @@
 # Government demands action on Coldplay ticket errors
 
-![The Consumer Council said it had received 17 complaints as of 7 pm on Saturday. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796977_2_20250323043112.jpg&q=90)
+![In a statement issued late on Saturday, the Culture, Sports and Tourism Bureau said Cityline should deal with the matter swiftly. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796977_2_20250323043112.jpg&q=90)
   
 
 The government is demanding that ticketing platform Cityline fix printing errors on some Coldplay concert tickets.
