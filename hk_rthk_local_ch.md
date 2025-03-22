@@ -1,3 +1,26 @@
+# 李家超：政府已經公布可持續金融行動計劃　支持本地綠色科技發展
+
+  
+
+行政長官李家超出席「香港植樹日2025」活動致辭表示，面對氣候變化的挑戰，香港肩負作為國際大都會的承擔，致力凝聚社會力量，推動綠色和環保措施。他表示，香港是亞洲最早採取應對天氣變化的城市之一，積極推進各種減碳的策略，實現2050年碳中和的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm)
+
+---
+
 # 輕鐵天悅站受損架空電纜已復修　港鐵指服務逐步回復正常
 
 ![港鐵表示，輕鐵天悅站受損的架空電纜已復修，輕鐵服務逐步回復正常。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796908_1_20250322111938.jpg&q=75)
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm)
-
----
-
-# 盧寵茂稱醫療收費調整後額外收入將用於提升安全網針對四類人士
-
-![盧寵茂表示，醫療收費調整後的額外收入，將用於提升安全網，針對貧、急、重、危四類人士。 （文匯報片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796751_1_20250321115638.jpg&q=90)
-  
-
-醫務衞生局局長盧寵茂表示，醫療深化改革即將推出，相關的撥款開支不會縮減，但會重新合理分配，醫療收費調整後的額外收入，將用於提升安全網，針對貧、急、重、危四類人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796751-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796751-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796751-20250321.htm)
 
 ---

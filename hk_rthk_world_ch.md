@@ -24,7 +24,7 @@
 
 # 中日韓外長會在東京舉行　王毅稱三國應正視歷史、面向未來
 
-![中日韓外長會在東京舉行。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796900_1_20250322095212.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796900_1_20250322095212.jpg&q=90)
   
 
 中日韓外長會在東京舉行，中共中央政治局委員兼外長王毅、日本外相岩屋毅及南韓外長趙兌烈出席。

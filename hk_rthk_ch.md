@@ -1,3 +1,26 @@
+# 李家超：政府已經公布可持續金融行動計劃　支持本地綠色科技發展
+
+  
+
+行政長官李家超出席「香港植樹日2025」活動致辭表示，面對氣候變化的挑戰，香港肩負作為國際大都會的承擔，致力凝聚社會力量，推動綠色和環保措施。他表示，香港是亞洲最早採取應對天氣變化的城市之一，積極推進各種減碳的策略，實現2050年碳中和的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm)
+
+---
+
 # 輕鐵天悅站受損架空電纜已復修　港鐵指服務逐步回復正常
 
 ![港鐵表示，輕鐵天悅站受損的架空電纜已復修，輕鐵服務逐步回復正常。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796908_1_20250322111938.jpg&q=75)
@@ -119,7 +142,7 @@
 
 # 中日韓外長會在東京舉行　王毅稱三國應正視歷史、面向未來
 
-![中日韓外長會在東京舉行。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796900_1_20250322095212.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796900_1_20250322095212.jpg&q=90)
   
 
 中日韓外長會在東京舉行，中共中央政治局委員兼外長王毅、日本外相岩屋毅及南韓外長趙兌烈出席。
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796838-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796838-20250321.htm)
-
----
-
-# 2024年度各項流感疫苗接種計劃共接種約206萬劑創新高
-
-![衞生署表示，截至本月16日，2024/25度各項流感疫苗接種計劃共接種約206萬劑疫苗，較上一流感疫苗接種季度同期增加約12.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796837_1_20250321194838.jpg&q=80)
-  
-
-衞生署表示，截至本月16日，2024/25度各項流感疫苗接種計劃共接種約206萬劑疫苗，較上一流感疫苗接種季度同期增加約12.1%，並已超過上季整體接種劑數，創下歷史新高。就2025/26年度季節性流感疫苗接種計劃，政府表示會繼續加大力度協助高危群組接種流感疫苗，以及研究為參與疫苗資助計劃的私家醫生採購部分流感疫苗的可行性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796837-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796837-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796837-20250321.htm)
 
 ---
