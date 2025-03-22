@@ -1,3 +1,27 @@
+# Heathrow 'fully operational' again after fire shutdown
+
+![Delays and cancellations are expected on Saturday as airlines scramble to clear a backlog of flights. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796942_1_20250322182905.jpg&q=90)
+  
+
+Heathrow Airport said it was "fully operational" on Saturday but delays and cancellations were expected as Europe's busiest air hub resumed operations after a power station fire caused travel mayhem.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm)
+
+---
+
 # China, Japan, S Korea agree to deepen cooperation
 
 ![Foreign Minister Wang Yi and South Korea's Foreign Minister Cho Tae-yul shake hands as Japan's Foreign Minister Takeshi Iwaya looks on. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796925_1_20250322153847.jpg&q=90)
@@ -1411,29 +1435,5 @@ Canadian Prime Minister Mark Carney on Monday warned his country must reduce its
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796162-20250318.htm)
-
----
-
-# Major rallies in Yemen after deadly US strikes
-
-![Yemenis brandish rifles and chant during a demonstration. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796143_1_20250318014607.jpg&q=90)
-  
-
-Tens of thousands of people protested in Houthi-controlled parts of Yemen on Monday, the Iran-backed rebels' Al-Masirah TV showed, two days after US attacks that left dozens dead.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796143-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796143-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796143-20250318.htm)
 
 ---

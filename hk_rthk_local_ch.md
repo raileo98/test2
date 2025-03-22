@@ -1,3 +1,26 @@
+# 回應長和出售巴拿馬港口營運權　譚耀宗冀個人和企業都小心處理
+
+  
+
+全國港澳研究會副會長、前全國人大常委譚耀宗回應長和出售巴拿馬港口營運權事件，表示希望個人和企業都小心謹慎處理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796945-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796945-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796945-20250322.htm)
+
+---
+
 # 大熊貓龍鳳胎與媽媽同場與訪客見面　兩小時派完即日逾3千時間票
 
   
@@ -69,9 +92,10 @@
 
 # 張欣宇：新登記及今年9月後年檢之吊臂車須裝警報器提示收妥吊臂
 
+![欣宇相信，事故一般都是司機忘記將吊臂收好。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796937_1_20250322183131.jpg&q=75)
   
 
-天水圍有夾斗吊臂車的吊臂，撞到輕鐵天悅站附近的架空電纜，輕鐵服務一度受阻約4小時，41歲的吊臂車司機涉嫌駕駛危險車輛，被拘捕警方。
+天水圍有夾斗吊臂車的吊臂，撞到輕鐵天悅站附近的架空電纜，輕鐵服務一度受阻約4小時，41歲的吊臂車司機涉嫌駕駛危險車輛，被警方拘捕。
 
   
 
@@ -92,6 +116,7 @@
 
 # 放射檢查擬逐項收費　醫管局：仍有高度補貼及減免機制
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796936_1_20250322183113.jpg&q=80)
   
 
 政府正檢討公營醫療服務收費，放射服務有機會逐項收費。
@@ -115,6 +140,7 @@
 
 # 丘應樺：美國做法「日新月異」　向世貿提出申訴需時準備
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796935_1_20250322183012.jpg&q=90)
   
 
 特區政府就美國對華產品加徵關稅，範圍包括香港產品，決定向世貿組織提出申訴。商務及經濟發展局局長丘應樺表示，美國的做法「日新月異」，特區政府要審視情況發展，需要時間準備，準備好就會提出申訴。
@@ -1414,30 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm)
-
----
-
-# 30億推前沿科技研究資助　李家超稱香港憑硬件及軟實力創造機遇
-
-![李家超說，聯盟成立證明了集體智慧的力量，展現開放交流的承諾。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_1_20250321154937.jpg&q=80)
-![李家超、葉玉如、孫東及張翔等出席活動主持儀式。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_2_20250321154937.jpg&q=90)
-  
-
-國際院士聯盟成立，行政長官李家超出席儀式時致辭時透露，將會很快推出金額涉及30億元的前沿科技研究資助計劃，資助由世界級研究人員和學者推動開創性基礎研究。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm)
 
 ---

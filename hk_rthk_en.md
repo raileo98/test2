@@ -1,3 +1,27 @@
+# Heathrow 'fully operational' again after fire shutdown
+
+![Delays and cancellations are expected on Saturday as airlines scramble to clear a backlog of flights. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796942_1_20250322182905.jpg&q=90)
+  
+
+Heathrow Airport said it was "fully operational" on Saturday but delays and cancellations were expected as Europe's busiest air hub resumed operations after a power station fire caused travel mayhem.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm)
+
+---
+
 # More school exchange tour members fall ill on mainland
 
 ![The secondary school says the affected students and teachers are on an exchange tour to Zhaoqing. Photo: Po Leung Kuk Lo Kit Sing (1983) College's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796941_1_20250322181019.jpg&q=90)
@@ -1412,29 +1436,5 @@ Zimbabwean Kirsty Coventry became the first woman and African to be elected pres
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm)
-
----
-
-# Top Beijing official praises EuroCham's work in HK
-
-![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing. Photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796677_1_20250320220041.jpg&q=90)
-  
-
-Hong Kong has the full support from the central government in maintaining its unique status and advantages, a senior Beijing official told a visiting business delegation from the SAR on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm)
 
 ---
