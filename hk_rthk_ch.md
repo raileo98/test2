@@ -1,5 +1,53 @@
+# 美國特使：澤連斯基很大程度接受烏克蘭不會成為北約成員國
+
+![威特科夫說，澤連斯基已在很大程度上接受烏克蘭不會成為北約成員國。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796932_1_20250322171941.jpg&q=90)
+  
+
+美國中東問題特使威特科夫說，如果烏克蘭要與俄羅斯達成和平協議，他認為烏克蘭總統澤連斯基已經在很大程度上接受烏克蘭不會成為北約成員國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm)
+
+---
+
+# 保險業聯會指　如所買之旅遊保把機場關閉列為指定風險則可受保障
+
+  
+
+英國倫敦希斯路機場因附近變電站大火導致停電而一度關閉。香港保險業聯會表示，機場停運是由於附近變電站起火，屬突發意外，如果所買的旅遊保險將機場關閉列為指定風險，投保人即可受到旅遊保險保障。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm)
+
+---
+
 # 海關尖沙咀一商廈單位檢獲39公斤懷疑可卡因　37歲男子被捕
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796930_1_20250322170911.jpg&q=90)
   
 
 海關檢獲39公斤懷疑可卡因，市值約3300萬元，拘捕一名報稱技術員的37歲男子，案件仍在調查中，不排除有更多人被捕。
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796857-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796857-20250321.htm)
-
----
-
-# 大埔公路沙田段6車相撞5人傷　警方列狂亂駕駛拘兩人
-
-![警方列作狂亂駕駛及行使虛假文書，拘捕兩人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796856_1_20250322072223.jpg&q=60)
-  
-
-大埔公路沙田段晚上發生6車相撞意外，5人受輕傷。警方列作狂亂駕駛及行使虛假文書，拘捕兩人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796856-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796856-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796856-20250321.htm)
-
----
-
-# 內地旅客代辦申請駕駛執照承認違反逗留條件　判囚54日
-
-![入境處打擊在港提供代辦申請駕駛執照服務的非法勞工，日前拘捕2人。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796854_1_20250321215609.jpg&q=90)
-  
-
-入境處打擊在港提供代辦申請駕駛執照服務的非法勞工，日前拘捕2人，包括一名內地訪客、及一名涉嫌聘用非法勞工的香港居民僱主。被捕的非法勞工今日在沙田裁判法院被控違反逗留條件，她承認控罪，被判監禁54日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796854-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796854-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796854-20250321.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 美國特使：澤連斯基很大程度接受烏克蘭不會成為北約成員國
+
+![威特科夫說，澤連斯基已在很大程度上接受烏克蘭不會成為北約成員國。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796932_1_20250322171941.jpg&q=90)
+  
+
+美國中東問題特使威特科夫說，如果烏克蘭要與俄羅斯達成和平協議，他認為烏克蘭總統澤連斯基已經在很大程度上接受烏克蘭不會成為北約成員國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm)
+
+---
+
 # 倫敦希斯路機場全面恢復運作　行政總裁稱無法百分百預防突發事件
 
 ![倫敦希斯路機場全面恢復運作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796928_1_20250322163548.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796674-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796674-20250320.htm)
-
----
-
-# 澤連斯基稱特朗普對扎波羅熱核電站表現出興趣但烏克蘭無意轉讓
-
-![扎波羅熱核電站是歐洲最大核電站之一，現時由俄羅斯控制。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796669_1_20250320211950.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基表示，美國總統特朗普同他通話時，對獲得扎波羅熱核電站的所有權表現出興趣。澤連斯基強調，烏克蘭無意轉讓扎波羅熱核電站。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796669-20250320.htm)
 
 ---

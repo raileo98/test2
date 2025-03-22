@@ -1,5 +1,29 @@
+# 保險業聯會指　如所買之旅遊保把機場關閉列為指定風險則可受保障
+
+  
+
+英國倫敦希斯路機場因附近變電站大火導致停電而一度關閉。香港保險業聯會表示，機場停運是由於附近變電站起火，屬突發意外，如果所買的旅遊保險將機場關閉列為指定風險，投保人即可受到旅遊保險保障。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm)
+
+---
+
 # 海關尖沙咀一商廈單位檢獲39公斤懷疑可卡因　37歲男子被捕
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796930_1_20250322170911.jpg&q=90)
   
 
 海關檢獲39公斤懷疑可卡因，市值約3300萬元，拘捕一名報稱技術員的37歲男子，案件仍在調查中，不排除有更多人被捕。
@@ -1421,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796772-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796772-20250321.htm)
-
----
-
-# 皇后山邨兩童危坐窗台警方拘父母　消息：案發時兩童父母正睡覺
-
-![粉嶺皇后山邨皇樂樓早上有兩名分別年約3歲及5歲男童，一度危坐大廈外窗台，兩童已被救回安全位置。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796770_1_20250321134018.jpg&q=90)
-  
-
-粉嶺皇后山邨皇樂樓一個低層單位，早上有兩名分別年約3歲及5歲男童，一度危坐大廈外窗台，兩童已被救回安全位置，他們並無大礙，無表面傷痕，送往北區醫院檢查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796770-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796770-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796770-20250321.htm)
 
 ---
