@@ -1,3 +1,27 @@
+# 澤連斯基視察烏東前線前指所
+
+![澤連斯基到東部頓涅茨克地區視察，並在波克羅夫斯克烏軍指揮所聽取前線局勢報告。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796975_1_20250323002251.jpg&q=90)
+  
+
+烏克蘭總統澤連斯基到東部頓涅茨克地區視察並在波克羅夫斯克烏軍指揮所聽取前線局勢報告。這是近期波克羅夫斯克局勢趨於穩定後，澤連斯基首次到訪烏東前線。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796975-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796975-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796975-20250323.htm)
+
+---
+
 # 第六次中日經濟高層對話達成20項重要共識
 
 ![第六次中日經濟高層對話在東京舉行。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796974_1_20250322235617.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796901-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796901-20250322.htm)
-
----
-
-# 慢病共治計劃至今近650醫生參與
-
-![彭飛舟（左）說，至今參與計劃的醫生有近650人，他形容增幅較緩慢，但明白醫生有不同考慮。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796899_1_20250322100730.jpg&q=90)
-  
-
-「慢性疾病共同治理先導計劃」由本月28日起，擴展至提供血脂檢查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796899-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796899-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796899-20250322.htm)
 
 ---
