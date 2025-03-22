@@ -1,3 +1,27 @@
+# Government demands action on Coldplay ticket errors
+
+![The Consumer Council said it had received 17 complaints as of 7 pm on Saturday. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796977_2_20250323043112.jpg&q=90)
+  
+
+The Culture, Sports and Tourism Bureau has called on ticketing platform Cityline to fix errors on tickets for concerts by Coldplay.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm)
+
+---
+
 # FS encourages mainland firms to use city's advantages
 
 ![Paul Chan encouraged one AI firm to utilise Hong Kong's capital, talent, and professional services to expand internationally. Photo: GIS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796969_1_20250322222525.jpg&q=90)
@@ -1412,29 +1436,5 @@ The NBA's Boston Celtics are being sold to the head of a California private equi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796701-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796701-20250321.htm)
-
----
-
-# Vancouver auto show bans Tesla over safety concerns
-
-![Tesla cars and showrooms have been vandalised in the US and other countries recently. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796697_1_20250321043524.jpg&q=85)
-  
-
-Tesla was removed from the Vancouver International Auto Show in Canada because of safety concerns, the event organisers said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm)
 
 ---

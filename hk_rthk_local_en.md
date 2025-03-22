@@ -1,3 +1,27 @@
+# Government demands action on Coldplay ticket errors
+
+![The Consumer Council said it had received 17 complaints as of 7 pm on Saturday. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796977_2_20250323043112.jpg&q=90)
+  
+
+The Culture, Sports and Tourism Bureau has called on ticketing platform Cityline to fix errors on tickets for concerts by Coldplay.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm)
+
+---
+
 # FS encourages mainland firms to use city's advantages
 
 ![Paul Chan encouraged one AI firm to utilise Hong Kong's capital, talent, and professional services to expand internationally. Photo: GIS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796969_1_20250322222525.jpg&q=90)
@@ -1416,29 +1440,5 @@ The Centre for Health Protection (CHP) is investigating a gastroenteritis cluste
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796126-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796126-20250317.htm)
-
----
-
-# Three proposals received for HK's third medical school
-
-![The Task Group on New Medical School previously held meetings to discuss the next steps for evaluating proposals on the establishment of the third medical school. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796122_1_20250317205156.jpg&q=85)
-  
-
-The government said on Monday it received three proposals for establishing the city’s third medical institution.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796122-20250317.htm)
 
 ---
