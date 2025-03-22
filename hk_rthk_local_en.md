@@ -1,6 +1,5 @@
 # Fans excited to see Ying Ying appear with panda twins
 
-![Visitors join the long queue for a short visit with Ying Ying and her cubs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796927_1_20250322155956.jpg&q=85)
 ![People who collect an entry ticket can see the pandas for three minutes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796927_2_20250322155956.jpg&q=90)
   
 
@@ -23,12 +22,12 @@ Thousands of people flocked to Ocean Park on Saturday as they can now see the pa
 
 ---
 
-# Online vehicle license renewals up by 80 percent
+# Online vehicle licence renewals up by 80 percent
 
-![Vehicle owners can scan a QR code on the license to check the expiry date. Image: Transport Department's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796923_1_20250322151024.jpg&q=90)
+![Vehicle owners can scan a QR code on the licence to check the expiry date. Image: Transport Department's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796923_1_20250322151024.jpg&q=90)
   
 
-The Transport Department on Saturday said it received almost 37,000 online applications for vehicle license renewals in the first two months of the year, a more than 80 percent year-on-year increase.
+The Transport Department on Saturday said it received almost 37,000 online applications for vehicle licence renewals in the first two months of the year, a more than 80 percent year-on-year increase.
 
   
 
@@ -49,7 +48,7 @@ The Transport Department on Saturday said it received almost 37,000 online appli
 
 # Scheme aims to identify patients with high cholesterol
 
-![Pang Fei-chau said people have a much higher risk for cardiac disease if they have diabetes and high cholesterol at the same time. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796918_1_20250322131755.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796918_1_20250322165508.jpg&q=90)
   
 
 Commissioner for primary healthcare Pang Fei-chau said on Saturday that it is expected more patients will be detected with high cholesterol after a government-led primary healthcare scheme expands to cover blood lipid testing from Friday.
