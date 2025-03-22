@@ -1,3 +1,27 @@
+# 世界盃歐洲區外圍賽　威爾士3:1擊敗哈薩克
+
+![威爾士在J組首輪賽事，3:1擊敗哈薩克。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796988_1_20250323070655.jpg&q=85)
+  
+
+世界盃歐洲區外圍賽，威爾士在J組首輪賽事，3:1擊敗哈薩克。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796988-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796988-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796988-20250323.htm)
+
+---
+
 # 英國首相對以色列在加沙恢復軍事行動表示嚴重關切
 
 ![以軍持續在加沙地帶展開地面行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796986_1_20250323062357.jpg&q=90)
@@ -51,7 +75,7 @@
 ![以軍報復襲擊，黎巴嫩南部升起濃。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796984_1_20250323044756.jpg&q=90)
   
 
-以色列軍方說，攔截來自黎巴嫩的火箭彈後，炮擊並空襲黎巴嫩南部作為回應，打搫黎巴嫩真主黨的目標。
+以色列軍方說，攔截來自黎巴嫩的火箭彈後，炮擊並空襲黎巴嫩南部作為回應，打擊黎巴嫩真主黨的目標。
   
 黎巴嫩國家通訊社報道，以軍的襲擊在沿海城市提爾等地，造成多人傷亡。
 
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796910-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796910-20250322.htm)
-
----
-
-# 消息：運動員資助機制檢討近尾聲　桌球及網球項目很大機會留Ａ級
-
-![李家超在《施政報告》提出，要求體院檢討運動員資助機制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796913_1_20250322145418.jpg&q=90)
-  
-
-行政長官李家超在《施政報告》提出，要求體院檢討運動員資助機制。據了解，檢討接近尾聲，在現有機制中不符合「精英A級」條件的桌球及網球項目，很大機會能夠保留地位。消息指，精英體育事務委員會將於星期一開會討論資助機制的調整，預計兩個項目會符合新資格。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm)
 
 ---
