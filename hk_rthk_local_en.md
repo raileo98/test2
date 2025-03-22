@@ -1,3 +1,27 @@
+# 'US tariffs on HK goods a violation of WTO agreement'
+
+![Minister Algernon Yau says foreign businesses still have confidence in Hong Kong in spite of geopolitical tensions. Photo: Commercial Radio](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796905_1_20250322103943.jpg&q=90)
+  
+
+Secretary for Commerce and Economic Development Algernon Yau said on Saturday that the government is preparing to file a complaint to the World Trade Organization (WTO) regarding US tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm)
+
+---
+
 # Light Rail service disrupted in Tin Shui Wai
 
 ![MTR maintenance staff are working to repair the damaged overhead line. Photo courtesy of MTR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796898_1_20250322093945.jpg&q=80)
@@ -1416,29 +1440,5 @@ A think tank on Monday urged the government to give full play to undeveloped lan
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796048-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796048-20250317.htm)
-
----
-
-# 'Makeup primers may affect hormone levels'
-
-![The Consumer Council says only three makeup bases that offer protection from the sun do not contain potential endocrine disruptors. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796050_1_20250317133301.jpg&q=90)
-  
-
-The Consumer Council on Monday warned that some makeup bases can affect hormone levels, and people who are pregnant or are breastfeeding should avoid such products.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796050-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796050-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796050-20250317.htm)
 
 ---

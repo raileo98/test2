@@ -1,3 +1,50 @@
+# 輕鐵天悅站受損架空電纜已復修　港鐵指服務逐步回復正常
+
+![港鐵表示，輕鐵天悅站受損的架空電纜已復修，輕鐵服務逐步回復正常。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796908_1_20250322111938.jpg&q=75)
+  
+
+港鐵表示，輕鐵天悅站受損的架空電纜已復修，輕鐵服務逐步回復正常。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm)
+
+---
+
+# 「幻彩詠香江」燈光音樂匯演今晚暫停
+
+  
+
+旅遊事務署宣布，為響應世界自然基金會舉辦的「地球一小時2025」活動，「幻彩詠香江」燈光音樂匯演今晚暫停。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm)
+
+---
+
 # 輕鐵天悅站架空電纜受損影響電力供應　港鐵料需數小時修復
 
 ![輕鐵天悅站架空電纜受損，港鐵正全力進行搶修，預計需要數個小時修復。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796904_1_20250322103357.jpg&q=75)
@@ -24,6 +71,7 @@
 
 # 今年首兩個月網上續領「行車證」申請　較去年同期升逾八成
 
+![運輸署表示，優化措施至今運作暢順，署方會繼續檢視運作流程。（運輸署社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796903_1_20250322110346.jpg&q=90)
   
 
 運輸署表示，優化車輛牌照措施去年底實施，今年1至2月，透過網上續領「行車證」的申請共有約36800宗，較去年同期大幅上升超過八成，至今發出超過19萬張新證。
@@ -1394,53 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796751-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796751-20250321.htm)
-
----
-
-# 羅健熙涉理大外非法集結　律政司上訴被駁回維持無罪裁決
-
-![律政司不服提出上訴，今日被高等法院上訴庭駁回，維持羅健熙的無罪裁決。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796748_1_20250321115619.jpg&q=90)
-  
-
-2019年11月18日，有市民發起到理工大學內聲援示威者，其後多人被捕。當時身在現場的民主黨主席羅健熙被指參與當中的非法集結，經審訊後被裁定非法集結罪名不成立。律政司不服提出上訴，今日被高等法院上訴庭駁回，維持羅健熙的無罪裁決。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796748-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796748-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796748-20250321.htm)
-
----
-
-# 孫靖乾獲委任為通訊事務管理局主席　任期下月起生效
-
-![行政長官委任孫靖乾接替譚允芝為通訊事務管理局主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796746_1_20250321115558.jpg&q=80)
-  
-
-行政長官委任孫靖乾接替譚允芝為通訊事務管理局主席，任期4月1日起生效，為期兩年。孫靖乾是資深大律師，亦出任高等法院原訟法庭特委法官。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796746-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796746-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796746-20250321.htm)
 
 ---

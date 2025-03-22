@@ -1,5 +1,53 @@
+# 輕鐵天悅站受損架空電纜已復修　港鐵指服務逐步回復正常
+
+![港鐵表示，輕鐵天悅站受損的架空電纜已復修，輕鐵服務逐步回復正常。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796908_1_20250322111938.jpg&q=75)
+  
+
+港鐵表示，輕鐵天悅站受損的架空電纜已復修，輕鐵服務逐步回復正常。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm)
+
+---
+
+# 「幻彩詠香江」燈光音樂匯演今晚暫停
+
+  
+
+旅遊事務署宣布，為響應世界自然基金會舉辦的「地球一小時2025」活動，「幻彩詠香江」燈光音樂匯演今晚暫停。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm)
+
+---
+
 # 特朗普撤銷賀錦麗與希拉莉的安全許可
 
+![希拉莉與賀錦麗的安全許可被特朗普撤銷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796906_1_20250322110433.jpg&q=90)
   
 
 美國總統特朗普表示，已撤銷民主黨籍的前副總統賀錦麗和前國務卿希拉莉的安全許可。特朗普表示，認為這些人士獲取機密資料不再符合國家利益。
@@ -47,6 +95,7 @@
 
 # 今年首兩個月網上續領「行車證」申請　較去年同期升逾八成
 
+![運輸署表示，優化措施至今運作暢順，署方會繼續檢視運作流程。（運輸署社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796903_1_20250322110346.jpg&q=90)
   
 
 運輸署表示，優化車輛牌照措施去年底實施，今年1至2月，透過網上續領「行車證」的申請共有約36800宗，較去年同期大幅上升超過八成，至今發出超過19萬張新證。
@@ -1390,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796837-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796837-20250321.htm)
-
----
-
-# 李家超與5間有意落戶港深創新及科技園區頂尖科企代表交流
-
-![李家超表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796835_1_20250321194737.jpg&q=80)
-  
-
-行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm)
-
----
-
-# 美國司法部長稱已就特斯拉遭破壞事件起訴3人
-
-![美國紐約特斯拉門店外早前有民眾抗議，表達對馬斯克的不滿。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796834_1_20250321191441.jpg&q=80)
-  
-
-美國司法部長邦迪表示，已就電動汽車生產商特斯拉被破壞事件起訴3人，他們涉嫌使用汽油彈在美國特斯拉門店或充電樁縱火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm)
 
 ---
