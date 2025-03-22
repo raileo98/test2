@@ -1,5 +1,29 @@
+# 購票公司稱需更換Coldplay演唱會新版門票　為不便表歉意
+
+  
+
+英國著名樂隊Coldplay下月將於啟德體育園，舉行巡迴演唱會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796946-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796946-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796946-20250322.htm)
+
+---
+
 # 回應長和出售巴拿馬港口營運權　譚耀宗冀個人和企業都小心處理
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796945_1_20250322190144.jpg&q=90)
   
 
 全國港澳研究會副會長、前全國人大常委譚耀宗回應長和出售巴拿馬港口營運權事件，表示希望個人和企業都小心謹慎處理。
@@ -1419,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm)
-
----
-
-# 保安局致函4澳洲媒體不滿刊登任建峰文章
-
-![保安局指特區政府從沒有發出任何匿名信件，亦沒有以任何非法手段促使這些人士回港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796787_1_20250321155006.jpg&q=80)
-  
-
-保安局致函4個澳洲媒體，對有關媒體刊登一篇由被列為指明危害國家安全罪行的潛逃者任建峰撰寫的評論文章表達不滿。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796787-20250321.htm)
 
 ---

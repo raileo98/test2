@@ -1,5 +1,29 @@
+# 購票公司稱需更換Coldplay演唱會新版門票　為不便表歉意
+
+  
+
+英國著名樂隊Coldplay下月將於啟德體育園，舉行巡迴演唱會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796946-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796946-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796946-20250322.htm)
+
+---
+
 # 回應長和出售巴拿馬港口營運權　譚耀宗冀個人和企業都小心處理
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796945_1_20250322190144.jpg&q=90)
   
 
 全國港澳研究會副會長、前全國人大常委譚耀宗回應長和出售巴拿馬港口營運權事件，表示希望個人和企業都小心謹慎處理。
