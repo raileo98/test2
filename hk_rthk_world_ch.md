@@ -1,3 +1,26 @@
+# 以軍空襲黎巴嫩南部提爾市造成1死7傷
+
+  
+
+以色列軍方空襲黎巴嫩南部提爾市，黎巴嫩衛生部緊急行動中心說，以軍當地周六晚發空襲，已造成1人死亡，7人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796982-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796982-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796982-20250323.htm)
+
+---
+
 # 醫生：教宗將於周日出院　至少休養兩個月
 
 ![教宗留醫的醫院召開記者會，表示教宗將出院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796981_1_20250323021322.jpg&q=80)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm)
-
----
-
-# 希斯路機場附近變電站內一半變壓器仍焚燒　吉域機場按需要支援
-
-![消防指變電站內一半變壓器仍在焚燒，10輛消防車及至少70名消防員奉召到場，預計將會是持久戰。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796775_1_20250321152859.jpg&q=90)
-  
-
-英國希斯路機場因附近變電站大火導致當地周五全日關閉的事故，消防指變電站內一半變壓器仍在焚燒，10輛消防車及至少70名消防員奉召到場，預計將會是持久戰，天光前消防員都會在現場。消防又指火警導致停電，影響大批家庭及企業，正與夥伴密切合作盡量減少影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796775-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796775-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796775-20250321.htm)
 
 ---

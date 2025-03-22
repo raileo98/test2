@@ -1,3 +1,26 @@
+# 以軍空襲黎巴嫩南部提爾市造成1死7傷
+
+  
+
+以色列軍方空襲黎巴嫩南部提爾市，黎巴嫩衛生部緊急行動中心說，以軍當地周六晚發空襲，已造成1人死亡，7人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796982-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796982-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796982-20250323.htm)
+
+---
+
 # 醫生：教宗將於周日出院　至少休養兩個月
 
 ![教宗留醫的醫院召開記者會，表示教宗將出院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796981_1_20250323021322.jpg&q=80)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm)
-
----
-
-# 「幻彩詠香江」燈光音樂匯演今晚暫停
-
-![「幻彩詠香江」燈光音樂匯演今晚暫停。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796907_1_20250322145851.jpg&q=90)
-  
-
-旅遊事務署宣布，為響應世界自然基金會舉辦的「地球一小時2025」活動，「幻彩詠香江」燈光音樂匯演今晚暫停。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm)
 
 ---
