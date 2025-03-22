@@ -1,3 +1,27 @@
+# 美國將限制加國人進入跨境圖書館　指圖書館運作帶來邊境安全風險
+
+![圖書館建於1904年，美加國界穿過圖書館。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796959_1_20250322205734.jpg&q=80)
+  
+
+加拿大廣播公司報道，美國將限制加拿大人進入一座地標式的跨境圖書館，引發兩國邊境地區民眾強烈不滿。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796959-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796959-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796959-20250322.htm)
+
+---
+
 # 新華社：特朗普政府「交易外交」陷入僵局
 
 ![新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796957_1_20250322203746.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796698-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796698-20250321.htm)
-
----
-
-# 歐盟對美關稅反制措施將推遲至下月中旬統一實施
-
-![歐盟表示，對美國部分商品徵收反制關稅的措施將推遲至下月中統一生效。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796696_1_20250321064205.jpg&q=90)
-  
-
-歐盟委員會發言人吉爾說，歐盟對美國部分商品徵收反制關稅的措施將推遲至下月中統一生效，以便為與美國政府的討論提供更多時間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796696-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796696-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796696-20250321.htm)
 
 ---
