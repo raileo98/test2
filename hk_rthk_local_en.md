@@ -1,3 +1,27 @@
+# Online vehicle license renewals up by 80 percent
+
+![Vehicle owners can scan a QR code on the license to check the expiry date. Image: Transport Department's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796923_1_20250322151024.jpg&q=90)
+  
+
+The Transport Department on Saturday said it received almost 37,000 online applications for vehicle license renewals in the first two months of the year, a more than 80 percent year-on-year increase.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm)
+
+---
+
 # Scheme aims to identify patients with high cholesterol
 
 ![Pang Fei-chau said people have a much higher risk for cardiac disease if they have diabetes and high cholesterol at the same time. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796918_1_20250322131755.jpg&q=90)
@@ -1416,29 +1440,5 @@ Animal welfare groups on Monday held talks with MTR Corporation officials as the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796100-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796100-20250317.htm)
-
----
-
-# Police raid Mong Kok building 'in murder probe'
-
-![Officers carry out their operation at King Hing Building in Mong Kok. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796085_1_20250317172150.jpg&q=85)
-  
-
-Police on Monday raided a building in Mong Kok, with sources saying the operation was linked to a murder case in Fo Tan the day before.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796085-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796085-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796085-20250317.htm)
 
 ---

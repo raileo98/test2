@@ -1,3 +1,27 @@
+# Online vehicle license renewals up by 80 percent
+
+![Vehicle owners can scan a QR code on the license to check the expiry date. Image: Transport Department's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796923_1_20250322151024.jpg&q=90)
+  
+
+The Transport Department on Saturday said it received almost 37,000 online applications for vehicle license renewals in the first two months of the year, a more than 80 percent year-on-year increase.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm)
+
+---
+
 # Scheme aims to identify patients with high cholesterol
 
 ![Pang Fei-chau said people have a much higher risk for cardiac disease if they have diabetes and high cholesterol at the same time. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796918_1_20250322131755.jpg&q=90)
@@ -1412,29 +1436,5 @@ China said on Thursday it acted in accordance with the law over the execution of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm)
-
----
-
-# Net profit at CK Hutchison down 27pc
-
-![CK Hutchison posts a 2024 net profit of HK$17 billion. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796631_1_20250320173808.jpg&q=90)
-  
-
-CK Hutchison has reported a 27 percent drop in net profit.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796631-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796631-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796631-20250320.htm)
 
 ---

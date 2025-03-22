@@ -1,3 +1,26 @@
+# 王毅稱中日韓要深化經貿合作　推動科技創新及擴大人文交流
+
+  
+
+中日韓在東京舉行外長會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm)
+
+---
+
 # 王毅晤日本外相　強調應正視歷史並積極推動關係改善和發展
 
 ![外長王毅與日本外相岩屋毅在東京會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796922_1_20250322145841.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm)
-
----
-
-# 南韓憲法法院下周一就韓悳洙彈劾案宣判
-
-![南韓憲法法院將於下周一上午就韓悳洙的彈劾案宣判。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796649_1_20250320183505.jpg&q=90)
-  
-
-南韓憲法法院宣布，將於下周一上午10時就總理韓悳洙的彈劾案宣判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796649-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796649-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796649-20250320.htm)
 
 ---
