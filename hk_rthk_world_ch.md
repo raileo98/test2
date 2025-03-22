@@ -1,3 +1,27 @@
+# 德國總統簽署憲法修正案放寬「債務煞車」限制
+
+![修正案允許政府大規模舉債，投資國防和基礎設施建設。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796985_1_20250323051401.jpg&q=90)
+  
+
+德國總統施泰因邁爾簽署憲法修正案，允許政府大規模舉債，投資國防和基礎設施建設。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796985-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796985-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796985-20250323.htm)
+
+---
+
 # 以軍向黎巴嫩南主黨目標發動兩輪空襲　報復火箭彈襲擊
 
 ![以軍報復襲擊，黎巴嫩南部升起濃。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796984_1_20250323044756.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm)
-
----
-
-# 希斯路機場當地周五全日關閉　當局警告未來數天會嚴重混亂
-
-![希斯路機場因附近變電站大火，在當地星期五全日關閉。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796792_1_20250321155931.jpg&q=90)
-  
-
-英國倫敦希斯路機場因附近變電站大火，在當地星期五全日關閉。有航班追蹤網站估計，全日至少超過1350架次往返希斯路機場的航班可能取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796792-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796792-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796792-20250321.htm)
 
 ---
