@@ -1,3 +1,26 @@
+# 丘應樺：美國做法「日新月異」　向世貿提出申訴需時準備
+
+  
+
+特區政府就美國對華產品加徵關稅，範圍包括香港產品，決定向世貿組織提出申訴。商務及經濟發展局局長丘應樺表示，美國的做法「日新月異」，特區政府要審視情況發展，需要時間準備，準備好就會提出申訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm)
+
+---
+
 # 石破茂：強化防衛力量對加強日本威懾力是不可或缺
 
 ![石破茂到神奈川縣橫須賀市出席防衛大學畢業典禮並致辭。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796934_1_20250322173725.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm)
-
----
-
-# 王毅晤石破茂　促日方切實履行在歷史和台灣問題上政治承諾
-
-![王毅在東京與日本首相石破茂會面。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796858_1_20250321235157.jpg&q=90)
-  
-
-訪問日本的中共中央政治局委員、外長王毅在東京與日本首相石破茂會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm)
 
 ---

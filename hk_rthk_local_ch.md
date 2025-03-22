@@ -1,3 +1,26 @@
+# 丘應樺：美國做法「日新月異」　向世貿提出申訴需時準備
+
+  
+
+特區政府就美國對華產品加徵關稅，範圍包括香港產品，決定向世貿組織提出申訴。商務及經濟發展局局長丘應樺表示，美國的做法「日新月異」，特區政府要審視情況發展，需要時間準備，準備好就會提出申訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm)
+
+---
+
 # 保險業聯會指　如所買之旅遊保把機場關閉列為指定風險則可受保障
 
 ![香港保險業聯會表示，如果所買的旅遊保險將機場關閉列為指定風險，投保人即可受到旅遊保險保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796931_1_20250322174226.jpg&q=90)
@@ -1422,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796774-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796774-20250321.htm)
-
----
-
-# 立法會功能界別選舉可用點票機及結算表　選舉法例修訂下周交立會
-
-![政府刊憲，就現行選舉法例提出修訂，以確保今年稍後舉行的選舉委員會界別分組補選，以及立法會換屆選舉能順利進行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796772_1_20250321134215.jpg&q=90)
-  
-
-政府刊憲，就現行選舉法例提出修訂，以確保今年稍後舉行的選舉委員會界別分組補選，以及立法會換屆選舉能順利進行，草案將於下星期三提交立法會首讀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796772-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796772-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796772-20250321.htm)
 
 ---
