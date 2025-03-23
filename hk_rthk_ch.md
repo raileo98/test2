@@ -1,3 +1,26 @@
+# 陳美寶稱市區設無人機起降點有限制　正籌備載人項目相關修例
+
+  
+
+運輸及物流局局長陳美寶表示，低空經濟「監管沙盒」首批試點項目，部分以科學園、數碼港及醫院範圍為試點，累積足夠數據及信心後，或可擴大試驗至園區附近，例如跨海至對岸。被問到下一階段會否有載人項目，例如空中的士，陳美寶說，政府正籌備相關修例，包括無人機的負載水平，有待修例通過，相信可以更好籌備載人項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797016-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797016-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797016-20250323.htm)
+
+---
+
 # 韓文秀稱擴大服務消費　形成高質量發展與高品質生活相互促進
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796943-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796943-20250322.htm)
-
----
-
-# 保良局羅傑承（一九八三）中學肇慶交流團　有師生現嘔吐發燒徵狀
-
-![校方表示，已即時通知教育局、衞生防護中心及相關家長，並啟動危機處理機制。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796940_1_20250322184013.jpg&q=85)
-  
-
-保良局羅傑承（一九八三）中學的120名中五學生，本星期四至今日參加肇慶交流團，其中部分學生及老師自昨晚起出現嘔吐及發燒等病徵，學校隨即安排學生及老師前往當地醫院接受治療，經診治後師生情況穩定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796940-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796940-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796940-20250322.htm)
 
 ---

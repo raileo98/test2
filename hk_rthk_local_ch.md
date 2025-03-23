@@ -1,3 +1,26 @@
+# 陳美寶稱市區設無人機起降點有限制　正籌備載人項目相關修例
+
+  
+
+運輸及物流局局長陳美寶表示，低空經濟「監管沙盒」首批試點項目，部分以科學園、數碼港及醫院範圍為試點，累積足夠數據及信心後，或可擴大試驗至園區附近，例如跨海至對岸。被問到下一階段會否有載人項目，例如空中的士，陳美寶說，政府正籌備相關修例，包括無人機的負載水平，有待修例通過，相信可以更好籌備載人項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797016-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797016-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797016-20250323.htm)
+
+---
+
 # 泰國抵港旅客行李藏有懷疑大麻花　於機場被捕
 
 ![海關在機場一個寄艙行李檢獲的懷疑大麻花。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797012_2_20250323130909.jpg&q=90)
@@ -1422,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm)
-
----
-
-# 國泰：晚上本港起飛CX251及CX255如常前往倫敦
-
-![國泰航空表示，晚上分別10時許及11時許起飛的CX251及CX255，會如常前往倫敦 。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796845_1_20250321211229.jpg&q=80)
-  
-
-英國倫敦希斯路機場因附近變電站大火臨時關閉。國泰航空表示，晚上分別10時許及11時許起飛的CX251及CX255，會如常前往倫敦 。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796845-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796845-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796845-20250321.htm)
 
 ---
