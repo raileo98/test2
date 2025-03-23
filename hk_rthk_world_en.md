@@ -1,3 +1,27 @@
+# Istanbul court formally arrests mayor amid protests
+
+![Turkish people take to the streets to protest the arrest of Ekrem Imamoglu, Istanbul mayor and CHP's presidential race candidate, in Kayseri, Turkey. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797031_1_20250323164214.jpg&q=75)
+  
+
+A Turkish court formally placed Istanbul Mayor Ekrem Imamoglu under arrest as part of a graft investigation on Sunday, after a fourth night of mass protests sparked heavy clashes with riot police.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm)
+
+---
+
 # Protests continue in Turkey after mayor arrested
 
 ![A protester in Istanbul waves Turkey's national flag. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796993_1_20250323083846.jpg&q=90)
@@ -1411,29 +1435,5 @@ At least seven people were killed on Monday when a small plane crashed into the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm)
-
----
-
-# Scores dead in new Israeli strikes against Hamas
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796187_1_20250318093845.jpg&q=90)
-  
-
-Israel launched new strikes against Hamas on Tuesday and promised "increasing military force" after talks on further hostage releases stalled.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796187-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796187-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796187-20250318.htm)
 
 ---

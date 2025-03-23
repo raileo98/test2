@@ -1,3 +1,27 @@
+# Istanbul court formally arrests mayor amid protests
+
+![Turkish people take to the streets to protest the arrest of Ekrem Imamoglu, Istanbul mayor and CHP's presidential race candidate, in Kayseri, Turkey. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797031_1_20250323164214.jpg&q=75)
+  
+
+A Turkish court formally placed Istanbul Mayor Ekrem Imamoglu under arrest as part of a graft investigation on Sunday, after a fourth night of mass protests sparked heavy clashes with riot police.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm)
+
+---
+
 # China prepared for "shocks" of trade war: Premier Li
 
 ![Delivering the opening address to the China Development Forum, Premier Li called on global executives to capture opportunities from the nation's renewed innovation drive. Photo: www.fmprc.gov.cn](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797024_1_20250323152102.jpg&q=90)
@@ -1413,29 +1437,5 @@ Third seed Coco Gauff crushed fellow American Sofia Kenin 6-0 6-0 at the Miami O
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796739-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796739-20250321.htm)
-
----
-
-# China gears up for F1 fever this weekend
-
-![McLaren's Lando Norris arrives in Shanghai atop the drivers’ standings for the first time. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796732_1_20250321100549.jpg&q=90)
-  
-
-McLaren’s dominance, Lewis Hamilton’s bid to bounce back after a disappointing debut for Ferrari, and the passing of Eddie Jordan have generated headlines as Formula 1 prepares for its first "Sprint weekend" of the season at the Chinese Grand Prix on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796732-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796732-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796732-20250321.htm)
 
 ---
