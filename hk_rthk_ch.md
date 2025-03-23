@@ -1,3 +1,27 @@
+# 美股本周焦點於PCE物價指數及經濟增長數據
+
+![美股本周焦點在於美國去年第4季經濟增長、PCE物價指數等數據。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797073_1_20250324054235.jpg&q=90)
+  
+
+美股3大指數上星期累計都止跌回升，升幅介乎近0.2%至1.2%，道指升幅最大，創兩個月以來最大單星期升幅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797073-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797073-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797073-20250324.htm)
+
+---
+
 # 烏方形容與美方會談富有成效　澤連斯基籲向俄羅斯施壓
 
 ![烏梅羅夫形容，會談富有成效。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797072_1_20250324051353.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797000-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797000-20250323.htm)
-
----
-
-# 李強：各國經濟碎片化加劇　中國積極推動普惠包容經濟全球化
-
-![李強表示，脫鈎斷鏈只能加劇危機，打壓遏制終將損人害己。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796999_1_20250323114206.jpg&q=90)
-  
-
-一連兩日的中國發展高層論壇在北京釣魚台國賓館召開。國務院總理李強在開幕式致辭時表示，當今世界經濟碎片化加劇，不穩定性和不確定性上升，各國應更加開放市場，企業更多共享資源，攜手抵禦風險挑戰，實現共同繁榮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm)
 
 ---

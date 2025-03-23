@@ -1,3 +1,27 @@
+# 美股本周焦點於PCE物價指數及經濟增長數據
+
+![美股本周焦點在於美國去年第4季經濟增長、PCE物價指數等數據。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797073_1_20250324054235.jpg&q=90)
+  
+
+美股3大指數上星期累計都止跌回升，升幅介乎近0.2%至1.2%，道指升幅最大，創兩個月以來最大單星期升幅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797073-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797073-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797073-20250324.htm)
+
+---
+
 # 李強：沒哪個國家的繁榮靠加關稅實現　只能靠開放靠合作
 
 ![李強會見美國國會參議員戴安斯及部分美國企業界人士。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797068_1_20250324031706.jpg&q=80)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm)
-
----
-
-# 港股半日跌486點　科指急挫近3%
-
-![恒生指數跌幅一度擴大至逾560點，半日收報23733點，跌486點，跌幅2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796757_1_20250321121523.jpg&q=40)
-  
-
-港股連跌兩日，恒生指數失守24000點關口後，跌幅一度擴大至逾560點，半日收報23733點，跌486點，跌幅2%，主板成交額約1757億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796757-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796757-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796757-20250321.htm)
 
 ---
