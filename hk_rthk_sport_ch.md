@@ -1,5 +1,8 @@
 # 歐國聯4強產生德國對葡萄牙　西班牙硬撼法國
 
+![基斯坦奴朗拿度帶領葡萄牙晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797079_1_20250324072025.jpg&q=90)
+![法國隊成功逆轉，反勝克羅地亞晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797079_2_20250324072025.jpg&q=90)
+![德國次回合被逼和，但仍然晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797079_3_20250324072025.jpg&q=90)
   
 
 歐國聯4強產生，德國將對葡萄牙，西班牙將硬撼法國。

@@ -1,3 +1,29 @@
+# 歐國聯4強產生德國對葡萄牙　西班牙硬撼法國
+
+![基斯坦奴朗拿度帶領葡萄牙晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797079_1_20250324072025.jpg&q=90)
+![法國隊成功逆轉，反勝克羅地亞晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797079_2_20250324072025.jpg&q=90)
+![德國次回合被逼和，但仍然晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797079_3_20250324072025.jpg&q=90)
+  
+
+歐國聯4強產生，德國將對葡萄牙，西班牙將硬撼法國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797079-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797079-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797079-20250324.htm)
+
+---
+
 # 中石化去年盈利跌16%　創4年新低
 
 ![按國際財務報告準則，中石化去年盈利489.4億元人民幣，按年跌16%，創4年新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797076_1_20250324055906.jpg&q=90)
@@ -1412,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm)
-
----
-
-# 烏克蘭和俄羅斯分別遭無人機襲擊造成死傷
-
-![烏克蘭表示，首都基輔星期日遭到俄羅斯無人機襲擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797001_1_20250323103313.jpg&q=90)
-  
-
-烏克蘭和俄羅斯分別指責對方發動無人機襲擊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm)
 
 ---
