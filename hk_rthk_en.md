@@ -1,3 +1,27 @@
+# Filipino teenager Eala sends Keys packing in Miami
+
+![Eala is the first Filipino woman in the Open Era to beat a top-10 opponent since 1975. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797077_1_20250324055913.jpg&q=90)
+  
+
+Fifth-seeded American Madison Keys, the Australian Open champion, crashed out of the Miami Open suffering a shock loss to 19-year-old Filipino wildcard Alexandra Eala.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm)
+
+---
+
 # Hamas official killed as Gaza death toll passes 50,000
 
 ![Palestinians attend the funeral of Hamas political leader Salah al-Bardaweel. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797059_1_20250323233123.jpg&q=80)
@@ -1413,29 +1437,5 @@ Lando Norris was fastest in practice on Friday for the Chinese Grand Prix, the c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796771-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796771-20250321.htm)
-
----
-
-# HK$3bn scheme to support academic research: CE
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796766_1_20250321125749.jpg&q=80)
-  
-
-Chief Executive John Lee on Friday said the city will soon launch a HK$3 billion scheme to support local academic and scientific research, as authorities ramp up efforts to transition Hong Kong into a global innovation and technology centre.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm)
 
 ---

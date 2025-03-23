@@ -1,3 +1,27 @@
+# Filipino teenager Eala sends Keys packing in Miami
+
+![Eala is the first Filipino woman in the Open Era to beat a top-10 opponent since 1975. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797077_1_20250324055913.jpg&q=90)
+  
+
+Fifth-seeded American Madison Keys, the Australian Open champion, crashed out of the Miami Open suffering a shock loss to 19-year-old Filipino wildcard Alexandra Eala.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm)
+
+---
+
 # Norway's Jakob Ingebrigtsen wins 1,500m in Nanjing
 
 ![Norway’s Jakob Ingebrigtsen celebrates after winning the men’s 1500m final during the Indoor World Athletics Championships in Nanjing, Jiangsu province. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797058_1_20250323214422.jpg&q=90)
@@ -1414,29 +1438,5 @@ Real Madrid produced a gritty display to reach the Champions League quarter-fina
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm)
-
----
-
-# Cavs beat Nets for second 15-game win streak of season
-
-![Darius Garland scored 18 of his 30 points in the fourth quarter. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795390_1_20250312121604.jpg&q=90)
-  
-
-Darius Garland scored 30 points as the Cleveland Cavaliers staged a double-digit comeback to bag their 15th straight victory with a 109-104 defeat of the Brooklyn Nets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795390-20250312.htm)
 
 ---
