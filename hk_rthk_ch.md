@@ -1,3 +1,27 @@
+# 土國民眾聲援伊斯坦布爾市長　法國稱囚禁伊馬姆奧盧嚴重攻擊民主
+
+![首都安卡拉有民眾上街聲援伊馬姆奧盧。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797075_1_20250324055719.jpg&q=90)
+  
+
+土耳其全國多處連續第五晚有民眾上街，聲援因貪污指控被羈押的伊斯坦布爾市長伊馬姆奧盧。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797075-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797075-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797075-20250324.htm)
+
+---
+
 # 美股本周焦點於PCE物價指數及經濟增長數據
 
 ![美股本周焦點在於美國去年第4季經濟增長、PCE物價指數等數據。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797073_1_20250324054235.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm)
-
----
-
-# 楊何蓓茵：維護國家安全　公務員更責無旁貸
-
-![楊何蓓茵說，公務員作為行政機關的一員，在執行職能時需將國家安全放在首位。（楊何蓓茵社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797000_1_20250323104247.jpg&q=85)
-  
-
-公務員事務局局長楊何蓓茵表示，未來3個月，有多個與國家安全有關的重要日子，包括《維護國家安全條例》刊憲生效一周年，下月15日將迎來第十個「全民國家安全教育日」，以及《香港國安法》於6月30日生效五周年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797000-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797000-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797000-20250323.htm)
 
 ---
