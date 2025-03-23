@@ -1,3 +1,146 @@
+# 科技園：低空經濟「監管沙盒」試點項目實際操作冀下月有定論
+
+![黃克強說，由於屬試點項目，運送的物品會較簡單，但仍在討論。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797003_1_20250323105219.jpg&q=90)
+  
+
+首批低空經濟「監管沙盒」部分試點項目下月率先推出，包括以科學園為試點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm)
+
+---
+
+# 烏克蘭和俄羅斯分別遭無人機襲擊造成死傷
+
+![烏克蘭表示，首都基輔星期日遭到俄羅斯無人機襲擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797001_1_20250323103313.jpg&q=90)
+  
+
+烏克蘭和俄羅斯分別指責對方發動無人機襲擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm)
+
+---
+
+# 陳茂波：文化創意產業發展帶來龐大商機　香港擁許多獨特優勢
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797002_1_20250323103757.jpg&q=85)
+  
+
+一連兩日的「中國發展高層論壇」早上在北京召開，財政司司長陳茂波表示，應邀到北京出席論壇，並會在其中一個專題研討會上，就如何透過改革激發增長動能發表主旨演講。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm)
+
+---
+
+# 楊何蓓茵：維護國家安全　公務員更責無旁貸
+
+![楊何蓓茵說，公務員作為行政機關的一員，在執行職能時需將國家安全放在首位。（楊何蓓茵社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797000_1_20250323104247.jpg&q=85)
+  
+
+公務員事務局局長楊何蓓茵表示，未來3個月，有多個與國家安全有關的重要日子，包括《維護國家安全條例》刊憲生效一周年，下月15日將迎來第十個「全民國家安全教育日」，以及《香港國安法》於6月30日生效五周年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797000-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797000-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797000-20250323.htm)
+
+---
+
+# 李強：各國經濟碎片化加劇　中國積極推動普惠包容經濟全球化
+
+  
+
+一連兩日的中國發展高層論壇在北京釣魚台國賓館召開。國務院總理李強在開幕式致辭時表示，當今世界經濟碎片化加劇，不穩定性和不確定性上升，各國應更加開放市場，企業更多共享資源，攜手抵禦風險挑戰，實現共同繁榮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm)
+
+---
+
+# 李強：制定出台民營經濟促進法　讓企業家放心幹事創業
+
+![李強表示，制定出台民營經濟促進法，可以讓企業家放心創業。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796998_1_20250323095814.jpg&q=90)
+  
+
+中國發展高層論壇2025年年會早上在北京開幕，國務院總理李強發表主旨演講時表示，今年經濟增長目標設定為5%左右，既是源於對中國經濟基礎條件的深刻把握，也源於對自身治理能力和未來發展潛力的堅定信心，將注重加大政策力度，結合激發市場力量，努力實現預期目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm)
+
+---
+
 # 天水圍田廈路貨倉火警　經調查無證據顯示涉及刑事
 
 ![天水圍田廈路一個貨倉昨晚發生火警，焚燒約3小時後被救熄。（香港消防處社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796997_1_20250323093246.jpg&q=90)
@@ -48,6 +191,7 @@
 
 # 總理李強在中國發展高層論壇發表主旨演講
 
+![李強去年出席中國發展高層論壇年會開幕式發表主題演講。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796995_1_20250323094328.jpg&q=85)
   
 
 中國發展高層論壇2025年年會早上在北京舉行開幕式，國務院總理李強發表主旨演講。
@@ -216,12 +360,10 @@
 
 # 以軍向黎巴嫩真主黨目標發動兩輪空襲　報復火箭彈襲擊
 
-![以軍報復襲擊，黎巴嫩南部升起濃。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796984_1_20250323044756.jpg&q=90)
+![以軍報復襲擊，黎巴嫩南部升起濃煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796984_1_20250323044756.jpg&q=90)
   
 
 以色列軍方說，攔截來自黎巴嫩的火箭彈後，炮擊並空襲黎巴嫩南部作為回應，打擊黎巴嫩真主黨的目標。
-  
-黎巴嫩國家通訊社報道，以軍的襲擊在沿海城市提爾等地，造成多人傷亡。
 
   
 
@@ -242,7 +384,7 @@
 
 # 哈馬斯：只要以色列持續佔領　哈馬斯就不會解除武裝
 
-![哈馬斯高級官員表示，只要以色列持續對巴勒斯坦進行佔領，這樣的提議就毫無意義。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796983_1_20250323041154.jpg&q=85)
+![哈馬斯高級官員表示，只要以色列持續對巴勒斯坦進行佔領，哈馬斯就不會解除武裝。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796983_1_20250323041154.jpg&q=85)
   
 
 針對美國中東問題特使威特科夫要求巴勒斯坦武裝組織哈馬斯解除武裝的提議，哈馬斯高級官員胡薩姆接受巴勒斯坦《聖城新聞網》採訪時表示，只要以色列持續對巴勒斯坦進行佔領，這樣的提議就毫無意義。
@@ -1296,148 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm)
-
----
-
-# 衞生署調查一名女子深度鎮靜麻醉下拔牙未能復甦　需送院仍危殆
-
-![衞生署接獲一宗由一間牙科日間醫療中心呈報的醫療風險警示事件，涉及一名35歲女病人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796929_1_20250322163308.jpg&q=90)
-  
-
-衞生署接獲一宗由一間牙科日間醫療中心呈報的醫療風險警示事件，涉及一名35歲女病人，她於今年1月22日在涉事的牙科日間醫療中心，在深度鎮靜麻醉的程序下進行外科手術拔牙，期間未能從鎮靜狀態下復甦，被送往急症室救治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796929-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796929-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796929-20250322.htm)
-
----
-
-# 倫敦希斯路機場全面恢復運作　行政總裁稱無法百分百預防突發事件
-
-![倫敦希斯路機場全面恢復運作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796928_1_20250322163548.jpg&q=90)
-  
-
-英國倫敦希斯路機場因附近變電站大火停電，機場關閉大半日後，逐步恢復航班升降，並在星期六全面恢復運作。倫敦警方說，初步相信火警沒有可疑。倫敦消防局表示，調查將聚焦在配電設備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm)
-
----
-
-# 王毅晤林芳正　冀日方樹立正確對華認知並於重大問題排除雜音干擾
-
-  
-
-中共中央政治局委員、外長王毅在東京，會見日本內閣官房長官林芳正。王毅說中方願意與日方共同落實國家主席習近平與日本首相石破茂之前在利馬會晤達成的重要共識，按照中日四個政治文件全面推進戰略互惠關係；文件就妥善處理歷史與台灣問題，立下規矩，希望日方樹立正確對華認知，在重大原則問題上重信守諾，排除雜音干擾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796926-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796926-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796926-20250322.htm)
-
----
-
-# 王毅稱中日韓要深化經貿合作　推動科技創新及擴大人文交流
-
-![中日韓外長在東京會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796924_1_20250322154611.jpg&q=90)
-  
-
-中日韓在東京舉行外長會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm)
-
----
-
-# 王毅晤日本外相　強調應正視歷史並積極推動關係改善和發展
-
-![外長王毅與日本外相岩屋毅在東京會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796922_1_20250322145841.jpg&q=90)
-  
-
-中共中央政治局委員兼外長王毅，與日本外相岩屋毅在東京會面，討論雙邊關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm)
-
----
-
-# 日本政府就富士山爆發降火山灰公布應對方案
-
-![日本政府公布富士山一旦爆發引發火山灰沉積的應對方案。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796921_1_20250322140722.jpg&q=90)
-  
-
-日本政府公布富士山一旦爆發引發火山灰沉積的應對方案，根據不同嚴重程度擬定四套對策，是日本政府首次就富士山降灰發布應對方案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796921-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796921-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796921-20250322.htm)
 
 ---

@@ -1,5 +1,101 @@
+# 科技園：低空經濟「監管沙盒」試點項目實際操作冀下月有定論
+
+![黃克強說，由於屬試點項目，運送的物品會較簡單，但仍在討論。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797003_1_20250323105219.jpg&q=90)
+  
+
+首批低空經濟「監管沙盒」部分試點項目下月率先推出，包括以科學園為試點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm)
+
+---
+
+# 陳茂波：文化創意產業發展帶來龐大商機　香港擁許多獨特優勢
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797002_1_20250323103757.jpg&q=85)
+  
+
+一連兩日的「中國發展高層論壇」早上在北京召開，財政司司長陳茂波表示，應邀到北京出席論壇，並會在其中一個專題研討會上，就如何透過改革激發增長動能發表主旨演講。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm)
+
+---
+
+# 李強：各國經濟碎片化加劇　中國積極推動普惠包容經濟全球化
+
+  
+
+一連兩日的中國發展高層論壇在北京釣魚台國賓館召開。國務院總理李強在開幕式致辭時表示，當今世界經濟碎片化加劇，不穩定性和不確定性上升，各國應更加開放市場，企業更多共享資源，攜手抵禦風險挑戰，實現共同繁榮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm)
+
+---
+
+# 李強：制定出台民營經濟促進法　讓企業家放心幹事創業
+
+![李強表示，制定出台民營經濟促進法，可以讓企業家放心創業。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796998_1_20250323095814.jpg&q=90)
+  
+
+中國發展高層論壇2025年年會早上在北京開幕，國務院總理李強發表主旨演講時表示，今年經濟增長目標設定為5%左右，既是源於對中國經濟基礎條件的深刻把握，也源於對自身治理能力和未來發展潛力的堅定信心，將注重加大政策力度，結合激發市場力量，努力實現預期目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm)
+
+---
+
 # 總理李強在中國發展高層論壇發表主旨演講
 
+![李強去年出席中國發展高層論壇年會開幕式發表主題演講。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796995_1_20250323094328.jpg&q=85)
   
 
 中國發展高層論壇2025年年會早上在北京舉行開幕式，國務院總理李強發表主旨演講。
@@ -1340,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm)
-
----
-
-# 陳美寶冀無人機為偏遠居民送物資　北都研預留空間發展低空經濟
-
-![陳美寶表示，試驗項目包括物流配送，期望未來為在離島或偏遠地區的居民，由無人機配送物資。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796730_1_20250321110104.jpg&q=90)
-  
-
-低空經濟有38個沙盒項目獲批，運輸及物流局局長陳美寶表示，除了試驗安全配套，亦要考慮起落點等設施、數據監察、無人機定位等，希望可從中試驗及累積經驗。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796730-20250321.htm)
-
----
-
-# 人行開展930億元人民幣逆回購操作
-
-![人行公開市場開展930億元人民幣7日期逆回購操作，單日淨回籠877億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796724_1_20250321093049.jpg&q=80)
-  
-
-人民銀行公開市場開展930億元人民幣7日期逆回購操作，利率維持於1.5厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796724-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796724-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796724-20250321.htm)
-
----
-
-# 內地股市初段偏軟
-
-![上證綜合指數較早時報3407點，跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796726_1_20250321093417.jpg&q=90)
-  
-
-滬深股市在開市初段偏軟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796726-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796726-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796726-20250321.htm)
-
----
-
-# 人民幣兌美元中間價微跌至逾兩個月低位
-
-![人民幣中間價報7.176兌1美元，跌6點子，創逾兩個月低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796720_1_20250321091954.jpg&q=85)
-  
-
-人民幣中間價報7.176兌1美元，較上日中間價跌6點子，創逾兩個月低位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796720-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796720-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796720-20250321.htm)
 
 ---

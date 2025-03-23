@@ -1,5 +1,53 @@
+# 李強：各國經濟碎片化加劇　中國積極推動普惠包容經濟全球化
+
+  
+
+一連兩日的中國發展高層論壇在北京釣魚台國賓館召開。國務院總理李強在開幕式致辭時表示，當今世界經濟碎片化加劇，不穩定性和不確定性上升，各國應更加開放市場，企業更多共享資源，攜手抵禦風險挑戰，實現共同繁榮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm)
+
+---
+
+# 李強：制定出台民營經濟促進法　讓企業家放心幹事創業
+
+![李強表示，制定出台民營經濟促進法，可以讓企業家放心創業。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796998_1_20250323095814.jpg&q=90)
+  
+
+中國發展高層論壇2025年年會早上在北京開幕，國務院總理李強發表主旨演講時表示，今年經濟增長目標設定為5%左右，既是源於對中國經濟基礎條件的深刻把握，也源於對自身治理能力和未來發展潛力的堅定信心，將注重加大政策力度，結合激發市場力量，努力實現預期目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm)
+
+---
+
 # 總理李強在中國發展高層論壇發表主旨演講
 
+![李強去年出席中國發展高層論壇年會開幕式發表主題演講。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796995_1_20250323094328.jpg&q=85)
   
 
 中國發展高層論壇2025年年會早上在北京舉行開幕式，國務院總理李強發表主旨演講。
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm)
-
----
-
-# 梁振英：冀媒體商會等發揮好溝通功能　讓大家知道大灣區最新政策
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796441_1_20250319172302.jpg&q=90)
-  
-
-全國政協副主席梁振英在一個有關大灣區創新科技論壇致辭表示，希望媒體、商會、專業團體等，必須發揮好溝通功能，讓大家知道粵港澳大灣區城市最新政策和發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796441-20250319.htm)
-
----
-
-# 中國疾控中心稱3月份是諾如病毒流行季節　籲勤洗手注意飲食安全
-
-![常昭瑞又不同意坊間所指，感染過一次諾如病毒後就不會再感染的說法，指感染產生的免疫保護作用持續時間較短，曾感染過的人士，之後仍有可能再次感染。(衛健委圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796439_1_20250319193816.jpg&q=90)
-  
-
-近日本港接連有參加内地交流團的學校師生出現急性腸胃炎徵狀，部分人對諾如病毒呈陽性反應。在北京，中國疾控中心研究員常昭瑞表示，3月份仍是諾如病毒流行季節，病毒可通過食用被污染的食物和水、間接接觸被污染的環境和物體表面等途徑傳播，呼籲勤洗手、注意飲食安全及做好消毒，學校及托兒機構等高風險場所要落實好日常防控措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796439-20250319.htm)
 
 ---

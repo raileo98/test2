@@ -1,3 +1,27 @@
+# 烏克蘭和俄羅斯分別遭無人機襲擊造成死傷
+
+![烏克蘭表示，首都基輔星期日遭到俄羅斯無人機襲擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797001_1_20250323103313.jpg&q=90)
+  
+
+烏克蘭和俄羅斯分別指責對方發動無人機襲擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm)
+
+---
+
 # 據報以軍炸死一名哈馬斯政治領導人
 
 ![據報以軍在空襲中炸死一名哈馬斯政治領導人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796994_1_20250323085352.jpg&q=90)
@@ -97,12 +121,10 @@
 
 # 以軍向黎巴嫩真主黨目標發動兩輪空襲　報復火箭彈襲擊
 
-![以軍報復襲擊，黎巴嫩南部升起濃。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796984_1_20250323044756.jpg&q=90)
+![以軍報復襲擊，黎巴嫩南部升起濃煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796984_1_20250323044756.jpg&q=90)
   
 
 以色列軍方說，攔截來自黎巴嫩的火箭彈後，炮擊並空襲黎巴嫩南部作為回應，打擊黎巴嫩真主黨的目標。
-  
-黎巴嫩國家通訊社報道，以軍的襲擊在沿海城市提爾等地，造成多人傷亡。
 
   
 
@@ -123,7 +145,7 @@
 
 # 哈馬斯：只要以色列持續佔領　哈馬斯就不會解除武裝
 
-![哈馬斯高級官員表示，只要以色列持續對巴勒斯坦進行佔領，這樣的提議就毫無意義。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796983_1_20250323041154.jpg&q=85)
+![哈馬斯高級官員表示，只要以色列持續對巴勒斯坦進行佔領，哈馬斯就不會解除武裝。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796983_1_20250323041154.jpg&q=85)
   
 
 針對美國中東問題特使威特科夫要求巴勒斯坦武裝組織哈馬斯解除武裝的提議，哈馬斯高級官員胡薩姆接受巴勒斯坦《聖城新聞網》採訪時表示，只要以色列持續對巴勒斯坦進行佔領，這樣的提議就毫無意義。
@@ -1413,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm)
-
----
-
-# 王毅與趙兌烈會談　稱中韓是分不開夥伴應更親近
-
-![王毅表示，中韓兩國是搬不走的鄰居，兩國應經常往來，更加親近。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796813_1_20250321172121.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在日本東京與南韓外長趙兌烈舉行會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm)
 
 ---
