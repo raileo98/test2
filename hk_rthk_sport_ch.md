@@ -1,4 +1,4 @@
-# 香港打吡大賽逾7.2萬人次入場創新高
+# 香港打吡大賽逾6.1萬人入沙田馬場創賽事新高
 
 ![馬場導賞團吸引不少內地旅客參加。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797055_1_20250323212139.jpg&q=85)
   
