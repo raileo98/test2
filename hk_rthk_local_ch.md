@@ -1,3 +1,26 @@
+# 黃澤林在邁阿密網球精英賽挫世界排名14舒爾頓　形容勝利屬香港
+
+  
+
+美國邁阿密網球公開賽，香港網球「一哥」黃澤林，在男單次圈以盤數2:1，淘汰世界排名14的美國球手舒爾頓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm)
+
+---
+
 # 盧煜明稱香港正值創科「黃金時期」　冀更多「尖子」來港發展
 
   
@@ -69,6 +92,7 @@
 
 # 蕭澤頤稱有些騙案是「當局者迷」　冀市民要提防及提醒身邊人
 
+![蕭澤頤表示，近數星期出現一些騙案令人感到愕然。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797021_1_20250323154428.jpg&q=80)
   
 
 警務處處長蕭澤頤表示，近數星期出現一些騙案令人感到愕然，例如有受害人在一年間被騙超過1300萬元，銀行及警方均曾提醒有關受害人留意是否遇到騙案，但受害人最終仍然被騙。他形容這些騙案，有時是「當局者迷、旁觀者清」，希望所有市民都要提防，並提醒身邊人留意。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796885-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796885-20250322.htm)
-
----
-
-# 外來車輛損毀架空電纜　天悅站附近輕鐵服務暫停
-
-![外來車輛損毀架空電纜　天悅站附近輕鐵服務暫停](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796884_1_20250322072932.jpg&q=90)
-  
-
-港鐵表示，受外來車輛損毀架空電纜影響，天悅站附近的輕鐵服務暫停，呼籲市民考慮使用其他交通工具，並為行程預留充裕時間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796884-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796884-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796884-20250322.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 黃澤林在邁阿密網球精英賽挫世界排名14舒爾頓　形容勝利屬香港
+
+  
+
+美國邁阿密網球公開賽，香港網球「一哥」黃澤林，在男單次圈以盤數2:1，淘汰世界排名14的美國球手舒爾頓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm)
+
+---
+
 # 盧煜明稱香港正值創科「黃金時期」　冀更多「尖子」來港發展
 
   
@@ -93,6 +116,7 @@
 
 # 蕭澤頤稱有些騙案是「當局者迷」　冀市民要提防及提醒身邊人
 
+![蕭澤頤表示，近數星期出現一些騙案令人感到愕然。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797021_1_20250323154428.jpg&q=80)
   
 
 警務處處長蕭澤頤表示，近數星期出現一些騙案令人感到愕然，例如有受害人在一年間被騙超過1300萬元，銀行及警方均曾提醒有關受害人留意是否遇到騙案，但受害人最終仍然被騙。他形容這些騙案，有時是「當局者迷、旁觀者清」，希望所有市民都要提防，並提醒身邊人留意。
@@ -1408,30 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm)
-
----
-
-# 陳茂波鼓勵內企利用香港拓展全球業務　在港開設更多實體銷售網絡
-
-![陳茂波（右二）到訪了一家內地領先的潮流文化娛樂公司，並與負責人會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_2_20250322202451.jpg&q=85)
-![陳茂波（右二）到訪一家專注於高精度人工智能產品研發應用的企業。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_1_20250322202451.jpg&q=85)
-  
-
-財政司司長陳茂波鼓勵內地企業利用香港國際化的資金、人才和專業服務，將業務拓展至全球，亦歡迎公司在香港開設更多實體銷售網絡，以及開拓更多元服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm)
 
 ---
