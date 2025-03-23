@@ -1,3 +1,26 @@
+# 中大醫院證實手術室天花曾漏水　不屬須呈報衞生署類別
+
+  
+
+香港中文大學醫院證實，醫院一個日間手術室早前在手術進行期間，曾出現天花板漏水情況，當時手術已進行最後階段，醫護團隊當時已即時作出適當措施，確保病人手術不受影響，而病人於術後亦獲適當監察及護理，術後情況沒有受影響並已康復。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm)
+
+---
+
 # 回應英國《衞報》評論文章　鄧炳強：特區政府反對誹謗法院
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm)
-
----
-
-# 輕鐵天悅站架空電纜受損影響電力供應　港鐵料需數小時修復
-
-![輕鐵天悅站架空電纜受損，港鐵正全力進行搶修，預計需要數個小時修復。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796904_1_20250322103357.jpg&q=75)
-  
-
-一輛吊臂車早上約7時，在輕鐵天悅站附近經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。港鐵正全力進行搶修，預計需要數個小時修復。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796904-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796904-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796904-20250322.htm)
 
 ---

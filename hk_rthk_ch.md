@@ -1,3 +1,72 @@
+# 中大醫院證實手術室天花曾漏水　不屬須呈報衞生署類別
+
+  
+
+香港中文大學醫院證實，醫院一個日間手術室早前在手術進行期間，曾出現天花板漏水情況，當時手術已進行最後階段，醫護團隊當時已即時作出適當措施，確保病人手術不受影響，而病人於術後亦獲適當監察及護理，術後情況沒有受影響並已康復。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm)
+
+---
+
+# 方濟各透過醫院病房窗口向信眾揮手致意　稱感謝所有人
+
+  
+
+因肺炎留醫羅馬傑梅利醫院的方濟各，在醫院病房透過窗口，向信眾揮手致意，並送上祝福，是他入院5個多星期以來，首次公開露面。報道指方濟各說感謝所有人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm)
+
+---
+
+# 回應英國《衞報》評論文章　鄧炳強：特區政府反對誹謗法院
+
+  
+
+英國《衞報》日前刊登評論文章，指出黎智英被阻撓選擇代表律師，而有關決定不受法律挑戰，等同賦予維護國家安全委員會所謂「警察國家」的權力。保安局局長鄧炳強去信《衞報》表達強烈反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm)
+
+---
+
 # 伊斯坦布爾市長稱不會低頭　團隊稱會就法庭羈押裁決提出上訴
 
   
@@ -1360,79 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796973-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796973-20250322.htm)
-
----
-
-# 解放軍駐港部隊參與植樹日活動　傳播環保意識增進與市民情感
-
-![官兵代表整齊列隊，與香港社會各界代表一起參加啓動典禮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796972_3_20250322224844.jpg&q=50)
-![官兵代表與香港小朋友一同植樹。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796972_1_20250322224844.jpg&q=30)
-![官兵代表與香港市民交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796972_2_20250322224844.jpg&q=40)
-  
-
-解放軍駐港部隊派出近200名官兵，與市民在元朗大欖郊野公園參與植樹日活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796972-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796972-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796972-20250322.htm)
-
----
-
-# 消委會暫接17宗投訴涉Coldplay香港演唱會需更換門票
-
-![消委會暫接獲17宗有關Coldplay香港演唱會需更換門票的投訴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796971_1_20250322223427.jpg&q=85)
-  
-
-消委會表示，截至晚上7時，接獲17宗有關Coldplay香港演唱會需更換門票的投訴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm)
-
----
-
-# 南韓東南部山火釀最少4名參與救火行動人員遇難
-
-![南韓東南部發生山火，至今造成4名救火人員遇難。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796970_1_20250322223736.jpg&q=90)
-  
-
-南韓東南部發生山火，至今造成4名救火人員遇難。因火勢猛烈，政府宣布受影響地區進入災難事態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm)
 
 ---

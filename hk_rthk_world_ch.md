@@ -1,3 +1,26 @@
+# 方濟各透過醫院病房窗口向信眾揮手致意　稱感謝所有人
+
+  
+
+因肺炎留醫羅馬傑梅利醫院的方濟各，在醫院病房透過窗口，向信眾揮手致意，並送上祝福，是他入院5個多星期以來，首次公開露面。報道指方濟各說感謝所有人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm)
+
+---
+
 # 伊斯坦布爾市長稱不會低頭　團隊稱會就法庭羈押裁決提出上訴
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796866-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796866-20250322.htm)
-
----
-
-# 王毅晤南韓外長　冀韓方奉行積極友好對華政策
-
-![王毅在日本東京會見共同出席第11次中日韓外長會的南韓外長趙兌烈。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796864_1_20250322032350.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在東京會見共同出席第11次中日韓外長會的南韓外長趙兌烈。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796864-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796864-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796864-20250322.htm)
 
 ---
