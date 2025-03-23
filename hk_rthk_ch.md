@@ -1,3 +1,27 @@
+# 佩斯科夫稱俄美總統商定必要時接觸　斥歐洲沒消除烏克蘭衝突根源
+
+![佩斯科夫表示，總統普京和美國總統特朗普商定在必要時繼續接觸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797061_1_20250324002812.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，總統普京和美國總統特朗普商定在必要時繼續接觸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797061-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797061-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797061-20250324.htm)
+
+---
+
 # 土耳其伊斯坦布爾市長被停職
 
 ![警方以胡椒噴霧驅散示威者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797060_1_20250324002017.jpg&q=75)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796984-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796984-20250323.htm)
-
----
-
-# 哈馬斯：只要以色列持續佔領　哈馬斯就不會解除武裝
-
-![哈馬斯高級官員表示，只要以色列持續對巴勒斯坦進行佔領，哈馬斯就不會解除武裝。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796983_1_20250323041154.jpg&q=85)
-  
-
-針對美國中東問題特使威特科夫要求巴勒斯坦武裝組織哈馬斯解除武裝的提議，哈馬斯高級官員胡薩姆接受巴勒斯坦《聖城新聞網》採訪時表示，只要以色列持續對巴勒斯坦進行佔領，這樣的提議就毫無意義。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm)
 
 ---

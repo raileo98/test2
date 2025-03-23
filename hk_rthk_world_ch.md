@@ -1,3 +1,27 @@
+# 佩斯科夫稱俄美總統商定必要時接觸　斥歐洲沒消除烏克蘭衝突根源
+
+![佩斯科夫表示，總統普京和美國總統特朗普商定在必要時繼續接觸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797061_1_20250324002812.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，總統普京和美國總統特朗普商定在必要時繼續接觸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797061-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797061-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797061-20250324.htm)
+
+---
+
 # 土耳其伊斯坦布爾市長被停職
 
 ![警方以胡椒噴霧驅散示威者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797060_1_20250324002017.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796875-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796875-20250322.htm)
-
----
-
-# 伊朗最高領袖：美國對伊朗採取任何惡意行為將受到沉重打擊
-
-![哈梅內伊發表談話時警告，如果美國對伊朗採取任何惡意行為，將受到沉重打擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796869_1_20250322032804.jpg&q=90)
-  
-
-伊朗最高領袖哈梅內伊警告，如果美國對伊朗採取任何惡意行為，將受到沉重打擊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796869-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796869-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796869-20250322.htm)
 
 ---
