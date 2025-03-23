@@ -1,3 +1,26 @@
+# 慢病共治90名醫生停收新症　彭飛舟稱不同醫生業務或會有變化
+
+  
+
+基層醫療健康專員彭飛舟表示，「慢性疾病共同治理先導計劃」有90名醫生停收新症。他解釋，不同醫生的業務可能有變化，例如在流感季節可能會較著重處理流感病人等，醫生甚至可能暫停接收新症，強調相關醫生會繼續跟進已配對的市民，又指當局一直與醫生有密切接觸，當他們完成調節業務後，可能會恢復接收新症。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm)
+
+---
+
 # 日本Sukiya鳥取縣分店味噌湯中發現老鼠　公司致歉
 
 ![Sukiya就鳥取縣分店味噌湯中發現老鼠事件道歉。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797023_1_20250323151453.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm)
-
----
-
-# 鄧炳強：要以居安思危意識及守正創新思維　推動香港全面發展
-
-![鄧炳強表示，推動《基本法》23條立法是他工作生涯的最大挑戰。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796950_1_20250322205138.jpg&q=90)
-  
-
-《維護國家安全條例》生效一年，保安局局長鄧炳強表示，推動《基本法》23條立法是他工作生涯的最大挑戰，他與律政司司長及副司長3人拼盡全力去做，當條例獲立法會通過，大家都覺得值得。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm)
 
 ---

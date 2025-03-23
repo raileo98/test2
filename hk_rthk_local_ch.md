@@ -1,3 +1,26 @@
+# 慢病共治90名醫生停收新症　彭飛舟稱不同醫生業務或會有變化
+
+  
+
+基層醫療健康專員彭飛舟表示，「慢性疾病共同治理先導計劃」有90名醫生停收新症。他解釋，不同醫生的業務可能有變化，例如在流感季節可能會較著重處理流感病人等，醫生甚至可能暫停接收新症，強調相關醫生會繼續跟進已配對的市民，又指當局一直與醫生有密切接觸，當他們完成調節業務後，可能會恢復接收新症。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm)
+
+---
+
 # 積金局舉辦全國兩會精神分享會　梁振英冀更積極主動發揮作用
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796878-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796878-20250322.htm)
-
----
-
-# 警方旺角反罪惡拘捕33人
-
-![警方在旺角一連兩日採取反罪惡行動，拘捕33人，圖為部分被捕人士。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796870_1_20250322034616.jpg&q=75)
-  
-
-警方在旺角一連兩日採取反罪惡行動，拘捕33人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796870-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796870-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796870-20250322.htm)
 
 ---
