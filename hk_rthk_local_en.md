@@ -1,3 +1,27 @@
+# Traveller arrested for carrying 10kg of cannabis buds
+
+![The man was found carrying 10 kilograms of suspected cannabis buds in his suitcase. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797038_1_20250323172952.jpg&q=85)
+  
+
+Customs have arrested an inbound traveller at the airport for allegedly smuggling cannabis buds into Hong Kong.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797038-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797038-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797038-20250323.htm)
+
+---
+
 # HK breast milk bank began feeding needy newborns
 
 ![Rosanna Wong, who heads Hong Kong's first breast milk bank, is upbeat about donation figures just two months after the facility began service. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797014_1_20250323125157.jpg&q=90)
@@ -1417,29 +1441,5 @@ Chief Executive John Lee announced on Tuesday that the Legislative Council gener
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796209-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796209-20250318.htm)
-
----
-
-# 'Changes in checkpoints for drivers need coordination'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796214_1_20250318121204.jpg&q=90)
-  
-
-Chief Executive John Lee on Tuesday said any changes to cross-border driving arrangements must prioritise traffic management and require careful coordination with mainland authorities.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796214-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796214-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796214-20250318.htm)
 
 ---

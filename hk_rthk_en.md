@@ -1,3 +1,51 @@
+# Traveller arrested for carrying 10kg of cannabis buds
+
+![The man was found carrying 10 kilograms of suspected cannabis buds in his suitcase. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797038_1_20250323172952.jpg&q=85)
+  
+
+Customs have arrested an inbound traveller at the airport for allegedly smuggling cannabis buds into Hong Kong.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797038-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797038-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797038-20250323.htm)
+
+---
+
+# McLaren's Piastri wins Chinese Grand Prix
+
+![McLaren's Oscar Piastri celebrates on the podium after winning the Chinese Grand Prix with second placed McLaren's Lando Norris and third placed Mercedes' George Russell. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797037_1_20250323172831.jpg&q=55)
+  
+
+Oscar Piastri led from pole to win the Chinese Grand Prix on Sunday as McLaren used a one-stop strategy to complete a dominant one-two with Lando Norris second.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm)
+
+---
+
 # Istanbul court formally arrests mayor amid protests
 
 ![Turkish people take to the streets to protest the arrest of Ekrem Imamoglu, Istanbul mayor and CHP's presidential race candidate, in Kayseri, Turkey. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797031_1_20250323164214.jpg&q=75)
@@ -1389,53 +1437,5 @@ Britain's Heathrow Airport on Friday said it would be closed until midnight afte
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796747-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796747-20250321.htm)
-
----
-
-# N Korea tests new anti-aircraft system
-
-![Kim Jong-un visits the Nampho Dockyard on Thursday in Nampho, North Korea. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796741_1_20250321110412.jpg&q=90)
-  
-
-North Korea test-fired its latest anti-aircraft missile system in a drill watched by leader Kim Jong-un, state media reported on Friday, as the nuclear-armed state lashed out at US-South Korea joint drills.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796741-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796741-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796741-20250321.htm)
-
----
-
-# Gauff breezes through in Miami as Rybakina falls
-
-![Naomi Osaka after winning a set against Liudmila Samsonova. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796739_1_20250321104637.jpg&q=90)
-  
-
-Third seed Coco Gauff crushed fellow American Sofia Kenin 6-0 6-0 at the Miami Open, the former U.S. Open champion producing a flawless display to reach the third round.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796739-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796739-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796739-20250321.htm)
 
 ---
