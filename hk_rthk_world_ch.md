@@ -1,3 +1,27 @@
+# 據報以軍炸死一名哈馬斯政治領導人
+
+![據報以軍在空襲中炸死一名哈馬斯政治領導人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796994_1_20250323085352.jpg&q=90)
+  
+
+巴勒斯坦傳媒報道，以色列在加沙南部汗尤尼斯發動的空襲，炸死了巴勒斯坦武裝組織哈馬斯政治領導人巴達維爾和他的妻子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796994-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796994-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796994-20250323.htm)
+
+---
+
 # 土耳其民眾連續4晚示威　抗議伊斯坦布爾市長被捕
 
 ![在伊斯坦布爾，民眾連續第4晚示威，抗議市長伊馬姆奧盧被捕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796990_1_20250323072356.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm)
-
----
-
-# 全日12班往來香港及倫敦希斯路機場航班　機管局籲留意最新情況
-
-![倫敦希斯路機場受附近變電站火警影響而需要暫停運作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796809_1_20250321172104.jpg&q=90)
-  
-
-機管局接獲通知，倫敦希斯路機場受附近變電站火警影響而需要暫停運作。今日全日共有12班來往香港及倫敦希斯路機場的航班。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796809-20250321.htm)
 
 ---
