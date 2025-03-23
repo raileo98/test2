@@ -1036,7 +1036,7 @@
 
 # 輕鐵天悅站受損架空電纜已復修　港鐵指服務逐步回復正常
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796908_1_20250322111938.jpg&q=75)
+![港鐵表示，輕鐵天悅站受損的架空電纜已復修，輕鐵服務逐步回復正常。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796908_1_20250322111938.jpg&q=75)
   
 
 港鐵表示，輕鐵天悅站受損的架空電纜已復修，輕鐵服務逐步回復正常。
