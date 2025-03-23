@@ -1,3 +1,27 @@
+# 中大研發自動化線控砌磚機械人投入運作
+
+![中大研發的自動化線控砌磚機械人用於重建校園内的再生園。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797064_1_20250324011548.jpg&q=65)
+  
+
+中大研發的自動化線控砌磚機械人投入運作，用於重建校園内的再生園。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797064-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797064-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797064-20250324.htm)
+
+---
+
 # 許勤訪西九文化區　參觀兩個博物館
 
 ![許勤（左二）與唐英年（右二）等人於M+合影。（唐英年提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797056_1_20250323212057.jpg&q=85)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm)
-
----
-
-# 鄧炳強：國際形勢複雜多變　要居安思危　推動香港全面發展
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796912_1_20250322125216.jpg&q=90)
-  
-
-《維護國家安全條例》生效一年，保安局局長鄧炳強出席民建聯新書發布記者會致辭表示，有人形容香港為一本很難讀的書，他相信《基本法》23條立法是最難讀的篇章。由於要對一國兩制的憲制秩序有深刻認識和理解，同時要對回歸以來外部勢力的干預及香港部分政治亂象有切膚之痛的人，才會感受到23條立法帶來的意義。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm)
 
 ---

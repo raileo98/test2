@@ -1,3 +1,27 @@
+# 中大研發自動化線控砌磚機械人投入運作
+
+![中大研發的自動化線控砌磚機械人用於重建校園内的再生園。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797064_1_20250324011548.jpg&q=65)
+  
+
+中大研發的自動化線控砌磚機械人投入運作，用於重建校園内的再生園。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797064-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797064-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797064-20250324.htm)
+
+---
+
 # 加拿大總理卡尼宣布解散議會　提前下月28日舉行大選
 
 ![卡尼宣布提前大選。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797063_1_20250324004656.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796988-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796988-20250323.htm)
-
----
-
-# 英國首相對以色列在加沙恢復軍事行動表示嚴重關切
-
-![以軍持續在加沙地帶展開地面行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796986_1_20250323062357.jpg&q=90)
-  
-
-英國首相施紀賢與約旦國王阿卜杜拉二世通話，對以色列再次在加沙地帶採取軍事行動以及加沙人道援助短缺表示嚴重關切。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796986-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796986-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796986-20250323.htm)
 
 ---
