@@ -1,3 +1,27 @@
+# 美烏代表團在沙特會談　美特使期待取得真正進展
+
+![威特科夫表示，期待會談取得真正進展。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797062_1_20250324004325.jpg&q=90)
+  
+
+烏克蘭國防部長烏梅羅夫表示，烏克蘭代表團與美國代表團在沙特阿拉伯首都利雅得的會談已經開始。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797062-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797062-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797062-20250324.htm)
+
+---
+
 # 佩斯科夫稱俄美總統商定必要時接觸　斥歐洲沒消除烏克蘭衝突根源
 
 ![佩斯科夫表示，總統普京和美國總統特朗普商定在必要時繼續接觸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797061_1_20250324002812.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796881-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796881-20250322.htm)
-
----
-
-# 特朗普稱計劃與習近平通話　中美貿易官員下周會談
-
-![習近平說，他與習近平關係佷好，會保持非常良好的關係，但兩國有1萬億美元的貿易逆差。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796875_1_20250322063205.jpg&q=90)
-  
-
-美國總統特朗普說，計劃與中國國家主席習近平通話，但沒有透露具體時間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796875-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796875-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796875-20250322.htm)
 
 ---

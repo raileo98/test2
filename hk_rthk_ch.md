@@ -1,3 +1,27 @@
+# 美烏代表團在沙特會談　美特使期待取得真正進展
+
+![威特科夫表示，期待會談取得真正進展。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797062_1_20250324004325.jpg&q=90)
+  
+
+烏克蘭國防部長烏梅羅夫表示，烏克蘭代表團與美國代表團在沙特阿拉伯首都利雅得的會談已經開始。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797062-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797062-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797062-20250324.htm)
+
+---
+
 # 佩斯科夫稱俄美總統商定必要時接觸　斥歐洲沒消除烏克蘭衝突根源
 
 ![佩斯科夫表示，總統普京和美國總統特朗普商定在必要時繼續接觸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797061_1_20250324002812.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796985-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796985-20250323.htm)
-
----
-
-# 以軍向黎巴嫩真主黨目標發動兩輪空襲　報復火箭彈襲擊
-
-![以軍報復襲擊，黎巴嫩南部升起濃煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796984_1_20250323044756.jpg&q=90)
-  
-
-以色列軍方說，攔截來自黎巴嫩的火箭彈後，炮擊並空襲黎巴嫩南部作為回應，打擊黎巴嫩真主黨的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796984-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796984-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796984-20250323.htm)
 
 ---
