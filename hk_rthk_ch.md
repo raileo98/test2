@@ -94,7 +94,7 @@
 
 ---
 
-# 器官捐贈登記冊達40萬創新高　盧寵茂稱尚有進步空間籲踴躍登記
+# 器官捐贈登記冊40萬創新高　盧寵茂稱尚有進步空間籲踴躍登記
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797008_1_20250323114227.jpg&q=85)
   
