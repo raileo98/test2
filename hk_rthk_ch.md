@@ -1,3 +1,27 @@
+# 北韓譴責美韓「自由護盾」聯合軍演
+
+![美韓本月10日至20日進行大規模聯合軍演。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797082_1_20250324074744.jpg&q=65)
+  
+
+北韓外務省裁軍和平研究所發表聲明，譴責美韓「自由護盾」聯合軍演。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797082-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797082-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797082-20250324.htm)
+
+---
+
 # 國藥控股去年盈利跌22%　收入減少2%
 
 ![國藥控股去年盈利70.5億元人民幣，按年跌22%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797080_1_20250324073303.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797008-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797008-20250323.htm)
-
----
-
-# Coldplay香港演唱會門票更換事件　消委會暫接25宗投訴
-
-![消委會對事件表示關注，敦促Cityline盡快完成換票安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797007_1_20250323113735.jpg&q=85)
-  
-
-消委會表示，截至今早11時，接獲25宗有關Coldplay香港演唱會需更換門票的投訴，消委會對事件表示關注，敦促Cityline盡快完成換票安排，以保障受影響消費者的權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm)
 
 ---

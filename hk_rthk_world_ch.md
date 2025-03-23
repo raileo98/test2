@@ -1,3 +1,27 @@
+# 北韓譴責美韓「自由護盾」聯合軍演
+
+![美韓本月10日至20日進行大規模聯合軍演。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797082_1_20250324074744.jpg&q=65)
+  
+
+北韓外務省裁軍和平研究所發表聲明，譴責美韓「自由護盾」聯合軍演。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797082-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797082-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797082-20250324.htm)
+
+---
+
 # 土國民眾聲援伊斯坦布爾市長　法國稱囚禁伊馬姆奧盧嚴重攻擊民主
 
 ![首都安卡拉有民眾上街聲援伊馬姆奧盧。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797075_1_20250324055719.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm)
-
----
-
-# 日本政府就富士山爆發降火山灰公布應對方案
-
-![日本政府公布富士山一旦爆發引發火山灰沉積的應對方案。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796921_1_20250322140722.jpg&q=90)
-  
-
-日本政府公布富士山一旦爆發引發火山灰沉積的應對方案，根據不同嚴重程度擬定四套對策，是日本政府首次就富士山降灰發布應對方案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796921-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796921-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796921-20250322.htm)
 
 ---
