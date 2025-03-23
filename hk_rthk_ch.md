@@ -1,3 +1,27 @@
+# 日本Sukiya鳥取縣分店味噌湯中發現老鼠　公司致歉
+
+![Sukiya就鳥取縣分店味噌湯中發現老鼠事件道歉。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797023_1_20250323151453.jpg&q=90)
+  
+
+日本快餐連鎖店Sukiya表示，公司旗下鳥取縣一間分店在供應的一碗味噌湯中發現一隻老鼠，這間分店隨即停業，在當地公共衛生部門到場檢查後，恢復營莱。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm)
+
+---
+
 # 積金局舉辦全國兩會精神分享會　梁振英冀更積極主動發揮作用
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm)
-
----
-
-# 何立峰晤美國訪客　稱中方堅決反對將經貿問題政治化
-
-![國務院副總理何立峰在北京會見美國聯邦參議員戴安斯。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796949_1_20250322205034.jpg&q=80)
-  
-
-中共中央政治局委員、國務院副總理何立峰在北京分別會見美國聯邦參議員戴安斯，以及新加坡淡馬錫董事長林文興。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm)
 
 ---

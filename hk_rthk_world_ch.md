@@ -1,3 +1,27 @@
+# 日本Sukiya鳥取縣分店味噌湯中發現老鼠　公司致歉
+
+![Sukiya就鳥取縣分店味噌湯中發現老鼠事件道歉。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797023_1_20250323151453.jpg&q=90)
+  
+
+日本快餐連鎖店Sukiya表示，公司旗下鳥取縣一間分店在供應的一碗味噌湯中發現一隻老鼠，這間分店隨即停業，在當地公共衛生部門到場檢查後，恢復營莱。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm)
+
+---
+
 # 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm)
-
----
-
-# 王毅晤石破茂　促日方切實履行在歷史和台灣問題上政治承諾
-
-![王毅在東京與日本首相石破茂會面。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796858_1_20250321235157.jpg&q=90)
-  
-
-訪問日本的中共中央政治局委員、外長王毅在東京與日本首相石破茂會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm)
 
 ---

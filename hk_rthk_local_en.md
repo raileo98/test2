@@ -1,3 +1,27 @@
+# HK breast milk bank began feeding needy newborns
+
+![Rosanna Wong, who heads Hong Kong's first breast milk bank, is upbeat about donation figures just two months after the facility began service. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797014_1_20250323125157.jpg&q=90)
+  
+
+The Hong Kong Breast Milk Bank has begun serving premature or critically-ill newborns across the city, just two months after it came into operation in January.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797014-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797014-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797014-20250323.htm)
+
+---
+
 # 'Organ donor sign-ups hit record, but more needed'
 
 ![Lo Chung-mau said over 2,600 patients in Hong Kong are currently on the waiting list for organ transplants. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797013_1_20250323125053.jpg&q=85)
@@ -1417,29 +1441,5 @@ Chief Executive John Lee on Tuesday said any changes to cross-border driving arr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796214-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796214-20250318.htm)
-
----
-
-# CE slams 'bullying tactics' amid ports deal concerns
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796206_1_20250318113232.jpg&q=75)
-  
-
-Chief Executive John Lee said concerns expressed over CK Hutchison’s deal to sell its global port operations to a US consortium are worthy of "serious attention," saying foreign governments should provide a fair environment for deal-making.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796206-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796206-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796206-20250318.htm)
 
 ---
