@@ -1,3 +1,27 @@
+# 中石化去年盈利跌16%　創4年新低
+
+![按國際財務報告準則，中石化去年盈利489.4億元人民幣，按年跌16%，創4年新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797076_1_20250324055906.jpg&q=90)
+  
+
+中石化公布，按國際財務報告準則，去年盈利489.4億元人民幣，按年跌16%，創4年新低。期內，營業收入約3.075萬億元，按年跌逾4%，是3年來最少收入，由於成品油等產品價格及銷量下降。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797076-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797076-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797076-20250324.htm)
+
+---
+
 # 土國民眾聲援伊斯坦布爾市長　法國稱囚禁伊馬姆奧盧嚴重攻擊民主
 
 ![首都安卡拉有民眾上街聲援伊馬姆奧盧。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797075_1_20250324055719.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm)
-
----
-
-# 陳茂波：文化創意產業發展帶來龐大商機　香港擁許多獨特優勢
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797002_1_20250323103757.jpg&q=85)
-  
-
-一連兩日的「中國發展高層論壇」早上在北京召開，財政司司長陳茂波表示，應邀到北京出席論壇，並會在其中一個專題研討會上，就如何透過改革激發增長動能發表主旨演講。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm)
 
 ---

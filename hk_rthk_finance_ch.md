@@ -1,3 +1,27 @@
+# 中石化去年盈利跌16%　創4年新低
+
+![按國際財務報告準則，中石化去年盈利489.4億元人民幣，按年跌16%，創4年新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797076_1_20250324055906.jpg&q=90)
+  
+
+中石化公布，按國際財務報告準則，去年盈利489.4億元人民幣，按年跌16%，創4年新低。期內，營業收入約3.075萬億元，按年跌逾4%，是3年來最少收入，由於成品油等產品價格及銷量下降。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797076-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797076-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797076-20250324.htm)
+
+---
+
 # 美股本周焦點於PCE物價指數及經濟增長數據
 
 ![美股本周焦點在於美國去年第4季經濟增長、PCE物價指數等數據。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797073_1_20250324054235.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796762-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796762-20250321.htm)
-
----
-
-# 港投與芯片公司合作　陳茂波稱加快芯片行業變革有更大創新空間
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796758_1_20250321125135.jpg&q=85)
-  
-
-香港投資管理公司和芯片研發公司賽昉科技啟動戰略合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796758-20250321.htm)
 
 ---
