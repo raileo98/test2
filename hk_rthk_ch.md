@@ -1,3 +1,50 @@
+# 哈馬斯政治領導人巴達維爾據報在以軍空襲加沙中喪生
+
+![以軍空襲加沙南部汗尤尼斯，有建築物損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797033_1_20250323165641.jpg&q=85)
+  
+
+巴勒斯坦武裝組織哈馬斯政治領導人巴達維爾據報在以色列對加沙地帶的空襲中喪生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797033-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797033-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797033-20250323.htm)
+
+---
+
+# 陳茂波稱國家踐行真正多邊主義　同時推動科技及產業創新融合
+
+  
+
+在北京，財政司司長陳茂波表示，當前世界百年未有之大變局正加速演進，有幾個大的趨勢正深刻影響世界的政治格局和經濟發展。首先是保護主義和單邊主義的抬頭，為全球經濟帶來了巨大的不確定性和不穩定性。其次是「全球南方」經濟體的崛起。第三是科技創新，特別是人工智能技術的飛躍提升，正引發生產模式、商業模式和消費模式的變革。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm)
+
+---
+
 # 王毅晤日本國家安全保障局長　雙方同意繼續保持溝通
 
 ![王毅在東京會見日本國家安全保障局長岡野正敬。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797030_1_20250323161703.jpg&q=90)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796959-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796959-20250322.htm)
-
----
-
-# 3名機場入境旅客管有未完稅煙及未有申報　分別判囚及罰款
-
-![海關展示檢獲的部分未完稅香煙。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796958_1_20250322205150.jpg&q=90)
-  
-
-3名從機場入境旅客因管有未完稅香煙以及未有向海關人員作出申報，違反《應課稅品條例》，在九龍城裁判法院分別被判處監禁38天至48天，以及罰款1000元至1200元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm)
-
----
-
-# 新華社：特朗普政府「交易外交」陷入僵局
-
-![新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796957_1_20250322203746.jpg&q=90)
-  
-
-新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章，認為在烏克蘭危機上，美國與俄烏兩國的分歧顯現；在巴以問題上，加沙和也門戰火重燃；另外，為解決美國國內的非法移民和芬太尼問題，美國向墨西哥和加拿大揮起「關稅大棒」，但多國反制美國加徵關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm)
 
 ---

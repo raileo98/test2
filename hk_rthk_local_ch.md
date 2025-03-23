@@ -1,3 +1,49 @@
+# 工聯會稱收到建造及服務行業工友投訴　輸入外勞致開工不足
+
+  
+
+當局早前透露，「補充勞工優化計劃」推行一年半，批出配額達51000個。工聯會表示，當中以飲食業佔最多，有超過2萬人，工聯會過去幾個月陸續收到建造業、飲食零售等服務行業的工友投訴，指有僱主輸入外勞，令他們開工不足，甚至無工可做。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm)
+
+---
+
+# 陳茂波稱國家踐行真正多邊主義　同時推動科技及產業創新融合
+
+  
+
+在北京，財政司司長陳茂波表示，當前世界百年未有之大變局正加速演進，有幾個大的趨勢正深刻影響世界的政治格局和經濟發展。首先是保護主義和單邊主義的抬頭，為全球經濟帶來了巨大的不確定性和不穩定性。其次是「全球南方」經濟體的崛起。第三是科技創新，特別是人工智能技術的飛躍提升，正引發生產模式、商業模式和消費模式的變革。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm)
+
+---
+
 # 大嶼山梅窩發生山火　初步無人傷
 
   
@@ -1393,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796896-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796896-20250322.htm)
-
----
-
-# 慢病共治計劃擴展至血脂檢查　醫衞局冀更多醫生參與
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796894_1_20250322093833.jpg&q=90)
-  
-
-「慢性疾病共同治理先導計劃」由本月28日起，擴展至提供血脂檢查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796894-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796894-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796894-20250322.htm)
-
----
-
-# 丘應樺：美國對華加徵關稅只會損人不利己
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796892_1_20250322093648.jpg&q=90)
-  
-
-商務及經濟發展局局長丘應樺表示，美國對華加徵關稅，將香港產品與來自中國的產品混為一談，是錯誤做法，不單只違反世貿規定，亦是對特區政府的無理打壓，政府已表態將向世貿提出申訴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm)
 
 ---

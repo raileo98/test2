@@ -1,3 +1,26 @@
+# 陳茂波稱國家踐行真正多邊主義　同時推動科技及產業創新融合
+
+  
+
+在北京，財政司司長陳茂波表示，當前世界百年未有之大變局正加速演進，有幾個大的趨勢正深刻影響世界的政治格局和經濟發展。首先是保護主義和單邊主義的抬頭，為全球經濟帶來了巨大的不確定性和不穩定性。其次是「全球南方」經濟體的崛起。第三是科技創新，特別是人工智能技術的飛躍提升，正引發生產模式、商業模式和消費模式的變革。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm)
+
+---
+
 # 王毅晤日本國家安全保障局長　雙方同意繼續保持溝通
 
 ![王毅在東京會見日本國家安全保障局長岡野正敬。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797030_1_20250323161703.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796536-20250320.htm)
-
----
-
-# 住建部：從供求兩端持續發力推動房地產市場止跌回穩
-
-![住建部近日召開會議指出，要堅決穩住樓市，從供求兩端持續發力，推動房地產市場止跌回穩。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796529_1_20250320082422.jpg&q=90)
-  
-
-內地住房和城鄉建設部近日召開會議指出，要堅決穩住樓市，繼續打好保交房攻堅戰，加力實施城中村和危舊房改造、推進收購存量商品房、加快構建房地產發展新模式，從供求兩端持續發力，推動房地產市場止跌回穩。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm)
 
 ---

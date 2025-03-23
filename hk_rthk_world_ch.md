@@ -1,3 +1,27 @@
+# 哈馬斯政治領導人巴達維爾據報在以軍空襲加沙中喪生
+
+![以軍空襲加沙南部汗尤尼斯，有建築物損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797033_1_20250323165641.jpg&q=85)
+  
+
+巴勒斯坦武裝組織哈馬斯政治領導人巴達維爾據報在以色列對加沙地帶的空襲中喪生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797033-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797033-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797033-20250323.htm)
+
+---
+
 # 王毅晤日本國家安全保障局長　雙方同意繼續保持溝通
 
 ![王毅在東京會見日本國家安全保障局長岡野正敬。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797030_1_20250323161703.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796861-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796861-20250322.htm)
-
----
-
-# 加沙民防部門：11人周五死於以軍襲擊
-
-![以軍周二起大規模空襲加沙地帶，並重啟地面軍事行動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796860_1_20250322003825.jpg&q=90)
-  
-
-加沙民防部門說，有11人星期五在以軍的襲擊中喪生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796860-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796860-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796860-20250322.htm)
 
 ---

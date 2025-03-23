@@ -1,3 +1,26 @@
+# 陳茂波稱國家踐行真正多邊主義　同時推動科技及產業創新融合
+
+  
+
+在北京，財政司司長陳茂波表示，當前世界百年未有之大變局正加速演進，有幾個大的趨勢正深刻影響世界的政治格局和經濟發展。首先是保護主義和單邊主義的抬頭，為全球經濟帶來了巨大的不確定性和不穩定性。其次是「全球南方」經濟體的崛起。第三是科技創新，特別是人工智能技術的飛躍提升，正引發生產模式、商業模式和消費模式的變革。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm)
+
+---
+
 # 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
 
 ![庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他形容感覺很好。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797019_2_20250323160553.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm)
-
----
-
-# 物流公司盼無人機做到即時送貨　中電測試包括葵涌等人口密集地方
-
-![張寶中（左）指中電期望日後做到配合人工智能及創新科技，構建全自動無人機的巡檢系統；張霆邦（右）表示，希望透過無人機做到端對端的即時送貨服務，運送藥品或檔案等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796745_1_20250321112420.jpg&q=90)
-  
-
-首批獲批的「監管沙盒」共有38個試點項目，中電輸電及供電業務部高級總監張寶中表示，希望以今次測試透過超視距飛行，進行電網線路檢測，效率有望大幅提升。如果在惡劣天氣後，由無人機作超視距飛行檢查電網，可去到受塌樹等原因阻礙的地方。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm)
 
 ---
