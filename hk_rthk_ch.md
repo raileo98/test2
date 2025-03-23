@@ -1,3 +1,27 @@
+# 埃及重申須維持加沙停火　歐盟外交代表將晤以色列及巴勒斯坦官員
+
+![埃及外長阿卜杜勒阿提與到訪的歐盟外交與安全政策高級代表卡拉斯會晤。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797065_1_20250324021934.jpg&q=85)
+  
+
+埃及總理馬德布利與到訪的巴勒斯坦總理兼外長穆斯塔法會談時強調，必須維持加沙停火，制止流血衝突，並盡快啟動加沙重建進程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797065-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797065-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797065-20250324.htm)
+
+---
+
 # 中大研發自動化線控砌磚機械人投入運作
 
 ![中大研發的自動化線控砌磚機械人用於重建校園内的再生園。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797064_1_20250324011548.jpg&q=65)
@@ -99,7 +123,7 @@
 ![警方以胡椒噴霧驅散示威者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797060_1_20250324002017.jpg&q=75)
   
 
-土耳其內政部表示，因涉及貪污指控被羈押候審伊斯坦布爾市長伊馬姆奧盧，已被暫停職務。
+土耳其內政部表示，因涉及貪污指控被羈押候審的伊斯坦布爾市長伊馬姆奧盧，已被暫停職務。
 
   
 
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm)
-
----
-
-# 世界盃歐洲區外圍賽　威爾士3:1擊敗哈薩克
-
-![威爾士在J組首輪賽事，3:1擊敗哈薩克。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796988_1_20250323070655.jpg&q=85)
-  
-
-世界盃歐洲區外圍賽，威爾士在J組首輪賽事，3:1擊敗哈薩克。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796988-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796988-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796988-20250323.htm)
 
 ---
