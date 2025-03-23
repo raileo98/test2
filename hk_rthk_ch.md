@@ -1,3 +1,51 @@
+# 國藥控股去年盈利跌22%　收入減少2%
+
+![國藥控股去年盈利70.5億元人民幣，按年跌22%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797080_1_20250324073303.jpg&q=80)
+  
+
+國藥控股去年盈利70.5億元人民幣，按年跌22%。派末期息每股0.68元，按年減少21.8%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797080-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797080-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797080-20250324.htm)
+
+---
+
+# 紫金礦業去年多賺約52%　營業收入升3.5%
+
+![紫金礦業去年盈利320.5億元人民幣，按年升約52%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797078_1_20250324070315.jpg&q=90)
+  
+
+紫金礦業去年盈利320.5億元人民幣，按年升約52%。每10股派現金股息2.8元，派息比率31.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797078-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797078-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797078-20250324.htm)
+
+---
+
 # 歐國聯4強產生德國對葡萄牙　西班牙硬撼法國
 
 ![基斯坦奴朗拿度帶領葡萄牙晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797079_1_20250324072025.jpg&q=90)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm)
-
----
-
-# 謝鋒：「以台制華」徒勞及危險　把關稅武器化終將反噬自身
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797005_1_20250323105301.jpg&q=90)
-  
-
-中國駐美大使謝鋒表示，中美兩個大國難免有分歧矛盾，關鍵是尊重彼此核心利益，不能挑戰紅線底線，強調支持「台獨」就是干涉中國內政，縱容「台獨」就是破壞台海穩定，「以台制華」不僅徒勞而且危險，一個中國原則和中美三個聯合公報是中美關係的政治基礎，任何時候都不得違反。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797005-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797005-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797005-20250323.htm)
-
----
-
-# 科技園：低空經濟「監管沙盒」試點項目實際操作冀下月有定論
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797003_1_20250323105219.jpg&q=90)
-  
-
-首批低空經濟「監管沙盒」部分試點項目下月率先推出，包括以科學園為試點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm)
 
 ---
