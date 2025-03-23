@@ -1,3 +1,26 @@
+# 渣打集團：中國相關業務迎來更廣闊機遇
+
+  
+
+渣打集團行政總裁溫拓思說，中國經濟發展態勢向好、科技實力顯著提升、企業出海步伐提速，渣打集團中國相關業務迎來更廣闊機遇，將持續深耕中國市場，拓展投資和運營。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm)
+
+---
+
 # 許勤訪西九文化區　參觀兩個博物館
 
 ![許勤（左二）與唐英年（右二）等人於M+合影。（唐英年提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797056_1_20250323212057.jpg&q=85)
