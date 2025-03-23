@@ -1,3 +1,26 @@
+# 工聯會稱收到建造及服務行業工友投訴　輸入外勞致開工不足
+
+  
+
+當局早前透露，「補充勞工優化計劃」推行一年半，批出配額達51000個。工聯會表示，當中以飲食業佔最多，有超過2萬人，工聯會過去幾個月陸續收到建造業、飲食零售等服務行業的工友投訴，指有僱主輸入外勞，令他們開工不足，甚至無工可做。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm)
+
+---
+
 # 哈馬斯政治領導人巴達維爾據報在以軍空襲加沙中喪生
 
 ![以軍空襲加沙南部汗尤尼斯，有建築物損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797033_1_20250323165641.jpg&q=85)
@@ -71,6 +94,7 @@
 
 # 大嶼山梅窩發生山火　初步無人傷
 
+![消防下午接報，大嶼山梅窩窩田村附近起火。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797029_1_20250323170214.jpg&q=80)
   
 
 大嶼山梅窩發生山火，初步無人受傷，毋須疏散。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm)
-
----
-
-# 美國將限制加國人進入跨境圖書館　指圖書館運作帶來邊境安全風險
-
-![圖書館建於1904年，美加國界穿過圖書館。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796959_1_20250322205734.jpg&q=80)
-  
-
-加拿大廣播公司報道，美國將限制加拿大人進入一座地標式的跨境圖書館，引發兩國邊境地區民眾強烈不滿。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796959-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796959-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796959-20250322.htm)
 
 ---

@@ -46,6 +46,7 @@
 
 # 大嶼山梅窩發生山火　初步無人傷
 
+![消防下午接報，大嶼山梅窩窩田村附近起火。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797029_1_20250323170214.jpg&q=80)
   
 
 大嶼山梅窩發生山火，初步無人受傷，毋須疏散。
