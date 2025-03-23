@@ -1,3 +1,26 @@
+# 盧煜明稱香港正值創科「黃金時期」　冀更多「尖子」來港發展
+
+  
+
+有「無創產前檢測之父」之稱的中大校長盧煜明形容，現時是香港創科的「黃金時期」，科創投入大增。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797026-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797026-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797026-20250323.htm)
+
+---
+
 # 慢病共治90名醫生停收新症　彭飛舟稱不同醫生業務或會有變化
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796884-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796884-20250322.htm)
-
----
-
-# 醫管局：市民共付放射服務部分費用是考慮方向
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796878_1_20250322064817.jpg&q=90)
-  
-
-政府正檢討公營醫療服務收費。現時公立醫院放射服務獲政府百分之一百補貼，即是無額外收費。醫管局指出，相關服務需求大，在2023至24年度，磁力共振掃瞄造影實際服務約87000人次，例行個案輪候時間達3年9個月。而在私營醫療市場，要接受磁力共振掃瞄造影檢查，每次要至少數千元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796878-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796878-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796878-20250322.htm)
 
 ---

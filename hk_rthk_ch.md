@@ -1,3 +1,26 @@
+# 盧煜明稱香港正值創科「黃金時期」　冀更多「尖子」來港發展
+
+  
+
+有「無創產前檢測之父」之稱的中大校長盧煜明形容，現時是香港創科的「黃金時期」，科創投入大增。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797026-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797026-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797026-20250323.htm)
+
+---
+
 # 慢病共治90名醫生停收新症　彭飛舟稱不同醫生業務或會有變化
 
   
@@ -26,7 +49,7 @@
 ![Sukiya就鳥取縣分店味噌湯中發現老鼠事件道歉。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797023_1_20250323151453.jpg&q=90)
   
 
-日本快餐連鎖店Sukiya表示，公司旗下鳥取縣一間分店在供應的一碗味噌湯中發現一隻老鼠，這間分店隨即停業，在當地公共衛生部門到場檢查後，恢復營莱。
+日本快餐連鎖店Sukiya表示，公司旗下鳥取縣一間分店在供應的一碗味噌湯中發現一隻老鼠，這間分店隨即停業，在當地公共衛生部門到場檢查後，恢復營業。
 
   
 
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm)
-
----
-
-# 尼日爾軍政府指西部省份發生恐襲最少44死　全國哀悼3日
-
-![尼日爾軍政府指西部省份發生恐襲最少44死　全國哀悼3日](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796951_1_20250322204009.jpg&q=90)
-  
-
-尼日爾軍政府指西部發生恐怖襲擊，最少44名平民遇害、13人受傷，其中4人傷勢嚴重。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm)
 
 ---
