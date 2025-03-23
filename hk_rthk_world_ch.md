@@ -1,3 +1,27 @@
+# 土耳其伊斯坦布爾市長被停職
+
+![警方以胡椒噴霧驅散示威者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797060_1_20250324002017.jpg&q=75)
+  
+
+土耳其內政部表示，因涉及貪污指控被羈押候審伊斯坦布爾市長伊馬姆奧盧，已被暫停職務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797060-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797060-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797060-20250324.htm)
+
+---
+
 # 印尼有周刊收到裝有豬頭鼠屍包裹　團體籲維護新聞自由
 
 ![印尼有周刊收到裝有豬頭鼠屍包裹　團體籲維護新聞自由](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797054_1_20250323204535.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796869-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796869-20250322.htm)
-
----
-
-# 以軍稱打死哈馬斯加沙南部情報部門負責人
-
-![聲明說，以軍在行動中打死哈馬斯在加沙地帶南部的軍事情報負責人塔巴什。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796868_1_20250322032018.jpg&q=90)
-  
-
-以色列國防軍與國家安全總局發表聯合聲明說，以軍在星期五的軍事行動中，打死巴勒斯坦武裝組織哈馬斯在加沙地帶南部的軍事情報負責人塔巴什。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796868-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796868-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796868-20250322.htm)
 
 ---

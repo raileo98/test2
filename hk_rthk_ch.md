@@ -1,3 +1,27 @@
+# 土耳其伊斯坦布爾市長被停職
+
+![警方以胡椒噴霧驅散示威者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797060_1_20250324002017.jpg&q=75)
+  
+
+土耳其內政部表示，因涉及貪污指控被羈押候審伊斯坦布爾市長伊馬姆奧盧，已被暫停職務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797060-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797060-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797060-20250324.htm)
+
+---
+
 # 渣打集團：中國相關業務迎來更廣闊機遇
 
 ![溫拓思說中國經濟發展態勢向好、科技實力顯著提升、企業出海步伐提速。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797057_1_20250323225756.jpg&q=40)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm)
-
----
-
-# 以軍空襲黎巴嫩南部提爾市造成1死7傷
-
-![以軍攔截來自黎巴嫩的火箭彈後，炮擊和空襲黎巴嫩南部作為回應。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796982_1_20250323031707.jpg&q=80)
-  
-
-以色列軍方空襲黎巴嫩南部提爾市，黎巴嫩衛生部緊急行動中心說，以軍當地周六晚發動空襲，已造成1人死亡，7人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796982-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796982-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796982-20250323.htm)
 
 ---
