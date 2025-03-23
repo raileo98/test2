@@ -1,3 +1,27 @@
+# 被驅逐的南非駐美大使回國　強調不會因外部壓力改變立場
+
+![拉蘇爾在開普敦機場發表講話，指回國並非自己的選擇，但無怨無悔。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797066_1_20250324023734.jpg&q=90)
+  
+
+被美國驅逐的南非駐美大使拉蘇爾返抵南非，強調南非不會因為外部壓力而改變立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797066-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797066-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797066-20250324.htm)
+
+---
+
 # 埃及重申須維持加沙停火　歐盟外交代表將晤以色列及巴勒斯坦官員
 
 ![埃及外長阿卜杜勒阿提與到訪的歐盟外交與安全政策高級代表卡拉斯會晤。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797065_1_20250324021934.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796990-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796990-20250323.htm)
-
----
-
-# 美國邁阿密網球公開賽　香港球手黃澤林淘汰13號種子晉級第三圈
-
-![黃澤林淘汰13號種子、美國的舒爾頓，晉級邁阿密網球公開賽第三圈。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796989_2_20250323081935.jpg&q=90)
-  
-
-美國邁阿密網球公開賽男單次圈，20歲、持「外卡」參賽的本港球手黃澤林，爆冷淘汰13號種子、美國的舒爾頓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 被驅逐的南非駐美大使回國　強調不會因外部壓力改變立場
+
+![拉蘇爾在開普敦機場發表講話，指回國並非自己的選擇，但無怨無悔。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797066_1_20250324023734.jpg&q=90)
+  
+
+被美國驅逐的南非駐美大使拉蘇爾返抵南非，強調南非不會因為外部壓力而改變立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797066-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797066-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797066-20250324.htm)
+
+---
+
 # 埃及重申須維持加沙停火　歐盟外交代表將晤以色列及巴勒斯坦官員
 
 ![埃及外長阿卜杜勒阿提與到訪的歐盟外交與安全政策高級代表卡拉斯會晤。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797065_1_20250324021934.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796897-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796897-20250322.htm)
-
----
-
-# 特朗普上任後首度有美國國會議員訪華　與馬朝旭討論中美關係
-
-![外交部副部長馬朝旭昨日會見訪華的美國共和黨參議員戴安斯。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796889_1_20250322080837.jpg&q=90)
-  
-
-外交部副部長馬朝旭昨日會見訪華的美國共和黨參議員戴安斯，雙方就中美關係和共同關心的問題深入交換意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm)
 
 ---
