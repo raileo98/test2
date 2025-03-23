@@ -1,3 +1,27 @@
+# Pope calls for 'immediate' end to Israeli strikes
+
+![Pope Francis waving to the crowd from a window of the Gemelli hospital in Rome before being discharged following a five weeks hospitalization for pneumonia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797050_1_20250323194641.jpg&q=85)
+  
+
+Pope Francis called on Sunday for an "immediate" end to Israeli strikes on the Gaza Strip, and for the resumption of dialogue for the release of hostages and a "definitive ceasefire".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm)
+
+---
+
 # Istanbul court formally arrests mayor amid protests
 
 ![Turkish people take to the streets to protest the arrest of Ekrem Imamoglu, Istanbul mayor and CHP's presidential race candidate, in Kayseri, Turkey. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797031_1_20250323164214.jpg&q=75)
@@ -1411,29 +1435,5 @@ The United States on Tuesday said that Hamas had chosen war by refusing to relea
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796296-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796296-20250318.htm)
-
----
-
-# Small plane crash off Honduras island kills at least 7
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796215_1_20250318121302.jpg&q=90)
-  
-
-At least seven people were killed on Monday when a small plane crashed into the sea while taking off from the Honduras Caribbean island of Roatan.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796215-20250318.htm)
 
 ---

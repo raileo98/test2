@@ -1,3 +1,26 @@
+# 内地直播帶貨公司「三隻羊」整改符合要求　具備恢復經營條件
+
+  
+
+内地直播帶貨公司「三隻羊」去年因虛假宣傳，被勒令停業整改。安徽合肥市政府通報，經全面評估後，認為「三隻羊」公司整改符合要求，具備恢復經營條件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797051-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797051-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797051-20250323.htm)
+
+---
+
 # 滙豐艾橋智：供應鏈和產業鏈是促進中國及全球貿易增長基石
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796548-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796548-20250320.htm)
-
----
-
-# 臨時通行證有效7天　在內地可用於民航及鐵路安檢乘機乘車
-
-![出入境管理局表示，臨時通行證可用於港澳台居民在內地（大陸）城市出行時，在民航和鐵路領域的安檢、乘機和乘車環節。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796547_1_20250320104031.jpg&q=80)
-  
-
-國家出入境管理局表示，港澳台居民如果遇到遺失損毀或忘記攜帶通行證等突發情況，但急需乘搭飛機、火車，即日起可以申請臨時通行證。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796547-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796547-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796547-20250320.htm)
 
 ---

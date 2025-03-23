@@ -1,3 +1,27 @@
+# Pope calls for 'immediate' end to Israeli strikes
+
+![Pope Francis waving to the crowd from a window of the Gemelli hospital in Rome before being discharged following a five weeks hospitalization for pneumonia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797050_1_20250323194641.jpg&q=85)
+  
+
+Pope Francis called on Sunday for an "immediate" end to Israeli strikes on the Gaza Strip, and for the resumption of dialogue for the release of hostages and a "definitive ceasefire".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm)
+
+---
+
 # Reed qualifies for British Open after Macau finish
 
 ![Patrick Reed playing a shot during the final round of the 2025 International Series Macau at the Macau Golf and Country Club in Macau. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797045_1_20250323191233.jpg&q=90)
@@ -1413,29 +1437,5 @@ Transport chief Mable Chan said on Friday most pilot projects in Hong Kong's fir
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796743-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796743-20250321.htm)
-
----
-
-# Winding-up orders reach 15-year high
-
-![According to the Official Receiver's Office, 66 winding-up orders were made by the court in February. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796744_1_20250321111259.jpg&q=90)
-  
-
-Hong Kong has seen its winding-up orders hitting the highest level in more than 15 years.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm)
 
 ---
