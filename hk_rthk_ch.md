@@ -1,3 +1,26 @@
+# 積金局舉辦全國兩會精神分享會　梁振英冀更積極主動發揮作用
+
+  
+
+積金局日前舉辦「全國兩會精神」分享會，全國政協副主席梁振英獲邀出席分享兩會主要內容，積金局及積金易公司超過600名員工實體和透過線上參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm)
+
+---
+
 # 蕭澤頤稱有些騙案是「當局者迷」　冀市民要提防及提醒身邊人
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm)
-
----
-
-# 以色列空襲黎巴嫩南部真主黨目標　回應遭火箭炮攻擊
-
-![以色列北部邊境城市梅圖拉早前受到火箭炮攻擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796948_1_20250322195257.jpg&q=65)
-  
-
-以色列向黎巴嫩南部的真主黨目標發動空襲，回應以黎邊境以色列一側早前受到火箭炮攻擊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796948-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796948-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796948-20250322.htm)
 
 ---

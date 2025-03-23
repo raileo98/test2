@@ -1,3 +1,26 @@
+# 積金局舉辦全國兩會精神分享會　梁振英冀更積極主動發揮作用
+
+  
+
+積金局日前舉辦「全國兩會精神」分享會，全國政協副主席梁振英獲邀出席分享兩會主要內容，積金局及積金易公司超過600名員工實體和透過線上參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm)
+
+---
+
 # 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796494-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796494-20250320.htm)
-
----
-
-# 科大廣州創校校長稱第三所醫學院計劃書包含與很多內地醫學院合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796471_2_20250319200428.jpg&q=90)
-  
-
-三所大學正爭取籌建本港第三間醫學院，當中包括香港科技大學。香港科技大學（廣州）創校校長倪明選表示，全力支持港科大辦第三所醫學院，已提交政府的計劃書包含與內地很多醫學院的合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm)
 
 ---

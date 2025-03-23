@@ -1,3 +1,26 @@
+# 積金局舉辦全國兩會精神分享會　梁振英冀更積極主動發揮作用
+
+  
+
+積金局日前舉辦「全國兩會精神」分享會，全國政協副主席梁振英獲邀出席分享兩會主要內容，積金局及積金易公司超過600名員工實體和透過線上參與。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm)
+
+---
+
 # 蕭澤頤稱有些騙案是「當局者迷」　冀市民要提防及提醒身邊人
 
   
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796870-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796870-20250322.htm)
-
----
-
-# 大埔公路沙田段6車相撞5人傷　警方列狂亂駕駛拘兩人
-
-![警方列作狂亂駕駛及行使虛假文書，拘捕兩人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796856_1_20250322072223.jpg&q=60)
-  
-
-大埔公路沙田段晚上發生6車相撞意外，5人受輕傷。警方列作狂亂駕駛及行使虛假文書，拘捕兩人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796856-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796856-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796856-20250321.htm)
 
 ---
