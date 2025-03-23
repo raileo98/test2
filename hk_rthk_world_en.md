@@ -24,7 +24,7 @@ Huge crowds gathered outside Istanbul City Hall late on Saturday for a fourth ni
 
 # Pope Francis to be discharged from hospital
 
-![Professor Sergio Alfieri (R) gives a press conference at the Gemelli Hospital. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796991_1_20250323072549.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796991_1_20250323072549.jpg&q=90)
   
 
 Pope Francis, who has been battling pneumonia for more than five weeks, will be discharged from hospital on Sunday but will need a further two months of rest at the Vatican, the head of his medical team said on Saturday.

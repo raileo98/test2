@@ -1,3 +1,26 @@
+# 泰國抵港旅客行李藏有懷疑大麻花　於機場被捕
+
+  
+
+海關在機場偵破一宗販毒案，在一件行李內檢獲約10公斤、估計市值約220萬元的懷疑大麻花。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm)
+
+---
+
 # 香港母乳庫逾百位捐贈者　下階段服務將分發至新生兒深切治療部
 
 ![黃明沁表示，母乳含有抗體和免疫因子，可保護嬰兒免受感染，對嬰兒來說是最好的食物，她呼籲社會支持捐贈。（政府新聞網）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797009_1_20250323113537.jpg&q=90)
@@ -1422,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796840-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796840-20250321.htm)
-
----
-
-# 本港增一宗猴痘確診個案　患者情況穩定
-
-![衞生防護中心初步調查顯示，患者於潛伏期內曾在香港有高風險接觸。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796838_1_20250321194920.jpg&q=80)
-  
-
-本港新增一宗猴痘確診個案，涉及一名有長期病患的35歲男子。他於3月13日開始出現皮膚潰瘍、皮膚出血和發燒，並於17日到衞生署灣仔男性社會衞生科診所求診，並於瑪嘉烈醫院接受隔離治療，情況穩定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796838-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796838-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796838-20250321.htm)
 
 ---

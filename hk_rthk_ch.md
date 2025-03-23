@@ -1,3 +1,26 @@
+# 泰國抵港旅客行李藏有懷疑大麻花　於機場被捕
+
+  
+
+海關在機場偵破一宗販毒案，在一件行李內檢獲約10公斤、估計市值約220萬元的懷疑大麻花。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm)
+
+---
+
 # 日本三重縣有巴士撞向路邊防風林1死21傷
 
 ![日本三重縣有巴士撞向路邊防風林1死21傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797011_1_20250323122453.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm)
-
----
-
-# 張欣宇：新登記及今年9月後年檢之吊臂車須裝警報器提示收妥吊臂
-
-![欣宇相信，事故一般都是司機忘記將吊臂收好。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796937_1_20250322183131.jpg&q=75)
-  
-
-天水圍有夾斗吊臂車的吊臂，撞到輕鐵天悅站附近的架空電纜，輕鐵服務一度受阻約4小時，41歲的吊臂車司機涉嫌駕駛危險車輛，被警方拘捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm)
 
 ---

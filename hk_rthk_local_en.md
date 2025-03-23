@@ -1,6 +1,6 @@
 # Turn research into real-world applications: tech exec
 
-![Albert Wong said it is crucial to prioritise the translation of research and development into practical, real-world applications. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797006_1_20250323111456.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797006_1_20250323111456.jpg&q=85)
   
 
 The head of the Science Park called for a balanced approach in technological development, saying while research and development is important, the results must also be applied in practical and real-world settings.

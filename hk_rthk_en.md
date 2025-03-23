@@ -1,6 +1,6 @@
 # Turn research into real-world applications: tech exec
 
-![Albert Wong said it is crucial to prioritise the translation of research and development into practical, real-world applications. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797006_1_20250323111456.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797006_1_20250323111456.jpg&q=85)
   
 
 The head of the Science Park called for a balanced approach in technological development, saying while research and development is important, the results must also be applied in practical and real-world settings.
@@ -96,7 +96,7 @@ British finance minister Rachel Reeves is eyeing spending cuts for government of
 
 # Pope Francis to be discharged from hospital
 
-![Professor Sergio Alfieri (R) gives a press conference at the Gemelli Hospital. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796991_1_20250323072549.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796991_1_20250323072549.jpg&q=90)
   
 
 Pope Francis, who has been battling pneumonia for more than five weeks, will be discharged from hospital on Sunday but will need a further two months of rest at the Vatican, the head of his medical team said on Saturday.
