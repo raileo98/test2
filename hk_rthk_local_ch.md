@@ -1,5 +1,30 @@
+# 皇仁書院據報有資訊系統事故　教育局：已提醒按指引處理
+
+![教育局表示，已提醒學校按相關指引處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797052_1_20250323202808.jpg&q=90)
+  
+
+有報道指，皇仁書院資訊系統發生保安事故，發現有人未經授權，擅自修改學生違規記錄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797052-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797052-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797052-20250323.htm)
+
+---
+
 # 羅傑承中學21師生往肇慶交流出現腸胃炎徵狀　8人染諾如病毒
 
+![21名師生參加肇慶交流團期間出現與諾如病毒感染吻合的病徵。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797049_1_20250323201458.jpg&q=85)
   
 
 保良局羅傑承（一九八三）中學21名師生參加肇慶交流團期間出現與諾如病毒感染吻合的病徵，當中18人曾在當地求醫，全部情況穩定並已出院，其中8人對諾如病毒呈陽性反應。
@@ -23,6 +48,7 @@
 
 # 中大醫院證實手術室天花曾漏水　不屬須呈報衞生署類別
 
+![香港中文大學醫院證實，醫院一個日間手術室早前在手術進行期間，曾出現天花板漏水情況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797048_1_20250323201426.jpg&q=85)
   
 
 香港中文大學醫院證實，醫院一個日間手術室早前在手術進行期間，曾出現天花板漏水情況，當時手術已進行最後階段，醫護團隊當時已即時作出適當措施，確保病人手術不受影響，而病人於術後亦獲適當監察及護理，術後情況沒有受影響並已康復。
@@ -1415,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm)
-
----
-
-# 輕鐵天悅站受損架空電纜已復修　港鐵指服務逐步回復正常
-
-![港鐵表示，輕鐵天悅站受損的架空電纜已復修，輕鐵服務逐步回復正常。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796908_1_20250322111938.jpg&q=75)
-  
-
-港鐵表示，輕鐵天悅站受損的架空電纜已復修，輕鐵服務逐步回復正常。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm)
 
 ---

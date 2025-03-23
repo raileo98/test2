@@ -1,3 +1,26 @@
+# 李強晤美國聯邦參議員戴安斯　稱中美關係發展到新的重要節點
+
+  
+
+國務院總理李強在北京會見來華出席中國發展高層論壇2025年年會的美國聯邦參議員戴安斯及部分美國企業界人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm)
+
+---
+
 # 内地直播帶貨公司「三隻羊」整改符合要求　具備恢復經營條件
 
 ![合肥市政府通報，經全面評估後，認為「三隻羊」公司整改符合要求，具備恢復經營條件。（合肥市政府網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797051_1_20250323201115.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm)
-
----
-
-# 習近平到雲南省麗江考察調研
-
-![習近平到雲南省麗江考察調研。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796548_1_20250320101958.jpg&q=75)
-  
-
-中共總書記習近平昨日下午在雲南省麗江考察調研。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796548-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796548-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796548-20250320.htm)
 
 ---

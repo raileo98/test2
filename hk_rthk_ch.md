@@ -1,3 +1,50 @@
+# 李強晤美國聯邦參議員戴安斯　稱中美關係發展到新的重要節點
+
+  
+
+國務院總理李強在北京會見來華出席中國發展高層論壇2025年年會的美國聯邦參議員戴安斯及部分美國企業界人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm)
+
+---
+
+# 皇仁書院據報有資訊系統事故　教育局：已提醒按指引處理
+
+![教育局表示，已提醒學校按相關指引處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797052_1_20250323202808.jpg&q=90)
+  
+
+有報道指，皇仁書院資訊系統發生保安事故，發現有人未經授權，擅自修改學生違規記錄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797052-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797052-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797052-20250323.htm)
+
+---
+
 # 内地直播帶貨公司「三隻羊」整改符合要求　具備恢復經營條件
 
 ![合肥市政府通報，經全面評估後，認為「三隻羊」公司整改符合要求，具備恢復經營條件。（合肥市政府網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797051_1_20250323201115.jpg&q=90)
@@ -24,6 +71,7 @@
 
 # 羅傑承中學21師生往肇慶交流出現腸胃炎徵狀　8人染諾如病毒
 
+![21名師生參加肇慶交流團期間出現與諾如病毒感染吻合的病徵。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797049_1_20250323201458.jpg&q=85)
   
 
 保良局羅傑承（一九八三）中學21名師生參加肇慶交流團期間出現與諾如病毒感染吻合的病徵，當中18人曾在當地求醫，全部情況穩定並已出院，其中8人對諾如病毒呈陽性反應。
@@ -47,6 +95,7 @@
 
 # 中大醫院證實手術室天花曾漏水　不屬須呈報衞生署類別
 
+![香港中文大學醫院證實，醫院一個日間手術室早前在手術進行期間，曾出現天花板漏水情況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797048_1_20250323201426.jpg&q=85)
   
 
 香港中文大學醫院證實，醫院一個日間手術室早前在手術進行期間，曾出現天花板漏水情況，當時手術已進行最後階段，醫護團隊當時已即時作出適當措施，確保病人手術不受影響，而病人於術後亦獲適當監察及護理，術後情況沒有受影響並已康復。
@@ -118,6 +167,7 @@
 
 # 伊斯坦布爾市長稱不會低頭　團隊稱會就法庭羈押裁決提出上訴
 
+![伊馬姆奧盧形容事件是國家民主的污點，他誓不低頭。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797044_1_20250323201701.jpg&q=90)
   
 
 土耳其伊斯坦布爾刑事法庭就貪污指控，將市長伊馬姆奧盧羈押候訊。法庭說雖然伊馬姆奧盧有重大嫌疑，協助持械恐怖組織，但現階段並無必要為此拘捕他，不過他涉嫌干犯的金融罪行，足以令法庭頒令拘捕他。

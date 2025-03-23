@@ -1,3 +1,26 @@
+# 李強晤美國聯邦參議員戴安斯　稱中美關係發展到新的重要節點
+
+  
+
+國務院總理李強在北京會見來華出席中國發展高層論壇2025年年會的美國聯邦參議員戴安斯及部分美國企業界人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm)
+
+---
+
 # 方濟各啟程返回梵蒂岡　出院前透過醫院病房窗口向信眾揮手致意
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797047_1_20250323193650.jpg&q=90)
@@ -24,6 +47,7 @@
 
 # 伊斯坦布爾市長稱不會低頭　團隊稱會就法庭羈押裁決提出上訴
 
+![伊馬姆奧盧形容事件是國家民主的污點，他誓不低頭。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797044_1_20250323201701.jpg&q=90)
   
 
 土耳其伊斯坦布爾刑事法庭就貪污指控，將市長伊馬姆奧盧羈押候訊。法庭說雖然伊馬姆奧盧有重大嫌疑，協助持械恐怖組織，但現階段並無必要為此拘捕他，不過他涉嫌干犯的金融罪行，足以令法庭頒令拘捕他。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796867-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796867-20250322.htm)
-
----
-
-# 特朗普宣布由波音公司生產第六代戰機
-
-![特朗普與赫格塞思在白宮共同會見傳媒。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796866_1_20250322023802.jpg&q=90)
-  
-
-美國總統特朗普宣布，選定波音公司生產「下一代空中優勢」戰機，並將新一代戰機命名為F-47。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796866-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796866-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796866-20250322.htm)
 
 ---
