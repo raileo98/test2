@@ -1,3 +1,27 @@
+# 烏方形容與美方會談富有成效　澤連斯基籲向俄羅斯施壓
+
+![烏梅羅夫形容，會談富有成效。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797072_1_20250324051353.jpg&q=90)
+  
+
+美國與烏克蘭的代表團在沙特阿拉伯首都利雅得會談。烏克蘭國防部長烏梅羅夫會後在社交平台形容，會談富有成效，雙方討論到包括能源在內的關鍵問題，強調總統澤連斯基的目標，是確保烏克蘭及整個歐洲的公正和持久和平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797072-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797072-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797072-20250324.htm)
+
+---
+
 # 教宗方濟各出院返回梵蒂岡　車上沿途需插鼻管供氧
 
 ![方濟各由車隊護送返回梵蒂岡，沿途需要插著供氧的鼻管。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797071_1_20250324044539.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796920-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796920-20250322.htm)
-
----
-
-# 金正恩：繼續支持俄羅斯維護國家主權、領土完整和安全利益
-
-![金正恩會見到訪的俄羅斯聯邦安全會議秘書紹伊古。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796914_1_20250322125000.jpg&q=90)
-  
-
-朝中社報道，北韓領袖金正恩會見到訪的俄羅斯聯邦安全會議秘書紹伊古。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796914-20250322.htm)
 
 ---
