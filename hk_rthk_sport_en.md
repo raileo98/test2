@@ -1,3 +1,27 @@
+# Coleman Wong beats Shelton, reaches Miami Open last 32
+
+![Coleman Wong outlasted home favourite Ben Shelton in two hours and 16 minutes. Photo: ATP Media via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797004_2_20250323112824.jpg&q=90)
+  
+
+Hong Kong tennis star Coleman Wong pulled off the biggest triumph of his career in dramatic fashion, defeating 13th seed Ben Shelton of the United States at the Miami Open.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797004-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797004-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797004-20250323.htm)
+
+---
+
 # Oscar Piastri on pole for Chinese Grand Prix
 
 ![Now in his third season in Formula One, the Australian already has two wins to his name and starts as favourite. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796987_1_20250323065602.jpg&q=90)
@@ -1416,29 +1440,5 @@ Manchester United on Tuesday announced plans to build a new 100,000-capacity sta
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm)
-
----
-
-# 'Snooker hiccup not a problem for National Games'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795203_1_20250311090834.jpg&q=90)
-  
-
-A local deputy to the National People's Congress has stressed that Hong Kong is ready to co-host its first National Games in November, despite a recent hiccup at a major snooker tournament in Kai Tak.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm)
 
 ---

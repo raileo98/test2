@@ -1,3 +1,73 @@
+# 香港母乳庫逾百位捐贈者　下階段服務將分發至新生兒深切治療部
+
+![黃明沁表示，母乳含有抗體和免疫因子，可保護嬰兒免受感染，對嬰兒來說是最好的食物，她呼籲社會支持捐贈。（政府新聞網）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797009_1_20250323113537.jpg&q=90)
+  
+
+位於香港兒童醫院的香港母乳庫今年1月初成立，至今招募到超過100位合資格捐贈者，收集超過300公升母乳，香港母乳庫總監黃明沁形容成果超乎預期，希望社會各界和各位媽媽支持這個計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797009-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797009-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797009-20250323.htm)
+
+---
+
+# 器官捐贈登記冊逾40萬創新高　盧寵茂稱尚有進步空間籲踴躍登記
+
+  
+
+本港目前有超過2600名器官衰竭患者等待器官移植，醫務衛生局局長盧寵茂表示，現時器官捐贈中央登記名冊數字超過40萬，創歷史新高，呼籲市民繼續踴躍登記。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797008-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797008-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797008-20250323.htm)
+
+---
+
+# 消委會暫接25宗投訴涉Coldplay香港演唱會門票需更換
+
+  
+
+消委會表示，截至今早11時，接獲25宗有關Coldplay香港演唱會需更換門票的投訴，消委會對事件表示關注，敦促Cityline盡快完成換票安排，以保障受影響消費者的權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm)
+
+---
+
 # 謝鋒：「以台制華」徒勞及危險　把關稅武器化終將反噬自身
 
 ![謝鋒應邀以視像方式在卡特中美關係對話會致辭。（中國駐美大使館網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797005_1_20250323105301.jpg&q=90)
@@ -1366,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm)
-
----
-
-# 石破茂：強化防衛力量對加強日本威懾力是不可或缺
-
-![石破茂到神奈川縣橫須賀市出席防衛大學畢業典禮並致辭。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796934_1_20250322173725.jpg&q=90)
-  
-
-日本首相石破茂說，從根本上強化防衛力量，對於加強日本的威懾力而言是不可或缺，會基於國家安全保障戰略等繼續採取措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796934-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796934-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796934-20250322.htm)
-
----
-
-# 美國特使：澤連斯基很大程度接受烏克蘭不會成為北約成員國
-
-![威特科夫說，澤連斯基已在很大程度上接受烏克蘭不會成為北約成員國。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796932_1_20250322171941.jpg&q=90)
-  
-
-美國中東問題特使威特科夫說，如果烏克蘭要與俄羅斯達成和平協議，他認為烏克蘭總統澤連斯基已經在很大程度上接受烏克蘭不會成為北約成員國。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm)
-
----
-
-# 保險業聯會指　如所買之旅遊保把機場關閉列為指定風險則可受保障
-
-![香港保險業聯會表示，如果所買的旅遊保險將機場關閉列為指定風險，投保人即可受到旅遊保險保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796931_1_20250322174226.jpg&q=90)
-  
-
-英國倫敦希斯路機場因附近變電站大火導致停電而一度關閉。香港保險業聯會表示，機場停運是由於附近變電站起火，屬突發意外，如果所買的旅遊保險將機場關閉列為指定風險，投保人即可受到旅遊保險保障。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm)
 
 ---

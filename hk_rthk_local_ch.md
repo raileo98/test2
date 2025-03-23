@@ -1,3 +1,73 @@
+# 香港母乳庫逾百位捐贈者　下階段服務將分發至新生兒深切治療部
+
+![黃明沁表示，母乳含有抗體和免疫因子，可保護嬰兒免受感染，對嬰兒來說是最好的食物，她呼籲社會支持捐贈。（政府新聞網）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797009_1_20250323113537.jpg&q=90)
+  
+
+位於香港兒童醫院的香港母乳庫今年1月初成立，至今招募到超過100位合資格捐贈者，收集超過300公升母乳，香港母乳庫總監黃明沁形容成果超乎預期，希望社會各界和各位媽媽支持這個計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797009-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797009-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797009-20250323.htm)
+
+---
+
+# 器官捐贈登記冊逾40萬創新高　盧寵茂稱尚有進步空間籲踴躍登記
+
+  
+
+本港目前有超過2600名器官衰竭患者等待器官移植，醫務衛生局局長盧寵茂表示，現時器官捐贈中央登記名冊數字超過40萬，創歷史新高，呼籲市民繼續踴躍登記。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797008-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797008-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797008-20250323.htm)
+
+---
+
+# 消委會暫接25宗投訴涉Coldplay香港演唱會門票需更換
+
+  
+
+消委會表示，截至今早11時，接獲25宗有關Coldplay香港演唱會需更換門票的投訴，消委會對事件表示關注，敦促Cityline盡快完成換票安排，以保障受影響消費者的權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm)
+
+---
+
 # 科技園：低空經濟「監管沙盒」試點項目實際操作冀下月有定論
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797003_1_20250323105219.jpg&q=90)
@@ -1374,77 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796838-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796838-20250321.htm)
-
----
-
-# 2024年度各項流感疫苗接種計劃共接種約206萬劑創新高
-
-![衞生署表示，截至本月16日，2024/25度各項流感疫苗接種計劃共接種約206萬劑疫苗，較上一流感疫苗接種季度同期增加約12.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796837_1_20250321194838.jpg&q=80)
-  
-
-衞生署表示，截至本月16日，2024/25度各項流感疫苗接種計劃共接種約206萬劑疫苗，較上一流感疫苗接種季度同期增加約12.1%，並已超過上季整體接種劑數，創下歷史新高。就2025/26年度季節性流感疫苗接種計劃，政府表示會繼續加大力度協助高危群組接種流感疫苗，以及研究為參與疫苗資助計劃的私家醫生採購部分流感疫苗的可行性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796837-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796837-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796837-20250321.htm)
-
----
-
-# 李家超與5間有意落戶港深創新及科技園區頂尖科企代表交流
-
-![李家超表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796835_1_20250321194737.jpg&q=80)
-  
-
-行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm)
-
----
-
-# 李家超：今年內完成港深創新及科技園區第二期詳細規劃
-
-![李家超表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796833_1_20250321194247.jpg&q=25)
-  
-
-行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm)
 
 ---

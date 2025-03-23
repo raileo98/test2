@@ -1,3 +1,27 @@
+# Coleman Wong beats Shelton, reaches Miami Open last 32
+
+![Coleman Wong outlasted home favourite Ben Shelton in two hours and 16 minutes. Photo: ATP Media via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797004_2_20250323112824.jpg&q=90)
+  
+
+Hong Kong tennis star Coleman Wong pulled off the biggest triumph of his career in dramatic fashion, defeating 13th seed Ben Shelton of the United States at the Miami Open.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797004-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797004-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797004-20250323.htm)
+
+---
+
 # Protests continue in Turkey after mayor arrested
 
 ![A protester in Istanbul waves Turkey's national flag. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796993_1_20250323083846.jpg&q=90)
@@ -1413,29 +1437,5 @@ All 19 of the world's glacier regions experienced a net loss of mass in 2024 for
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm)
-
----
-
-# China calls for protections for students in US
-
-![Foreign ministry spokesperson Mao Ning urged the US not to impose discriminatory restrictive measures on Chinese students. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796721_1_20250321092239.jpg&q=90)
-  
-
-Beijing on Thursday demanded protections for Chinese students in the US after a congressional panel asked six American universities to hand over a large amount of detailed information on their students, citing national security concerns.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm)
 
 ---
