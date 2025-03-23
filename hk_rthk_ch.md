@@ -1,3 +1,50 @@
+# 港深西部鐵路連接洪水橋至前海　陳美寶冀下半年發邀請意向書
+
+  
+
+運輸及物流局局長陳美寶表示，連接洪水橋至深圳前海的港深西部鐵路項目，目標下半年發出邀請意向書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm)
+
+---
+
+# 莫斯科市郊音樂廳恐襲案一周年　民眾到紀念碑前悼念死者
+
+![莫斯科市郊音樂廳恐襲案一周年，民眾到紀念碑前悼念死難者。 （法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797017_1_20250323133401.jpg&q=90)
+  
+
+俄羅斯莫斯科市郊音樂廳恐襲案發生一周年，現場豎立新建成的紀念碑，數百名民眾到場擺放鮮花和照片，悼念145名死難者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm)
+
+---
+
 # 陳美寶稱市區設無人機起降點有限制　正籌備載人項目相關修例
 
   
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796945-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796945-20250322.htm)
-
----
-
-# 大熊貓龍鳳胎與媽媽同場與訪客見面　兩小時派完即日逾3千時間票
-
-![港產大熊貓龍鳳胎即日起，與媽媽「盈盈」同場與訪客見面。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796944_1_20250322184047.jpg&q=85)
-  
-
-港產大熊貓龍鳳胎即日起，與媽媽「盈盈」同場與訪客見面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796944-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796944-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796944-20250322.htm)
-
----
-
-# 吊臂車吊臂撞架空電纜令輕鐵服務一度受阻　司機被捕
-
-![列車服務於上午11時許逐步恢復正常。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796943_1_20250322183731.jpg&q=80)
-  
-
-天水圍有夾斗吊臂車的吊臂撞到輕鐵天悅站附近的架空電纜，輕鐵服務一度受阻。經過大約4小時復修後，列車服務於上午11時許逐步恢復正常。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796943-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796943-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796943-20250322.htm)
 
 ---

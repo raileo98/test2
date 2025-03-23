@@ -1,3 +1,26 @@
+# 港深西部鐵路連接洪水橋至前海　陳美寶冀下半年發邀請意向書
+
+  
+
+運輸及物流局局長陳美寶表示，連接洪水橋至深圳前海的港深西部鐵路項目，目標下半年發出邀請意向書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm)
+
+---
+
 # 陳美寶稱市區設無人機起降點有限制　正籌備載人項目相關修例
 
   
@@ -1418,32 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796853-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796853-20250321.htm)
-
----
-
-# 中大文物館新翼開幕　9件國家一級文物首次在港展出
-
-![白玉蘭花紋盒—「嘉靖辛酉陸子剛製」款（中大提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796851_1_20250321215132.jpg&q=90)
-![竹編朱漆描彩人物紋長方盒（左）。沈大生竹雕庭園讀書圖筆筒（右）。（中大提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796851_2_20250321215132.jpg&q=90)
-![中大文物館新翼羅桂祥閣由建築師嚴迅奇設計，以懸臂式結構立足中大斜坡之上。(中大提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796851_5_20250321221250.jpg&q=80)
-![中大文物館新翼羅桂祥閣開幕典禮嘉賓合照。（中大提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796851_4_20250321215132.jpg&q=80)
-  
-
-中文大學文物館新翼「羅桂祥閣」今日舉行開幕典禮，新翼開幕展覽「浮世清音——晚明江南藝術與文化」亦同時揭幕，將展出來自本地及海內外共193件珍品，涵蓋書畫及各類器物，呈現晚明的物質生活與藝文風貌，其中9件國家一級文物更是首次在港展出。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796851-20250321.htm)
 
 ---

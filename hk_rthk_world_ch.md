@@ -1,3 +1,27 @@
+# 莫斯科市郊音樂廳恐襲案一周年　民眾到紀念碑前悼念死者
+
+![莫斯科市郊音樂廳恐襲案一周年，民眾到紀念碑前悼念死難者。 （法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797017_1_20250323133401.jpg&q=90)
+  
+
+俄羅斯莫斯科市郊音樂廳恐襲案發生一周年，現場豎立新建成的紀念碑，數百名民眾到場擺放鮮花和照片，悼念145名死難者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm)
+
+---
+
 # 日本三重縣有巴士撞向路邊防風林1死21傷
 
 ![日本三重縣有巴士撞向路邊防風林1死21傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797011_1_20250323122453.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796849-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796849-20250321.htm)
-
----
-
-# 劉建超晤日本訪客　稱兩國政黨對中日關係改善發展肩負重要責任
-
-![劉建超說，兩國政黨對中日關係改善發展肩負重要責任。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796847_1_20250321210225.jpg&q=90)
-  
-
-中共中央對外聯絡部部長劉建超在北京會見由日本立憲民主黨常任顧問、前幹事長岡田克也率領的代表團。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm)
 
 ---

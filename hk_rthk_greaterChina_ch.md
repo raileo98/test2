@@ -1,3 +1,26 @@
+# 港深西部鐵路連接洪水橋至前海　陳美寶冀下半年發邀請意向書
+
+  
+
+運輸及物流局局長陳美寶表示，連接洪水橋至深圳前海的港深西部鐵路項目，目標下半年發出邀請意向書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm)
+
+---
+
 # 韓文秀稱擴大服務消費　形成高質量發展與高品質生活相互促進
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm)
-
----
-
-# 李強簽國務院令　國務院關於涉外知識產權糾紛處理規定5月起施行
-
-![李強簽署國務院令，公布《國務院關於涉外知識產權糾紛處理的規定》，5月1日起施行。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796468_1_20250319191520.jpg&q=90)
-  
-
-國務院總理李強簽署國務院令，公布《國務院關於涉外知識產權糾紛處理的規定》，今年5月1日起施行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796468-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796468-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796468-20250319.htm)
 
 ---
