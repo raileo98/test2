@@ -1,3 +1,27 @@
+# 南韓多地接連發生大規模山火　造成4死6傷　逾千人疏散
+
+![南韓多地的山火持續蔓延，當局出動直升機協助滅火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797010_1_20250323115116.jpg&q=90)
+  
+
+南韓多地接連發生大規模山火，至今造成4人死亡，6人受傷，其中5人傷勢嚴重，另外大約1500人疏散。山林廳上調針對忠清南道、全羅道、慶尚道的國家森林火災危機預警至最高的嚴重級別，政府宣布慶尚南道、慶尚北道、蔚山市進入災難狀態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm)
+
+---
+
 # 謝鋒：「以台制華」徒勞及危險　把關稅武器化終將反噬自身
 
 ![謝鋒應邀以視像方式在卡特中美關係對話會致辭。（中國駐美大使館網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797005_1_20250323105301.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796841-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796841-20250321.htm)
-
----
-
-# 美國司法部長稱已就特斯拉遭破壞事件起訴3人
-
-![美國紐約特斯拉門店外早前有民眾抗議，表達對馬斯克的不滿。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796834_1_20250321191441.jpg&q=80)
-  
-
-美國司法部長邦迪表示，已就電動汽車生產商特斯拉被破壞事件起訴3人，他們涉嫌使用汽油彈在美國特斯拉門店或充電樁縱火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm)
 
 ---

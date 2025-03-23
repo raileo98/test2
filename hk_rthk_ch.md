@@ -1,3 +1,27 @@
+# 南韓多地接連發生大規模山火　造成4死6傷　逾千人疏散
+
+![南韓多地的山火持續蔓延，當局出動直升機協助滅火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797010_1_20250323115116.jpg&q=90)
+  
+
+南韓多地接連發生大規模山火，至今造成4人死亡，6人受傷，其中5人傷勢嚴重，另外大約1500人疏散。山林廳上調針對忠清南道、全羅道、慶尚道的國家森林火災危機預警至最高的嚴重級別，政府宣布慶尚南道、慶尚北道、蔚山市進入災難狀態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm)
+
+---
+
 # 香港母乳庫逾百位捐贈者　下階段服務將分發至新生兒深切治療部
 
 ![黃明沁表示，母乳含有抗體和免疫因子，可保護嬰兒免受感染，對嬰兒來說是最好的食物，她呼籲社會支持捐贈。（政府新聞網）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797009_1_20250323113537.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm)
-
----
-
-# 丘應樺：美國做法「日新月異」　向世貿提出申訴需時準備
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796935_1_20250322183012.jpg&q=90)
-  
-
-特區政府就美國對華產品加徵關稅，範圍包括香港產品，決定向世貿組織提出申訴。商務及經濟發展局局長丘應樺表示，美國的做法「日新月異」，特區政府要審視情況發展，需要時間準備，準備好就會提出申訴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm)
 
 ---
