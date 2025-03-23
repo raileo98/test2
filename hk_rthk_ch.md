@@ -1,3 +1,27 @@
+# 加拿大總理卡尼宣布解散議會　提前在下月28日舉行大選
+
+![卡尼宣布提前大選。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797063_1_20250324004656.jpg&q=90)
+  
+
+加拿大總理卡尼宣布解散議會，並提前在4月28日舉行眾議院選舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797063-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797063-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797063-20250324.htm)
+
+---
+
 # 美烏代表團在沙特會談　美特使期待取得真正進展
 
 ![威特科夫表示，期待會談取得真正進展。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797062_1_20250324004325.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796986-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796986-20250323.htm)
-
----
-
-# 德國總統簽署憲法修正案放寬「債務煞車」限制
-
-![修正案允許政府大規模舉債，投資國防和基礎設施建設。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796985_1_20250323051401.jpg&q=90)
-  
-
-德國總統施泰因邁爾簽署憲法修正案，允許政府大規模舉債，投資國防和基礎設施建設。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796985-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796985-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796985-20250323.htm)
 
 ---
