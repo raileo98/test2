@@ -1,3 +1,27 @@
+# 'Organ donor sign-ups hit record, but more needed'
+
+![Lo Chung-mau said over 2,600 patients in Hong Kong are currently on the waiting list for organ transplants. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797013_1_20250323125053.jpg&q=85)
+  
+
+The Secretary for Health Lo Chung-mau has urged more individuals to register as organ donors, as many patients continue to wait for life-saving transplants.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797013-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797013-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797013-20250323.htm)
+
+---
+
 # HK the place to be for creative firms, FS says
 
 ![Financial secretary Paul Chan said Hong Kong will continue to help mainland companies enter international markets. Photo courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797020_1_20250323141446.jpg&q=85)
@@ -1417,29 +1441,5 @@ Chief Executive John Lee said concerns expressed over CK Hutchison’s deal to s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796206-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796206-20250318.htm)
-
----
-
-# Speedy admission begins for VIPs as Lee woos Asean
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796205_1_20250318110846.jpg&q=85)
-  
-
-A special admission scheme that makes it easier for guests from 10 Asean nations to visit Hong Kong will start on Tuesday, Chief Executive John Lee has announced.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm)
 
 ---

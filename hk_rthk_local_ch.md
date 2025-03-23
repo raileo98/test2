@@ -1,3 +1,26 @@
+# 蕭澤頤稱有些騙案是「當局者迷」　冀市民要提防及提醒身邊人
+
+  
+
+警務處處長蕭澤頤表示，近數星期出現一些騙案令人感到愕然，例如有受害人在一年間被騙超過1300萬元，銀行及警方均曾提醒有關受害人留意是否遇到騙案，但受害人最終仍然被騙。他形容這些騙案，有時是「當局者迷、旁觀者清」，希望所有市民都要提防，並提醒身邊人留意。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797021-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797021-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797021-20250323.htm)
+
+---
+
 # 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
 
   
@@ -23,6 +46,7 @@
 
 # 港深西部鐵路連接洪水橋至前海　陳美寶冀下半年發邀請意向書
 
+![陳美寶希望與深圳採取創新模式推進項目。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797018_1_20250323143932.jpg&q=80)
   
 
 運輸及物流局局長陳美寶表示，連接洪水橋至深圳前海的港深西部鐵路項目，目標下半年發出邀請意向書。
@@ -46,6 +70,7 @@
 
 # 陳美寶稱市區設無人機起降點有限制　正籌備載人項目相關修例
 
+![陳美寶強調當局持開放態度，會兼顧安全及實用性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797016_1_20250323143905.jpg&q=90)
   
 
 運輸及物流局局長陳美寶表示，低空經濟「監管沙盒」首批試點項目，部分以科學園、數碼港及醫院範圍為試點，累積足夠數據及信心後，或可擴大試驗至園區附近，例如跨海至對岸。被問到下一階段會否有載人項目，例如空中的士，陳美寶說，政府正籌備相關修例，包括無人機的負載水平，有待修例通過，相信可以更好籌備載人項目。
@@ -1415,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796856-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796856-20250321.htm)
-
----
-
-# 內地旅客代辦申請駕駛執照承認違反逗留條件　判囚54日
-
-![入境處打擊在港提供代辦申請駕駛執照服務的非法勞工，日前拘捕2人。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796854_1_20250321215609.jpg&q=90)
-  
-
-入境處打擊在港提供代辦申請駕駛執照服務的非法勞工，日前拘捕2人，包括一名內地訪客、及一名涉嫌聘用非法勞工的香港居民僱主。被捕的非法勞工今日在沙田裁判法院被控違反逗留條件，她承認控罪，被判監禁54日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796854-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796854-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796854-20250321.htm)
 
 ---

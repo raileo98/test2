@@ -1,3 +1,27 @@
+# 'Organ donor sign-ups hit record, but more needed'
+
+![Lo Chung-mau said over 2,600 patients in Hong Kong are currently on the waiting list for organ transplants. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797013_1_20250323125053.jpg&q=85)
+  
+
+The Secretary for Health Lo Chung-mau has urged more individuals to register as organ donors, as many patients continue to wait for life-saving transplants.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797013-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797013-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797013-20250323.htm)
+
+---
+
 # HK the place to be for creative firms, FS says
 
 ![Financial secretary Paul Chan said Hong Kong will continue to help mainland companies enter international markets. Photo courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797020_1_20250323141446.jpg&q=85)
@@ -1413,29 +1437,5 @@ China suffered a narrow 1-0 defeat to Saudi Arabia in a Fifa 2026 World Cup qual
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm)
-
----
-
-# 'Coalition of willing' to meet next week on Ukraine
-
-![French President Emmanuel Macron announced the new meeting after a European Union summit in Brussels. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796727_1_20250321094059.jpg&q=90)
-  
-
-French President Emmanuel Macron said leaders of the coalition backing Ukraine would meet again next week, hoping to finalise plans to secure a potential truce in the war with Russia.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm)
 
 ---
