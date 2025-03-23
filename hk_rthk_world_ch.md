@@ -1,3 +1,26 @@
+# 伊斯坦布爾市長稱不會低頭　團隊稱會就法庭羈押裁決提出上訴
+
+  
+
+土耳其伊斯坦布爾刑事法庭就貪污指控，將市長伊馬姆奧盧羈押候訊。法庭說雖然伊馬姆奧盧有重大嫌疑，協助持械恐怖組織，但現階段並無必要為此拘捕他，不過他涉嫌干犯的金融罪行，足以令法庭頒令拘捕他。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm)
+
+---
+
 # 土耳其伊斯坦布爾市長正式被捕　羈押候審
 
 ![土耳其伊斯坦布爾市長伊馬姆奧盧正式被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797039_1_20250323175438.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796864-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796864-20250322.htm)
-
----
-
-# 倫敦希斯路機場將恢復部分航班
-
-![希斯路機場因附近變電站大火，周五取消1300多班機，數以千計乘客滯留。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796863_1_20250322012724.jpg&q=75)
-  
-
-英國倫敦希斯路機場宣布，將於當地周五稍後恢復部分航班，周六計劃全面恢復運作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796863-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796863-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796863-20250322.htm)
 
 ---

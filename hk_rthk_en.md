@@ -1,3 +1,27 @@
+# Reed qualifies for British Open after Macau finish
+
+![Patrick Reed playing a shot during the final round of the 2025 International Series Macau at the Macau Golf and Country Club in Macau. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797045_1_20250323191233.jpg&q=90)
+  
+
+Former Masters champion Patrick Reed qualified for the British Open after coming second behind fellow LIV player Carlos Ortiz at the International Series Macau on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm)
+
+---
+
 # Rugby Sevens tickets selling like hotcakes: organiser
 
 ![The Hong Kong Sevens will take place from March 28 to 30 at Kai Tak Stadium. Photo courtesy of Hong Kong, China Rugby](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797035_1_20250323172148.jpg&q=75)
@@ -1413,29 +1437,5 @@ Hong Kong has seen its winding-up orders hitting the highest level in more than 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm)
-
----
-
-# Moscow's top security official in N Korea: media
-
-![Sergei Shoigu earlier made visits to Pyongyang as North Korea geared up to deploy troops to fight for Russia. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796749_1_20250321113943.jpg&q=90)
-  
-
-Russian President Vladimir Putin's top security adviser Sergei Shoigu has arrived in North Korea and plans to meet its leader Kim Jong-un, the Tass news agency reported on Friday, his latest visit amid dramatic advances in security ties between the countries.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796749-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796749-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796749-20250321.htm)
 
 ---

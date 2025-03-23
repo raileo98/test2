@@ -1,3 +1,26 @@
+# 回應英國《衞報》評論文章　鄧炳強：特區政府反對誹謗法院
+
+  
+
+英國《衞報》日前刊登評論文章，指出黎智英被阻撓選擇代表律師，而有關決定不受法律挑戰，等同賦予維護國家安全委員會所謂「警察國家」的權力。保安局局長鄧炳強去信《衞報》表達強烈反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm)
+
+---
+
 # 衞生署稱已聯絡中大醫院調查及跟進手術期間天花漏水事件
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796904-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796904-20250322.htm)
-
----
-
-# 今年首兩個月網上續領「行車證」申請　較去年同期升逾八成
-
-![運輸署表示，優化措施至今運作暢順，署方會繼續檢視運作流程。（運輸署社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796903_1_20250322110346.jpg&q=90)
-  
-
-運輸署表示，優化車輛牌照措施去年底實施，今年1至2月，透過網上續領「行車證」的申請共有約36800宗，較去年同期大幅上升超過八成，至今發出超過19萬張新證。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796903-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796903-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796903-20250322.htm)
 
 ---

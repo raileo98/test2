@@ -1,3 +1,27 @@
+# Reed qualifies for British Open after Macau finish
+
+![Patrick Reed playing a shot during the final round of the 2025 International Series Macau at the Macau Golf and Country Club in Macau. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797045_1_20250323191233.jpg&q=90)
+  
+
+Former Masters champion Patrick Reed qualified for the British Open after coming second behind fellow LIV player Carlos Ortiz at the International Series Macau on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm)
+
+---
+
 # Rugby Sevens tickets selling like hotcakes: organiser
 
 ![The Hong Kong Sevens will take place from March 28 to 30 at Kai Tak Stadium. Photo courtesy of Hong Kong, China Rugby](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797035_1_20250323172148.jpg&q=75)
@@ -1414,30 +1438,5 @@ Tiger Woods revealed he had undergone surgery to repair a ruptured left Achilles
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795356-20250312.htm)
-
----
-
-# PSG dump Liverpool out of Champions League
-
-![Ousmane Dembele's early strike brought PSG level at 1-all on aggregate. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_1_20250312072008.jpg&q=90)
-![Liverpool were only able to convert on one of their penalty kicks. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795353_2_20250312072008.jpg&q=75)
-  
-
-Paris Saint-Germain produced a historic turnaround to progress to the Champions League quarter-finals at Liverpool's expense as they triumphed 4-1 on penalties after a 1-0 second leg win at Anfield.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm)
 
 ---

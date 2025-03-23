@@ -1,3 +1,27 @@
+# Reed qualifies for British Open after Macau finish
+
+![Patrick Reed playing a shot during the final round of the 2025 International Series Macau at the Macau Golf and Country Club in Macau. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797045_1_20250323191233.jpg&q=90)
+  
+
+Former Masters champion Patrick Reed qualified for the British Open after coming second behind fellow LIV player Carlos Ortiz at the International Series Macau on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm)
+
+---
+
 # McLaren's Piastri wins Chinese Grand Prix
 
 ![McLaren's Oscar Piastri celebrates on the podium after winning the Chinese Grand Prix with second placed McLaren's Lando Norris and third placed Mercedes' George Russell. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797037_1_20250323172831.jpg&q=55)
@@ -1412,29 +1436,5 @@ The Commerce Ministry on Saturday announced that it will impose additional tarif
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm)
-
----
-
-# China export growth slows, imports fall
-
-![Chinese exports climb 2.3 percent in the first two months of the year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794761_1_20250307171431.jpg&q=90)
-  
-
-China's export growth grew slower than expected in the first two months of this year while imports fell sharply, amid escalating trade tensions between the world's two biggest economies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm)
 
 ---

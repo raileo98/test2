@@ -1,3 +1,26 @@
+# 伊斯坦布爾市長稱不會低頭　團隊稱會就法庭羈押裁決提出上訴
+
+  
+
+土耳其伊斯坦布爾刑事法庭就貪污指控，將市長伊馬姆奧盧羈押候訊。法庭說雖然伊馬姆奧盧有重大嫌疑，協助持械恐怖組織，但現階段並無必要為此拘捕他，不過他涉嫌干犯的金融罪行，足以令法庭頒令拘捕他。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm)
+
+---
+
 # 滙豐艾橋智：供應鏈和產業鏈是促進中國及全球貿易增長基石
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm)
-
----
-
-# 消防處籲如受廈村貨倉火警煙霧或異味影響　關閉窗戶保持鎮定
-
-![消防處派出三條喉及三隊煙帽隊到場灌救。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796968_1_20250322221753.jpg&q=90)
-  
-
-天水圍廈村附近一個貨倉發生火警，消防處正進行滅火行動，提醒附近居民如果受到隨風飄散的煙霧和異味影響，要關閉門窗及保持鎮定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm)
 
 ---
