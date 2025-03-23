@@ -1,3 +1,26 @@
+# 滙豐艾橋智：供應鏈和產業鏈是促進中國及全球貿易增長基石
+
+  
+
+滙豐行政總裁艾橋智出席在北京舉辦的中國發展高層論壇2025年年會。他表示，中國正進行的經濟轉型，創造了大量新的發展機遇，電動汽車、可再生能源、生物科技等領域的新動能表現亮眼，不單為經濟發展增值，也為出口提供了新的增長點，相信中國在今年及未來5年將繼續為世界經濟增長提供動力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm)
+
+---
+
 # 衞生署稱已聯絡中大醫院調查及跟進手術期間天花漏水事件
 
   
@@ -814,7 +837,7 @@
 
 # 李強：制定出台民營經濟促進法　讓企業家放心幹事創業
 
-![李強表示，制定出台民營經濟促進法，可以讓企業家放心創業。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796998_2_20250323114059.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796998_2_20250323114059.jpg&q=90)
   
 
 中國發展高層論壇2025年年會早上在北京開幕，國務院總理李強發表主旨演講時表示，今年經濟增長目標設定為5%左右，既是源於對中國經濟基礎條件的深刻把握，也源於對自身治理能力和未來發展潛力的堅定信心，將注重加大政策力度，結合激發市場力量，努力實現預期目標。
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm)
-
----
-
-# Cityline新增廣州及深圳兩個換票點　並研究快遞門票換領
-
-![Cityline對於造成的不便深感抱歉。（Cityline社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796967_1_20250322221708.jpg&q=90)
-  
-
-英國著名樂隊Coldplay下月將於啟德體育園，舉行巡迴演唱會，但部份門票資料出錯，需要更換新版門票。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796967-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796967-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796967-20250322.htm)
 
 ---

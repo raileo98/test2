@@ -1,3 +1,26 @@
+# 滙豐艾橋智：供應鏈和產業鏈是促進中國及全球貿易增長基石
+
+  
+
+滙豐行政總裁艾橋智出席在北京舉辦的中國發展高層論壇2025年年會。他表示，中國正進行的經濟轉型，創造了大量新的發展機遇，電動汽車、可再生能源、生物科技等領域的新動能表現亮眼，不單為經濟發展增值，也為出口提供了新的增長點，相信中國在今年及未來5年將繼續為世界經濟增長提供動力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm)
+
+---
+
 # 陳茂波稱國家踐行真正多邊主義　同時推動科技及產業創新融合
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797032_1_20250323174025.jpg&q=85)
@@ -168,7 +191,7 @@
 
 # 李強：制定出台民營經濟促進法　讓企業家放心幹事創業
 
-![李強表示，制定出台民營經濟促進法，可以讓企業家放心創業。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796998_2_20250323114059.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796998_2_20250323114059.jpg&q=90)
   
 
 中國發展高層論壇2025年年會早上在北京開幕，國務院總理李強發表主旨演講時表示，今年經濟增長目標設定為5%左右，既是源於對中國經濟基礎條件的深刻把握，也源於對自身治理能力和未來發展潛力的堅定信心，將注重加大政策力度，結合激發市場力量，努力實現預期目標。
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796750-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796750-20250321.htm)
-
----
-
-# 陳美寶冀低空經濟監管沙盒累積經驗　強調安全至上
-
-![陳美寶表示，低空經濟監管沙盒申請反應熱烈，希望從中累積經驗，強調安全至上。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796752_1_20250321120322.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶表示，低空經濟監管沙盒申請反應熱烈，希望從中累積經驗，強調安全至上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796752-20250321.htm)
 
 ---
