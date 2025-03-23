@@ -1,3 +1,27 @@
+# Protests continue in Turkey after mayor arrested
+
+![A protester in Istanbul waves Turkey's national flag. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796993_1_20250323083846.jpg&q=90)
+  
+
+Huge crowds gathered outside Istanbul City Hall late on Saturday for a fourth night of protests over the arrest of Mayor Ekrem Imamoglu, who has blasted official allegations against him as "immoral and baseless".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm)
+
+---
+
 # UK to announce more cuts in budget update
 
 ![Finance minister Rachel Reeves is expected to reduce the administration budgets for the civil service by 10 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796992_1_20250323073004.jpg&q=90)
@@ -1413,29 +1437,5 @@ Beijing on Thursday demanded protections for Chinese students in the US after a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm)
-
----
-
-# Trump moves to shut down Department of Education
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796723_1_20250321092630.jpg&q=75)
-  
-
-US President Donald Trump on Thursday signed an executive order aimed at shutting down the Department of Education, a decades-old goal of the American right, which wants individual states to run schools free from the influence of federal government.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm)
 
 ---

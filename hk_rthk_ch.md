@@ -25,7 +25,7 @@
 
 # 美國邁阿密網球公開賽　香港球手黃澤林淘汰13號種子晉級第三圈
 
-![黃澤林淘汰13號種子、美國的舒爾頓，晉級邁阿密網球公開賽第三圈。（中國香港網球總會Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796989_1_20250323073742.jpg&q=90)
+![黃澤林淘汰13號種子、美國的舒爾頓，晉級邁阿密網球公開賽第三圈。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796989_2_20250323081935.jpg&q=90)
   
 
 美國邁阿密網球公開賽男單次圈，20歲、持「外卡」參賽的本港球手黃澤林，爆冷淘汰13號種子、美國的舒爾頓。
@@ -313,7 +313,7 @@
 
 ---
 
-# 澤連斯基視察烏東前線前指所
+# 澤連斯基視察烏東前線前指揮所
 
 ![澤連斯基到東部頓涅茨克地區視察，並在波克羅夫斯克烏軍指揮所聽取前線局勢報告。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796975_1_20250323002251.jpg&q=90)
   

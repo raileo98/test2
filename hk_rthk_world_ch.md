@@ -265,7 +265,7 @@
 
 ---
 
-# 澤連斯基視察烏東前線前指所
+# 澤連斯基視察烏東前線前指揮所
 
 ![澤連斯基到東部頓涅茨克地區視察，並在波克羅夫斯克烏軍指揮所聽取前線局勢報告。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796975_1_20250323002251.jpg&q=90)
   

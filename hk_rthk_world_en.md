@@ -1,3 +1,27 @@
+# Protests continue in Turkey after mayor arrested
+
+![A protester in Istanbul waves Turkey's national flag. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796993_1_20250323083846.jpg&q=90)
+  
+
+Huge crowds gathered outside Istanbul City Hall late on Saturday for a fourth night of protests over the arrest of Mayor Ekrem Imamoglu, who has blasted official allegations against him as "immoral and baseless".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm)
+
+---
+
 # Pope Francis to be discharged from hospital
 
 ![Professor Sergio Alfieri (R) gives a press conference at the Gemelli Hospital. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796991_1_20250323072549.jpg&q=90)
@@ -1411,29 +1435,5 @@ Israel launched new strikes against Hamas on Tuesday and promised "increasing mi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796187-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796187-20250318.htm)
-
----
-
-# MMA star Conor McGregor meets Trump at White House
-
-![Irish UFC fighter Conor McGregor stands at the briefing room lectern with White House press secretary Karoline Leavitt. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796184_1_20250318092653.jpg&q=90)
-  
-
-Irish mixed martial arts fighter Conor McGregor, who has been found liable of sexual assault, met Donald Trump during a Saint Patrick's Day visit on Monday during which he lashed out at illegal immigration in Ireland.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796184-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796184-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796184-20250318.htm)
 
 ---
