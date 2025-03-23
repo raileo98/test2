@@ -1,3 +1,26 @@
+# 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
+
+  
+
+中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，形容感覺很好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm)
+
+---
+
 # 港深西部鐵路連接洪水橋至前海　陳美寶冀下半年發邀請意向書
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796471-20250319.htm)
-
----
-
-# 李家超會見廣東省省長王偉中　就進一步加強粵港合作交流
-
-![李家超在禮賓府會見率團訪港的廣東省省長王偉中。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796470_1_20250319194522.jpg&q=90)
-  
-
-行政長官李家超在禮賓府，會見率團訪港的廣東省省長王偉中，雙方就進一步加強粵港合作及推動大灣區高質量發展交流意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796470-20250319.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
+
+  
+
+中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，形容感覺很好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm)
+
+---
+
 # 港深西部鐵路連接洪水橋至前海　陳美寶冀下半年發邀請意向書
 
   
@@ -1416,30 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796854-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796854-20250321.htm)
-
----
-
-# 發展局：葵青區工廈整幢改裝撥部分樓面作建築技術研究用途
-
-![安樂工程集團集團新總部舉行開幕典禮，發展局局長甯漢豪出席儀式並參觀設計研發及培訓中心。（安樂工程提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796853_2_20250321232101.jpg&q=75)
-![安樂工程大廈從工廈蛻變為智慧建築，成為政府活化工廈計劃的項目之一。（安樂工程提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796853_3_20250321232101.jpg&q=90)
-  
-
-發展局局長甯漢豪出席「活化工廈」計劃下一個整幢改裝項目的開幕典禮。這座位於葵青區的工廈完成改裝後，業主便按照政府的要求，撥出不少於百分之十樓面面積，設立「設計、研究及訓練中心」。中心會就各項嶄新的建築技術進行研究，其中包括「機電裝備合成法」技術，即「MiMEP」技術。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796853-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796853-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796853-20250321.htm)
 
 ---

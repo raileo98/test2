@@ -1,3 +1,27 @@
+# HK the place to be for creative firms, FS says
+
+![Financial secretary Paul Chan said Hong Kong will continue to help mainland companies enter international markets. Photo courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797020_1_20250323141446.jpg&q=85)
+  
+
+Financial secretary Paul Chan pledged his support for Hong Kong's cultural and creative industries, saying they will thrive under the city's unique east-meets-west and inclusive environment.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm)
+
+---
+
 # Turn research into real-world applications: tech exec
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797006_1_20250323111456.jpg&q=85)
@@ -1417,29 +1441,5 @@ A special admission scheme that makes it easier for guests from 10 Asean nations
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796205-20250318.htm)
-
----
-
-# RTHK to show giant panda documentary
-
-![RTHK is set to premiere the documentary "The Panda Adventure" in April.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796118_1_20250317202335.jpg&q=85)
-  
-
-RTHK has been granted free broadcasting rights for a documentary that explores the world of giant pandas and the nation's dedicated conservation efforts to protect these beloved creatures.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796118-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796118-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796118-20250317.htm)
 
 ---

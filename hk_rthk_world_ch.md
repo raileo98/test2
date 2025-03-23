@@ -1,3 +1,26 @@
+# 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
+
+  
+
+中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，形容感覺很好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm)
+
+---
+
 # 莫斯科市郊音樂廳恐襲案一周年　民眾到紀念碑前悼念死者
 
 ![莫斯科市郊音樂廳恐襲案一周年，民眾到紀念碑前悼念死難者。 （法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797017_1_20250323133401.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm)
-
----
-
-# 埃及南部有樓宇倒塌至少6死11傷
-
-![埃及南部有樓宇倒塌至少6死11傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796849_1_20250321213125.jpg&q=90)
-  
-
-埃及南部一座樓宇倒塌，造成至少6人死亡，11人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796849-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796849-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796849-20250321.htm)
 
 ---

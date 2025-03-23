@@ -1,3 +1,26 @@
+# 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
+
+  
+
+中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，形容感覺很好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm)
+
+---
+
 # 韓文秀稱擴大服務消費　形成高質量發展與高品質生活相互促進
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796745-20250321.htm)
-
----
-
-# 恒指跌幅擴大至逾400點　失守24000點
-
-![恒生指數失守24000點關口後，跌幅逐步擴大至逾400點，較早時報23769點，跌450點，跌幅1.86%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796742_1_20250321110615.jpg&q=90)
-  
-
-港股連跌兩日，恒生指數失守24000點關口後，跌幅逐步擴大至逾400點，較早時報23769點，跌450點，跌幅1.86%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796742-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796742-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796742-20250321.htm)
 
 ---

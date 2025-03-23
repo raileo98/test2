@@ -1,3 +1,27 @@
+# HK the place to be for creative firms, FS says
+
+![Financial secretary Paul Chan said Hong Kong will continue to help mainland companies enter international markets. Photo courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797020_1_20250323141446.jpg&q=85)
+  
+
+Financial secretary Paul Chan pledged his support for Hong Kong's cultural and creative industries, saying they will thrive under the city's unique east-meets-west and inclusive environment.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm)
+
+---
+
 # Turn research into real-world applications: tech exec
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797006_1_20250323111456.jpg&q=85)
@@ -1413,29 +1437,5 @@ French President Emmanuel Macron said leaders of the coalition backing Ukraine w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm)
-
----
-
-# Hong Kong stocks fall 0.46pc at the open
-
-![Shares of CK Hutchison were down HK$1.10 in early trading after it announced a drop in profits for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796728_1_20250321095016.jpg&q=75)
-  
-
-Hong Kong's Hang Seng Index fell 110.88 points, or 0.46 percent, to open at 24,109 points on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
+
+  
+
+中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，形容感覺很好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm)
+
+---
+
 # 港深西部鐵路連接洪水橋至前海　陳美寶冀下半年發邀請意向書
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796946-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796946-20250322.htm)
-
----
-
-# 回應長和出售巴拿馬港口營運權　譚耀宗冀個人和企業都小心處理
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796945_1_20250322190144.jpg&q=90)
-  
-
-全國港澳研究會副會長、前全國人大常委譚耀宗回應長和出售巴拿馬港口營運權事件，表示希望個人和企業都小心謹慎處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796945-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796945-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796945-20250322.htm)
 
 ---
