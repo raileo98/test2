@@ -1,3 +1,26 @@
+# 七欖賽事套票已售近43000張　大會料13萬8千名觀眾入場
+
+  
+
+香港國際七人欖球賽本月28至30日、一連3天在啟德體育園主場館舉行，大會表示，過去一周再售出8000張門票，三日的套票累計已售出近43000張，預計一連三日的比賽將有13萬8千名觀眾入場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm)
+
+---
+
 # 黃澤林在邁阿密網球精英賽挫世界排名14舒爾頓　形容勝利屬香港
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796891-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796891-20250322.htm)
-
----
-
-# 吊臂車損毀架空電纜　輕鐵705及706綫不停天悅站及天恆站
-
-![輕鐵天悅站附近損毁的架空電纜。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796885_2_20250322094200.jpg&q=90)
-  
-
-輕鐵天悅站附近有吊臂車經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796885-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796885-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796885-20250322.htm)
 
 ---

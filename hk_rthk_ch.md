@@ -1,3 +1,26 @@
+# 七欖賽事套票已售近43000張　大會料13萬8千名觀眾入場
+
+  
+
+香港國際七人欖球賽本月28至30日、一連3天在啟德體育園主場館舉行，大會表示，過去一周再售出8000張門票，三日的套票累計已售出近43000張，預計一連三日的比賽將有13萬8千名觀眾入場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm)
+
+---
+
 # 黃澤林在邁阿密網球精英賽挫世界排名14舒爾頓　形容勝利屬香港
 
   
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm)
-
----
-
-# 聯合國指以色列新撤離令直接影響加沙地帶內共19個社區逾6萬人
-
-![汗尤尼斯數以萬計民眾受撤離令影響。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796953_1_20250322203852.jpg&q=75)
-  
-
-聯合國指自從以色列在過去的星期二，對加沙多個地區發布新的撤離令以來，地帶內共19個社區受到直接影響，包括北部的13個社區，以及汗尤尼斯東部的6個社區，受影響人數分別約3萬人及3萬5千人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm)
 
 ---
