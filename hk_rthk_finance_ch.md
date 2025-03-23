@@ -1,3 +1,27 @@
+# 李強：沒哪個國家的繁榮靠加關稅實現　只能靠開放靠合作
+
+![李強會見美國國會參議員戴安斯及部分美國企業界人士。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797068_1_20250324031706.jpg&q=80)
+  
+
+國務院總理李強昨日在北京人民大會堂，會見來華出席中國發展高層論壇年會的美國國會參議員戴安斯，以及部分美國企業界人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm)
+
+---
+
 # 渣打集團：中國相關業務迎來更廣闊機遇
 
 ![溫拓思說中國經濟發展態勢向好、科技實力顯著提升、企業出海步伐提速。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797057_1_20250323225756.jpg&q=40)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796757-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796757-20250321.htm)
-
----
-
-# 減省公務員工作流程提升效率　楊何蓓茵：並非不理大家死活
-
-![楊何蓓茵說，希望透過減省工作流程，重訂工作優次，令工作更有效率和成效。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796754_1_20250321121718.jpg&q=90)
-  
-
-立法會一個委員會討論公務員2025/26年度凍薪，以及在本屆政府任期內削減約1萬個職位等事項。公務員事務局局長楊何蓓茵表示，現時公務員編制有約10%空缺，希望各部門作出檢視，了解有關職位是否仍有需要，若無需要就不再重新招聘。她強調未來並非「不理大家死活」，要求由10個人做，變成8個人做，而是希望透過減省工作流程，重訂工作優次，令工作更有效率和成效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm)
 
 ---

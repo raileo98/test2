@@ -1,3 +1,27 @@
+# 李強：沒哪個國家的繁榮靠加關稅實現　只能靠開放靠合作
+
+![李強會見美國國會參議員戴安斯及部分美國企業界人士。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797068_1_20250324031706.jpg&q=80)
+  
+
+國務院總理李強昨日在北京人民大會堂，會見來華出席中國發展高層論壇年會的美國國會參議員戴安斯，以及部分美國企業界人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm)
+
+---
+
 # 渣打集團：中國相關業務迎來更廣闊機遇
 
 ![溫拓思說中國經濟發展態勢向好、科技實力顯著提升、企業出海步伐提速。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797057_1_20250323225756.jpg&q=40)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm)
-
----
-
-# 陳茂波前赴北京將出席中國發展高層論壇　與中央部委討論加強合作
-
-![陳茂波傍晚啟程到北京訪問，稍後會出席中國發展高層論壇。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796574_1_20250320123054.jpg&q=90)
-  
-
-財政司司長陳茂波傍晚啟程到北京訪問，稍後會出席中國發展高層論壇，並在其中一場專題研討會發言。他亦會與相關的中央部委和機構人員會面和討論加強合作，並到訪企業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm)
 
 ---

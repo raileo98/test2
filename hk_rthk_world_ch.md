@@ -1,3 +1,27 @@
+# 李強：沒哪個國家的繁榮靠加關稅實現　只能靠開放靠合作
+
+![李強會見美國國會參議員戴安斯及部分美國企業界人士。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797068_1_20250324031706.jpg&q=80)
+  
+
+國務院總理李強昨日在北京人民大會堂，會見來華出席中國發展高層論壇年會的美國國會參議員戴安斯，以及部分美國企業界人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm)
+
+---
+
 # 被驅逐的南非駐美大使回國　強調不會因外部壓力改變立場
 
 ![拉蘇爾在開普敦機場發表講話，指回國並非自己的選擇，但無怨無悔。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797066_1_20250324023734.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796900-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796900-20250322.htm)
-
----
-
-# 德法英籲立即恢復加沙停火　以國應恢復人道援助　哈馬斯應放人質
-
-![加沙經過多個月戰爭，損毀嚴重。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796897_1_20250322092549.jpg&q=85)
-  
-
-德法英三國外長發表聯合聲明，呼籲立即恢復加沙停火、以色列應恢復人道援助，哈馬斯亦應該釋放人質。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796897-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796897-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796897-20250322.htm)
 
 ---
