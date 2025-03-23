@@ -1,3 +1,27 @@
+# Norway's Jakob Ingebrigtsen wins 1,500m in Nanjing
+
+![Norway’s Jakob Ingebrigtsen celebrates after winning the men’s 1500m final during the Indoor World Athletics Championships in Nanjing, Jiangsu province. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797058_1_20250323214422.jpg&q=90)
+  
+
+Norway's Jakob Ingebrigtsen won the 1,500m in Nanjing on Sunday to claim not only a first global gold in his favoured distance, but also a rare world indoor track distance double.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm)
+
+---
+
 # Reed qualifies for British Open after Macau finish
 
 ![Patrick Reed playing a shot during the final round of the 2025 International Series Macau at the Macau Golf and Country Club in Macau. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797045_1_20250323191233.jpg&q=90)
@@ -1412,29 +1436,5 @@ The nation’s top legislators on Saturday pledged to formulate and amend a slew
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794861-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794861-20250308.htm)
-
----
-
-# Beijing to impose additional tariffs on Canada
-
-![The Commerce Ministry said the additional tariffs are to take effect March 20. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794864_1_20250308110510.jpg&q=80)
-  
-
-The Commerce Ministry on Saturday announced that it will impose additional tariffs on some products imported from Canada based on the ruling of an anti-discrimination probe.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794864-20250308.htm)
 
 ---
