@@ -1,5 +1,6 @@
 # 泰國抵港旅客行李藏有懷疑大麻花　於機場被捕
 
+![泰國抵港旅客行李藏有懷疑大麻花　於機場被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797012_1_20250323123834.jpg&q=90)
   
 
 海關在機場偵破一宗販毒案，在一件行李內檢獲約10公斤、估計市值約220萬元的懷疑大麻花。
