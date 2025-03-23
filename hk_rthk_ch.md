@@ -1,3 +1,26 @@
+# 羅傑承中學21師生往肇慶交流出現腸胃炎徵狀　8人染諾如病毒
+
+  
+
+保良局羅傑承（一九八三）中學21名師生參加肇慶交流團期間出現與諾如病毒感染吻合的病徵，當中18人曾在當地求醫，全部情況穩定並已出院，其中8人對諾如病毒呈陽性反應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm)
+
+---
+
 # 中大醫院證實手術室天花曾漏水　不屬須呈報衞生署類別
 
   
@@ -1405,29 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm)
-
----
-
-# Coldplay有門票出錯需更換　文體旅局促售票公司妥善處理
-
-![文化體育及旅遊局表示，高度關注 Cityline 印製 Coldplay 演唱會部分門票資料出錯的事件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796973_1_20250322225841.jpg&q=80)
-  
-
-文化體育及旅遊局表示，高度關注 Cityline 印製 Coldplay 演唱會部分門票資料出錯的事件，局方得知事件後已立即要求Cityline作出快速和妥善處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796973-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796973-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796973-20250322.htm)
 
 ---

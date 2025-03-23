@@ -1,3 +1,26 @@
+# 羅傑承中學21師生往肇慶交流出現腸胃炎徵狀　8人染諾如病毒
+
+  
+
+保良局羅傑承（一九八三）中學21名師生參加肇慶交流團期間出現與諾如病毒感染吻合的病徵，當中18人曾在當地求醫，全部情況穩定並已出院，其中8人對諾如病毒呈陽性反應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm)
+
+---
+
 # 中大醫院證實手術室天花曾漏水　不屬須呈報衞生署類別
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796908-20250322.htm)
-
----
-
-# 「幻彩詠香江」燈光音樂匯演今晚暫停
-
-![「幻彩詠香江」燈光音樂匯演今晚暫停。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796907_1_20250322145851.jpg&q=90)
-  
-
-旅遊事務署宣布，為響應世界自然基金會舉辦的「地球一小時2025」活動，「幻彩詠香江」燈光音樂匯演今晚暫停。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796907-20250322.htm)
 
 ---
