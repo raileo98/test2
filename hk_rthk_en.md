@@ -1,3 +1,27 @@
+# Hamas official killed as Gaza death toll passes 50,000
+
+![Palestinians attend the funeral of Hamas political leader Salah al-Bardaweel. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797059_1_20250323233123.jpg&q=80)
+  
+
+An Israeli airstrike in southern Gaza killed a Hamas political leader, Salah al-Bardaweel, on Sunday, the militant group said, as Palestinian officials put the death toll from nearly 18 months of conflict at over 50,000.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm)
+
+---
+
 # Norway's Jakob Ingebrigtsen wins 1,500m in Nanjing
 
 ![Norway’s Jakob Ingebrigtsen celebrates after winning the men’s 1500m final during the Indoor World Athletics Championships in Nanjing, Jiangsu province. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797058_1_20250323214422.jpg&q=90)
@@ -1413,29 +1437,5 @@ Chief Executive John Lee on Friday said the city will soon launch a HK$3 billion
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm)
-
----
-
-# Vinicius dashes Colombia hopes with late winner
-
-![Vinicius Jr and a teammate celebrate after the stoppage-time winner against Colombia at the Mane Garrincha stadium in Brasilia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796760_1_20250321123836.jpg&q=85)
-  
-
-Vinicius Junior struck a dramatic winner in the ninth minute of stoppage time to give Brazil a 2-1 win over Colombia in their South American World Cup qualifier.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm)
 
 ---

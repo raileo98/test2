@@ -1,3 +1,27 @@
+# 以軍空襲加沙南部醫院擊斃哈馬斯政治局成員　戰事至今逾5萬人死
+
+![納賽爾醫院遭空襲後冒出火光。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797070_1_20250324042810.jpg&q=90)
+  
+
+以色列軍方星期日晚空襲加沙南部城市汗尤尼斯的納賽爾醫院，巴勒斯坦醫護人員說，至少5人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797070-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797070-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797070-20250324.htm)
+
+---
+
 # 胡塞武裝稱美軍空襲也門首都　白宮稱已成功打擊組織關鍵領導層
 
 ![也門首都薩那日前亦遭受美軍空襲。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797069_1_20250324041859.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796997-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796997-20250323.htm)
-
----
-
-# 大欖隧道兩輛的士相撞　兩名司機受輕傷
-
-![大欖隧道兩輛的士相撞　兩名司機受輕傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796996_1_20250323094000.jpg&q=90)
-  
-
-大欖隧道管道往九龍方向，凌晨3時許發生交通意外。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796996-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796996-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796996-20250323.htm)
 
 ---

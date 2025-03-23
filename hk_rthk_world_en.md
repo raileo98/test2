@@ -1,3 +1,27 @@
+# Hamas official killed as Gaza death toll passes 50,000
+
+![Palestinians attend the funeral of Hamas political leader Salah al-Bardaweel. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797059_1_20250323233123.jpg&q=80)
+  
+
+An Israeli airstrike in southern Gaza killed a Hamas political leader, Salah al-Bardaweel, on Sunday, the militant group said, as Palestinian officials put the death toll from nearly 18 months of conflict at over 50,000.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm)
+
+---
+
 # Pope calls for 'immediate' end to Israeli strikes
 
 ![Pope Francis waving to the crowd from a window of the Gemelli hospital in Rome before being discharged following a five weeks hospitalization for pneumonia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797050_1_20250323194641.jpg&q=85)
@@ -1411,29 +1435,5 @@ Despair mixed with anger in Kocani, North Macedonia on Tuesday in the wake of a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm)
-
----
-
-# 'Hamas chose war by refusing to release hostages'
-
-![Palestinians flee their homes after the Israeli army issues evacuation orders. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796296_1_20250318213006.jpg&q=85)
-  
-
-The United States on Tuesday said that Hamas had chosen war by refusing to release hostages, as Israel unleashed its most intense strikes since a ceasefire, killing more than 400 people, and vowed to continue fighting until all hostages are returned.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796296-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796296-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796296-20250318.htm)
 
 ---
