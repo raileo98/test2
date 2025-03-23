@@ -1,3 +1,26 @@
+# 渣打集團：中國相關業務迎來更廣闊機遇
+
+  
+
+渣打集團行政總裁溫拓思說，中國經濟發展態勢向好、科技實力顯著提升、企業出海步伐提速，渣打集團中國相關業務迎來更廣闊機遇，將持續深耕中國市場，拓展投資和運營。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm)
+
+---
+
 # 滙豐艾橋智：供應鏈和產業鏈是促進中國及全球貿易增長基石
 
 ![艾橋智提到，供應鏈和產業鏈發展是促進中國乃至全球貿易持續增長的基石。（滙豐資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797043_1_20250323201330.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796754-20250321.htm)
-
----
-
-# 滬股半日跌近1%　創業板跌1.7%
-
-![上證綜合指數半日失守3400點，報3376點，跌31點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796750_1_20250321114718.jpg&q=85)
-  
-
-滬深股市半日跌近1%或以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796750-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796750-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796750-20250321.htm)
 
 ---

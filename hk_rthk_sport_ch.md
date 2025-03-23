@@ -1,3 +1,27 @@
+# 香港打吡大賽逾7.2萬人次入場創新高
+
+![馬場導賞團吸引不少內地旅客參加。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797055_1_20250323212139.jpg&q=85)
+  
+
+沙田馬場今日舉行香港打吡大賽，賽事吸引近7.2萬人入場，當中沙田入場人數為超過6.1萬人，內地及海外旅客的入場人數超過9000人，兩者均創下歷來香港打吡大賽新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm)
+
+---
+
 # 七欖賽事套票已售近43000張　大會料13萬8千名觀眾入場
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797028_1_20250323160849.jpg&q=80)
@@ -1430,29 +1454,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794630-20250306.htm)
-
----
-
-# LIV Golf香港站及國際七人欖球賽獲「M」品牌認可
-
-![委員會認為，兩項賽事彰顯香港作為國際體育盛事之都的地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794616_1_20250306205347.jpg&q=80)
-  
-
-大型體育活動事務委員會已向「LIV Golf 2025香港站」及「2025年國泰／滙豐香港國際七人欖球賽」頒授「M」品牌認可。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm](https://news.rthk.hk/rthk/ch/component/k2/1794616-20250306.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 渣打集團：中國相關業務迎來更廣闊機遇
+
+  
+
+渣打集團行政總裁溫拓思說，中國經濟發展態勢向好、科技實力顯著提升、企業出海步伐提速，渣打集團中國相關業務迎來更廣闊機遇，將持續深耕中國市場，拓展投資和運營。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm)
+
+---
+
+# 許勤訪西九文化區　參觀兩個博物館
+
+![許勤（左二）與唐英年（右二）等人於M+合影。（唐英年提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797056_1_20250323212057.jpg&q=85)
+![許勤亦參觀香港故宮文化博物館。（唐英年提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797056_2_20250323212057.jpg&q=85)
+  
+
+黑龍江省委書記許勤昨日到西九文化區參觀，西九文化區管理局董事局主席唐英年、行政總裁馮程淑儀及香港故宮文化博物館館長吳志華，向許勤講解文化區的發展情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm)
+
+---
+
 # 李強晤美國聯邦參議員戴安斯　稱中美關係發展到新的重要節點
 
 ![李強在北京會見美國聯邦參議員戴安斯及部分美國企業界人士。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797053_1_20250323205041.jpg&q=90)
@@ -1388,52 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796574-20250320.htm)
-
----
-
-# 北京U20球員郭嘉璇離世　北京足協感痛心組專家分析訓練賽視頻
-
-  
-
-早前於西班牙集訓期間意外受傷、導致腦死亡的北京U20足球隊隊員郭嘉璇，星期三晚在北京天壇醫院去世，終年18歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796570-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796570-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796570-20250320.htm)
-
----
-
-# 中關村論壇年會月底北京舉行　突出科技前沿圍繞AI大模型等領域
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796566_1_20250320183721.jpg&q=90)
-  
-
-中關村論壇年會本月27日至31日在北京舉行，今屆以「新質生產力與全球科技合作」為主題，逾百個國家和地區、上千名嘉賓參與。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796566-20250320.htm)
 
 ---

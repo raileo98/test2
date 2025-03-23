@@ -1,3 +1,52 @@
+# 許勤訪西九文化區　參觀兩個博物館
+
+![許勤（左二）與唐英年（右二）等人於M+合影。（唐英年提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797056_1_20250323212057.jpg&q=85)
+![許勤亦參觀香港故宮文化博物館。（唐英年提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797056_2_20250323212057.jpg&q=85)
+  
+
+黑龍江省委書記許勤昨日到西九文化區參觀，西九文化區管理局董事局主席唐英年、行政總裁馮程淑儀及香港故宮文化博物館館長吳志華，向許勤講解文化區的發展情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm)
+
+---
+
+# 香港打吡大賽逾7.2萬人次入場創新高
+
+![馬場導賞團吸引不少內地旅客參加。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797055_1_20250323212139.jpg&q=85)
+  
+
+沙田馬場今日舉行香港打吡大賽，賽事吸引近7.2萬人入場，當中沙田入場人數為超過6.1萬人，內地及海外旅客的入場人數超過9000人，兩者均創下歷來香港打吡大賽新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm)
+
+---
+
 # 皇仁書院據報有資訊系統事故　教育局：已提醒按指引處理
 
 ![教育局表示，已提醒學校按相關指引處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797052_1_20250323202808.jpg&q=90)
@@ -1390,56 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796912-20250322.htm)
-
----
-
-# 大熊貓龍鳳胎首度與「盈盈」同一展館與公眾見面　有市民稱感溫馨
-
-![早上約10時半，園方職員已向訪客派發中午12時的「時間票」，現場不少人輪候領取，希望見到大熊貓，有內地旅客認為仍然值得。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796911_3_20250322162828.jpg&q=85)
-![有市民花費1500元，在開園前與大熊貓見面半小時，又形容3隻大熊貓經常貼在一起，感到溫馨。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796911_2_20250322124736.jpg&q=85)
-  
-
-大熊貓龍鳳胎「家姐」及「細佬」今日起，首度與媽媽「盈盈」在海洋公園同一個展館「同框」與公眾見面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796911-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796911-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796911-20250322.htm)
-
----
-
-# 李家超：政府已經公布可持續金融行動計劃　支持本地綠色科技發展
-
-![李家超表示，香港是亞洲最早採取應對天氣變化的城市之一，積極推進各種減碳的策略。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796909_1_20250322124153.jpg&q=80)
-![行政長官李家超、中聯辦副主任尹宗華、多名政府官員出席「香港植樹日2025」活動。（（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796909_2_20250322124153.jpg&q=90)
-![李家超特別感謝參與活動的解放軍駐港部隊。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796909_3_20250322145315.jpg&q=70)
-  
-
-元朗大棠舉行「香港植樹日2025」活動，有200名解放軍駐港部隊人員與市民合共約2000人一同參與植樹，行政長官李家超、中聯辦副主任尹宗華、多名政府官員，包括房屋局局長何永賢、教育局局長蔡若蓮、民政及青年事務局局長麥美娟等參與。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796909-20250322.htm)
 
 ---

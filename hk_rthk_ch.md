@@ -1,3 +1,52 @@
+# 許勤訪西九文化區　參觀兩個博物館
+
+![許勤（左二）與唐英年（右二）等人於M+合影。（唐英年提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797056_1_20250323212057.jpg&q=85)
+![許勤亦參觀香港故宮文化博物館。（唐英年提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797056_2_20250323212057.jpg&q=85)
+  
+
+黑龍江省委書記許勤昨日到西九文化區參觀，西九文化區管理局董事局主席唐英年、行政總裁馮程淑儀及香港故宮文化博物館館長吳志華，向許勤講解文化區的發展情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm)
+
+---
+
+# 香港打吡大賽逾7.2萬人次入場創新高
+
+![馬場導賞團吸引不少內地旅客參加。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797055_1_20250323212139.jpg&q=85)
+  
+
+沙田馬場今日舉行香港打吡大賽，賽事吸引近7.2萬人入場，當中沙田入場人數為超過6.1萬人，內地及海外旅客的入場人數超過9000人，兩者均創下歷來香港打吡大賽新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm)
+
+---
+
 # 印尼有周刊收到裝有豬頭鼠屍包裹　團體籲維護新聞自由
 
 ![印尼有周刊收到裝有豬頭鼠屍包裹　團體籲維護新聞自由](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797054_1_20250323204535.jpg&q=90)
