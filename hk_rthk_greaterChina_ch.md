@@ -1,3 +1,26 @@
+# 韓文秀稱擴大服務消費　形成高質量發展與高品質生活相互促進
+
+  
+
+在北京，中央財經委員會辦公室常務副主任韓文秀表示，會綜合施策擴大消費，包括增加城鄉居民的收入，優化收入分配結構，讓消費者有錢能消費，同時擴大服務消費，形成高質量發展與高品質生活相互促進，相得益彰的局面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm)
+
+---
+
 # 李強：各國經濟碎片化加劇　中國積極推動普惠包容經濟全球化
 
 ![李強表示，脫鈎斷鏈只能加劇危機，打壓遏制終將損人害己。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796999_1_20250323114206.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796468-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796468-20250319.htm)
-
----
-
-# 雲從科技冀以港為據點拓海外市場　科大訊飛稱語音技術助政府辦公
-
-![劉君表示，希望以香港為據點拓展海外市場，因為本港有人才優勢、國際影響力、創新政策，以及各種科研資源。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796442_1_20250320092306.jpg&q=90)
-  
-
-內地多間創科民企代表參與本港一個大灣區創新科技論壇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796442-20250319.htm)
 
 ---

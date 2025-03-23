@@ -143,6 +143,30 @@
 
 ---
 
+# 美國邁阿密網球公開賽　香港球手黃澤林淘汰13號種子晉級第三圈
+
+![黃澤林淘汰13號種子、美國的舒爾頓，晉級邁阿密網球公開賽第三圈。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796989_2_20250323081935.jpg&q=90)
+  
+
+美國邁阿密網球公開賽男單次圈，20歲、持「外卡」參賽的本港球手黃澤林，爆冷淘汰13號種子、美國的舒爾頓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm)
+
+---
+
 # 英國首相對以色列在加沙恢復軍事行動表示嚴重關切
 
 ![以軍持續在加沙地帶展開地面行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796986_1_20250323062357.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796847-20250321.htm)
-
----
-
-# 外交部：美國應停止干擾破壞中國和伊朗正常商貿合作
-
-![毛寧說，美國應停止干擾破壞中國和伊朗正常的商貿合作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796843_1_20250321203038.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧表示，中方一貫反對濫施非法單邊制裁和長臂管轄，美國應停止干擾破壞中國和伊朗正常的商貿合作。中方將採取一切必要措施，堅決維護中國企業的合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm)
 
 ---

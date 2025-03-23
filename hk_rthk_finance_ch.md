@@ -1,3 +1,26 @@
+# 韓文秀稱擴大服務消費　形成高質量發展與高品質生活相互促進
+
+  
+
+在北京，中央財經委員會辦公室常務副主任韓文秀表示，會綜合施策擴大消費，包括增加城鄉居民的收入，優化收入分配結構，讓消費者有錢能消費，同時擴大服務消費，形成高質量發展與高品質生活相互促進，相得益彰的局面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm)
+
+---
+
 # Coldplay香港演唱會門票更換事件　消委會暫接25宗投訴
 
 ![消委會對事件表示關注，敦促Cityline盡快完成換票安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797007_1_20250323113735.jpg&q=85)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796742-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796742-20250321.htm)
-
----
-
-# 日股半日升近0.4%
-
-![日經平均指數半日收報37890點，升138點，升幅0.37%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796738_1_20250321103932.jpg&q=90)
-  
-
-日本股市上升，日經平均指數半日收報37890點，升138點，升幅0.37%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796738-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796738-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796738-20250321.htm)
 
 ---

@@ -1,6 +1,29 @@
+# 韓文秀稱擴大服務消費　形成高質量發展與高品質生活相互促進
+
+  
+
+在北京，中央財經委員會辦公室常務副主任韓文秀表示，會綜合施策擴大消費，包括增加城鄉居民的收入，優化收入分配結構，讓消費者有錢能消費，同時擴大服務消費，形成高質量發展與高品質生活相互促進，相得益彰的局面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm)
+
+---
+
 # 泰國抵港旅客行李藏有懷疑大麻花　於機場被捕
 
-![泰國抵港旅客行李藏有懷疑大麻花　於機場被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797012_1_20250323123834.jpg&q=90)
+![海關在機場一個寄艙行李檢獲的懷疑大麻花。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797012_2_20250323130909.jpg&q=90)
   
 
 海關在機場偵破一宗販毒案，在一件行李內檢獲約10公斤、估計市值約220萬元的懷疑大麻花。
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796940-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796940-20250322.htm)
-
----
-
-# 中日韓外長會　王毅：推動三國合作發揮1+1+1大於3作用
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796938_1_20250322183010.jpg&q=90)
-  
-
-中日韓外長會於東京舉行，中共中央政治局委員、外長王毅說，三國應重溫正視歷史、面向未來的共識，推動中日韓合作，發揮一加一加一大過三的作用，造福三國、地區同世界。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm)
 
 ---
