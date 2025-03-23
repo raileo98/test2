@@ -1,5 +1,30 @@
+# 印尼有周刊收到裝有豬頭鼠屍包裹　團體籲維護新聞自由
+
+![印尼有周刊收到裝有豬頭鼠屍包裹　團體籲維護新聞自由](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797054_1_20250323204535.jpg&q=90)
+  
+
+印尼一份批評政府的周刊近日收到裝有豬頭和斷頭老鼠屍體的包裹，有團體呼籲維護印尼的新聞自由，並要求調查事件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797054-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797054-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797054-20250323.htm)
+
+---
+
 # 李強晤美國聯邦參議員戴安斯　稱中美關係發展到新的重要節點
 
+![李強在北京會見美國聯邦參議員戴安斯及部分美國企業界人士。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797053_1_20250323205041.jpg&q=90)
   
 
 國務院總理李強在北京會見來華出席中國發展高層論壇2025年年會的美國聯邦參議員戴安斯及部分美國企業界人士。
