@@ -1,3 +1,27 @@
+# 土耳其伊斯坦布爾市長正式被捕　羈押候審
+
+![土耳其伊斯坦布爾市長伊馬姆奧盧正式被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797039_1_20250323175438.jpg&q=90)
+  
+
+土耳其伊斯坦布爾刑事法庭以涉嫌貪污等罪名，正式拘捕伊斯坦布爾市長伊馬姆奧盧，將他羈押候審。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797039-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797039-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797039-20250323.htm)
+
+---
+
 # 方濟各料出院前透過醫院窗口向信眾送上祝福並感謝醫護連日來照顧
 
 ![方濟各因肺炎留醫羅馬傑梅利醫院5個多星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797036_1_20250323173725.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796863-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796863-20250322.htm)
-
----
-
-# 印尼東部火山噴發　一個縣進入緊急響應狀態
-
-![自去年11月，勒沃托比火山多次噴發，附近已有約4000名居民撤離。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796862_1_20250322005530.jpg&q=90)
-  
-
-印尼東部東努沙登加拉省一座火山噴發，該省東弗洛勒斯縣已進入為期14天的緊急響應狀態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796862-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796862-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796862-20250322.htm)
 
 ---

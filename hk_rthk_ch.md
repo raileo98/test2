@@ -1,3 +1,27 @@
+# 土耳其伊斯坦布爾市長正式被捕　羈押候審
+
+![土耳其伊斯坦布爾市長伊馬姆奧盧正式被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797039_1_20250323175438.jpg&q=90)
+  
+
+土耳其伊斯坦布爾刑事法庭以涉嫌貪污等罪名，正式拘捕伊斯坦布爾市長伊馬姆奧盧，將他羈押候審。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797039-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797039-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797039-20250323.htm)
+
+---
+
 # 方濟各料出院前透過醫院窗口向信眾送上祝福並感謝醫護連日來照顧
 
 ![方濟各因肺炎留醫羅馬傑梅利醫院5個多星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797036_1_20250323173725.jpg&q=90)
@@ -24,7 +48,7 @@
 
 # 工聯會稱收到建造及服務行業工友投訴　輸入外勞致開工不足
 
-![工聯會過去幾個月陸續收到建造業、飲食零售等服務行業的工友投訴，指有僱主輸入外勞，令他們開工不足，甚至無工可做。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797034_1_20250323173945.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797034_1_20250323173945.jpg&q=90)
   
 
 當局早前透露，「補充勞工優化計劃」推行一年半，批出配額達51000個。工聯會表示，當中以飲食業佔最多，有超過2萬人，工聯會過去幾個月陸續收到建造業、飲食零售等服務行業的工友投訴，指有僱主輸入外勞，令他們開工不足，甚至無工可做。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm)
-
----
-
-# 中日舉行第六次經濟高層對話　王毅：中日互為伙伴而非對手
-
-![中日第六次經濟高層對話在東京舉行前，王毅（前排左五）和岩屋毅（前排左六）等官員合照留念。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796961_2_20250322212757.jpg&q=85)
-  
-
-中共中央政治局委員、外長王毅在東京同日本外相岩屋毅共同主持召開第六次中日經濟高層對話，雙方15個政府部門負責人出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm)
 
 ---
