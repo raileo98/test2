@@ -1,3 +1,28 @@
+# France, Spain through to Nations League semis on pens
+
+![Mike Maignan was the hero for France in the penalty shoot-out against Croatia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797081_1_20250324074010.jpg&q=90)
+![Mikel Oiarzabal opened the scoring for Spain in their second leg clash against the Netherlands. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797081_2_20250324074010.jpg&q=90)
+  
+
+Goalkeeper Mike Maignan saved twice in the shoot-out as France beat Croatia 5-4 on penalties after their Uefa Nations League quarter-final tie had ended 2-2 on aggregate, sealing a place in the last four in June.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797081-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797081-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797081-20250324.htm)
+
+---
+
 # Filipino teenager Eala sends Keys packing in Miami
 
 ![Eala is the first Filipino woman in the Open Era to beat a top-10 opponent since 1975. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797077_1_20250324055913.jpg&q=90)
@@ -1413,30 +1438,5 @@ Former badminton world number one Viktor Axelsen suffered a shock first-round de
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795505-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795505-20250313.htm)
-
----
-
-# Real, Arsenal to clash in Champions League quarters
-
-![Kylian Mbappé celebrates with teammates after Real Madrid's penalty shoot-out victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795501_1_20250313074046.jpg&q=90)
-![Arsenal players celebrate after the team's second goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795501_2_20250313074046.jpg&q=90)
-  
-
-Real Madrid produced a gritty display to reach the Champions League quarter-finals with a 4-2 win on penalties against rivals Atlético Madrid, following a 1-0 defeat after extra time.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795501-20250313.htm)
 
 ---
