@@ -1,3 +1,27 @@
+# Coldplay香港演唱會門票更換事件　消委會暫接25宗投訴
+
+![消委會對事件表示關注，敦促Cityline盡快完成換票安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797007_1_20250323113735.jpg&q=85)
+  
+
+消委會表示，截至今早11時，接獲25宗有關Coldplay香港演唱會需更換門票的投訴，消委會對事件表示關注，敦促Cityline盡快完成換票安排，以保障受影響消費者的權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm)
+
+---
+
 # 科技園：低空經濟「監管沙盒」試點項目實際操作冀下月有定論
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797003_1_20250323105219.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796738-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796738-20250321.htm)
-
----
-
-# 本港上月破產呈請按月跌3.9%　發出清盤令創近15年半新高
-
-![上月法院發出清盤令66宗，創近15年半單月新高，按月升約14%，按年升83%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796736_1_20250321101810.jpg&q=90)
-  
-
-破產管理署數字顯示，2月收到破產呈請書787宗，按月回落3.9%，按年增加21.5%。法庭發出接管令或破產令690宗，按月微升0.9%，按年升24.5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796736-20250321.htm)
 
 ---

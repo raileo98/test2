@@ -45,8 +45,9 @@
 
 ---
 
-# 消委會暫接25宗投訴涉Coldplay香港演唱會門票需更換
+# Coldplay香港演唱會門票更換事件　消委會暫接25宗投訴
 
+![消委會對事件表示關注，敦促Cityline盡快完成換票安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797007_1_20250323113735.jpg&q=85)
   
 
 消委會表示，截至今早11時，接獲25宗有關Coldplay香港演唱會需更換門票的投訴，消委會對事件表示關注，敦促Cityline盡快完成換票安排，以保障受影響消費者的權益。
