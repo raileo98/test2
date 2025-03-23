@@ -1,3 +1,27 @@
+# 王毅晤日本國家安全保障局長　雙方同意繼續保持溝通
+
+![王毅在東京會見日本國家安全保障局長岡野正敬。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797030_1_20250323161703.jpg&q=90)
+  
+
+中共中央政治局委員、中央外辦主任王毅在東京會見日本國家安全保障局長岡野正敬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm)
+
+---
+
 # 日本Sukiya鳥取縣分店味噌湯中發現老鼠　公司致歉
 
 ![Sukiya就鳥取縣分店味噌湯中發現老鼠事件道歉。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797023_1_20250323151453.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796860-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796860-20250322.htm)
-
----
-
-# 王毅談中日韓合作　強調遠親不如近鄰
-
-![王毅在東京出席日本首相石破茂集體會見中日韓外長。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796859_1_20250322002419.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅談到中日韓合作時說，遠親不如近鄰。面對不穩定、不確定明顯上升的世界，這句充滿東方智慧的格言更加凸顯三方合作的重要現實意義。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm)
 
 ---

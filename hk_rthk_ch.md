@@ -1,3 +1,50 @@
+# 王毅晤日本國家安全保障局長　雙方同意繼續保持溝通
+
+![王毅在東京會見日本國家安全保障局長岡野正敬。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797030_1_20250323161703.jpg&q=90)
+  
+
+中共中央政治局委員、中央外辦主任王毅在東京會見日本國家安全保障局長岡野正敬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm)
+
+---
+
+# 大嶼山梅窩發生山火　初步無人傷
+
+  
+
+大嶼山梅窩發生山火，初步無人受傷，毋須疏散。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm)
+
+---
+
 # 七欖賽事套票已售近43000張　大會料13萬8千名觀眾入場
 
 ![中國香港代表隊將出戰銀劍賽，男子隊將分別與國家隊及日本隊交手，女子隊則分別與哈薩克隊及泰國隊對陣。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797028_1_20250323160849.jpg&q=80)
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm)
-
----
-
-# 全港近4000間公司與大廈及地標建築物響應「地球一小時」活動
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796956_1_20250322205227.jpg&q=80)
-  
-
-維港兩岸多座建築物響應一年一度的「地球一小時」活動，晚上8時30分「熄燈」一小時。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796956-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796956-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796956-20250322.htm)
-
----
-
-# 林定國鼓勵私營機構參考政府合約加入調解條款　推廣調解為先文化
-
-![林定國說，朋輩調解能為雙方提供一個公平表達意見的平台，促進溝通和理解。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796955_1_20250322203344.jpg&q=90)
-  
-
-律政司司長林定國說，為了深化調解文化，政府以身作則，自今年2月6日起，有關在政府合約中加入調解條款的政策正式生效，表示政府和當事人同意在訴諸仲裁或訴訟前，先嘗試調解解決爭議，期望透過牽頭在政府合約中加入調解條款，鼓勵私營機構參考並在其合約中加入類近的調解條款，進一步推廣「調解為先」的文化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm)
 
 ---

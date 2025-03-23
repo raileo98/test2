@@ -1,3 +1,27 @@
+# 王毅晤日本國家安全保障局長　雙方同意繼續保持溝通
+
+![王毅在東京會見日本國家安全保障局長岡野正敬。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797030_1_20250323161703.jpg&q=90)
+  
+
+中共中央政治局委員、中央外辦主任王毅在東京會見日本國家安全保障局長岡野正敬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm)
+
+---
+
 # 積金局舉辦全國兩會精神分享會　梁振英冀更積極主動發揮作用
 
 ![梁振英獲邀出席分享兩會主要內容，積金局及積金易公司逾600名員工實體和透過線上參與。（積金局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797022_1_20250323155726.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796529-20250320.htm)
-
----
-
-# 北京U20球員郭嘉璇據報不治
-
-![郭嘉璇效力於北京國安青年隊，司職後衛。（北京國安足球俱樂部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796494_2_20250320092343.jpg&q=90)
-  
-
-內地傳媒報道，早前於西班牙集訓期間意外受傷、導致腦死亡的北京U20足球隊隊員郭嘉璇，星期三晚在北京天壇醫院去世，終年18歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796494-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796494-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796494-20250320.htm)
 
 ---

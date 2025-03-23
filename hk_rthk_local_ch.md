@@ -1,3 +1,26 @@
+# 大嶼山梅窩發生山火　初步無人傷
+
+  
+
+大嶼山梅窩發生山火，初步無人受傷，毋須疏散。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm)
+
+---
+
 # 七欖賽事套票已售近43000張　大會料13萬8千名觀眾入場
 
 ![中國香港代表隊將出戰銀劍賽，男子隊將分別與國家隊及日本隊交手，女子隊則分別與哈薩克隊及泰國隊對陣。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797028_1_20250323160849.jpg&q=80)
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm)
-
----
-
-# 輕鐵天悅站附近吊臂車損毁架空電纜影響服務　料需要數小時修復
-
-![吊臂車損毀架空電纜，意外後在天悅站附近停靠。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796891_1_20250322093641.jpg&q=90)
-  
-
-輕鐵天悅站附近有吊臂車經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。港鐵已就事件報警，並正全力進行搶修，由於涉及外來吊臂車令架空電纜損毁，預計需要數個小時修復。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796891-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796891-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796891-20250322.htm)
 
 ---
