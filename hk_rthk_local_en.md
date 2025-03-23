@@ -24,7 +24,7 @@ The Hong Kong Breast Milk Bank has begun serving premature or critically-ill new
 
 # 'Organ donor sign-ups hit record, but more needed'
 
-![Lo Chung-mau said over 2,600 patients in Hong Kong are currently on the waiting list for organ transplants. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797013_1_20250323125053.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797013_1_20250323125053.jpg&q=85)
   
 
 The Secretary for Health Lo Chung-mau has urged more individuals to register as organ donors, as many patients continue to wait for life-saving transplants.
