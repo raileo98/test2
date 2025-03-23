@@ -1,3 +1,26 @@
+# 陳美寶稱低空經濟要考慮成本效益　考慮維港兩岸要兼顧安全及實用
+
+  
+
+政府正推動低空經濟，運輸及物流局局長陳美寶表示，市區人口密集，亦有高樓大樓，要找適當的無人機起降點有一定限制，亦要考慮成本效益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm)
+
+---
+
 # 土耳其伊斯坦布爾市長正式被捕　羈押候審
 
 ![土耳其伊斯坦布爾市長伊馬姆奧盧正式被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797039_1_20250323175438.jpg&q=90)
@@ -816,7 +839,7 @@
 
 # 總理李強在中國發展高層論壇發表主旨演講
 
-![李強去年出席中國發展高層論壇年會開幕式發表主題演講。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796995_1_20250323094328.jpg&q=85)
+![李強出席中國發展高層論壇年會開幕式發表主旨演講。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796995_2_20250323180106.jpg&q=90)
   
 
 中國發展高層論壇2025年年會早上在北京舉行開幕式，國務院總理李強發表主旨演講。
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796963-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796963-20250322.htm)
-
----
-
-# 王文濤晤寶馬董事長　指妥善解決歐盟電動車反補貼案具重要意義
-
-![王文濤說關稅戰、貿易戰只會雙輸；齊普策說歐洲綠色轉型離不開與中國合作。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796962_1_20250322211928.jpg&q=90)
-  
-
-商務部部長王文濤說，當前國際形勢複雜嚴峻，個別國家的單邊主義、保護主義做法，為全球經濟帶來較大不確定因素。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm)
 
 ---

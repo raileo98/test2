@@ -192,7 +192,7 @@
 
 # 總理李強在中國發展高層論壇發表主旨演講
 
-![李強去年出席中國發展高層論壇年會開幕式發表主題演講。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796995_1_20250323094328.jpg&q=85)
+![李強出席中國發展高層論壇年會開幕式發表主旨演講。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796995_2_20250323180106.jpg&q=90)
   
 
 中國發展高層論壇2025年年會早上在北京舉行開幕式，國務院總理李強發表主旨演講。

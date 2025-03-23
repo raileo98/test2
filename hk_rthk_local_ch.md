@@ -1,3 +1,26 @@
+# 陳美寶稱低空經濟要考慮成本效益　考慮維港兩岸要兼顧安全及實用
+
+  
+
+政府正推動低空經濟，運輸及物流局局長陳美寶表示，市區人口密集，亦有高樓大樓，要找適當的無人機起降點有一定限制，亦要考慮成本效益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm)
+
+---
+
 # 工聯會稱收到建造及服務行業工友投訴　輸入外勞致開工不足
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797034_1_20250323173945.jpg&q=90)
@@ -504,7 +527,7 @@
 
 # 總理李強在中國發展高層論壇發表主旨演講
 
-![李強去年出席中國發展高層論壇年會開幕式發表主題演講。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796995_1_20250323094328.jpg&q=85)
+![李強出席中國發展高層論壇年會開幕式發表主旨演講。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796995_2_20250323180106.jpg&q=90)
   
 
 中國發展高層論壇2025年年會早上在北京舉行開幕式，國務院總理李強發表主旨演講。
@@ -1417,30 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796899-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796899-20250322.htm)
-
----
-
-# 天悅站附近有吊臂車損毁架空電纜　部分輕鐵路綫改道
-
-![天悅站附近有吊臂車損毁架空電纜，影響電力供應，部分輕鐵路綫服務要調整。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796896_1_20250322092031.jpg&q=85)
-![港鐵表示，架空電纜損毁，影響電力供應，正全力搶修。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796896_2_20250322093837.jpg&q=75)
-  
-
-輕鐵天悅站附近有吊臂車經過輕鐵交匯處期間損毁架空電纜，影響電力供應，部分輕鐵路綫服務需要調整。港鐵表示，正全力進行搶修，由於涉及外來吊臂車令架空電纜損毁，預計需要數個小時修復。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796896-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796896-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796896-20250322.htm)
 
 ---
