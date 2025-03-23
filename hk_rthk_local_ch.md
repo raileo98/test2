@@ -1,3 +1,74 @@
+# 天水圍田廈路貨倉火警　經調查無證據顯示涉及刑事
+
+![天水圍田廈路一個貨倉昨晚發生火警，焚燒約3小時後被救熄。（香港消防處社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796997_1_20250323093246.jpg&q=90)
+  
+
+天水圍田廈路一個貨倉昨晚發生火警，其後救熄，警方及消防調查後，指無證據顯示案件涉及刑事成分。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796997-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796997-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796997-20250323.htm)
+
+---
+
+# 大欖隧道兩輛的士相撞　兩名司機受輕傷
+
+![大欖隧道兩輛的士相撞　兩名司機受輕傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796996_1_20250323094000.jpg&q=90)
+  
+
+大欖隧道管道往九龍方向，凌晨3時許發生交通意外。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796996-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796996-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796996-20250323.htm)
+
+---
+
+# 總理李強在中國發展高層論壇發表主旨演講
+
+  
+
+中國發展高層論壇2025年年會早上在北京舉行開幕式，國務院總理李強發表主旨演講。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm)
+
+---
+
 # Coldplay有門票出錯需更換　文體旅局促售票公司妥善處理
 
 ![文化體育及旅遊局表示，高度關注 Cityline 印製 Coldplay 演唱會部分門票資料出錯的事件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796973_1_20250322225841.jpg&q=80)
@@ -75,7 +146,6 @@
 # 消防處籲如受廈村貨倉火警煙霧或異味影響　關閉窗戶保持鎮定
 
 ![消防處派出三條喉及三隊煙帽隊到場灌救。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796968_1_20250322221753.jpg&q=90)
-![起火現場冒出大量濃煙。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796968_2_20250322221753.jpg&q=90)
   
 
 天水圍廈村附近一個貨倉發生火警，消防處正進行滅火行動，提醒附近居民如果受到隨風飄散的煙霧和異味影響，要關閉門窗及保持鎮定。
@@ -1375,77 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796825-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796825-20250321.htm)
-
----
-
-# 公屋富戶政策收緊　兩個申報周期入息不多於5倍亦要遷出
-
-![房委會資助房屋小組委員會主席黃碧如表示，委員會通過修訂公屋「富戶」政策。（彭冠中攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796823_1_20250321193903.jpg&q=90)
-  
-
-房委會資助房屋小組委員會通過修訂公屋「富戶」政策，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796823-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796823-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796823-20250321.htm)
-
----
-
-# 有公屋居民指增富戶額外租金更公平　有街坊稱加幅太大冀手下留情
-
-![梁文廣認為，今次額外租金加幅比預期高，對此感到失望。（鍾家銘攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796828_1_20250321194534.jpg&q=80)
-  
-
-房委會資助房屋小組委員會通過收緊公屋「富戶」政策，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。有公屋居民歡迎增加「富戶」的額外租金，指有助增加政府收入，亦有公屋居民認為，增加「富戶」額外租金，做法更公平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796828-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796828-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796828-20250321.htm)
-
----
-
-# 18越南籍非法入境者遭遣返　全部人曾提出免遣返聲請但不獲確立
-
-![被遣返人士在入境處人員押送下離港。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796824_1_20250321182310.jpg&q=80)
-  
-
-入境處將18名越南籍非法入境者遣返越南，包括9名男子及9名女子，全部人士曾在香港提出免遣返聲請但不獲確立，部分曾因干犯刑事罪行被判監及服刑至刑滿出獄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796824-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796824-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796824-20250321.htm)
 
 ---

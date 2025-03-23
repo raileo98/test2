@@ -1,3 +1,26 @@
+# 總理李強在中國發展高層論壇發表主旨演講
+
+  
+
+中國發展高層論壇2025年年會早上在北京舉行開幕式，國務院總理李強發表主旨演講。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm)
+
+---
+
 # 消委會暫接17宗投訴涉Coldplay香港演唱會需更換門票
 
 ![消委會暫接獲17宗有關Coldplay香港演唱會需更換門票的投訴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796971_1_20250322223427.jpg&q=85)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796720-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796720-20250321.htm)
-
----
-
-# 恒指競價時段跌110點
-
-![恒生指數競價時段報24109點，跌110點，跌幅0.46%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796722_1_20250321092357.jpg&q=65)
-  
-
-港股在競價時段下跌，恒生指數報24109點，跌110點，跌幅0.46%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796722-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796722-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796722-20250321.htm)
 
 ---

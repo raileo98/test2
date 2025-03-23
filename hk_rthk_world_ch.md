@@ -95,7 +95,7 @@
 
 ---
 
-# 以軍向黎巴嫩南主黨目標發動兩輪空襲　報復火箭彈襲擊
+# 以軍向黎巴嫩真主黨目標發動兩輪空襲　報復火箭彈襲擊
 
 ![以軍報復襲擊，黎巴嫩南部升起濃。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796984_1_20250323044756.jpg&q=90)
   
