@@ -1,6 +1,30 @@
+# 謝鋒：「以台制華」徒勞及危險　把關稅武器化終將反噬自身
+
+![謝鋒應邀以視像方式在卡特中美關係對話會致辭。（中國駐美大使館網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797005_1_20250323105301.jpg&q=90)
+  
+
+中國駐美大使謝鋒表示，中美兩個大國難免有分歧矛盾，關鍵是尊重彼此核心利益，不能挑戰紅線底線，強調支持「台獨」就是干涉中國內政，縱容「台獨」就是破壞台海穩定，「以台制華」不僅徒勞而且危險，一個中國原則和中美三個聯合公報是中美關係的政治基礎，任何時候都不得違反。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797005-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797005-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797005-20250323.htm)
+
+---
+
 # 科技園：低空經濟「監管沙盒」試點項目實際操作冀下月有定論
 
-![黃克強說，由於屬試點項目，運送的物品會較簡單，但仍在討論。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797003_1_20250323105219.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797003_1_20250323105219.jpg&q=90)
   
 
 首批低空經濟「監管沙盒」部分試點項目下月率先推出，包括以科學園為試點。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm)
-
----
-
-# 海關尖沙咀一商廈單位檢獲39公斤懷疑可卡因　37歲男子被捕
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796930_1_20250322170911.jpg&q=90)
-  
-
-海關檢獲39公斤懷疑可卡因，市值約3300萬元，拘捕一名報稱技術員的37歲男子，案件仍在調查中，不排除有更多人被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm)
 
 ---

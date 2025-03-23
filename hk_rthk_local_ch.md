@@ -1,6 +1,6 @@
 # 科技園：低空經濟「監管沙盒」試點項目實際操作冀下月有定論
 
-![黃克強說，由於屬試點項目，運送的物品會較簡單，但仍在討論。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797003_1_20250323105219.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797003_1_20250323105219.jpg&q=90)
   
 
 首批低空經濟「監管沙盒」部分試點項目下月率先推出，包括以科學園為試點。

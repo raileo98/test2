@@ -1,3 +1,27 @@
+# 謝鋒：「以台制華」徒勞及危險　把關稅武器化終將反噬自身
+
+![謝鋒應邀以視像方式在卡特中美關係對話會致辭。（中國駐美大使館網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797005_1_20250323105301.jpg&q=90)
+  
+
+中國駐美大使謝鋒表示，中美兩個大國難免有分歧矛盾，關鍵是尊重彼此核心利益，不能挑戰紅線底線，強調支持「台獨」就是干涉中國內政，縱容「台獨」就是破壞台海穩定，「以台制華」不僅徒勞而且危險，一個中國原則和中美三個聯合公報是中美關係的政治基礎，任何時候都不得違反。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797005-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797005-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797005-20250323.htm)
+
+---
+
 # 烏克蘭和俄羅斯分別遭無人機襲擊造成死傷
 
 ![烏克蘭表示，首都基輔星期日遭到俄羅斯無人機襲擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797001_1_20250323103313.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796834-20250321.htm)
-
----
-
-# 外交部：民進黨當局勾連外部勢力謀「獨」挑釁不會得逞
-
-![毛寧說，民進黨當局勾連外部勢力謀「獨」挑釁是不會得逞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796814_1_20250321172343.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧回應台灣行政部門聘請日本前自衛隊統合幕僚長岩崎茂擔任顧問時表示，中方已經就有關動向向日方提出交涉，民進黨當局勾連外部勢力謀「獨」挑釁是不會得逞。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm)
 
 ---
