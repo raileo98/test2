@@ -46,7 +46,7 @@ Customs have arrested an inbound traveller at the airport for allegedly smugglin
 
 ---
 
-# HK breast milk bank began feeding needy newborns
+# HK breast milk bank began feeding vulnerable newborns
 
 ![Rosanna Wong, who heads Hong Kong's first breast milk bank, is upbeat about donation figures just two months after the facility began service. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797014_1_20250323125157.jpg&q=90)
   
