@@ -1,3 +1,27 @@
+# Turn research into real-world applications: tech exec
+
+![Albert Wong said it is crucial to prioritise the translation of research and development into practical, real-world applications. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797006_1_20250323111456.jpg&q=85)
+  
+
+The head of the Science Park called for a balanced approach in technological development, saying while research and development is important, the results must also be applied in practical and real-world settings.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797006-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797006-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797006-20250323.htm)
+
+---
+
 # Coleman Wong beats Shelton, reaches Miami Open last 32
 
 ![Coleman Wong outlasted home favourite Ben Shelton in two hours and 16 minutes. Photo: ATP Media via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797004_2_20250323112824.jpg&q=90)
@@ -1413,29 +1437,5 @@ Hong Kong's Hang Seng Index fell 110.88 points, or 0.46 percent, to open at 24,1
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm)
-
----
-
-# World's glacier mass shrank again in 2024, says UN
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796725_1_20250321093234.jpg&q=85)
-  
-
-All 19 of the world's glacier regions experienced a net loss of mass in 2024 for the third consecutive year, the United Nations said on Friday, warning that saving the planet's glaciers was now a matter of "survival".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm)
 
 ---

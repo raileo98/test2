@@ -1,3 +1,27 @@
+# 日本三重縣有巴士撞向路邊防風林1死21傷
+
+![日本三重縣有巴士撞向路邊防風林1死21傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797011_1_20250323122453.jpg&q=90)
+  
+
+日本三重縣南部一條高速公路發生巴士撞向路邊防風林的意外，造成1人死亡，21人受傷。中國駐名古屋總領事館向新華社確認，目前並無中國籍人員傷亡報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm)
+
+---
+
 # 南韓多地接連發生大規模山火　造成4死6傷　逾千人疏散
 
 ![南韓多地的山火持續蔓延，當局出動直升機協助滅火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797010_1_20250323115116.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm)
-
----
-
-# 放射檢查擬逐項收費　醫管局：仍有高度補貼及減免機制
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796936_1_20250322183113.jpg&q=80)
-  
-
-政府正檢討公營醫療服務收費，放射服務有機會逐項收費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 日本三重縣有巴士撞向路邊防風林1死21傷
+
+![日本三重縣有巴士撞向路邊防風林1死21傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797011_1_20250323122453.jpg&q=90)
+  
+
+日本三重縣南部一條高速公路發生巴士撞向路邊防風林的意外，造成1人死亡，21人受傷。中國駐名古屋總領事館向新華社確認，目前並無中國籍人員傷亡報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm)
+
+---
+
 # 南韓多地接連發生大規模山火　造成4死6傷　逾千人疏散
 
 ![南韓多地的山火持續蔓延，當局出動直升機協助滅火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797010_1_20250323115116.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm)
-
----
-
-# 倫敦希斯路機場因附近火警全日關閉　消防當局稱大火已受控
-
-![倫敦希斯路機場附近變電站在當地周五發生大火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796841_1_20250321201521.jpg&q=90)
-  
-
-英國倫敦希斯路機場因附近變電站大火，在當地星期五全日關閉。倫敦消防局表示，大火已受到控制，火場附近約有150人撤離。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796841-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796841-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796841-20250321.htm)
 
 ---
