@@ -1,3 +1,27 @@
+# 胡塞武裝稱美軍空襲也門首都　白宮稱已成功打擊組織關鍵領導層
+
+![也門首都薩那日前亦遭受美軍空襲。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797069_1_20250324041859.jpg&q=90)
+  
+
+也門胡塞武裝控制的電視台報道，美軍當地星期日晚空襲也門首都薩那，造成多人傷亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797069-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797069-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797069-20250324.htm)
+
+---
+
 # 李強：沒哪個國家的繁榮靠加關稅實現　只能靠開放靠合作
 
 ![李強會見美國國會參議員戴安斯及部分美國企業界人士。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797068_1_20250324031706.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796906-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796906-20250322.htm)
-
----
-
-# 中日韓外長會在東京舉行　王毅稱三國應正視歷史、面向未來
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796900_1_20250322095212.jpg&q=90)
-  
-
-中日韓外長會在東京舉行，中共中央政治局委員兼外長王毅、日本外相岩屋毅及南韓外長趙兌烈出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796900-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796900-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796900-20250322.htm)
 
 ---

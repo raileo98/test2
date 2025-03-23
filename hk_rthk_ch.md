@@ -1,3 +1,27 @@
+# 胡塞武裝稱美軍空襲也門首都　白宮稱已成功打擊組織關鍵領導層
+
+![也門首都薩那日前亦遭受美軍空襲。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797069_1_20250324041859.jpg&q=90)
+  
+
+也門胡塞武裝控制的電視台報道，美軍當地星期日晚空襲也門首都薩那，造成多人傷亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797069-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797069-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797069-20250324.htm)
+
+---
+
 # 李強：沒哪個國家的繁榮靠加關稅實現　只能靠開放靠合作
 
 ![李強會見美國國會參議員戴安斯及部分美國企業界人士。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797068_1_20250324031706.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796996-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796996-20250323.htm)
-
----
-
-# 總理李強在中國發展高層論壇發表主旨演講
-
-![李強出席中國發展高層論壇年會開幕式發表主旨演講。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796995_2_20250323180106.jpg&q=90)
-  
-
-中國發展高層論壇2025年年會早上在北京舉行開幕式，國務院總理李強發表主旨演講。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm)
 
 ---
