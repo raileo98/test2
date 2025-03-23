@@ -1,3 +1,27 @@
+# China prepared for "shocks" of trade war: Premier Li
+
+![Delivering the opening address to the China Development Forum, Premier Li called on global executives to capture opportunities from the nation's renewed innovation drive. Photo: www.fmprc.gov.cn](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797024_1_20250323152102.jpg&q=90)
+  
+
+Premier Li Qiang told a gathering of business executives in Beijing on Sunday that China will adhere to the correct direction of economic globalisation, practice true multilateralism and strive to be a force for stability and certainty.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797024-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797024-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797024-20250323.htm)
+
+---
+
 # FS encourages mainland firms to use city's advantages
 
 ![Paul Chan encouraged one AI firm to utilise Hong Kong's capital, talent, and professional services to expand internationally. Photo: GIS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796969_1_20250322222525.jpg&q=90)
@@ -1412,29 +1436,5 @@ Chinese People's Political Consultative Conference (CPPCC) Standing Committee me
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm)
-
----
-
-# 'Act more firmly to safeguard national security'
-
-![Local NPC delegates say safeguarding national security is one of the issues they discuss with Vice Premier Ding Xuexiang. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794741_2_20250307153730.jpg&q=70)
-  
-
-Vice Premier Ding Xuexiang has urged Hong Kong to act more firmly in safeguarding national security while recognising the city's effort in implementing Article 23 legislation, according to attendees at a meeting with the top official in Beijing on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794741-20250307.htm)
 
 ---

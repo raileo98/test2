@@ -1,3 +1,51 @@
+# China prepared for "shocks" of trade war: Premier Li
+
+![Delivering the opening address to the China Development Forum, Premier Li called on global executives to capture opportunities from the nation's renewed innovation drive. Photo: www.fmprc.gov.cn](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797024_1_20250323152102.jpg&q=90)
+  
+
+Premier Li Qiang told a gathering of business executives in Beijing on Sunday that China will adhere to the correct direction of economic globalisation, practice true multilateralism and strive to be a force for stability and certainty.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797024-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797024-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797024-20250323.htm)
+
+---
+
+# HK breast milk bank began feeding needy newborns
+
+![Rosanna Wong, who heads Hong Kong's first breast milk bank, is upbeat about donation figures just two months after the facility began service. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797014_1_20250323125157.jpg&q=90)
+  
+
+The Hong Kong Breast Milk Bank has begun serving premature or critically-ill newborns across the city, just two months after it came into operation in January.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797014-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797014-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797014-20250323.htm)
+
+---
+
 # 'Organ donor sign-ups hit record, but more needed'
 
 ![Lo Chung-mau said over 2,600 patients in Hong Kong are currently on the waiting list for organ transplants. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797013_1_20250323125053.jpg&q=85)
@@ -1389,53 +1437,5 @@ McLaren’s dominance, Lewis Hamilton’s bid to bounce back after a disappointi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796732-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796732-20250321.htm)
-
----
-
-# Shin Bet boss axed as Netanyahu split comes to a head
-
-![Ronen Bar says his sacking is intended to 'prevent investigations into the events leading up to October 7' attack. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796737_1_20250321102045.jpg&q=90)
-  
-
-The head of Shin Bet, Israel's domestic intelligence agency, was sacked on Friday, days after Prime Minister Benjamin Netanyahu said he no longer trusts him, and fallout from a report on the October 7, 2023, Hamas attack.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm)
-
----
-
-# China fall to Saudi Arabia in key World Cup qualifier
-
-![The 1-0 defeat leaves China at the bottom of Group C in Asian qualifying for the 2026 World Cup. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796733_1_20250321101136.jpg&q=90)
-  
-
-China suffered a narrow 1-0 defeat to Saudi Arabia in a Fifa 2026 World Cup qualifying match on Thursday, leaving it struggling at the bottom of Group C in the Asian zone.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm)
 
 ---
