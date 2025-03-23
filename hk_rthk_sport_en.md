@@ -1,3 +1,27 @@
+# Rugby Sevens tickets selling like hotcakes: organiser
+
+![The Hong Kong Sevens will take place from March 28 to 30 at Kai Tak Stadium. Photo courtesy of Hong Kong, China Rugby](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797035_1_20250323172148.jpg&q=75)
+  
+
+Ticket sales for the Hong Kong Rugby Sevens are breaking records less than one week before the event kicks off at the Kai Tak Sports Park, according to the event's organiser.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm)
+
+---
+
 # McLaren's Piastri wins Chinese Grand Prix
 
 ![McLaren's Oscar Piastri celebrates on the podium after winning the Chinese Grand Prix with second placed McLaren's Lando Norris and third placed Mercedes' George Russell. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797037_1_20250323172831.jpg&q=55)
@@ -1415,30 +1439,5 @@ Paris Saint-Germain produced a historic turnaround to progress to the Champions 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795353-20250312.htm)
-
----
-
-# Barca sink Benfica; reach Champions League last eight
-
-![Lamine Yamal became the youngest player in Champions League history to record a goal and assist in the same match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_1_20250312061710.jpg&q=90)
-![Raphina scored twice in the first half for Barcelona. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795348_2_20250312061710.jpg&q=90)
-  
-
-Lamine Yamal and Raphinha dazzled as Barcelona thumped Benfica 3-1, reaching the Champions League quarter-finals 4-1 on aggregate.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm)
 
 ---

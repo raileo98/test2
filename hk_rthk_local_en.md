@@ -1,3 +1,27 @@
+# Rugby Sevens tickets selling like hotcakes: organiser
+
+![The Hong Kong Sevens will take place from March 28 to 30 at Kai Tak Stadium. Photo courtesy of Hong Kong, China Rugby](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797035_1_20250323172148.jpg&q=75)
+  
+
+Ticket sales for the Hong Kong Rugby Sevens are breaking records less than one week before the event kicks off at the Kai Tak Sports Park, according to the event's organiser.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm)
+
+---
+
 # Traveller arrested for carrying 10kg of cannabis buds
 
 ![The man was found carrying 10 kilograms of suspected cannabis buds in his suitcase. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797038_1_20250323172952.jpg&q=85)
@@ -1417,29 +1441,5 @@ Shares in Chinese EV giant BYD surged to a record high on Tuesday after it unvei
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm)
-
----
-
-# Legco polls to be held on December 7
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796209_1_20250318115209.jpg&q=85)
-  
-
-Chief Executive John Lee announced on Tuesday that the Legislative Council general election will be held on December 7.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796209-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796209-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796209-20250318.htm)
 
 ---
