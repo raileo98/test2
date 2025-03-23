@@ -1,4 +1,4 @@
-# 加拿大總理卡尼宣布解散議會　提前在下月28日舉行大選
+# 加拿大總理卡尼宣布解散議會　提前下月28日舉行大選
 
 ![卡尼宣布提前大選。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797063_1_20250324004656.jpg&q=90)
   
