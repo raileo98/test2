@@ -1,3 +1,27 @@
+# 警方在利源西街樓上單位搗破懷疑無牌酒吧拘捕32人
+
+![警方帶走被捕人士。（警方圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797067_1_20250324025417.jpg&q=80)
+  
+
+中區警區人員在利源西街一個樓上單位，搗破一間懷疑無牌酒吧，拘捕32人，檢獲103支酒等證物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797067-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797067-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797067-20250324.htm)
+
+---
+
 # 中大研發自動化線控砌磚機械人投入運作
 
 ![中大研發的自動化線控砌磚機械人用於重建校園内的再生園。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797064_1_20250324011548.jpg&q=65)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796916-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796916-20250322.htm)
-
----
-
-# 消息：運動員資助機制檢討近尾聲　桌球及網球項目很大機會留Ａ級
-
-![李家超在《施政報告》提出，要求體院檢討運動員資助機制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796913_1_20250322145418.jpg&q=90)
-  
-
-行政長官李家超在《施政報告》提出，要求體院檢討運動員資助機制。據了解，檢討接近尾聲，在現有機制中不符合「精英A級」條件的桌球及網球項目，很大機會能夠保留地位。消息指，精英體育事務委員會將於星期一開會討論資助機制的調整，預計兩個項目會符合新資格。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796913-20250322.htm)
 
 ---

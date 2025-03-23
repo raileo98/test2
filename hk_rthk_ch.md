@@ -1,3 +1,27 @@
+# 警方在利源西街樓上單位搗破懷疑無牌酒吧拘捕32人
+
+![警方帶走被捕人士。（警方圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797067_1_20250324025417.jpg&q=80)
+  
+
+中區警區人員在利源西街一個樓上單位，搗破一間懷疑無牌酒吧，拘捕32人，檢獲103支酒等證物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797067-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797067-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797067-20250324.htm)
+
+---
+
 # 被驅逐的南非駐美大使回國　強調不會因外部壓力改變立場
 
 ![拉蘇爾在開普敦機場發表講話，指回國並非自己的選擇，但無怨無悔。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797066_1_20250324023734.jpg&q=90)
@@ -1412,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796994-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796994-20250323.htm)
-
----
-
-# 土耳其民眾連續4晚示威　抗議伊斯坦布爾市長被捕
-
-![在伊斯坦布爾，民眾連續第4晚示威，抗議市長伊馬姆奧盧被捕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796990_1_20250323072356.jpg&q=85)
-![示威者與防暴警察衝突。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796990_2_20250323073117.jpg&q=80)
-  
-
-土耳其大批民眾連續第4晚示威，抗議最大城市伊斯坦布爾市長伊馬姆奧盧被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796990-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796990-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796990-20250323.htm)
 
 ---
