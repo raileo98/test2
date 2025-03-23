@@ -1,3 +1,26 @@
+# 方濟各料出院前透過醫院窗口向信眾送上祝福並感謝醫護連日來照顧
+
+  
+
+教宗方濟各的醫療團隊說，因肺炎留醫羅馬傑梅利醫院5個多星期的方濟各，預計在當地中午過後，即時香港時間傍晚左右出院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797036-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797036-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797036-20250323.htm)
+
+---
+
 # 工聯會稱收到建造及服務行業工友投訴　輸入外勞致開工不足
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm)
-
----
-
-# 天水圍田廈路有貨倉火警　29人疏散沒有受傷
-
-![警方表示，晚上約7時半接報，起火現場冒出大量濃煙。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796960_1_20250322210924.jpg&q=90)
-  
-
-天水圍田廈路一個貨倉發生火警，消防處派出兩條喉及兩隊煙帽隊到場灌救，29人自行疏散，沒有人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm)
 
 ---

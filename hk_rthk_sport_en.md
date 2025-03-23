@@ -1,3 +1,27 @@
+# McLaren's Piastri wins Chinese Grand Prix
+
+![McLaren's Oscar Piastri celebrates on the podium after winning the Chinese Grand Prix with second placed McLaren's Lando Norris and third placed Mercedes' George Russell. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797037_1_20250323172831.jpg&q=55)
+  
+
+Oscar Piastri led from pole to win the Chinese Grand Prix on Sunday as McLaren used a one-stop strategy to complete a dominant one-two with Lando Norris second.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm)
+
+---
+
 # Coleman Wong beats Shelton, reaches Miami Open last 32
 
 ![Coleman Wong outlasted home favourite Ben Shelton in two hours and 16 minutes. Photo: ATP Media via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797004_2_20250323112824.jpg&q=90)
@@ -1416,29 +1440,5 @@ Lamine Yamal and Raphinha dazzled as Barcelona thumped Benfica 3-1, reaching the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795348-20250312.htm)
-
----
-
-# Man United announce plans for new 100,000-seat stadium
-
-![Old Trafford has been the home of Manchester United for 115 years. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795294_1_20250311184754.jpg&q=90)
-  
-
-Manchester United on Tuesday announced plans to build a new 100,000-capacity stadium that co-owner Jim Ratcliffe said would be the "world's greatest" football ground.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795294-20250311.htm)
 
 ---

@@ -1,3 +1,27 @@
+# McLaren's Piastri wins Chinese Grand Prix
+
+![McLaren's Oscar Piastri celebrates on the podium after winning the Chinese Grand Prix with second placed McLaren's Lando Norris and third placed Mercedes' George Russell. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797037_1_20250323172831.jpg&q=55)
+  
+
+Oscar Piastri led from pole to win the Chinese Grand Prix on Sunday as McLaren used a one-stop strategy to complete a dominant one-two with Lando Norris second.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm)
+
+---
+
 # China prepared for "shocks" of trade war: Premier Li
 
 ![Delivering the opening address to the China Development Forum, Premier Li called on global executives to capture opportunities from the nation's renewed innovation drive. Photo: www.fmprc.gov.cn](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797024_1_20250323152102.jpg&q=90)
@@ -1412,29 +1436,5 @@ China's export growth grew slower than expected in the first two months of this 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm)
-
----
-
-# 'Ding tells HK to promote internationalisation'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794744_1_20250307160338.jpg&q=90)
-  
-
-Chinese People's Political Consultative Conference (CPPCC) Standing Committee member Henry Tang on Friday said Hong Kong should leverage its advantages and further promote internationalisation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794744-20250307.htm)
 
 ---

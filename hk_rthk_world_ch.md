@@ -1,3 +1,26 @@
+# 方濟各料出院前透過醫院窗口向信眾送上祝福並感謝醫護連日來照顧
+
+  
+
+教宗方濟各的醫療團隊說，因肺炎留醫羅馬傑梅利醫院5個多星期的方濟各，預計在當地中午過後，即時香港時間傍晚左右出院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797036-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797036-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797036-20250323.htm)
+
+---
+
 # 哈馬斯政治領導人巴達維爾據報在以軍空襲加沙中喪生
 
 ![以軍空襲加沙南部汗尤尼斯，有建築物損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797033_1_20250323165641.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796862-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796862-20250322.htm)
-
----
-
-# 巴拿馬附近海域發生6.3級地震
-
-![巴拿馬附近海域發生6.3級地震](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796861_1_20250322004835.jpg&q=90)
-  
-
-巴拿馬大學地球科學研究所說，當地時間周五上午9時50分，巴拿馬附近海域發生地震，初步測定震級為6.3級，震源深度10公里。暫時無傷亡報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796861-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796861-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796861-20250322.htm)
 
 ---
