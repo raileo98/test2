@@ -1,3 +1,49 @@
+# 衞生署稱已聯絡中大醫院調查及跟進手術期間天花漏水事件
+
+  
+
+​有報道指香港中文大學醫院的一間手術室，早前在手術期間天花漏水，衞生署回覆查詢時表示，已即時聯絡中大醫院調查和跟進事件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797042-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797042-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797042-20250323.htm)
+
+---
+
+# 慢性病共治先導計劃有醫生停收新症　彭飛舟指不影響已配對病人
+
+  
+
+基層醫療健康專員彭飛舟表示，慢性疾病共同治理先導計劃有90名醫生停收新症，他解釋可能是出於季節性的原因，又強調已配對的病人，服務不受影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797041-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797041-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797041-20250323.htm)
+
+---
+
 # 陳美寶稱低空經濟要考慮成本效益　考慮維港兩岸要兼顧安全及實用
 
   
@@ -1392,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796903-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796903-20250322.htm)
-
----
-
-# 丘應樺指跨境電商發展屬未來方向　籲本港企業要升級轉型
-
-![丘應樺分享到訪東莞一間港資企業的經驗，表示有關企業把握電商機遇，自行培訓「網紅」直播帶貨，一年生意額達10億人民幣。（商台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796901_1_20250322100532.jpg&q=90)
-  
-
-商務及經濟發展局局長丘應樺表示，跨境電商發展將會是未來方向，呼籲本港企業要升級轉型。特區政府在目前財政困難的時刻，仍在預算案宣布注資15億港元到兩個基金協助中小企，顯示政府有意幫助企業，利用機遇，尋求改變，發展事業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796901-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796901-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796901-20250322.htm)
-
----
-
-# 慢病共治計劃至今近650醫生參與
-
-![彭飛舟（左）說，至今參與計劃的醫生有近650人，他形容增幅較緩慢，但明白醫生有不同考慮。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796899_1_20250322100730.jpg&q=90)
-  
-
-「慢性疾病共同治理先導計劃」由本月28日起，擴展至提供血脂檢查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796899-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796899-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796899-20250322.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 衞生署稱已聯絡中大醫院調查及跟進手術期間天花漏水事件
+
+  
+
+​有報道指香港中文大學醫院的一間手術室，早前在手術期間天花漏水，衞生署回覆查詢時表示，已即時聯絡中大醫院調查和跟進事件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797042-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797042-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797042-20250323.htm)
+
+---
+
+# 慢性病共治先導計劃有醫生停收新症　彭飛舟指不影響已配對病人
+
+  
+
+基層醫療健康專員彭飛舟表示，慢性疾病共同治理先導計劃有90名醫生停收新症，他解釋可能是出於季節性的原因，又強調已配對的病人，服務不受影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797041-20250323.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797041-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797041-20250323.htm)
+
+---
+
 # 陳美寶稱低空經濟要考慮成本效益　考慮維港兩岸要兼顧安全及實用
 
   
@@ -1389,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796967-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796967-20250322.htm)
-
----
-
-# 中國代表在聯合國人權理事會闡述中國人權理念、反對人權政治化
-
-![陳旭發言時闡述中國人權理念，反對人權政治化。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796965_1_20250322214923.jpg&q=90)
-  
-
-中國常駐聯合國日內瓦辦事處和瑞士其他國際組織代表陳旭在聯合國人權理事會第58屆會議國別人權問題環節發言，闡述中國人權理念，反對人權政治化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm)
-
----
-
-# Coldplay部分門票出錯需更換　據悉政府要求退回手續費
-
-![據悉，政府要求Cityline在香港、廣州、深圳設立換票點，並退回手續費。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796963_1_20250322212945.jpg&q=85)
-  
-
-英國著名樂隊Coldplay下月將於啟德體育園舉行巡迴演唱會，但部分門票資料出錯，需要更換新版門票。據悉，政府要求售票公司Cityline在香港、廣州、深圳設立換票點，並退回手續費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796963-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796963-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796963-20250322.htm)
 
 ---
