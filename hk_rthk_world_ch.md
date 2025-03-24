@@ -1,3 +1,27 @@
+# 外交部：中美關係保持穩定健康可持續發展符合兩國人民共同利益
+
+![郭嘉昆表示，中方始終認為中美關係保持穩定、健康可持續發展，符合兩國人民共同利益。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797181_1_20250324173329.jpg&q=90)
+  
+
+在北京，外交部回應有關中方是否將與美方進行對話的提問，發言人郭嘉昆表示，中方始終認為中美關係保持穩定、健康可持續發展，符合兩國人民共同利益及國際社會普遍期待。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm)
+
+---
+
 # 英國首次發現有羊感染H5N1禽流感
 
 ![英國首次發現有羊感染H5N1禽流感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797171_1_20250324171449.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm)
-
----
-
-# 南韓東南部山火釀最少4名參與救火行動人員遇難
-
-![南韓東南部發生山火，至今造成4名救火人員遇難。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796970_1_20250322223736.jpg&q=90)
-  
-
-南韓東南部發生山火，至今造成4名救火人員遇難。因火勢猛烈，政府宣布受影響地區進入災難事態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796970-20250322.htm)
 
 ---

@@ -1,3 +1,47 @@
+# 羅淑佩：Cityline必須交代印錯票事件　做好應變工作
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm)
+
+---
+
+# 外交部：中美關係保持穩定健康可持續發展符合兩國人民共同利益
+
+![郭嘉昆表示，中方始終認為中美關係保持穩定、健康可持續發展，符合兩國人民共同利益。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797181_1_20250324173329.jpg&q=90)
+  
+
+在北京，外交部回應有關中方是否將與美方進行對話的提問，發言人郭嘉昆表示，中方始終認為中美關係保持穩定、健康可持續發展，符合兩國人民共同利益及國際社會普遍期待。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm)
+
+---
+
 # 桌球網球未來兩年續為A級精英項目　精英運動員下月增薪8.3%
 
 ![羅淑佩宣布，桌球及網球未來兩年續為A級精英項目。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797182_1_20250324174300.jpg&q=90)

@@ -1,3 +1,27 @@
+# 外交部：中美關係保持穩定健康可持續發展符合兩國人民共同利益
+
+![郭嘉昆表示，中方始終認為中美關係保持穩定、健康可持續發展，符合兩國人民共同利益。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797181_1_20250324173329.jpg&q=90)
+  
+
+在北京，外交部回應有關中方是否將與美方進行對話的提問，發言人郭嘉昆表示，中方始終認為中美關係保持穩定、健康可持續發展，符合兩國人民共同利益及國際社會普遍期待。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm)
+
+---
+
 # 外交部：從未收到所謂杜特爾特及家人向中國政府尋求庇護申請
 
 ![杜特爾特被指任內打擊毒品犯罪活動時，觸犯危害人類罪，日前在馬尼拉機場被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797167_1_20250324163541.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm)
-
----
-
-# 外交部：中韓加強人文交流　符合雙方利益
-
-![毛寧表示， 中韓是近鄰，加強人文交流，符合雙方利益。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796798_1_20250321161906.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧回應南韓計劃今年第三季對中國團體旅客免簽時表示，中韓是近鄰，加強人文交流，符合雙方利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm)
 
 ---

@@ -1,3 +1,23 @@
+# 羅淑佩：Cityline必須交代印錯票事件　做好應變工作
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm)
+
+---
+
 # 桌球網球未來兩年續為A級精英項目　精英運動員下月增薪8.3%
 
 ![羅淑佩宣布，桌球及網球未來兩年續為A級精英項目。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797182_1_20250324174300.jpg&q=90)
@@ -1412,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm)
-
----
-
-# 楊何蓓茵：維護國家安全　公務員更責無旁貸
-
-![楊何蓓茵說，公務員作為行政機關的一員，在執行職能時需將國家安全放在首位。（楊何蓓茵社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797000_1_20250323104247.jpg&q=85)
-  
-
-公務員事務局局長楊何蓓茵表示，未來3個月，有多個與國家安全有關的重要日子，包括《維護國家安全條例》刊憲生效一周年，下月15日將迎來第十個「全民國家安全教育日」，以及《香港國安法》於6月30日生效五周年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797000-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797000-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797000-20250323.htm)
 
 ---
