@@ -1,3 +1,27 @@
+# Coldplay ticket exchanges 'could be deal with by post'
+
+![Ticket exchange booths in Hong Kong and the mainland are open from today until April 7. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797121_1_20250324115705.jpg&q=90)
+  
+
+A lawmaker suggested on Monday that the ticketing platform Cityline deal with exchanges necessitated by printing errors on some Coldplay concert tickets by post.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm)
+
+---
+
 # Local art space takes Art Basel on vampire adventure
 
 ![Para Site's executive director Billy Tang says he wants to bring new perspectives to Art Basel. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797128_1_20250324121452.jpg&q=80)
@@ -1417,29 +1441,5 @@ Hong Kong's jobless rate has increased slightly as authorities warned about the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm)
-
----
-
-# Hotter weather expected this year: Observatory
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796261_1_20250318171329.jpg&q=60)
-  
-
-The Hong Kong Observatory on Tuesday said residents can expect hotter weather this year due to the continuing impact of climate change.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796261-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796261-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796261-20250318.htm)
 
 ---

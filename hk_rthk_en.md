@@ -1,3 +1,51 @@
+# Coldplay ticket exchanges 'could be deal with by post'
+
+![Ticket exchange booths in Hong Kong and the mainland are open from today until April 7. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797121_1_20250324115705.jpg&q=90)
+  
+
+A lawmaker suggested on Monday that the ticketing platform Cityline deal with exchanges necessitated by printing errors on some Coldplay concert tickets by post.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm)
+
+---
+
+# Local art space takes Art Basel on vampire adventure
+
+![Para Site's executive director Billy Tang says he wants to bring new perspectives to Art Basel. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797128_1_20250324121452.jpg&q=80)
+  
+
+Want to see vampires travelling through time and space? Local art space Para Site is turning Art Basel's film section into a sci-fi wonderland.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm)
+
+---
+
 # HK strives to attain carbon neutrality: Tse Chin-wan
 
 ![The government is expanding the city's electric vehicle charging network, and will stop selling private cars that run on gasoline or diesel by 2035. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797124_1_20250324120907.jpg&q=80)
@@ -1390,53 +1438,5 @@ Last year was the deadliest year for migrants, with nearly 9,000 people dying wo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm)
-
----
-
-# Maiden century as Nawaz keeps series alive against NZ
-
-![Hasan Nawaz celebrates his century against New Zealand at Eden Park in Auckland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796831_1_20250321182455.jpg&q=90)
-  
-
-Opener Hasan Nawaz struck a record-breaking maiden century on Friday as Pakistan crushed New Zealand by nine wickets in the third Twenty20 to keep the series alive.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm)
-
----
-
-# Record lap puts 'gobsmacked' Hamilton in pole position
-
-![Lewis Hamilton in a Ferrari during the sprint qualifier. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796819_1_20250321175331.jpg&q=85)
-  
-
-A "gobsmacked" Lewis Hamilton obliterated the Shanghai lap record to take a stunning pole position on Friday for the Chinese Grand Prix sprint in only his second race weekend with Ferrari.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm)
 
 ---

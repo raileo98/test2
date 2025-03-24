@@ -116,6 +116,30 @@
 
 ---
 
+# 衞生署推1+藥物審批機制後接逾110間包括內地及海外藥企查詢
+
+![衞生署表示，今年第一季推出「1+」藥物審批機制申請前的會面諮詢服務，以提升處理申請效率。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797119_1_20250324115954.jpg&q=90)
+  
+
+醫管局總藥劑師崔俊明表示，「1+」藥物審批機制生效以來，共5款新藥按機制獲批准註冊，並被列入或將被列入藥物名冊，包括治療轉移性大腸癌、屬罕見病的陣發性夜間血紅素尿症，經成本評估小組談判後，這兩款藥物價格分別下降3成至3成半，每年節省1500萬元至2400萬元不等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm)
+
+---
+
 # 謝展寰：第一座垃圾焚化爐預計今年底投入運作
 
 ![謝展寰表示，力爭在2035年前，減少一半的碳排放量，在2050年前實現碳中和。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797117_1_20250324115914.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm)
-
----
-
-# 購票公司稱需更換Coldplay演唱會新版門票　為不便表歉意
-
-![Cityline表示，原有門票將會被作廢，不可用作入場，並對於事件造成的不便，表示歉意。（Coldplayhongkong 社交網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796946_1_20250322201004.jpg&q=90)
-  
-
-英國著名樂隊Coldplay下月將於啟德體育園，舉行巡迴演唱會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796946-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796946-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796946-20250322.htm)
 
 ---
