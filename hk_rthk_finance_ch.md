@@ -1,3 +1,27 @@
+# 舜宇光學去年多賺1.46倍　末期息每股派0.532港元
+
+![舜宇光學去年盈利約27億元人民幣，按年急升約1.46倍。派末期息每股0.532港元，按年增加1.43倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797196_1_20250324193245.jpg&q=90)
+  
+
+舜宇光學公布，去年盈利約27億元人民幣，按年急升約1.46倍。派末期息每股0.532港元，按年增加1.43倍。派息比率約20%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797196-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797196-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797196-20250324.htm)
+
+---
+
 # 人行：本月起MLF操作採固定數量、利率招標、多重價位中標開展
 
 ![人行明日將開展4500億元人民幣MLF操作，本月起採用固定數量、利率招標、多重價位中標方式開展。（人行網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797185_2_20250324193652.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796880-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796880-20250322.htm)
-
----
-
-# 英美期油收市微升　本周升近2%或以上
-
-![倫敦布蘭特期油和紐約期油收市升0.2%至0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796879_1_20250322065038.jpg&q=90)
-  
-
-國際油價收市上升，之前美國對伊朗實施新的制裁，加上石油輸出國組織及其盟友（OPEC+）最新公布的計劃，提升市場對供應收緊的預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796879-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796879-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796879-20250322.htm)
 
 ---
