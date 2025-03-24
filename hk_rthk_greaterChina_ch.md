@@ -1,3 +1,26 @@
+# 商務部國際貿易談判副代表稱將推動互聯網及文化等領域有序開放
+
+  
+
+在北京，商務部國際貿易談判副代表李詠箑表示，目前全國版外資准入負面清單已減少到29項限制措施，將推動互聯網、文化等領域有序開放。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm)
+
+---
+
 # 公安部副部長陳思源：化解基層矛盾糾紛有助防範刑事案件發生
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796651-20250320.htm)
-
----
-
-# 外交部：經貿分歧應透過對話協商解決而非讓全球經濟承擔代價
-
-![毛寧說，無論外部環境如何變化，中方將堅持對外開放，與世界各國共同發展，互利共贏。 （路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796637_1_20250320175602.jpg&q=90)
-  
-
-經濟合作暨發展組織最新發布的中期經濟展望報告下調全球的經濟增長預期，認為一些國家近期採取的貿易壁壘措施將影響世界經濟的增速，導致通脹上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm)
 
 ---

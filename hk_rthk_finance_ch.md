@@ -1,3 +1,26 @@
+# 商務部國際貿易談判副代表稱將推動互聯網及文化等領域有序開放
+
+  
+
+在北京，商務部國際貿易談判副代表李詠箑表示，目前全國版外資准入負面清單已減少到29項限制措施，將推動互聯網、文化等領域有序開放。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm)
+
+---
+
 # 港股半日跌27點　中石化及國藥績後偏軟
 
 ![恒生指數中午收市報23662點，跌27點，跌幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797125_1_20250324120954.jpg&q=10)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm)
-
----
-
-# 交通銀行去年盈利增近1%
-
-![交通銀行去年盈利增長近1%，派末期息每股0.197元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796817_1_20250321173606.jpg&q=90)
-  
-
-交通銀行去年盈利935.9億元人民幣，按年增長近1%，派末期息每股0.197元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796817-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796817-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796817-20250321.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 商務部國際貿易談判副代表稱將推動互聯網及文化等領域有序開放
+
+  
+
+在北京，商務部國際貿易談判副代表李詠箑表示，目前全國版外資准入負面清單已減少到29項限制措施，將推動互聯網、文化等領域有序開放。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm)
+
+---
+
+# 立法會8月暑期休會　11及12月不編排會議
+
+  
+
+立法會秘書處公布下半年議程，7月至10月期間舉行例行會議，但8月將暑期休會，至於11月及12月不編排任何會議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797133-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797133-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797133-20250324.htm)
+
+---
+
 # 延續有時首席勞工事務主任職位　孫玉菡稱因維護國安有長期需要
 
   
@@ -46,6 +92,7 @@
 
 # 羅淑佩主持體育委員會會議後下午5時半見傳媒
 
+![羅淑佩今日主持體育委員會會議後，將在下午5時30分在政府總部會見傳媒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797130_1_20250324125109.jpg&q=80)
   
 
 文化體育及旅遊局局長羅淑佩今日主持體育委員會會議後，將在下午5時30分在政府總部會見傳媒。
@@ -69,6 +116,8 @@
 
 # 林奮強：倘不改革公營醫療收費　難以持續應付人口老化
 
+![林奮強說，政府醫療開支及需求已達「臨界點」，如果不改革，難以持續回應人口老化等需要。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797129_1_20250324125032.jpg&q=75)
+![龍振邦亦認為，有需要調整收費，否則服務難以維持。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797129_2_20250324125032.jpg&q=80)
   
 
 醫管局管治及架構改革委員會成員林奮強表示，本港公營醫療開支及需求都很大，已達「臨界點」，政府的醫療補貼比率亦比其他地方高，如果不改革公營醫療收費，難以持續應付人口老化。
@@ -116,6 +165,7 @@
 
 # 統計處4月至7月進行小型試驗統計調查　抽選9千個住戶參與
 
+![統計處將於下月1日至7月31日期間進行一項小型試驗統計調查，測試2026年人口普查的問卷設計和運作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797126_1_20250324124948.jpg&q=85)
   
 
 統計處將於下月1日至7月31日期間進行一項小型試驗統計調查，測試2026年人口普查的問卷設計和運作，以及就相關安排徵詢住戶意見。
@@ -139,6 +189,7 @@
 
 # 花卉展覽派花卉活動結束　康文署籲市民不要往維園取花
 
+![康文署宣布，香港花卉展覽在環保回收日向公眾派發花卉的活動已經結束。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797123_1_20250324124925.jpg&q=50)
   
 
 康文署宣布，香港花卉展覽在環保回收日向公眾派發花卉的活動已經結束，市民不要前往維園排隊等候取花。
@@ -1411,29 +1462,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797060-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797060-20250324.htm)
-
----
-
-# 渣打集團：中國相關業務迎來更廣闊機遇
-
-![溫拓思說中國經濟發展態勢向好、科技實力顯著提升、企業出海步伐提速。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797057_1_20250323225756.jpg&q=40)
-  
-
-渣打集團行政總裁溫拓思說，中國經濟發展態勢向好、科技實力顯著提升、企業出海步伐提速，渣打集團中國相關業務迎來更廣闊機遇，將持續深耕中國市場，拓展投資和運營。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm)
 
 ---
