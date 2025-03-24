@@ -1,3 +1,26 @@
+# 陳茂波：將推出創新政策　促進港深人員資金數據及生物樣本流動
+
+  
+
+財政司司長陳茂波表示，北部都會區與深圳接壤，將成為粵港兩地合作的橋頭堡，佔地300公頃的創新科技園區，涵蓋「河套合作區」，政府將推出試驗性質的創新政策，促進香港與深圳的人員、資金、貨物、數據，甚至生物樣本的流動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm)
+
+---
+
 # 丁薛祥將出席博鰲亞洲論壇2025年年會
 
 ![丁薛祥將出席博鰲亞洲論壇2025年年會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797159_1_20250324155151.jpg&q=90)

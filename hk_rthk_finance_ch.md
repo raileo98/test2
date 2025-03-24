@@ -1,3 +1,50 @@
+# 港股高收215點　科指升逾1.7%
+
+![恒生指數下午跟隨內地股市倒升，收市報23905點，升215點，升幅0.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797164_1_20250324162351.jpg&q=65)
+  
+
+港股下午抽升，恒生指數初段曾跌近160點，其後表現反覆，下午跟隨內地股市轉強，曾升近280點，收市報23905點，升215點，升幅0.91%。主板總成交金額約2331億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm)
+
+---
+
+# 陳茂波：將推出創新政策　促進港深人員資金數據及生物樣本流動
+
+  
+
+財政司司長陳茂波表示，北部都會區與深圳接壤，將成為粵港兩地合作的橋頭堡，佔地300公頃的創新科技園區，涵蓋「河套合作區」，政府將推出試驗性質的創新政策，促進香港與深圳的人員、資金、貨物、數據，甚至生物樣本的流動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm)
+
+---
+
 # 內地股市回穩收市
 
 ![上證指數最多曾跌逾0.7%，尾段轉升收市，報3370點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797151_1_20250324151120.jpg&q=85)
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796846-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796846-20250321.htm)
-
----
-
-# 中證監：要持續完善資本市場基礎制度　堅持保護投資者導向
-
-![中證監稱要堅持服務實體經濟，支持新質生產力發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796842_1_20250321202837.jpg&q=90)
-  
-
-中國證監會就推進資本市場法治建設表示，要持續完善資本市場基礎制度體系，牢牢守住不發生系統性風險底線；堅持保護投資者的鮮明導向，不斷健全投資者保護制度機制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796842-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796842-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796842-20250321.htm)
-
----
-
-# 人行貨幣政策委員會建議下階段加大貨幣政策調控強度
-
-![人行稱，根據國內外經濟金融形勢及金融市場運行情況，擇機降準減息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796844_1_20250321203237.jpg&q=90)
-  
-
-人民銀行貨幣政策委員會近日召開今年首季度例會，表示要實施適度寬鬆貨幣政策，加強逆周期調節；建議下階段加大貨幣政策調控強度，提高貨幣政策調控前瞻性、針對性、有效性，根據國內外經濟金融形勢及金融市場運行情況，擇機降準減息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm)
 
 ---

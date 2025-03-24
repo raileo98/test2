@@ -1,3 +1,27 @@
+# US-Russia talks on Ukraine begin in Saudi Arabia
+
+![Different plans for temporary ceasefires in the Ukraine war have been proposed, but attacks have continued unabated. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797165_1_20250324162833.jpg&q=60)
+  
+
+US and Russian officials opened talks in Saudi Arabia on Monday on a partial ceasefire in the Ukraine war, a day after delegates from Washington and Kyiv had their own discussions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm)
+
+---
+
 # S Korea deploys choppers in force to fight bushfire
 
 ![Unramsa temple in Uiseong, Gyeongbuk, is one of the buildings destroyed by a wildfire on Sunday.
@@ -1412,29 +1436,5 @@ Hundreds of thousands of people were forced to flee climate disasters last year,
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm)
-
----
-
-# Supreme Court chief chides Trump over impeachment call
-
-![A brief statement from Chief Justice of the United States, John Roberts, said impeachment was not an appropriate response to disagreement. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796357_1_20250319090726.jpg&q=90)
-  
-
-US Chief Justice John Roberts on Tuesday issued a rare public rebuke of President Donald Trump, over his call for the impeachment of a federal judge, in an extraordinary display of conflict between the executive and judiciary branches.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm)
 
 ---

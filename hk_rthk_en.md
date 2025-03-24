@@ -1,3 +1,27 @@
+# US-Russia talks on Ukraine begin in Saudi Arabia
+
+![Different plans for temporary ceasefires in the Ukraine war have been proposed, but attacks have continued unabated. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797165_1_20250324162833.jpg&q=60)
+  
+
+US and Russian officials opened talks in Saudi Arabia on Monday on a partial ceasefire in the Ukraine war, a day after delegates from Washington and Kyiv had their own discussions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm)
+
+---
+
 # S Korea deploys choppers in force to fight bushfire
 
 ![Unramsa temple in Uiseong, Gyeongbuk, is one of the buildings destroyed by a wildfire on Sunday.
@@ -1414,29 +1438,5 @@ French actor Gerard Depardieu faces trial on Monday over alleged sexual assaults
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm)
-
----
-
-# Boeing wins contract for next generation US fighter
-
-![Defence Secretary Pete Hegseth (right) said the new aircraft said the new aircraft "sends a very direct, clear message to our allies." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796865_1_20250322022500.jpg&q=90)
-  
-
-Donald Trump announced on Friday that Boeing has been awarded the contract for the Air Force's next-generation stealth fighter plane, which the 47th US president said would be named the F-47.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm)
 
 ---

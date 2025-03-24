@@ -1,3 +1,50 @@
+# 港股高收215點　科指升逾1.7%
+
+![恒生指數下午跟隨內地股市倒升，收市報23905點，升215點，升幅0.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797164_1_20250324162351.jpg&q=65)
+  
+
+港股下午抽升，恒生指數初段曾跌近160點，其後表現反覆，下午跟隨內地股市轉強，曾升近280點，收市報23905點，升215點，升幅0.91%。主板總成交金額約2331億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm)
+
+---
+
+# 陳茂波：將推出創新政策　促進港深人員資金數據及生物樣本流動
+
+  
+
+財政司司長陳茂波表示，北部都會區與深圳接壤，將成為粵港兩地合作的橋頭堡，佔地300公頃的創新科技園區，涵蓋「河套合作區」，政府將推出試驗性質的創新政策，促進香港與深圳的人員、資金、貨物、數據，甚至生物樣本的流動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm)
+
+---
+
 # 七欖期間有酒店安排免費穿梭巴士　的士業稱啟德設專區接送乘客
 
   
@@ -1390,55 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm)
-
----
-
-# Coldplay有門票出錯需更換　文體旅局促售票公司妥善處理
-
-![文化體育及旅遊局表示，高度關注 Cityline 印製 Coldplay 演唱會部分門票資料出錯的事件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796973_1_20250322225841.jpg&q=80)
-  
-
-文化體育及旅遊局表示，高度關注 Cityline 印製 Coldplay 演唱會部分門票資料出錯的事件，局方得知事件後已立即要求Cityline作出快速和妥善處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796973-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796973-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796973-20250322.htm)
-
----
-
-# 解放軍駐港部隊參與植樹日活動　傳播環保意識增進與市民情感
-
-![官兵代表整齊列隊，與香港社會各界代表一起參加啓動典禮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796972_3_20250322224844.jpg&q=50)
-![官兵代表與香港小朋友一同植樹。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796972_1_20250322224844.jpg&q=30)
-![官兵代表與香港市民交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796972_2_20250322224844.jpg&q=40)
-  
-
-解放軍駐港部隊派出近200名官兵，與市民在元朗大欖郊野公園參與植樹日活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796972-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796972-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796972-20250322.htm)
 
 ---
