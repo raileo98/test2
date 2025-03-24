@@ -1,3 +1,27 @@
+# Cityline 'must explain Coldplay ticket errors'
+
+![The inaccurate information is printed on HK$1,399 'Coldplay: Music Of The Spheres World Tour – delivered by DHL' standing tickets. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797187_1_20250324182435.jpg&q=90)
+  
+
+The secretary for culture, sports and tourism has called on the ticketing platform Cityline to explain misprints on Coldplay concert tickets.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm)
+
+---
+
 # Thai PM set to survive no-confidence vote
 
 ![Paetongtarn Shinawatra attends the first day of the no-confidence motion against her. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797189_1_20250324183239.jpg&q=80)
@@ -1414,29 +1438,5 @@ The Transport Department on Saturday said it received almost 37,000 online appli
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm)
-
----
-
-# Scheme aims to identify patients with high cholesterol
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796918_1_20250322165508.jpg&q=90)
-  
-
-Commissioner for primary healthcare Pang Fei-chau said on Saturday that it is expected more patients will be detected with high cholesterol after a government-led primary healthcare scheme expands to cover blood lipid testing from Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796918-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796918-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796918-20250322.htm)
 
 ---

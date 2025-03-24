@@ -47,6 +47,7 @@
 
 # 消息：住院門診收費上限或每年1萬元　急症服務收費不多於4百元
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797190_1_20250324184714.jpg&q=90)
   
 
 政府明日公布公營醫療服務收費改革詳情。消息指，新收費最快明年1月起分3階段實施，包括增設住院門診收費上限，很大機會定於每人每年1萬元，並按年計算。
@@ -2380,7 +2381,7 @@
 
 # 加拿大總理卡尼宣布解散議會　提前下月28日舉行大選
 
-![卡尼宣布提前大選。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797063_1_20250324004656.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797063_1_20250324004656.jpg&q=90)
   
 
 加拿大總理卡尼宣布解散議會，並提前在4月28日舉行眾議院選舉。
