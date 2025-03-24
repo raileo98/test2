@@ -1,3 +1,27 @@
+# 美國記者被加入華府高層討論打擊胡塞武裝通訊群組惹關注
+
+![萬斯、赫格塞斯和華爾茲都在通訊群組內。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797230_1_20250325052321.jpg&q=90)
+  
+
+美國白宮證實，一名美國記者無意中被加入華府高層討論打擊也門胡塞武裝行動的通訊群組。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797230-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797230-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797230-20250325.htm)
+
+---
+
 # 以軍因標注有誤向紅十字會國際委員會建築物開火
 
 ![加沙持續遭到以軍空襲，大量建築物受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797227_1_20250325042635.jpg&q=60)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796986-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796986-20250323.htm)
-
----
-
-# 德國總統簽署憲法修正案放寬「債務煞車」限制
-
-![修正案允許政府大規模舉債，投資國防和基礎設施建設。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796985_1_20250323051401.jpg&q=90)
-  
-
-德國總統施泰因邁爾簽署憲法修正案，允許政府大規模舉債，投資國防和基礎設施建設。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796985-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796985-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796985-20250323.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 美國記者被加入華府高層討論打擊胡塞武裝通訊群組惹關注
+
+![萬斯、赫格塞斯和華爾茲都在通訊群組內。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797230_1_20250325052321.jpg&q=90)
+  
+
+美國白宮證實，一名美國記者無意中被加入華府高層討論打擊也門胡塞武裝行動的通訊群組。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797230-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797230-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797230-20250325.htm)
+
+---
+
 # 以軍因標注有誤向紅十字會國際委員會建築物開火
 
 ![加沙持續遭到以軍空襲，大量建築物受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797227_1_20250325042635.jpg&q=60)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm)
-
----
-
-# 盧寵茂明日公布公營醫療服務收費改革詳情
-
-![盧寵茂明日中午12時於政府總部舉行記者會，公布公營醫療服務收費改革的詳情。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797154_1_20250324155720.jpg&q=80)
-  
-
-醫務衞生局局長盧寵茂明日中午十二時於政府總部舉行記者會，公布公營醫療服務收費改革的詳情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797154-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797154-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797154-20250324.htm)
 
 ---
