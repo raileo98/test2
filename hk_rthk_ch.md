@@ -24,6 +24,7 @@
 
 # 羅淑佩：Cityline必須交代印錯票事件　做好應變工作
 
+![羅淑佩表示，Cityline必須交代印錯票事件。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797184_1_20250324175825.jpg&q=90)
   
   
 
