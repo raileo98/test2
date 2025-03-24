@@ -1,3 +1,27 @@
+# 佳兆業料去年虧損擴大至不多於300億人民幣
+
+![佳兆業發預期去年將錄得不多於300億元人民幣虧損，按年增加最多51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797214_1_20250324224622.jpg&q=90)
+  
+
+佳兆業發盈警，預期去年將錄得不多於300億元人民幣虧損，按年增加最多51%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm)
+
+---
+
 # 美國3月製造業PMI初值跌至49.8　跌幅大過預期
 
 ![美國3月製造業採購經理指數（PMI）初值降至49.8，跌至50以下的收縮區間，低過市場預期的51.7。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797212_1_20250324215640.jpg&q=80)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm)
-
----
-
-# 總理李強在中國發展高層論壇發表主旨演講
-
-![李強出席中國發展高層論壇年會開幕式發表主旨演講。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796995_2_20250323180106.jpg&q=90)
-  
-
-中國發展高層論壇2025年年會早上在北京舉行開幕式，國務院總理李強發表主旨演講。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm)
 
 ---
