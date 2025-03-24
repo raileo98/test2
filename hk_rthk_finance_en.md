@@ -1,3 +1,27 @@
+# Stocks open up amid caution over tariffs
+
+![The Hang Seng Index opened 59.86 points, or 0.25 percent, up at 23,749. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797110_1_20250324110326.jpg&q=80)
+  
+
+The Hang Seng Index climbed 59.86 points, or 0.25 percent, to open at 23,749.58 on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm)
+
+---
+
 # UK to announce more cuts in budget update
 
 ![Finance minister Rachel Reeves is expected to reduce the administration budgets for the civil service by 10 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796992_1_20250323073004.jpg&q=90)
@@ -1411,29 +1435,5 @@ Authorities insist there is still keen demand for housing, citing a low vacancy 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm)
-
----
-
-# Thanks to property gains, MTR profit more than doubles
-
-![The MTR Corporation posts a net profit of HK$15.77 billion for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794580_1_20250306173403.jpg&q=85)
-  
-
-Net profit at the MTR Corporation more than doubled last year, thanks largely to strong gains in local property development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794580-20250306.htm)
 
 ---

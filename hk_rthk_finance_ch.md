@@ -1,3 +1,51 @@
+# 南方東英擬進一步拓展更多個股槓桿及反向產品
+
+![王卓峯（中）稱新產品令亞洲時段投資者能更快速反應，毋須等到美國開市或熬夜交易。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797112_1_20250324110942.jpg&q=90)
+  
+
+南方東英在香港上市亞洲首批9隻個股槓桿及反向產品。據介紹，產品以美股個股為標的，以合成模擬策略作為基礎，與交易對手簽訂掉期合約，追蹤標的股票每日表現的兩倍或反向兩倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797112-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797112-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797112-20250324.htm)
+
+---
+
+# 港交所：個股槓桿及反向產品上市加強香港區內領先ETP市場地位
+
+![港交所稱亞洲首批個股槓桿及反向產品上市將加強香港區內領先ETP市場地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797108_1_20250324105109.jpg&q=90)
+  
+
+港交所歡迎亞洲首批個股槓桿及反向產品上市，指進一步豐富香港產品生態圈，加強香港作為區內領先的交易所買賣產品（ETP）市場地位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm)
+
+---
+
 # 日股半日近乎持平
 
 ![日經指數半日報37676點，跌不足1點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797107_1_20250324104300.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796799-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796799-20250321.htm)
-
----
-
-# 美團上季盈利按年升1.8倍　按季跌52%
-
-![美團上季盈利62.2億元人民幣，按年升1.8倍，按季跌52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796803_1_20250321164455.jpg&q=90)
-  
-
-美團上季盈利62.2億元人民幣，按年升1.8倍，按季跌52%，不派股息。按非國際財務報告會計準則，經調整盈利98.5億元，按年升1.3倍，按季跌23%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796803-20250321.htm)
-
----
-
-# 本港二手樓價指數按周跌逾1%　創27周最大跌幅
-
-![中原城市領先指數最新報134.89，按周跌1.17%，跌幅是27周以來最大。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796804_1_20250321165313.jpg&q=85)
-  
-
-反映本港二手樓價走勢的中原城市領先指數（CCL）最新報134.89，按周跌1.17%，跌幅是27周以來最大，再創逾8年半新低。指數反映2月26日財政預算案公布當周市況，並且連跌兩周累計跌1.87%，蒸發去年9月首次減息後所有升幅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm)
 
 ---

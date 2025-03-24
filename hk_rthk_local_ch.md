@@ -1,3 +1,50 @@
+# 楊永杰促CityLine考慮賠償受錯版門票影響人士
+
+  
+
+英國著名樂隊Coldplay下月在啟德體育園的巡迴演唱會，因部分門票資料出錯，要更換新版門票。售票公司CityLine即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。公司正探索提供快遞門票換領服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797111-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797111-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797111-20250324.htm)
+
+---
+
+# 港交所：個股槓桿及反向產品上市加強香港區內領先ETP市場地位
+
+![港交所稱亞洲首批個股槓桿及反向產品上市將加強香港區內領先ETP市場地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797108_1_20250324105109.jpg&q=90)
+  
+
+港交所歡迎亞洲首批個股槓桿及反向產品上市，指進一步豐富香港產品生態圈，加強香港作為區內領先的交易所買賣產品（ETP）市場地位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm)
+
+---
+
 # 許正宇：年底前可望引入逾200間家辦來港　料超額達標
 
 ![許正宇稱逾160間已落戶香港的家辦，約四分之一與過去兩屆「裕澤香江」高峰論壇直接有關。（財庫局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797106_2_20250324104432.jpg&q=90)
@@ -24,6 +71,7 @@
 
 # 黃碧如：修訂公屋富戶政策相信可至少釋放數百個公屋單位
 
+![黃碧如形容新政策是「組合拳」，既提高額外租金，亦提供措施鼓勵「富戶」向上流。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797102_1_20250324105409.jpg&q=90)
   
 
 房委會資助房屋小組委員會通過修訂公屋「富戶」政策，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。小組委員會主席黃碧如在一個電台節目形容新政策是「組合拳」，既提高額外租金，亦提供措施鼓勵「富戶」向上流。被問到有無預計新措施釋放到多少公屋單位，黃碧如說未有目標數字，但相信最起碼會有數百間。
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm)
-
----
-
-# 保險業聯會指　如所買之旅遊保把機場關閉列為指定風險則可受保障
-
-![香港保險業聯會表示，如果所買的旅遊保險將機場關閉列為指定風險，投保人即可受到旅遊保險保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796931_1_20250322174226.jpg&q=90)
-  
-
-英國倫敦希斯路機場因附近變電站大火導致停電而一度關閉。香港保險業聯會表示，機場停運是由於附近變電站起火，屬突發意外，如果所買的旅遊保險將機場關閉列為指定風險，投保人即可受到旅遊保險保障。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796931-20250322.htm)
-
----
-
-# 海關尖沙咀一商廈單位檢獲39公斤懷疑可卡因　37歲男子被捕
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796930_1_20250322170911.jpg&q=90)
-  
-
-海關檢獲39公斤懷疑可卡因，市值約3300萬元，拘捕一名報稱技術員的37歲男子，案件仍在調查中，不排除有更多人被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm)
 
 ---

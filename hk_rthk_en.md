@@ -1,3 +1,27 @@
+# Stocks open up amid caution over tariffs
+
+![The Hang Seng Index opened 59.86 points, or 0.25 percent, up at 23,749. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797110_1_20250324110326.jpg&q=80)
+  
+
+The Hang Seng Index climbed 59.86 points, or 0.25 percent, to open at 23,749.58 on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm)
+
+---
+
 # Andreeva streak ends in epic loss to Anisimova
 
 ![Mirra Andreeva receives treatment from a WTA physiotherapist during an injury timeout in her Miami Open match against Amanda Anisimova at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797104_1_20250324103923.jpg&q=90)
@@ -1414,29 +1438,5 @@ A Housing Authority committee tightened rules on Friday for well-off public hous
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796794-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796794-20250321.htm)
-
----
-
-# French aviation firm sets up Asia HQ in Hong Kong
-
-![The Airport Authority and Elior Group signs an agreement in February. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796793_1_20250321160409.jpg&q=90)
-  
-
-A French aeronautic services company on Friday said it is working with the Airport Authority (AA) to develop the SAR into Asia’s first aircraft parts processing and trading hub.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796793-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796793-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796793-20250321.htm)
 
 ---

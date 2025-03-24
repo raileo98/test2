@@ -1,3 +1,98 @@
+# 南方東英擬進一步拓展更多個股槓桿及反向產品
+
+![王卓峯（中）稱新產品令亞洲時段投資者能更快速反應，毋須等到美國開市或熬夜交易。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797112_1_20250324110942.jpg&q=90)
+  
+
+南方東英在香港上市亞洲首批9隻個股槓桿及反向產品。據介紹，產品以美股個股為標的，以合成模擬策略作為基礎，與交易對手簽訂掉期合約，追蹤標的股票每日表現的兩倍或反向兩倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797112-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797112-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797112-20250324.htm)
+
+---
+
+# 楊永杰促CityLine考慮賠償受錯版門票影響人士
+
+  
+
+英國著名樂隊Coldplay下月在啟德體育園的巡迴演唱會，因部分門票資料出錯，要更換新版門票。售票公司CityLine即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。公司正探索提供快遞門票換領服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797111-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797111-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797111-20250324.htm)
+
+---
+
+# 港交所：個股槓桿及反向產品上市加強香港區內領先ETP市場地位
+
+![港交所稱亞洲首批個股槓桿及反向產品上市將加強香港區內領先ETP市場地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797108_1_20250324105109.jpg&q=90)
+  
+
+港交所歡迎亞洲首批個股槓桿及反向產品上市，指進一步豐富香港產品生態圈，加強香港作為區內領先的交易所買賣產品（ETP）市場地位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm)
+
+---
+
+# 以色列批准設新機構推動遷出加沙地帶巴人
+
+![卡茨說，「自願移民事務局」將為有意離開加沙的巴人提供安全監督下的離境通道和手續。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797109_1_20250324105215.jpg&q=90)
+  
+
+以色列國防部表示，以色列安全內閣已批准設立「自願移民事務局」，供自願遷往第三國的巴勒斯坦加沙地帶居民申請辦理手續。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797109-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797109-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797109-20250324.htm)
+
+---
+
 # 日股半日近乎持平
 
 ![日經指數半日報37676點，跌不足1點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797107_1_20250324104300.jpg&q=90)
@@ -73,6 +168,7 @@
 
 # 黃碧如：修訂公屋富戶政策相信可至少釋放數百個公屋單位
 
+![黃碧如形容新政策是「組合拳」，既提高額外租金，亦提供措施鼓勵「富戶」向上流。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797102_1_20250324105409.jpg&q=90)
   
 
 房委會資助房屋小組委員會通過修訂公屋「富戶」政策，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。小組委員會主席黃碧如在一個電台節目形容新政策是「組合拳」，既提高額外租金，亦提供措施鼓勵「富戶」向上流。被問到有無預計新措施釋放到多少公屋單位，黃碧如說未有目標數字，但相信最起碼會有數百間。
@@ -1346,101 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797041-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797041-20250323.htm)
-
----
-
-# 陳美寶稱低空經濟要考慮成本效益　考慮維港兩岸要兼顧安全及實用
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797040_1_20250323182806.jpg&q=90)
-  
-
-政府正推動低空經濟，運輸及物流局局長陳美寶表示，市區人口密集，亦有高樓大樓，要找適當的無人機起降點有一定限制，亦要考慮成本效益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm)
-
----
-
-# 土耳其伊斯坦布爾市長正式被捕　羈押候審
-
-![土耳其伊斯坦布爾市長伊馬姆奧盧正式被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797039_1_20250323175438.jpg&q=90)
-  
-
-土耳其伊斯坦布爾刑事法庭以涉嫌貪污等罪名，正式拘捕伊斯坦布爾市長伊馬姆奧盧，將他羈押候審。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797039-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797039-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797039-20250323.htm)
-
----
-
-# 方濟各料出院前透過醫院窗口向信眾送上祝福並感謝醫護連日來照顧
-
-![方濟各因肺炎留醫羅馬傑梅利醫院5個多星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797036_1_20250323173725.jpg&q=90)
-  
-
-教宗方濟各的醫療團隊說，因肺炎留醫羅馬傑梅利醫院5個多星期的方濟各，預計在當地中午過後，即時香港時間傍晚左右出院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797036-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797036-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797036-20250323.htm)
-
----
-
-# 工聯會稱收到建造及服務行業工友投訴　輸入外勞致開工不足
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797034_1_20250323173945.jpg&q=90)
-  
-
-當局早前透露，「補充勞工優化計劃」推行一年半，批出配額達51000個。工聯會表示，當中以飲食業佔最多，有超過2萬人，工聯會過去幾個月陸續收到建造業、飲食零售等服務行業的工友投訴，指有僱主輸入外勞，令他們開工不足，甚至無工可做。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm)
 
 ---

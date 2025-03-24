@@ -1,3 +1,27 @@
+# 以色列批准設新機構推動遷出加沙地帶巴人
+
+![卡茨說，「自願移民事務局」將為有意離開加沙的巴人提供安全監督下的離境通道和手續。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797109_1_20250324105215.jpg&q=90)
+  
+
+以色列國防部表示，以色列安全內閣已批准設立「自願移民事務局」，供自願遷往第三國的巴勒斯坦加沙地帶居民申請辦理手續。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797109-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797109-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797109-20250324.htm)
+
+---
+
 # 訪華美參議員戴安斯：北京不制止芬太尼輸美　中美貿易談判難推動
 
 ![戴安斯（左）訪華期間與總理李強等會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797099_1_20250324100417.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm)
-
----
-
-# 倫敦希斯路機場全面恢復運作　行政總裁稱無法百分百預防突發事件
-
-![倫敦希斯路機場全面恢復運作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796928_1_20250322163548.jpg&q=90)
-  
-
-英國倫敦希斯路機場因附近變電站大火停電，機場關閉大半日後，逐步恢復航班升降，並在星期六全面恢復運作。倫敦警方說，初步相信火警沒有可疑。倫敦消防局表示，調查將聚焦在配電設備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm)
 
 ---
