@@ -1,3 +1,27 @@
+# 康師傅去年多賺近20%　末期息及特別息多派近20%
+
+![康師傅去年盈利37.3億元人民幣，按年升近20%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797168_1_20250324163733.jpg&q=85)
+  
+
+康師傅公布，去年盈利37.3億元人民幣，按年升近20%。派末期息每股0.3314元人民幣，另派特別息每股0.3314元人民幣，兩者按年都升近20%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797168-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797168-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797168-20250324.htm)
+
+---
+
 # 港股高收215點　科指升逾1.7%
 
 ![恒生指數下午跟隨內地股市倒升，收市報23905點，升215點，升幅0.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797164_1_20250324162351.jpg&q=65)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm)
-
----
-
-# 李強主持國務院會議　研究建立健全涉企收費長效監管機制有關舉措
-
-![李強主持召開國務院常務會議，研究建立健全涉企收費長效監管機制有關舉措。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796846_1_20250321204723.jpg&q=90)
-  
-
-國務院總理李強主持召開國務院常務會議，研究建立健全涉企收費長效監管機制有關舉措。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796846-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796846-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796846-20250321.htm)
 
 ---
