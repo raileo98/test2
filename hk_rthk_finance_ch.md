@@ -1,3 +1,51 @@
+# 英法德股市偏軟　創逾1星期新低
+
+![歐洲股市反覆向下，創逾1星期新低，德國DAX指數收報22852點，跌約0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797232_1_20250325055132.jpg&q=90)
+  
+
+歐洲股市反覆向下，創逾1星期新低，市場關注美國關稅措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797232-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797232-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797232-20250325.htm)
+
+---
+
+# 美股升逾1%至逾2%　創超過兩星期新高
+
+![美股3大指數連升兩個交易日，創逾兩星期新高，由於憧憬美國關稅措施轉趨溫和。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797231_1_20250325054559.jpg&q=90)
+  
+
+美股3大指數連升兩個交易日，創逾兩星期新高，由於憧憬美國關稅措施轉趨溫和。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797231-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797231-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797231-20250325.htm)
+
+---
+
 # 王文濤晤蘋果行政總裁　支持外企產品公平參與以舊換新擴消費政策
 
 ![商務部部長王文濤會見美國蘋果公司行政總裁庫克。（商務部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797219_1_20250325001521.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm)
-
----
-
-# 陳茂波：文化創意產業發展帶來龐大商機　香港擁許多獨特優勢
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797002_1_20250323103757.jpg&q=85)
-  
-
-一連兩日的「中國發展高層論壇」早上在北京召開，財政司司長陳茂波表示，應邀到北京出席論壇，並會在其中一個專題研討會上，就如何透過改革激發增長動能發表主旨演講。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm)
-
----
-
-# 李強：各國經濟碎片化加劇　中國積極推動普惠包容經濟全球化
-
-![李強表示，脫鈎斷鏈只能加劇危機，打壓遏制終將損人害己。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796999_1_20250323114206.jpg&q=90)
-  
-
-一連兩日的中國發展高層論壇在北京釣魚台國賓館召開。國務院總理李強在開幕式致辭時表示，當今世界經濟碎片化加劇，不穩定性和不確定性上升，各國應更加開放市場，企業更多共享資源，攜手抵禦風險挑戰，實現共同繁榮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm)
 
 ---

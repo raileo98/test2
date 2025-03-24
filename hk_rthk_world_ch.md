@@ -1,3 +1,27 @@
+# 特朗普：或向多國提供關稅優惠　但需要實現對等
+
+![特朗普說，未來數日將會宣布涉及汽車、木材、晶片等產品的關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797233_1_20250325055421.jpg&q=85)
+  
+
+美國總統特朗普表示，隨著4月2日對等關稅生效日期臨近，他可能會向很多國家提供關稅優惠，但需要實現對等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm)
+
+---
+
 # 美國記者被加入華府高層討論打擊胡塞武裝通訊群組惹關注
 
 ![萬斯、赫格塞斯和華爾茲都在通訊群組內。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797230_1_20250325052321.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm)
-
----
-
-# 英國首相對以色列在加沙恢復軍事行動表示嚴重關切
-
-![以軍持續在加沙地帶展開地面行動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796986_1_20250323062357.jpg&q=90)
-  
-
-英國首相施紀賢與約旦國王阿卜杜拉二世通話，對以色列再次在加沙地帶採取軍事行動以及加沙人道援助短缺表示嚴重關切。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796986-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796986-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796986-20250323.htm)
 
 ---

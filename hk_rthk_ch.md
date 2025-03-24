@@ -1,3 +1,75 @@
+# 英法德股市偏軟　創逾1星期新低
+
+![歐洲股市反覆向下，創逾1星期新低，德國DAX指數收報22852點，跌約0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797232_1_20250325055132.jpg&q=90)
+  
+
+歐洲股市反覆向下，創逾1星期新低，市場關注美國關稅措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797232-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797232-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797232-20250325.htm)
+
+---
+
+# 美股升逾1%至逾2%　創超過兩星期新高
+
+![美股3大指數連升兩個交易日，創逾兩星期新高，由於憧憬美國關稅措施轉趨溫和。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797231_1_20250325054559.jpg&q=90)
+  
+
+美股3大指數連升兩個交易日，創逾兩星期新高，由於憧憬美國關稅措施轉趨溫和。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797231-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797231-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797231-20250325.htm)
+
+---
+
+# 特朗普：或向多國提供關稅優惠　但需要實現對等
+
+![特朗普說，未來數日將會宣布涉及汽車、木材、晶片等產品的關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797233_1_20250325055421.jpg&q=85)
+  
+
+美國總統特朗普表示，隨著4月2日對等關稅生效日期臨近，他可能會向很多國家提供關稅優惠，但需要實現對等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm)
+
+---
+
 # 美國記者被加入華府高層討論打擊胡塞武裝通訊群組惹關注
 
 ![萬斯、赫格塞斯和華爾茲都在通訊群組內。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797230_1_20250325052321.jpg&q=90)
@@ -1362,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm)
-
----
-
-# 法國外長巴羅本周四起訪華兩日
-
-![巴羅將於本星期四至五訪華。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797158_1_20250324154336.jpg&q=90)
-  
-
-在北京，外交部表示，應中共中央政治局委員、外交部長王毅邀請，法國歐洲及外交部長巴羅將於本星期四至五訪華。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm)
-
----
-
-# 華春瑩到訪澳門　岑浩輝稱加強拓展對外聯繫尤其開拓葡語系等市場
-
-![岑浩輝（右）昨日在政府總部與外交部副部長華春瑩（左）會面。（澳門新聞局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797156_1_20250324211004.jpg&q=85)
-  
-
-澳門行政長官岑浩輝昨日在政府總部與外交部副部長華春瑩會面，雙方就澳門進一步透過加強拓展對外聯繫，落實經濟適度多元發展等議題交流。他歡迎外交部副部長華春瑩一行到訪澳門，並對外交部長期支持澳門特區的對外交往工作表達謝意，同時也感謝駐澳特派員公署在各項涉外工作所給予的支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797156-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797156-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797156-20250324.htm)
-
----
-
-# 韓悳洙：竭盡智慧和力量應對貿易戰　籲朝野黨派實現合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797155_1_20250324153129.jpg&q=90)
-  
-
-南韓憲法法院駁回國會對韓悳洙的彈劾案，韓悳洙停職87天後即時恢復國務總理及代總統職權。他復職後向國民發表講話，呼籲朝野黨派實現合作，克服當前國家面臨的危機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm)
 
 ---
