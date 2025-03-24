@@ -1,3 +1,27 @@
+# Heathrow 'had enough power to stay open on Friday'
+
+![The National Grid's boss, John Pettigrew, says either of the two other substations could have supplied the power to keep Heathrow open on Friday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797178_1_20250324172618.jpg&q=90)
+  
+
+The head of the UK's national grid has said there was "enough power" to keep Heathrow Airport running on Friday, after an electrical substation fire shuttered Europe's busiest air hub.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797178-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797178-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797178-20250324.htm)
+
+---
+
 # US-Russia talks on Ukraine begin in Saudi Arabia
 
 ![Different plans for temporary ceasefires in the Ukraine war have been proposed, but attacks have continued unabated. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797165_1_20250324162833.jpg&q=60)
@@ -1412,29 +1436,5 @@ Washington is expected to present US trading partners on April 2 with a number r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm)
-
----
-
-# Record numbers forced to flee climate disasters: UN
-
-![A man starts to rebuild his home in a shanty town destroyed by Cyclone Chido on the French Indian Ocean territory of Mayotte in January. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796360_1_20250319091826.jpg&q=85)
-  
-
-Hundreds of thousands of people were forced to flee climate disasters last year, the United Nations said on Wednesday, highlighting the urgent need for early warning systems covering the entire planet.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796360-20250319.htm)
 
 ---

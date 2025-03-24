@@ -1,3 +1,27 @@
+# HK ends up on mixed day for equities
+
+![The benchmark Hang Seng Index was up 0.91 percent to close at 23,905.56. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797176_1_20250324171443.jpg&q=80)
+  
+
+Hong Kong's stock market ended higher on Monday with the benchmark Hang Seng Index up 0.91 percent to close at 23,905.56 on a mixed day for equity markets.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm)
+
+---
+
 # Laos, Chinese firm sign US$1.45b clean energy deal
 
 ![China Western Power Industrial has signed an agreement to design, supply, and build a 1,800-megawatt clean energy power project in southern Laos. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797153_2_20250324151758.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong stocks on Friday opened lower, following uncertainty on Wall Street ov
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm)
-
----
-
-# US stocks tumble again on slowdown worries
-
-![The Dow finished down one percent at 42.579, after spending the entire session in negative territory. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794654_1_20250307064135.jpg&q=90)
-  
-
-Wall Street stocks resumed their retreat on Thursday, falling hard ahead of key US jobs data as markets shrugged off President Trump's latest moves to soften tariff actions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm)
 
 ---

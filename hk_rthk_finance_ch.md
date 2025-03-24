@@ -1,3 +1,51 @@
+# 分析料內地四大行去年盈利按年持平　上季表現按季表現較好
+
+![分析預計內銀今年盈利表現要視乎LPR走勢，估計仍有向下空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797177_1_20250324172340.jpg&q=85)
+  
+
+內地四大國有銀行本周陸續公布去年業績。富瑞中國經濟學家、中國金融地產行業首席分析師陳姝瑾估計，四大行去年盈利按年持平，單計去年第4季的表現略好過第3季度，受到債券投資收益帶動。她相信，季內淨息差按年跌幅不大，但按季就相對明顯，主要受到存量房貸利率及貸款市場報價利率（LPR）下行影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm)
+
+---
+
+# 在岸人民幣低收31點子　創2個星期新低
+
+![在岸人民幣收市創2個星期新低，收報7.252兌1美元，較上周五跌31點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797170_1_20250324170551.jpg&q=80)
+  
+
+在岸人民幣收市創2個星期新低，報7.252兌1美元，較上周五跌31點子。中間價報7.178兌1美元，跌20點子，創逾2個月低位，與市場預測偏離擴大至逾700點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797170-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797170-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797170-20250324.htm)
+
+---
+
 # 中石化：今年保持高強度投資　「增儲上產」力度不減
 
 ![趙東稱現時俄羅斯原油價格與其他地方相若。向俄羅斯採購原油時將確保規範運作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797173_1_20250324171111.jpg&q=90)
@@ -72,6 +120,7 @@
 
 # 陳茂波：將推出創新政策　促進港深人員資金數據及生物樣本流動
 
+![陳茂波指政府將推出試驗性質的創新政策，促進香港與深圳的人員、資金、貨物、數據，甚至生物樣本的流動。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797166_1_20250324171436.jpg&q=90)
   
 
 財政司司長陳茂波表示，北部都會區與深圳接壤，將成為粵港兩地合作的橋頭堡，佔地300公頃的創新科技園區，涵蓋「河套合作區」，政府將推出試驗性質的創新政策，促進香港與深圳的人員、資金、貨物、數據，甚至生物樣本的流動。
@@ -1389,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796873-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796873-20250322.htm)
-
----
-
-# 歐股周五低收　本周走勢個別發展
-
-![歐洲主要股市周五收市下跌，本周走勢個別發展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796872_1_20250322051207.jpg&q=90)
-  
-
-歐洲主要股市收市下跌，倫敦希斯路機場一度關閉，航空及旅遊股向下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796872-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796872-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796872-20250322.htm)
-
----
-
-# 美股開市後下跌
-
-![美股開市後跌約1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796852_1_20250321214305.jpg&q=90)
-  
-
-紐約股市開市後跌1%，繼續受關稅戰的憂慮影響。快遞公司聯邦快遞因經濟環境不確定，下調全年業績預測。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796852-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796852-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796852-20250321.htm)
 
 ---

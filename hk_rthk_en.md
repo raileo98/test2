@@ -1,3 +1,51 @@
+# Heathrow 'had enough power to stay open on Friday'
+
+![The National Grid's boss, John Pettigrew, says either of the two other substations could have supplied the power to keep Heathrow open on Friday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797178_1_20250324172618.jpg&q=90)
+  
+
+The head of the UK's national grid has said there was "enough power" to keep Heathrow Airport running on Friday, after an electrical substation fire shuttered Europe's busiest air hub.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797178-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797178-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797178-20250324.htm)
+
+---
+
+# HK ends up on mixed day for equities
+
+![The benchmark Hang Seng Index was up 0.91 percent to close at 23,905.56. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797176_1_20250324171443.jpg&q=80)
+  
+
+Hong Kong's stock market ended higher on Monday with the benchmark Hang Seng Index up 0.91 percent to close at 23,905.56 on a mixed day for equity markets.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm)
+
+---
+
 # China vows more proactive fiscal policy at dev't forum
 
 ![Entrepreneurs, government officials, experts and business representatives attend the China Development Forum 2025. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797174_1_20250324171122.jpg&q=75)
@@ -1390,53 +1438,5 @@ Secretary for Commerce and Economic Development Algernon Yau said on Saturday th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm)
-
----
-
-# Boxing legend George Foreman dies aged 76
-
-![The former heavyweight boxing champion is renowned for his iconic battle with Muhammad Ali. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796902_1_20250322102434.jpg&q=90)
-  
-
-Former heavyweight champion George Foreman, who fought and lost against Muhammad Ali in boxing's iconic 1974 "Rumble in the Jungle" before reclaiming the title two decades later, died on Friday aged 76, his family announced in a statement.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796902-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796902-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796902-20250322.htm)
-
----
-
-# Light Rail returning to normal after disruption
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796898_1_20250322093945.jpg&q=80)
-  
-
-The MTR says Light Rail services are returning to normal after several routes in Tin Shui Wai were disrupted on Saturday morning.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796898-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796898-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796898-20250322.htm)
 
 ---

@@ -1,3 +1,145 @@
+# 消息：公院醫療費擬設收費上限按年計算　超出上限可申請減免
+
+  
+
+政府明日公布公營醫療服務收費改革詳情。消息人士指，新收費最快明年1月起分3階段實施，期望5年時間可以完成改革，每兩年檢討一次。據悉，其中急症室只有一個收費，有關收費會比現時高，危殆及危急病人可獲豁免，希望藉此減少接收輕症個案，將更多資源投放治療危急重症。據了解，改革急症室收費後，預料較集中處理重症個案，急症室成本將增加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797179-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797179-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797179-20250324.htm)
+
+---
+
+# 分析料內地四大行去年盈利按年持平　上季表現按季表現較好
+
+![分析預計內銀今年盈利表現要視乎LPR走勢，估計仍有向下空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797177_1_20250324172340.jpg&q=85)
+  
+
+內地四大國有銀行本周陸續公布去年業績。富瑞中國經濟學家、中國金融地產行業首席分析師陳姝瑾估計，四大行去年盈利按年持平，單計去年第4季的表現略好過第3季度，受到債券投資收益帶動。她相信，季內淨息差按年跌幅不大，但按季就相對明顯，主要受到存量房貸利率及貸款市場報價利率（LPR）下行影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm)
+
+---
+
+# 在岸人民幣低收31點子　創2個星期新低
+
+![在岸人民幣收市創2個星期新低，收報7.252兌1美元，較上周五跌31點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797170_1_20250324170551.jpg&q=80)
+  
+
+在岸人民幣收市創2個星期新低，報7.252兌1美元，較上周五跌31點子。中間價報7.178兌1美元，跌20點子，創逾2個月低位，與市場預測偏離擴大至逾700點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797170-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797170-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797170-20250324.htm)
+
+---
+
+# 英國首次發現有羊感染H5N1禽流感
+
+![英國首次發現有羊感染H5N1禽流感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797171_1_20250324171449.jpg&q=90)
+  
+
+英國首次發現有羊感染H5N1禽流感。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797171-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797171-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797171-20250324.htm)
+
+---
+
+# 63歲有長期病患男子感染退伍軍人病　潛伏期曾乘郵輪
+
+  
+
+衞生防護中心公布，本月16至22日期間錄得1宗輸入退伍軍人病個案，涉及63歲男病人，有長期病患，於潛伏期內曾乘搭郵輪及到印度尼西亞、菲律賓及台灣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797175-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797175-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797175-20250324.htm)
+
+---
+
+# 美俄代表團在沙特舉行會談　料討論黑海海上停火
+
+![美國白宮國家安全顧問華爾茲較早時說，美方將會討論黑海海上停火。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797172_1_20250324170849.jpg&q=90)
+  
+
+美國與俄羅斯的代表團在沙特阿拉伯首都利雅得舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797172-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797172-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797172-20250324.htm)
+
+---
+
 # 中石化：今年保持高強度投資　「增儲上產」力度不減
 
 ![趙東稱現時俄羅斯原油價格與其他地方相若。向俄羅斯採購原油時將確保規範運作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797173_1_20250324171111.jpg&q=90)
@@ -48,6 +190,7 @@
 
 # 內地男子涉嫌航機上盜竊被捕　乘客放置物櫃背囊被偷現金
 
+![一名內地男子涉嫌在航機上盜竊其他乘客的財物，被控一項「違反航空保安條例」罪。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797169_1_20250324171524.jpg&q=90)
   
 
 一名內地男子涉嫌在航機上盜竊其他乘客的財物，被控一項「違反航空保安條例」罪，在西九龍裁判法院提堂。
@@ -119,6 +262,7 @@
 
 # 陳茂波：將推出創新政策　促進港深人員資金數據及生物樣本流動
 
+![陳茂波指政府將推出試驗性質的創新政策，促進香港與深圳的人員、資金、貨物、數據，甚至生物樣本的流動。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797166_1_20250324171436.jpg&q=90)
   
 
 財政司司長陳茂波表示，北部都會區與深圳接壤，將成為粵港兩地合作的橋頭堡，佔地300公頃的創新科技園區，涵蓋「河套合作區」，政府將推出試驗性質的創新政策，促進香港與深圳的人員、資金、貨物、數據，甚至生物樣本的流動。
@@ -190,6 +334,7 @@
 
 # 七欖期間有酒店安排免費穿梭巴士　的士業稱啟德設專區接送乘客
 
+![香港國際七人欖球賽本周五起，一連三日在啟德體育園主場館舉行。（旅發局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797160_1_20250324171356.jpg&q=90)
   
 
 香港國際七人欖球賽本周五起，一連三日在啟德體育園主場館舉行，有的士業界透露，上周與運輸署開會，商討交通安排，包括屆時將會透過的士台或打電話，呼籲的士司機到體育園接載乘客。
