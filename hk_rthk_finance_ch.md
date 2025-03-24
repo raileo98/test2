@@ -1,6 +1,6 @@
 # 人行：本月起MLF操作採固定數量、利率招標、多重價位中標開展
 
-![人行明日將開展4500億元人民幣MLF操作，首度採用固定數量、利率招標、多重價位中標方式開展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797185_1_20250324175707.jpg&q=80)
+![人行明日將開展4500億元人民幣MLF操作，本月起採用固定數量、利率招標、多重價位中標方式開展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797185_1_20250324175707.jpg&q=80)
   
 
 人民銀行公布，明日將開展4500億元人民幣中期借貸便利（MLF）操作，為期1年，以保持銀行體系流動性充裕。今次MLF續做規模超過本月到期的3870億元。
@@ -238,7 +238,7 @@
 
 ---
 
-# 旅發局：七欖閉幕禮首開放啟德體育園天幕綻放煙火　國際表演陣容
+# 七欖開幕禮有激光投影表演 閉幕禮首開天幕放煙火
 
 ![閉幕式會打開啟德主場館天幕在球場上空，呈獻煙火匯演。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797150_1_20250324152236.jpg&q=90)
 ![開幕典禮會有全新激光投影表演。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797150_2_20250324152236.jpg&q=85)
