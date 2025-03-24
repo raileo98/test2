@@ -24,7 +24,7 @@ Shenzhen-based carmaker BYD saw a surge in revenue last year, a stock filing sho
 
 # New public hospital fees to start next year: sources
 
-![Sources say the fixed accident and emergency fee will be raised to no more than HK$400 from the current $180, with exemptions for critically ill and urgent patients. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797197_1_20250324194549.jpg&q=90)
+![Sources say the fixed accident and emergency fee will be raised to no more than HK$400 from the current HK$180, with exemptions for critically ill and urgent patients. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797197_1_20250324194549.jpg&q=90)
   
 
 Sources say new fees for public hospital services will be rolled out in three phases starting as early as January next year.

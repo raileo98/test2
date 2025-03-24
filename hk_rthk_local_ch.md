@@ -1,3 +1,23 @@
+# 荃灣港安醫院治療室檢查燈墜落擊中兩名醫護人員　病人沒有受傷
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797210-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797210-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797210-20250324.htm)
+
+---
+
 # 彭鴻昌憂住院門診新收費加重某些病人負擔　陳沛良稱助減醫護壓力
 
   
@@ -1414,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm)
-
----
-
-# 蕭澤頤稱有些騙案是「當局者迷」　冀市民要提防及提醒身邊人
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797021_1_20250323154428.jpg&q=80)
-  
-
-警務處處長蕭澤頤表示，近數星期出現一些騙案令人感到愕然，例如有受害人在一年間被騙超過1300萬元，銀行及警方均曾提醒有關受害人留意是否遇到騙案，但受害人最終仍然被騙。他形容這些騙案，有時是「當局者迷、旁觀者清」，希望所有市民都要提防，並提醒身邊人留意。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797021-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797021-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797021-20250323.htm)
 
 ---

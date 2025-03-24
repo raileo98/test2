@@ -1,3 +1,23 @@
+# 荃灣港安醫院治療室檢查燈墜落擊中兩名醫護人員　病人沒有受傷
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797210-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797210-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797210-20250324.htm)
+
+---
+
 # 美俄代表會談尋求達成黑海海上停火　俄方稱會談正有創造力地進行
 
 ![美俄會談在利雅得一間酒店閉門進行。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797207_1_20250324212258.jpg&q=80)
