@@ -1,3 +1,27 @@
+# 台股低收約0.5%
+
+![台灣加權指數朝早曾升171點，收市報22106點，跌102點，跌幅0.46%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797140_1_20250324140700.jpg&q=90)
+  
+
+台灣股市先升後跌，加權指數朝早曾升171點，隨後轉跌，收市報22106點，跌102點，跌幅0.46%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797140-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797140-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797140-20250324.htm)
+
+---
+
 # 港股下午開市後偏軟
 
 ![港股偏軟，恒生指數較早時報23667點，跌22點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797137_1_20250324130737.jpg&q=75)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm)
-
----
-
-# 世茂集團盈警去年虧損擴大逾80%
-
-![世茂集團預計去年錄得淨虧損約429億至439億元人民幣，按年擴大約82%至86%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796820_1_20250321180321.jpg&q=80)
-  
-
-世茂集團發盈警，預計去年錄得淨虧損約429億至439億元人民幣，按年擴大約82%至86%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm)
 
 ---

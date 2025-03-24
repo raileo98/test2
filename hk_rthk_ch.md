@@ -1,3 +1,98 @@
+# 就任半年的泰國總理佩通坦首次面對國會不信任動議
+
+![佩通坦上半年來，首次面對國會提出不信任動議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797143_1_20250324143156.jpg&q=90)
+  
+
+泰國總理佩通坦上半年來，首次面對國會提出不信任動議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm)
+
+---
+
+# 廣東省政府力爭2027年全省年接待旅客突破9.5億人次
+
+  
+
+廣東省政府表示，力爭到2027年，全省年接待旅客突破9.5億人次，旅遊總收入突破1.3萬億元人民幣。到2030年，各項主要指標位居全國前列，建成高水平旅遊強省。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm)
+
+---
+
+# 台股低收約0.5%
+
+![台灣加權指數朝早曾升171點，收市報22106點，跌102點，跌幅0.46%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797140_1_20250324140700.jpg&q=90)
+  
+
+台灣股市先升後跌，加權指數朝早曾升171點，隨後轉跌，收市報22106點，跌102點，跌幅0.46%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797140-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797140-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797140-20250324.htm)
+
+---
+
+# 南韓山火已造成4人死亡9人傷
+
+![由於強風和持續乾燥，滅火工作面臨困難。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797141_1_20250324141749.jpg&q=90)
+  
+
+南韓慶尚道等地發生的山火已造成4人死亡，9人受傷，火場面積超過8千公頃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797141-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797141-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797141-20250324.htm)
+
+---
+
 # 國防部：中泰海軍聯合訓練將於湛江附近舉行
 
 ![國防郈表示，中泰海軍聯合訓練將於3月下旬至4月上旬在湛江附近舉行。（國防部網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797139_1_20250324132905.jpg&q=90)
@@ -287,7 +382,7 @@
 
 # 有市民到尖沙咀更換出錯Coldplay門票　稱主辧方須改善
 
-![售票公司CityLine即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797122_1_20250324120631.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797122_1_20250324120631.jpg&q=90)
   
 
 英國樂隊Coldplay下月在啟德體育園的巡迴演唱會，因部分門票資料出錯，要更換新版門票。售票公司CityLine即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。

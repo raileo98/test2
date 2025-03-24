@@ -1,3 +1,51 @@
+# 就任半年的泰國總理佩通坦首次面對國會不信任動議
+
+![佩通坦上半年來，首次面對國會提出不信任動議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797143_1_20250324143156.jpg&q=90)
+  
+
+泰國總理佩通坦上半年來，首次面對國會提出不信任動議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm)
+
+---
+
+# 南韓山火已造成4人死亡9人傷
+
+![由於強風和持續乾燥，滅火工作面臨困難。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797141_1_20250324141749.jpg&q=90)
+  
+
+南韓慶尚道等地發生的山火已造成4人死亡，9人受傷，火場面積超過8千公頃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797141-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797141-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797141-20250324.htm)
+
+---
+
 # 國防部：中泰海軍聯合訓練將於湛江附近舉行
 
 ![國防郈表示，中泰海軍聯合訓練將於3月下旬至4月上旬在湛江附近舉行。（國防部網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797139_1_20250324132905.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm)
-
----
-
-# 以色列空襲黎巴嫩南部真主黨目標　回應遭火箭炮攻擊
-
-![以色列北部邊境城市梅圖拉早前受到火箭炮攻擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796948_1_20250322195257.jpg&q=65)
-  
-
-以色列向黎巴嫩南部的真主黨目標發動空襲，回應以黎邊境以色列一側早前受到火箭炮攻擊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796948-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796948-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796948-20250322.htm)
-
----
-
-# 中日韓外長會　王毅：推動三國合作發揮1+1+1大於3作用
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796938_1_20250322183010.jpg&q=90)
-  
-
-中日韓外長會於東京舉行，中共中央政治局委員、外長王毅說，三國應重溫正視歷史、面向未來的共識，推動中日韓合作，發揮一加一加一大過三的作用，造福三國、地區同世界。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm)
 
 ---

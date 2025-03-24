@@ -1,3 +1,26 @@
+# 廣東省政府力爭2027年全省年接待旅客突破9.5億人次
+
+  
+
+廣東省政府表示，力爭到2027年，全省年接待旅客突破9.5億人次，旅遊總收入突破1.3萬億元人民幣。到2030年，各項主要指標位居全國前列，建成高水平旅遊強省。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm)
+
+---
+
 # 國防部：中泰海軍聯合訓練將於湛江附近舉行
 
 ![國防郈表示，中泰海軍聯合訓練將於3月下旬至4月上旬在湛江附近舉行。（國防部網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797139_1_20250324132905.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796658-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796658-20250320.htm)
-
----
-
-# 西藏原黨委書記吳英杰承認受賄　法庭擇期宣判
-
-![西藏原黨委書記吳英杰承認受賄　法庭擇期宣判](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796653_1_20250320184254.jpg&q=90)
-  
-
-西藏自治區原黨委書記吳英杰涉嫌受賄案，在北京市第三中級人民法院一審開庭審理，吳英杰認罪悔罪，法庭擇期宣判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796653-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796653-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796653-20250320.htm)
 
 ---

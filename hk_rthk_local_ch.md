@@ -1,3 +1,26 @@
+# 廣東省政府力爭2027年全省年接待旅客突破9.5億人次
+
+  
+
+廣東省政府表示，力爭到2027年，全省年接待旅客突破9.5億人次，旅遊總收入突破1.3萬億元人民幣。到2030年，各項主要指標位居全國前列，建成高水平旅遊強省。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm)
+
+---
+
 # 港股下午開市後偏軟
 
 ![港股偏軟，恒生指數較早時報23667點，跌22點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797137_1_20250324130737.jpg&q=75)
@@ -193,7 +216,7 @@
 
 # 有市民到尖沙咀更換出錯Coldplay門票　稱主辧方須改善
 
-![售票公司CityLine即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797122_1_20250324120631.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797122_1_20250324120631.jpg&q=90)
   
 
 英國樂隊Coldplay下月在啟德體育園的巡迴演唱會，因部分門票資料出錯，要更換新版門票。售票公司CityLine即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796963-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796963-20250322.htm)
-
----
-
-# 天水圍田廈路有貨倉火警　29人疏散沒有受傷
-
-![警方表示，晚上約7時半接報，起火現場冒出大量濃煙。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796960_1_20250322210924.jpg&q=90)
-  
-
-天水圍田廈路一個貨倉發生火警，消防處派出兩條喉及兩隊煙帽隊到場灌救，29人自行疏散，沒有人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm)
 
 ---
