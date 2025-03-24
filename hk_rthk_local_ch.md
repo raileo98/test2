@@ -1,3 +1,26 @@
+# 七欖期間有酒店安排免費穿梭巴士　的士業稱啟德設專區接送乘客
+
+  
+
+香港國際七人欖球賽本周五起，一連三日在啟德體育園主場館舉行，有的士業界透露，上周與運輸署開會，商討交通安排，包括屆時將會透過的士台或打電話，呼籲的士司機到體育園接載乘客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm)
+
+---
+
 # 盧寵茂明日公布公營醫療服務收費改革詳情
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796972-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796972-20250322.htm)
-
----
-
-# 消委會暫接17宗投訴涉Coldplay香港演唱會需更換門票
-
-![消委會暫接獲17宗有關Coldplay香港演唱會需更換門票的投訴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796971_1_20250322223427.jpg&q=85)
-  
-
-消委會表示，截至晚上7時，接獲17宗有關Coldplay香港演唱會需更換門票的投訴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm)
 
 ---

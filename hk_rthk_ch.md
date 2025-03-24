@@ -1,3 +1,26 @@
+# 七欖期間有酒店安排免費穿梭巴士　的士業稱啟德設專區接送乘客
+
+  
+
+香港國際七人欖球賽本周五起，一連三日在啟德體育園主場館舉行，有的士業界透露，上周與運輸署開會，商討交通安排，包括屆時將會透過的士台或打電話，呼籲的士司機到體育園接載乘客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm)
+
+---
+
 # 法國外長巴羅本周四起訪華兩日
 
 ![巴羅將於本星期四至五訪華。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797158_1_20250324154336.jpg&q=90)
