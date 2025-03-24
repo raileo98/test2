@@ -1,3 +1,99 @@
+# 現貨金下試3000美元
+
+![現貨金跌至每盎司近3000美元水平，低見3002.09美元，跌0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797235_1_20250325060636.jpg&q=90)
+  
+
+美元上升，拖累金價下跌，投資者關注美國總統特朗普的關稅立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797235-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797235-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797235-20250325.htm)
+
+---
+
+# 油價高收1.2%　連升4日
+
+![國際油價連升4個交易日，英美期油同樣升1.2%收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797234_1_20250325060322.jpg&q=90)
+  
+
+國際油價連升4個交易日，英美期油同樣升1.2%收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797234-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797234-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797234-20250325.htm)
+
+---
+
+# 港股美國預託證券大多下跌　小米急挫近6%
+
+![小米ADR比本港昨日收市價急挫近6%，以港元計折合報53.7元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797236_1_20250325061917.jpg&q=90)
+  
+
+港股美國預託證券(ADR)大多下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797236-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797236-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797236-20250325.htm)
+
+---
+
+# 美俄代表團結束在沙特會談　美烏代表據報周二再度會晤
+
+![美俄代表團星期一在利雅得一間酒店舉行閉門會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797237_1_20250325062023.jpg&q=80)
+  
+
+美國與俄羅斯代表團結束在沙特阿拉伯首都利雅得的會談，歷時超過12小時。俄新社報道，雙方將於星期二發表關於談判結果的聯合聲明。烏克蘭傳媒報道，烏克蘭與美國官員將於星期二再次在沙特會談，跟進美俄會談進展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797237-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797237-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797237-20250325.htm)
+
+---
+
 # 英法德股市偏軟　創逾1星期新低
 
 ![歐洲股市反覆向下，創逾1星期新低，德國DAX指數收報22852點，跌約0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797232_1_20250325055132.jpg&q=90)
@@ -1338,101 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm)
-
----
-
-# 陳茂波：將推出創新政策　促進港深人員資金數據及生物樣本流動
-
-![陳茂波指政府將推出試驗性質的創新政策，促進香港與深圳的人員、資金、貨物、數據，甚至生物樣本的流動。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797166_1_20250324171436.jpg&q=90)
-  
-
-財政司司長陳茂波表示，北部都會區與深圳接壤，將成為粵港兩地合作的橋頭堡，佔地300公頃的創新科技園區，涵蓋「河套合作區」，政府將推出試驗性質的創新政策，促進香港與深圳的人員、資金、貨物、數據，甚至生物樣本的流動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm)
-
----
-
-# 丁薛祥將出席博鰲亞洲論壇2025年年會
-
-![丁薛祥將出席博鰲亞洲論壇2025年年會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797159_1_20250324155151.jpg&q=90)
-  
-
-在北京，外交部表示，中共中央政治局常委、國務院副總理丁薛祥將於本星期四，應邀出席在海南舉行的博鰲亞洲論壇2025年年會開幕式並發表主旨演講。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm)
-
----
-
-# 外交部：所謂台灣有事就是日本有事的謬論不僅大錯特錯且十分危險
-
-![郭嘉昆敦促日方重信守諾，審慎處理台灣問題。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797162_1_20250324161800.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，所謂台灣有事就是日本有事、《中日聯合聲明》不具法律約束力的謬論將嚴重侵蝕中日關係政治基礎，不僅大錯特錯，而且十分危險，敦促日方重信守諾，審慎處理台灣問題，以實際行動維護中日關係改善發展的勢頭。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm)
-
----
-
-# 七欖期間有酒店安排免費穿梭巴士　的士業稱啟德設專區接送乘客
-
-![香港國際七人欖球賽本周五起，一連三日在啟德體育園主場館舉行。（旅發局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797160_1_20250324171356.jpg&q=90)
-  
-
-香港國際七人欖球賽本周五起，一連三日在啟德體育園主場館舉行，有的士業界透露，上周與運輸署開會，商討交通安排，包括屆時將會透過的士台或打電話，呼籲的士司機到體育園接載乘客。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm)
 
 ---

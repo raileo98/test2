@@ -1,3 +1,27 @@
+# US stocks rally on tariff optimism
+
+![The three main US indices rose on hopes that US President Donald Trump may dial down upcoming tariffs. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797239_1_20250325062931.jpg&q=90)
+  
+
+US stocks closed higher on Monday as traders welcomed news that the administration of President Donald Trump may dial down upcoming tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797239-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797239-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797239-20250325.htm)
+
+---
+
 # BYD posts record annual revenue, beats Tesla
 
 ![The firm's stock price also reached an all-time peak this month, after it unveiled new battery technology. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797208_1_20250324213146.jpg&q=90)
@@ -1411,29 +1435,5 @@ China's export growth grew slower than expected in the first two months of this 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm)
-
----
-
-# Golden era for low-altitude economy: CPPCC delegates
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794701_1_20250307111340.jpg&q=90)
-  
-
-China has ushered in a golden era to develop the so-called "low altitude" economy, or even a "sky city", according to delegates at the country's top political advisory body.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm)
 
 ---

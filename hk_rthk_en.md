@@ -1,3 +1,27 @@
+# US stocks rally on tariff optimism
+
+![The three main US indices rose on hopes that US President Donald Trump may dial down upcoming tariffs. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797239_1_20250325062931.jpg&q=90)
+  
+
+US stocks closed higher on Monday as traders welcomed news that the administration of President Donald Trump may dial down upcoming tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797239-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797239-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797239-20250325.htm)
+
+---
+
 # Journalist included in Houthi strike messaging group
 
 ![Hours before those attacks started, US defence secretary Pete Hegseth posted operational details about the plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797229_1_20250325050810.jpg&q=90)
@@ -1414,29 +1438,5 @@ Pope Francis will make his first public appearance on Sunday with a blessing and
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm)
-
----
-
-# Heathrow 'fully operational' again after fire shutdown
-
-![Delays and cancellations are expected on Saturday as airlines scramble to clear a backlog of flights. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796942_1_20250322182905.jpg&q=90)
-  
-
-Heathrow Airport said it was "fully operational" on Saturday but delays and cancellations were expected as Europe's busiest air hub resumed operations after a power station fire caused travel mayhem.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm)
 
 ---

@@ -1,3 +1,75 @@
+# 現貨金下試3000美元
+
+![現貨金跌至每盎司近3000美元水平，低見3002.09美元，跌0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797235_1_20250325060636.jpg&q=90)
+  
+
+美元上升，拖累金價下跌，投資者關注美國總統特朗普的關稅立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797235-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797235-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797235-20250325.htm)
+
+---
+
+# 油價高收1.2%　連升4日
+
+![國際油價連升4個交易日，英美期油同樣升1.2%收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797234_1_20250325060322.jpg&q=90)
+  
+
+國際油價連升4個交易日，英美期油同樣升1.2%收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797234-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797234-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797234-20250325.htm)
+
+---
+
+# 港股美國預託證券大多下跌　小米急挫近6%
+
+![小米ADR比本港昨日收市價急挫近6%，以港元計折合報53.7元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797236_1_20250325061917.jpg&q=90)
+  
+
+港股美國預託證券(ADR)大多下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797236-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797236-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797236-20250325.htm)
+
+---
+
 # 英法德股市偏軟　創逾1星期新低
 
 ![歐洲股市反覆向下，創逾1星期新低，德國DAX指數收報22852點，跌約0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797232_1_20250325055132.jpg&q=90)
@@ -1365,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm)
-
----
-
-# 韓文秀稱擴大服務消費　形成高質量發展與高品質生活相互促進
-
-![韓文秀表示，會綜合施策擴大消費，包括增加城鄉居民的收入，優化收入分配結構，讓消費者有錢能消費。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797015_1_20250323175247.jpg&q=90)
-  
-
-在北京，中央財經委員會辦公室常務副主任韓文秀表示，會綜合施策擴大消費，包括增加城鄉居民的收入，優化收入分配結構，讓消費者有錢能消費，同時擴大服務消費，形成高質量發展與高品質生活相互促進，相得益彰的局面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm)
-
----
-
-# Coldplay香港演唱會門票更換事件　消委會暫接25宗投訴
-
-![消委會對事件表示關注，敦促Cityline盡快完成換票安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797007_1_20250323113735.jpg&q=85)
-  
-
-消委會表示，截至今早11時，接獲25宗有關Coldplay香港演唱會需更換門票的投訴，消委會對事件表示關注，敦促Cityline盡快完成換票安排，以保障受影響消費者的權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm)
-
----
-
-# 科技園：低空經濟「監管沙盒」試點項目實際操作冀下月有定論
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797003_1_20250323105219.jpg&q=90)
-  
-
-首批低空經濟「監管沙盒」部分試點項目下月率先推出，包括以科學園為試點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm)
 
 ---

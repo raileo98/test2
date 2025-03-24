@@ -1,3 +1,27 @@
+# 美俄代表團結束在沙特會談　美烏代表據報周二再度會晤
+
+![美俄代表團星期一在利雅得一間酒店舉行閉門會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797237_1_20250325062023.jpg&q=80)
+  
+
+美國與俄羅斯代表團結束在沙特阿拉伯首都利雅得的會談，歷時超過12小時。俄新社報道，雙方將於星期二發表關於談判結果的聯合聲明。烏克蘭傳媒報道，烏克蘭與美國官員將於星期二再次在沙特會談，跟進美俄會談進展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797237-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797237-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797237-20250325.htm)
+
+---
+
 # 特朗普：或向多國提供關稅優惠　但需要實現對等
 
 ![特朗普說，未來數日將會宣布涉及汽車、木材、晶片等產品的關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797233_1_20250325055421.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796990-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796990-20250323.htm)
-
----
-
-# 美國邁阿密網球公開賽　香港球手黃澤林淘汰13號種子晉級第三圈
-
-![黃澤林淘汰13號種子、美國的舒爾頓，晉級邁阿密網球公開賽第三圈。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796989_2_20250323081935.jpg&q=90)
-  
-
-美國邁阿密網球公開賽男單次圈，20歲、持「外卡」參賽的本港球手黃澤林，爆冷淘汰13號種子、美國的舒爾頓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm)
 
 ---
