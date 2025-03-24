@@ -1,3 +1,27 @@
+# 報道：小米正配股集資最多52.7億美元
+
+![外電報道，小米集團正以先舊後新方式配售7.5億股，集資最多52.7億美元。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797186_1_20250324182313.jpg&q=90)
+  
+
+外電報道，小米集團正以先舊後新方式配售7.5億股，每股配售價52.8元54.6元，較今日收市價折讓4.2%至7.4%，集資最多52.7億美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797186-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797186-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797186-20250324.htm)
+
+---
+
 # 財政部：今年財政政策要更加積極　具體提高財政赤字率
 
 ![財政部發布報告指，今年財政政策要更加積極，包括具體提高財政赤字率、加大支出強度、加速支出進度等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797183_1_20250324174156.jpg&q=75)
