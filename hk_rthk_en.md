@@ -22,12 +22,12 @@ Top Trump administration officials, including US Vice President JD Vance and Sec
 
 ---
 
-# Coleman Wong loses to Adam Walton in Miami Open
+# Hong Kong's Coleman Wong crashes out of Miami Open
 
-![Coleman Wong loses to Adam Walton in Miami Open](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797228_1_20250325043929.jpg&q=90)
+![Wong's historic Miami Open run ended in a three-set defeat to Australia's Adam Walton. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797228_2_20250325054405.jpg&q=90)
   
 
-Hong Kong's rising tennis star Coleman Wong has fallen short of a third round victory at this year's Miami Open.
+Hong Kong's rising tennis star Coleman Wong on Tuesday fell short of a third round victory at this year's Miami Open.
 
   
 
