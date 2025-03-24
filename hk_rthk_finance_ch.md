@@ -1,3 +1,27 @@
+# 內地股市向下　滬深股市半日跌約0.3%至0.4%
+
+![內地股市下跌，上證綜合指數中午收市報3356點，跌8點，跌幅0.25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797118_1_20250324114532.jpg&q=90)
+  
+
+內地股市下跌，算力租賃及軍工類股份向下；旅遊酒店、有色金屬、銀行及保險等金融股都向好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797118-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797118-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797118-20250324.htm)
+
+---
+
 # 南方東英擬進一步拓展更多個股槓桿及反向產品
 
 ![王卓峯（中）稱新產品令亞洲時段投資者能更快速反應，毋須等到美國開市或熬夜交易。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797112_1_20250324110942.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796816-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796816-20250321.htm)
-
----
-
-# 證監會高層與財政部副部長廖岷會面　就優化互聯互通等深入交流
-
-![證監會高層日前在北京與財政部副部長廖岷會面。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796812_1_20250321171901.jpg&q=90)
-  
-
-證監會表示，行政總裁梁鳳儀和中介機構部執行董事葉志衡日前在北京拜訪國家財政部副部長廖岷，雙方就香港國際金融中心建設，尤其在固定收益及貨幣市場領域的發展，以及優化兩地金融市場互聯互通機制等合作議題進行深入交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm)
 
 ---

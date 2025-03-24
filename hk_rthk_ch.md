@@ -1,3 +1,26 @@
+# 公開展示商業顆伴個人資料　73歲男子涉違反私隱條例被捕
+
+  
+
+個人資料私隱專員公署在港島區拘捕一名73歲中國籍男子，涉嫌在未經資料當事人的同意下，披露個人資料，違反《個人資料（私隱）條例》的規定，被捕人士獲准保釋。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797120-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797120-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797120-20250324.htm)
+
+---
+
 # 5款新藥按新機制獲批註冊　其中兩款價格下降3成至3成半
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm)
-
----
-
-# 回應英國《衞報》評論文章　鄧炳強：特區政府反對誹謗法院
-
-![鄧炳強強調，特區政府堅定維護市民依法享有的權利和自由。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797046_1_20250323193741.jpg&q=80)
-  
-
-英國《衞報》日前刊登評論文章，認為黎智英被阻撓選擇代表律師，而有關決定不受法律挑戰，等同賦予維護國家安全委員會所謂「警察國家」的權力。保安局局長鄧炳強去信《衞報》表達強烈反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm)
 
 ---
