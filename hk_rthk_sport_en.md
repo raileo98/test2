@@ -1,3 +1,27 @@
+# Billiard, tennis retain Tier A status
+
+![Sports minister Rosanna Law says changes were made to accommodate sports with unique strengths to stay in the elite sports training system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797192_1_20250324184243.jpg&q=90)
+  
+
+The government announced on Monday that tennis and billiards have retained their Tier A sport status for two years, avoiding a downgrade that would result in significant funding cuts.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm)
+
+---
+
 # Appeal crunch time for Blatter and Platini
 
 ![Michael Platini, left, with Sepp Blatter in 2014. File Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797152_1_20250324151246.jpg&q=90)
@@ -1414,29 +1438,5 @@ Two-time defending champion Carlos Alcaraz fought off determined challenger Fran
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795712-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795712-20250314.htm)
-
----
-
-# Man Utd and Spurs through in Europa League
-
-![Bruno Fernandes was decisive for Manchester United with his hat-trick. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795685_1_20250314104926.jpg&q=90)
-  
-
-Bruno Fernandes netted a hat-trick as Manchester United beat Real Sociedad 4-1 in their Europa League last-16 second leg on Thursday, while Tottenham bounced back to edge AZ Alkmaar 3-2 on aggregate.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795685-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795685-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795685-20250314.htm)
 
 ---

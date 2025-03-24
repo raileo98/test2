@@ -1,3 +1,27 @@
+# Billiard, tennis retain Tier A status
+
+![Sports minister Rosanna Law says changes were made to accommodate sports with unique strengths to stay in the elite sports training system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797192_1_20250324184243.jpg&q=90)
+  
+
+The government announced on Monday that tennis and billiards have retained their Tier A sport status for two years, avoiding a downgrade that would result in significant funding cuts.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm)
+
+---
+
 # Cityline 'must explain Coldplay ticket errors'
 
 ![The inaccurate information is printed on HK$1,399 'Coldplay: Music Of The Spheres World Tour – delivered by DHL' standing tickets. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797187_1_20250324182435.jpg&q=90)
@@ -1414,29 +1438,5 @@ Foreign Minister Wang Yi said on Saturday that China, Japan and the South Korea 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm)
-
----
-
-# Online vehicle licence renewals up by 80 percent
-
-![Vehicle owners can scan a QR code on the licence to check the expiry date. Image: Transport Department's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796923_1_20250322151024.jpg&q=90)
-  
-
-The Transport Department on Saturday said it received almost 37,000 online applications for vehicle licence renewals in the first two months of the year, a more than 80 percent year-on-year increase.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm)
 
 ---
