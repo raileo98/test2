@@ -1,5 +1,30 @@
+# 北京市政府原黨組成員、副市長高朋涉嫌受賄被起訴
+
+![北京市政府原黨組成員、副市長高朋涉嫌受賄被起訴。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797101_1_20250324102257.jpg&q=90)
+  
+
+北京市政府原黨組成員、副市長高朋涉嫌受賄、玩忽職守一案，由國家監察委員會調查終結，經最高人民檢察院指定，由山西省呂梁市人民檢察院審查起訴。近日，呂梁市人民檢察院已向呂梁市中級人民法院提起公訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797101-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797101-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797101-20250324.htm)
+
+---
+
 # 李家超明日赴海南出席博鰲亞洲論壇年會　將於論壇致辭
 
+![李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797100_1_20250324103437.jpg&q=90)
   
 
 行政長官李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。
@@ -289,7 +314,7 @@
 
 ---
 
-# 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
+# 回應有否用過DeepSeek　蘋果庫克稱「當然，感覺很好」
 
 ![庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他形容感覺很好。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797019_2_20250323160553.jpg&q=90)
   
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm)
-
----
-
-# 有乘客稱行李裝有相機及充電寶　飛機升到半空有人大叫「燒起來」
-
-![香港航空一架由杭州飛往香港的客機，飛行期間機艙的行李架起火，改道安全降落於福州長樂國際機場，火勢已撲滅。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796625_2_20250320184916.jpg&q=90)
-  
-
-香港航空一架由杭州飛往香港的客機，飛行期間機艙的行李架起火，改道安全降落於福州長樂國際機場，火勢已撲滅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm)
 
 ---

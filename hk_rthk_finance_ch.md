@@ -1,5 +1,79 @@
+# 日股半日近乎持平
+
+![日經指數半日報37676點，跌不足1點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797107_1_20250324104300.jpg&q=90)
+  
+
+日股開市初段曾升逾160點，觸及37841點，其後反覆向下，日經指數半日報37676點，跌不足1點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797107-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797107-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797107-20250324.htm)
+
+---
+
+# 許正宇：年底前可望引入逾200間家辦來港　料超額達標
+
+![許正宇稱逾160間已落戶香港的家辦，約四分之一與過去兩屆「裕澤香江」高峰論壇直接有關。（財庫局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797106_2_20250324104432.jpg&q=90)
+  
+
+財經事務及庫務局局長許正宇相信，今年底前可望引入逾200間家族辦公室來港，超額完成2022年施政報告提出的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm)
+
+---
+
+# 南方東英9隻個股槓反產品掛牌　證監會：標誌上市產品多元發展
+
+![丁晨（中）認為，有關ETF上市，令區內投資者可以在亞洲時區，通過港交所投資全球知名企業。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797105_1_20250324104034.jpg&q=90)
+![蔡鳳儀表示，證監會已加強相關監管框架，提供額外保障和措施，平衡投資者的潛在收益與風險。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797105_2_20250324104034.jpg&q=90)
+  
+
+證監會今年初發布出新通函，擴大大可售予香港公眾的上市結構性基金的範圍，增加個股槓桿及反向產品、界定收益上市結構性基金。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797105-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797105-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797105-20250324.htm)
+
+---
+
 # 李家超明日赴海南出席博鰲亞洲論壇年會　將於論壇致辭
 
+![李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797100_1_20250324103437.jpg&q=90)
   
 
 行政長官李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。
@@ -453,7 +527,7 @@
 
 ---
 
-# 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
+# 回應有否用過DeepSeek　蘋果庫克稱「當然，感覺很好」
 
 ![庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他形容感覺很好。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797019_2_20250323160553.jpg&q=90)
   
@@ -1363,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796804-20250321.htm)
-
----
-
-# 南韓本月31日起全面取消股市沽空禁令
-
-![南韓將於本月31日起，全面取消國內股市沽空禁令。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796795_1_20250321161406.jpg&q=90)
-  
-
-南韓金融監管機構表示，將於本月31日起，全面取消國內股市沽空禁令，是5年來首次取消有關禁令。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796795-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796795-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796795-20250321.htm)
-
----
-
-# 港股低收530點　恒指本周累計跌逾1%
-
-![恒生指數收市報23689點，創逾1星期新低，全日跌530點，跌幅約2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796796_1_20250321161603.jpg&q=85)
-  
-
-港股連跌兩日，恒生指數失守24000點關口，最多跌逾640點，低見23577點，收市報23689點，創逾1星期新低，全日跌530點，跌幅約2.2%，主板成交額增至約3391億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796796-20250321.htm)
-
----
-
-# 李家超：四理念開啟創科新局面　今年將選合適地徵私人發展
-
-![李家超表示，政府會為園區的發展拆牆鬆綁，以變革思維突破發展局限。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796788_1_20250321160425.jpg&q=90)
-  
-
-港深創新及科技園8號及9號大樓平頂儀式下午舉行，行政長官李家超致辭表示，兩座大樓平頂，以及11號大樓全面完成，標誌著香港特區在創新科技領域與港深創科合作，踏上另一個高峰台階。他表示，今年很快會選擇合適地塊，徵求私人發展計劃，利用市場的力量，加速園區發展，並在今年內完成園區第二期的詳細規劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm)
 
 ---

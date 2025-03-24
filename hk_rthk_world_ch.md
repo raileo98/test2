@@ -598,7 +598,7 @@
 
 ---
 
-# 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
+# 回應有否用過DeepSeek　蘋果庫克稱「當然，感覺很好」
 
 ![庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他形容感覺很好。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797019_2_20250323160553.jpg&q=90)
   

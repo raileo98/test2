@@ -1,5 +1,126 @@
+# 日股半日近乎持平
+
+![日經指數半日報37676點，跌不足1點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797107_1_20250324104300.jpg&q=90)
+  
+
+日股開市初段曾升逾160點，觸及37841點，其後反覆向下，日經指數半日報37676點，跌不足1點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797107-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797107-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797107-20250324.htm)
+
+---
+
+# 許正宇：年底前可望引入逾200間家辦來港　料超額達標
+
+![許正宇稱逾160間已落戶香港的家辦，約四分之一與過去兩屆「裕澤香江」高峰論壇直接有關。（財庫局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797106_2_20250324104432.jpg&q=90)
+  
+
+財經事務及庫務局局長許正宇相信，今年底前可望引入逾200間家族辦公室來港，超額完成2022年施政報告提出的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm)
+
+---
+
+# 南方東英9隻個股槓反產品掛牌　證監會：標誌上市產品多元發展
+
+![丁晨（中）認為，有關ETF上市，令區內投資者可以在亞洲時區，通過港交所投資全球知名企業。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797105_1_20250324104034.jpg&q=90)
+![蔡鳳儀表示，證監會已加強相關監管框架，提供額外保障和措施，平衡投資者的潛在收益與風險。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797105_2_20250324104034.jpg&q=90)
+  
+
+證監會今年初發布出新通函，擴大大可售予香港公眾的上市結構性基金的範圍，增加個股槓桿及反向產品、界定收益上市結構性基金。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797105-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797105-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797105-20250324.htm)
+
+---
+
+# 黃碧如：修訂公屋富戶政策相信可至少釋放數百個公屋單位
+
+  
+
+房委會資助房屋小組委員會通過修訂公屋「富戶」政策，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。小組委員會主席黃碧如在一個電台節目形容新政策是「組合拳」，既提高額外租金，亦提供措施鼓勵「富戶」向上流。被問到有無預計新措施釋放到多少公屋單位，黃碧如說未有目標數字，但相信最起碼會有數百間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm)
+
+---
+
+# 北京市政府原黨組成員、副市長高朋涉嫌受賄被起訴
+
+![北京市政府原黨組成員、副市長高朋涉嫌受賄被起訴。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797101_1_20250324102257.jpg&q=90)
+  
+
+北京市政府原黨組成員、副市長高朋涉嫌受賄、玩忽職守一案，由國家監察委員會調查終結，經最高人民檢察院指定，由山西省呂梁市人民檢察院審查起訴。近日，呂梁市人民檢察院已向呂梁市中級人民法院提起公訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797101-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797101-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797101-20250324.htm)
+
+---
+
 # 李家超明日赴海南出席博鰲亞洲論壇年會　將於論壇致辭
 
+![李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797100_1_20250324103437.jpg&q=90)
   
 
 行政長官李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。
@@ -1321,125 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm)
-
----
-
-# 哈馬斯政治領導人巴達維爾據報在以軍空襲加沙中喪生
-
-![以軍空襲加沙南部汗尤尼斯，有建築物損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797033_1_20250323165641.jpg&q=85)
-  
-
-巴勒斯坦武裝組織哈馬斯政治領導人巴達維爾據報在以色列對加沙地帶的空襲中喪生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797033-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797033-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797033-20250323.htm)
-
----
-
-# 陳茂波稱國家踐行真正多邊主義　同時推動科技及產業創新融合
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797032_1_20250323174025.jpg&q=85)
-  
-
-在北京，財政司司長陳茂波表示，當前世界百年未有之大變局正加速演進，有幾個大的趨勢正深刻影響世界的政治格局和經濟發展。首先是保護主義和單邊主義的抬頭，為全球經濟帶來了巨大的不確定性和不穩定性。其次是「全球南方」經濟體的崛起。第三是科技創新，特別是人工智能技術的飛躍提升，正引發生產模式、商業模式和消費模式的變革。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm)
-
----
-
-# 王毅晤日本國家安全保障局長　雙方同意繼續保持溝通
-
-![王毅在東京會見日本國家安全保障局長岡野正敬。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797030_1_20250323161703.jpg&q=90)
-  
-
-中共中央政治局委員、中央外辦主任王毅在東京會見日本國家安全保障局長岡野正敬。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm)
-
----
-
-# 大嶼山梅窩發生山火　初步無人傷
-
-![消防下午接報，大嶼山梅窩窩田村附近起火。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797029_1_20250323170214.jpg&q=80)
-  
-
-大嶼山梅窩發生山火，初步無人受傷，毋須疏散。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm)
-
----
-
-# 七欖賽事套票已售近43000張　大會料13萬8千名觀眾入場
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797028_1_20250323160849.jpg&q=80)
-  
-
-香港國際七人欖球賽本月28至30日、一連3天在啟德體育園主場館舉行，大會表示，過去一周再售出8000張門票，三日的套票累計已售出近43000張，預計一連三日的比賽將有13萬8千名觀眾入場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm)
 
 ---

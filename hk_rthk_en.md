@@ -1,3 +1,51 @@
+# Andreeva streak ends in epic loss to Anisimova
+
+![Mirra Andreeva receives treatment from a WTA physiotherapist during an injury timeout in her Miami Open match against Amanda Anisimova at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797104_1_20250324103923.jpg&q=90)
+  
+
+Russian 17-year-old Mirra Andreeva, coming off back-to-back WTA 1000 wins in Dubai and Indian Wells, exited in the third round, her 13-match winning streak ending with a three-sets loss to American Amanda Anisimova.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797104-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797104-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797104-20250324.htm)
+
+---
+
+# S Korea court dismisses impeachment of prime minister
+
+![Han Duck-soo's impeachment was dismissed in a 5-1 vote by the court's eight justices. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797103_1_20250324103248.jpg&q=90)
+  
+
+South Korea's Constitutional Court dismissed the impeachment of Prime Minister Han Duck-soo on Monday, reinstating him as acting president – a role he was given after the president was suspended for declaring martial law.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm)
+
+---
+
 # Police arrest 32 in raid on unlicensed bar in Central
 
 ![Officers said those arrested were aged between 28 and 70. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797097_1_20250324093956.jpg&q=90)
@@ -1390,53 +1438,5 @@ A French aeronautic services company on Friday said it is working with the Airpo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796793-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796793-20250321.htm)
-
----
-
-# NJZ loses court fight to leave label
-
-![The Seoul Central District Court prohibits members of NJZ from pursuing independent endeavours. File photo: NewJeans](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796797_1_20250321161623.jpg&q=85)
-  
-
-A South Korean court on Friday ruled against popular K-pop girl group NewJeans, which had sought to sever ties with their label ADOR over what they called "mistreatment" by the company.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm)
-
----
-
-# Stronger turnout expected as ComplexCon returns
-
-![Fans queue for limited-edition Labubu toys created by Hong Kong artist Kasing Lung. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796791_1_20250321154832.jpg&q=85)
-  
-
-A global pop culture festival ComplexCon has returned to Hong Kong for a second year, with organisers expecting the stronger lineup to bring in more visitors.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796791-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796791-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796791-20250321.htm)
 
 ---

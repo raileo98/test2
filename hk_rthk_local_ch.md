@@ -1,5 +1,53 @@
+# 許正宇：年底前可望引入逾200間家辦來港　料超額達標
+
+![許正宇稱逾160間已落戶香港的家辦，約四分之一與過去兩屆「裕澤香江」高峰論壇直接有關。（財庫局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797106_2_20250324104432.jpg&q=90)
+  
+
+財經事務及庫務局局長許正宇相信，今年底前可望引入逾200間家族辦公室來港，超額完成2022年施政報告提出的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm)
+
+---
+
+# 黃碧如：修訂公屋富戶政策相信可至少釋放數百個公屋單位
+
+  
+
+房委會資助房屋小組委員會通過修訂公屋「富戶」政策，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。小組委員會主席黃碧如在一個電台節目形容新政策是「組合拳」，既提高額外租金，亦提供措施鼓勵「富戶」向上流。被問到有無預計新措施釋放到多少公屋單位，黃碧如說未有目標數字，但相信最起碼會有數百間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm)
+
+---
+
 # 李家超明日赴海南出席博鰲亞洲論壇年會　將於論壇致辭
 
+![李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797100_1_20250324103437.jpg&q=90)
   
 
 行政長官李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。
@@ -527,7 +575,7 @@
 
 ---
 
-# 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
+# 回應有否用過DeepSeek　蘋果庫克稱「當然，感覺很好」
 
 ![庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他形容感覺很好。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797019_2_20250323160553.jpg&q=90)
   
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796930-20250322.htm)
-
----
-
-# 衞生署調查一名女子深度鎮靜麻醉下拔牙未能復甦　需送院仍危殆
-
-![衞生署接獲一宗由一間牙科日間醫療中心呈報的醫療風險警示事件，涉及一名35歲女病人。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796929_1_20250322163308.jpg&q=90)
-  
-
-衞生署接獲一宗由一間牙科日間醫療中心呈報的醫療風險警示事件，涉及一名35歲女病人，她於今年1月22日在涉事的牙科日間醫療中心，在深度鎮靜麻醉的程序下進行外科手術拔牙，期間未能從鎮靜狀態下復甦，被送往急症室救治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796929-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796929-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796929-20250322.htm)
-
----
-
-# 大熊貓龍鳳胎與媽媽首度「同框」與公眾見面　3千多張時間票派完
-
-![早上開園後，首批訪客即時進入展館探訪大熊貓。（市民提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796919_1_20250322132321.jpg&q=80)
-  
-
-大熊貓龍鳳胎「家姐」及「細佬」由今日起，首度與媽媽「盈盈」在海洋公園同一個展館「同框」與公眾見面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796919-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796919-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796919-20250322.htm)
 
 ---

@@ -1,3 +1,27 @@
+# S Korea court dismisses impeachment of prime minister
+
+![Han Duck-soo's impeachment was dismissed in a 5-1 vote by the court's eight justices. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797103_1_20250324103248.jpg&q=90)
+  
+
+South Korea's Constitutional Court dismissed the impeachment of Prime Minister Han Duck-soo on Monday, reinstating him as acting president – a role he was given after the president was suspended for declaring martial law.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm)
+
+---
+
 # Mark Carney calls snap Canadian election
 
 ![Canadian Prime Minister Mark Carney announced the move at a news conference in Ottawa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797074_1_20250324055036.jpg&q=90)
@@ -1411,29 +1435,5 @@ German lawmakers gave the green light on Tuesday for a colossal spending boost f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796326-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796326-20250319.htm)
-
----
-
-# Putin, Trump fail to reach deal on full ceasefire
-
-![The two spoke for more than an hour and a half, and both expressed hopes for repairing relations between the countries. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796323_1_20250319031834.jpg&q=90)
-  
-
-US President Donald Trump and Russian President Vladimir Putin agreed on Tuesday on a halt in Russian attacks against Ukrainian energy targets – but fell far short of securing a full ceasefire in a highly anticipated phone call.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796323-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796323-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796323-20250319.htm)
 
 ---

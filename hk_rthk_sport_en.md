@@ -1,3 +1,27 @@
+# Andreeva streak ends in epic loss to Anisimova
+
+![Mirra Andreeva receives treatment from a WTA physiotherapist during an injury timeout in her Miami Open match against Amanda Anisimova at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797104_1_20250324103923.jpg&q=90)
+  
+
+Russian 17-year-old Mirra Andreeva, coming off back-to-back WTA 1000 wins in Dubai and Indian Wells, exited in the third round, her 13-match winning streak ending with a three-sets loss to American Amanda Anisimova.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797104-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797104-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797104-20250324.htm)
+
+---
+
 # Cavs snap four-game losing skid; sink Jazz in Utah
 
 ![The victory snapped the Cavs' longest losing streak of the season at four games. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797085_1_20250324080912.jpg&q=85)
@@ -1414,29 +1438,5 @@ Hong Kong, China badminton star Angus Ng was sent packing at the All England Ope
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795625-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795625-20250313.htm)
-
----
-
-# Thunder down Celtics to secure playoff berth
-
-![Shai Gilgeous-Alexander was the star for Oklahoma City yet again. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795528_1_20250313112112.jpg&q=90)
-  
-
-Shai Gilgeous-Alexander scored 34 points as the Oklahoma City Thunder punched their ticket to the playoffs with an impressive 118-112 victory over the reigning champion Boston Celtics in a potential NBA Finals sneak preview.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm)
 
 ---
