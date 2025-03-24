@@ -1,3 +1,27 @@
+# 湖南耒水上游地區鉈排放濃度超標　郴州及耒陽當局稱飲用水安全
+
+![湖南耒水上游地區鉈排放濃度超標　郴州及耒陽當局稱飲用水安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797146_1_20250324144507.jpg&q=90)
+  
+
+湖南湘江最大支流耒水流域近日部分河段水質出現異常，懷疑因耒水上游地區鉈排放濃度超標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797146-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797146-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797146-20250324.htm)
+
+---
+
 # 日股收市偏軟
 
 ![日經指數收市報37608點，跌68點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797144_1_20250324143651.jpg&q=70)
@@ -526,6 +550,7 @@
 
 # 彭麗媛到北京市日壇中學調研學校結核病防治工作
 
+![彭麗媛到北京市日壇中學調研學校結核病防治工作](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797115_1_20250324144625.jpg&q=90)
   
 
 今日是世界防治結核病日。在北京，國家主席習近平夫人彭麗媛到北京市日壇中學調研學校結核病防治工作。

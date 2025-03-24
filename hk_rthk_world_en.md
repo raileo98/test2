@@ -1,3 +1,27 @@
+# Venezuelans go home as US deportation flights resume
+
+![An aircraft carrying Venezuelan migrants, who were deported from the United States, lands in Caracas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797145_1_20250324144241.jpg&q=90)
+  
+
+Venezuela on Monday received nearly 200 citizens deported from the United States via Honduras, as US President Donald Trump cracks down on undocumented foreigners.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm)
+
+---
+
 # S Korea court dismisses impeachment of prime minister
 
 ![Han Duck-soo's impeachment was dismissed in a 5-1 vote by the court's eight justices. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797103_1_20250324103248.jpg&q=90)
@@ -1411,29 +1435,5 @@ Nasa astronauts Butch Wilmore and Suni Williams returned to Earth in a SpaceX ca
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm)
-
----
-
-# Germany votes for big defence spending package
-
-![Germany's chancellor-in-waiting Friedrich Merz says dramatic steps are needed at a time of geopolitical turmoil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796326_1_20250319033004.jpg&q=90)
-  
-
-German lawmakers gave the green light on Tuesday for a colossal spending boost for defence and infrastructure pushed by chancellor-in-waiting Friedrich Merz amid deep fears in Europe over the future strength of the transatlantic alliance.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796326-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796326-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796326-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 湖南耒水上游地區鉈排放濃度超標　郴州及耒陽當局稱飲用水安全
+
+![湖南耒水上游地區鉈排放濃度超標　郴州及耒陽當局稱飲用水安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797146_1_20250324144507.jpg&q=90)
+  
+
+湖南湘江最大支流耒水流域近日部分河段水質出現異常，懷疑因耒水上游地區鉈排放濃度超標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797146-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797146-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797146-20250324.htm)
+
+---
+
 # 廣東省政府力爭2027年全省年接待旅客突破9.5億人次
 
   
@@ -93,6 +117,7 @@
 
 # 彭麗媛到北京市日壇中學調研學校結核病防治工作
 
+![彭麗媛到北京市日壇中學調研學校結核病防治工作](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797115_1_20250324144625.jpg&q=90)
   
 
 今日是世界防治結核病日。在北京，國家主席習近平夫人彭麗媛到北京市日壇中學調研學校結核病防治工作。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm)
-
----
-
-# 澳門司警收到9人報稱疑遭婚戒公司詐騙共12萬
-
-![澳門司警表示，高度重視案件，已經透過警務合作渠道通報香港警方。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796658_1_20250320192723.jpg&q=90)
-  
-
-香港婚戒公司突然結業，澳門司警表示，至今收到9名事主舉報，合共損失12萬澳門元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796658-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796658-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796658-20250320.htm)
 
 ---
