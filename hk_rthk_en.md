@@ -505,7 +505,7 @@ Russian 17-year-old Mirra Andreeva, coming off back-to-back WTA 1000 wins in Dub
 
 # S Korea court dismisses impeachment of prime minister
 
-![Han Duck-soo's impeachment was dismissed in a 5-1 vote by the court's eight justices. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797103_1_20250324103248.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797103_1_20250324103248.jpg&q=90)
   
 
 South Korea's Constitutional Court dismissed the impeachment of Prime Minister Han Duck-soo on Monday, reinstating him as acting president – a role he was given after the president was suspended for declaring martial law.
