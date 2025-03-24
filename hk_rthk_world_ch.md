@@ -1,3 +1,27 @@
+# 卡尼：可與特朗普通話　惟會按加拿大作為主權國家條件進行
+
+![卡尼認為特朗普正等待加拿大的大選結果，再與勝出者通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797221_1_20250325011313.jpg&q=90)
+  
+
+加拿大總理卡尼表示，他可以與美國總統特朗普通電話，但會按照加拿大作為主權國家的條件進行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797221-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797221-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797221-20250325.htm)
+
+---
+
 # 特朗普宣布將對購買委內瑞拉油氣的國家徵收25%關稅
 
 ![特朗普經常指責拉美國家向美國輸送犯罪分子。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797220_1_20250325003813.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796981-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796981-20250323.htm)
-
----
-
-# 委內瑞拉與美國達成協議　恢復遣返移民安排
-
-![委內瑞拉說，與美國達成協議，從周日起恢復與美國遣返移民的安排。圖為委內瑞拉日前從墨西哥接收一批移民。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796980_1_20250323014117.jpg&q=90)
-  
-
-委內瑞拉說，與美國達成協議，從周日起恢復與美國遣返移民的安排，在保證委內瑞拉人人權的情況下，讓委內瑞拉移民有尊嚴地返回委內瑞拉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796980-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796980-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796980-20250323.htm)
 
 ---
