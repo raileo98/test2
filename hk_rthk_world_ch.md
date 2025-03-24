@@ -1,3 +1,27 @@
+# 特朗普料美烏很快簽署礦產協議　雙方討論美企擁有烏國發電站可能
+
+![特朗普說，有些人認為美國具有專業知識，應該擁有烏克蘭的發電站。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797226_1_20250325034304.jpg&q=90)
+  
+
+美國總統特朗普預計，美國與烏克蘭很快會簽署關於分享當地關鍵礦產收入的協議，雙方亦正討論由美國企業擁有烏克蘭發電站的可能性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm)
+
+---
+
 # 特朗普強調格陵蘭或成美國部分　丹麥斥美方訪島反映不恰當慾望
 
 ![特朗普形容，格陵蘭對美國國家安全很重要。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797225_1_20250325025321.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796984-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796984-20250323.htm)
-
----
-
-# 哈馬斯：只要以色列持續佔領　哈馬斯就不會解除武裝
-
-![哈馬斯高級官員表示，只要以色列持續對巴勒斯坦進行佔領，哈馬斯就不會解除武裝。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796983_1_20250323041154.jpg&q=85)
-  
-
-針對美國中東問題特使威特科夫要求巴勒斯坦武裝組織哈馬斯解除武裝的提議，哈馬斯高級官員胡薩姆接受巴勒斯坦《聖城新聞網》採訪時表示，只要以色列持續對巴勒斯坦進行佔領，這樣的提議就毫無意義。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm)
 
 ---
