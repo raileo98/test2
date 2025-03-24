@@ -1,3 +1,27 @@
+# 財政部：今年財政政策要更加積極　具體提高財政赤字率
+
+![財政部發布報告指，今年財政政策要更加積極，包括具體提高財政赤字率、加大支出強度、加速支出進度等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797183_1_20250324174156.jpg&q=75)
+  
+
+在北京，財政部發布《中國財政政策執行情況報告》，表示今年財政政策要更加積極、持續用力、更加給力，包括具體提高財政赤字率、加大支出強度、加速支出進度；安排更大規模政府債券，為穩增長、調結構提供更多支撐；大力優化支出結構、加強精準投放，更加注重惠民生、促消費、增後勁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm)
+
+---
+
 # 外交部：中美關係保持穩定健康可持續發展符合兩國人民共同利益
 
 ![郭嘉昆表示，中方始終認為中美關係保持穩定、健康可持續發展，符合兩國人民共同利益。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797181_1_20250324173329.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm)
-
----
-
-# 葡萄牙外長蘭熱爾下周一起訪華5天
-
-![葡萄牙國務部長兼外長蘭熱爾將於下周一至周五訪華。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796800_1_20250321163101.jpg&q=90)
-  
-
-外交部宣布，應中共中央政治局委員、外長王毅邀請，葡萄牙國務部長兼外長蘭熱爾將於下周一至周五訪華，期間兩國外長將舉行中葡第二次外長級戰略對話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796800-20250321.htm)
 
 ---

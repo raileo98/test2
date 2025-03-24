@@ -1,3 +1,27 @@
+# Health officials to help pharmas register new drugs
+
+![Assistant Director of Health Frank Chan, centre, hopes the new arrangements can speed up the registration of new drugs in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797180_1_20250324172745.jpg&q=90)
+  
+
+Pharmaceutical firms wishing to register new drugs in Hong Kong will soon be able to consult health officials before filing an actual application, saving both sides time and effort.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm)
+
+---
+
 # Heathrow 'had enough power to stay open on Friday'
 
 ![The National Grid's boss, John Pettigrew, says either of the two other substations could have supplied the power to keep Heathrow open on Friday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797178_1_20250324172618.jpg&q=90)
@@ -1414,29 +1438,5 @@ Lewis Hamilton dominated from pole position to take his maiden victory for Ferra
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm)
-
----
-
-# SAR government preparing WTO complaint
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796905_1_20250322103943.jpg&q=90)
-  
-
-Secretary for Commerce and Economic Development Algernon Yau said on Saturday that the government is preparing to file a complaint to the World Trade Organization (WTO) regarding US tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Health officials to help pharmas register new drugs
+
+![Assistant Director of Health Frank Chan, centre, hopes the new arrangements can speed up the registration of new drugs in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797180_1_20250324172745.jpg&q=90)
+  
+
+Pharmaceutical firms wishing to register new drugs in Hong Kong will soon be able to consult health officials before filing an actual application, saving both sides time and effort.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm)
+
+---
+
 # Subsidy level for public healthcare 'unsustainable'
 
 ![Public Doctors' Association chairman Christopher Lung is calling for clear guidelines for frontline medics to handle future fee-related arguments with patients. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797138_2_20250324131612.jpg&q=80)
@@ -1417,29 +1441,5 @@ Ocean Park said on Wednesday its cable car services were suspended due to signal
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm)
-
----
-
-# 'Joint property management key for older buildings'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796384_1_20250319120525.jpg&q=90)
-  
-
-The Secretary for Home and Youth Affairs said the joint property management scheme will help homeowners to better manage and maintain their assets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796384-20250319.htm)
 
 ---

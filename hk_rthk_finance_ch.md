@@ -1,3 +1,27 @@
+# 財政部：今年財政政策要更加積極　具體提高財政赤字率
+
+![財政部發布報告指，今年財政政策要更加積極，包括具體提高財政赤字率、加大支出強度、加速支出進度等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797183_1_20250324174156.jpg&q=75)
+  
+
+在北京，財政部發布《中國財政政策執行情況報告》，表示今年財政政策要更加積極、持續用力、更加給力，包括具體提高財政赤字率、加大支出強度、加速支出進度；安排更大規模政府債券，為穩增長、調結構提供更多支撐；大力優化支出結構、加強精準投放，更加注重惠民生、促消費、增後勁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm)
+
+---
+
 # 分析料內地四大行去年盈利按年持平　上季表現按季表現較好
 
 ![分析預計內銀今年盈利表現要視乎LPR走勢，估計仍有向下空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797177_1_20250324172340.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796874-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796874-20250322.htm)
-
----
-
-# 道指高收32點　本周累升1.2%　創2個月最大升幅
-
-![道瓊斯指數初段一度急挫520點，收市倒升32點，報41985點。道指本周升1.2%，是2個月以來最大星期升幅，並結束連續2星期跌勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796873_1_20250322053357.jpg&q=90)
-  
-
-美股3大指數在「四期結算日」先低後高，最終收市靠穩。道瓊斯指數初段一度急挫520點，收市倒升32點，報41985點。納斯達克指數早段曾跌逾1%，收市報17784點，升92點，升幅0.5%。標準普爾500指數報5667點，升4點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796873-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796873-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796873-20250322.htm)
 
 ---
