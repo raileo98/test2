@@ -3,7 +3,7 @@
 ![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing last week. File photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797113_1_20250324111447.jpg&q=90)
   
 
-The chair of the European Chamber of Commerce in Hong Kong on Monday welcomed last week's remarks from the director of the Hong Kong and Macau Affairs Office, who praised EurCham's work in the SAR.
+The chair of the European Chamber of Commerce in Hong Kong on Monday welcomed last week's remarks from the director of the Hong Kong and Macau Affairs Office, who praised EuroCham's work in the SAR.
 
   
 

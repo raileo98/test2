@@ -1,3 +1,28 @@
+# Subsidy level for public healthcare 'unsustainable'
+
+![Franklin Lam is confident people will not be deterred from seeking medical help even after healthcare subsidies are capped. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797138_1_20250324131612.jpg&q=90)
+![Public doctor Christopher Lung is calling for clear guidelines for frontline medics to handle future fee-related arguments with patients. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797138_2_20250324131612.jpg&q=80)
+  
+
+There's no way Hong Kong's public healthcare system will be sustainable in the long term if the government continues to subsidise nearly all of the expenses, according to an adviser tasked with reforming the body managing the hospitals.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797138-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797138-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797138-20250324.htm)
+
+---
+
 # Govt to exceed family office target: treasury chief
 
 ![Christopher Hui says about one fourth of the new family offices had set up shop in the SAR partly due to the 'Wealth for Good in Hong Kong Summit.' Photo: Courtesy of Financial Services and the Treasury Bureau](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797135_1_20250324130303.jpg&q=90)
@@ -147,7 +172,7 @@ Italy striker Moise Kean admitted his team "got distracted" after Germany's Jama
 ![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing last week. File photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797113_1_20250324111447.jpg&q=90)
   
 
-The chair of the European Chamber of Commerce in Hong Kong on Monday welcomed last week's remarks from the director of the Hong Kong and Macau Affairs Office, who praised EurCham's work in the SAR.
+The chair of the European Chamber of Commerce in Hong Kong on Monday welcomed last week's remarks from the director of the Hong Kong and Macau Affairs Office, who praised EuroCham's work in the SAR.
 
   
 
@@ -1413,29 +1438,5 @@ Flights at Britain's Heathrow resumed late on Friday after a fire knocked out it
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796876-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796876-20250322.htm)
-
----
-
-# Counter-terror police probe fire that closed Heathrow
-
-![The fire had involved a transformer comprising of 25,000 litres of cooling oil fully alight. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796855_1_20250321221014.jpg&q=65)
-  
-
-Counter-terror police on Friday launched a probe into an electricity substation fire that shut down Heathrow airport causing travel chaos for passengers around the world and the cancellation or diversion of hundreds of flights from Europe's busiest air hub.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796855-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796855-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796855-20250321.htm)
 
 ---
