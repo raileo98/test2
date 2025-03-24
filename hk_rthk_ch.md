@@ -1,3 +1,27 @@
+# 王文濤晤蘋果行政總裁　支持外企產品公平參與以舊換新擴消費政策
+
+![商務部部長王文濤會見美國蘋果公司行政總裁庫克。（商務部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797219_1_20250325001521.jpg&q=90)
+  
+
+在北京，商務部部長王文濤會見美國蘋果公司行政總裁庫克，就蘋果公司在華業務發展、中美經貿關係等議題交流。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm)
+
+---
+
 # 劉永松稱財政資助對運動員只屬輔助　冀透過運動產業化提供支撐
 
 ![劉永松表示，歡迎當局調整精英體育資助制度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797218_1_20250324234351.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm)
-
----
-
-# 廣東省政府力爭2027年全省年接待旅客突破9.5億人次
-
-![廣東省政府表示，力爭到2027年，全省年接待旅客突破9.5億人次。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797142_1_20250324155823.jpg&q=85)
-  
-
-廣東省政府表示，力爭到2027年，全省年接待旅客突破9.5億人次，旅遊總收入突破1.3萬億元人民幣。到2030年，各項主要指標位居全國前列，建成高水平旅遊強省。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm)
 
 ---

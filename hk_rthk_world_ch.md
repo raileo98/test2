@@ -1,3 +1,27 @@
+# 王文濤晤蘋果行政總裁　支持外企產品公平參與以舊換新擴消費政策
+
+![商務部部長王文濤會見美國蘋果公司行政總裁庫克。（商務部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797219_1_20250325001521.jpg&q=90)
+  
+
+在北京，商務部部長王文濤會見美國蘋果公司行政總裁庫克，就蘋果公司在華業務發展、中美經貿關係等議題交流。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm)
+
+---
+
 # 美俄代表會談尋求達成黑海海上停火　俄方稱會談正有創造力地進行
 
 ![美俄會談在利雅得一間酒店閉門進行。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797207_1_20250324212258.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796979-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796979-20250323.htm)
-
----
-
-# 倫敦希斯路機場全面恢復運作　航空公司警告航班仍會有延誤或取消
-
-![倫敦希斯路機場因停電關閉後，星期六全面恢復運作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796978_1_20250323010752.jpg&q=90)
-  
-
-倫敦希斯路機場因停電關閉後，星期六全面恢復運作。航空公司警告，由於要重新調整航班時間表，航班仍會延誤和取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796978-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796978-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796978-20250323.htm)
 
 ---
