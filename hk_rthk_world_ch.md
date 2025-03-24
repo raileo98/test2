@@ -1,3 +1,27 @@
+# 法國外長巴羅本周四起訪華兩日
+
+![巴羅將於本星期四至五訪華。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797158_1_20250324154336.jpg&q=90)
+  
+
+在北京，外交部表示，應中共中央政治局委員、外交部長王毅邀請，法國歐洲及外交部長巴羅將於本星期四至五訪華。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm)
+
+---
+
 # 韓悳洙：竭盡智慧和力量應對貿易戰　籲朝野黨派實現合作
 
 ![韓悳洙復職後向南韓國民發表講話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797155_1_20250324153129.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm)
-
----
-
-# 聯合國指以色列新撤離令直接影響加沙地帶內共19個社區逾6萬人
-
-![汗尤尼斯數以萬計民眾受撤離令影響。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796953_1_20250322203852.jpg&q=75)
-  
-
-聯合國指自從以色列在過去的星期二，對加沙多個地區發布新的撤離令以來，地帶內共19個社區受到直接影響，包括北部的13個社區，以及汗尤尼斯東部的6個社區，受影響人數分別約3萬人及3萬5千人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm)
 
 ---
