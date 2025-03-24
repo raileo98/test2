@@ -1,3 +1,72 @@
+# 韓正冀英國太古集團參與大灣區建設　瑞士諾華抓緊機遇拓展合作
+
+  
+
+國家副主席韓正在北京分別會見來華參加中國發展高層論壇2025年年會的英國太古集團行政總裁施銘倫及瑞士諾華公司首席執行官萬思瀚。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm)
+
+---
+
+# 彭鴻昌憂住院門診新收費加重某些病人負擔　陳沛良稱助減醫護壓力
+
+  
+
+政府明日公布公營醫療服務收費改革詳情。消息指，將會增設住院門診收費上限，好大機會定於每人每年1萬元。據了解，急症服務只有一個收費，增至不多於400元，危殆及危急病人可獲豁免。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797205-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797205-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797205-20250324.htm)
+
+---
+
+# 深水灣麗海堤岸路有污水管滲漏　渠務署緊急維修籲勿附近水域游泳
+
+  
+
+深水灣麗海堤岸路有污水管滲漏，鄰近水域水質可能受到影響，渠務署正進行緊急維修工程，呼籲市民不要在深水灣、淺水灣或附近海域游泳。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797204-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797204-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797204-20250324.htm)
+
+---
+
 # 12人涉詐騙及洗黑錢被捕　當中3人包括1名內地男子已提堂
 
   
@@ -815,6 +884,7 @@
 
 # 華春瑩到訪澳門　岑浩輝稱加強拓展對外聯繫尤其開拓葡語系等市場
 
+![岑浩輝（右）昨日在政府總部與外交部副部長華春瑩（左）會面。（澳門新聞局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797156_1_20250324211004.jpg&q=85)
   
 
 澳門行政長官岑浩輝昨日在政府總部與外交部副部長華春瑩會面，雙方就澳門進一步透過加強拓展對外聯繫，落實經濟適度多元發展等議題交流。他歡迎外交部副部長華春瑩一行到訪澳門，並對外交部長期支持澳門特區的對外交往工作表達謝意，同時也感謝駐澳特派員公署在各項涉外工作所給予的支持。

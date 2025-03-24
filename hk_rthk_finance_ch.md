@@ -1,3 +1,26 @@
+# 韓正冀英國太古集團參與大灣區建設　瑞士諾華抓緊機遇拓展合作
+
+  
+
+國家副主席韓正在北京分別會見來華參加中國發展高層論壇2025年年會的英國太古集團行政總裁施銘倫及瑞士諾華公司首席執行官萬思瀚。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm)
+
+---
+
 # 羅淑佩稱精英體育發展需考慮個別項目獨特性及彈性處理
 
 ![羅淑佩說，新機制可以提供彈性，亦讓網球運動員有努力的目標。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797200_1_20250324201837.jpg&q=90)
@@ -1413,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm)
-
----
-
-# 陳茂波鼓勵內企利用香港拓展全球業務　在港開設更多實體銷售網絡
-
-![陳茂波（右二）到訪了一家內地領先的潮流文化娛樂公司，並與負責人會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_2_20250322202451.jpg&q=85)
-![陳茂波（右二）到訪一家專注於高精度人工智能產品研發應用的企業。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_1_20250322202451.jpg&q=85)
-  
-
-財政司司長陳茂波鼓勵內地企業利用香港國際化的資金、人才和專業服務，將業務拓展至全球，亦歡迎公司在香港開設更多實體銷售網絡，以及開拓更多元服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 韓正冀英國太古集團參與大灣區建設　瑞士諾華抓緊機遇拓展合作
+
+  
+
+國家副主席韓正在北京分別會見來華參加中國發展高層論壇2025年年會的英國太古集團行政總裁施銘倫及瑞士諾華公司首席執行官萬思瀚。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm)
+
+---
+
 # 李強晤亞行行長　稱中方將擔起大國責任為世界發展注入更多穩定性
 
 ![李強在北京人民大會堂會見亞洲開發銀行行長神田真人。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797201_1_20250324201943.jpg&q=90)
@@ -240,6 +263,7 @@
 
 # 華春瑩到訪澳門　岑浩輝稱加強拓展對外聯繫尤其開拓葡語系等市場
 
+![岑浩輝（右）昨日在政府總部與外交部副部長華春瑩（左）會面。（澳門新聞局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797156_1_20250324211004.jpg&q=85)
   
 
 澳門行政長官岑浩輝昨日在政府總部與外交部副部長華春瑩會面，雙方就澳門進一步透過加強拓展對外聯繫，落實經濟適度多元發展等議題交流。他歡迎外交部副部長華春瑩一行到訪澳門，並對外交部長期支持澳門特區的對外交往工作表達謝意，同時也感謝駐澳特派員公署在各項涉外工作所給予的支持。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796842-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796842-20250321.htm)
-
----
-
-# 人行貨幣政策委員會建議下階段加大貨幣政策調控強度
-
-![人行稱，根據國內外經濟金融形勢及金融市場運行情況，擇機降準減息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796844_1_20250321203237.jpg&q=90)
-  
-
-人民銀行貨幣政策委員會近日召開今年首季度例會，表示要實施適度寬鬆貨幣政策，加強逆周期調節；建議下階段加大貨幣政策調控強度，提高貨幣政策調控前瞻性、針對性、有效性，根據國內外經濟金融形勢及金融市場運行情況，擇機降準減息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm)
 
 ---

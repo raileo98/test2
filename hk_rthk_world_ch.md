@@ -1,3 +1,26 @@
+# 韓正冀英國太古集團參與大灣區建設　瑞士諾華抓緊機遇拓展合作
+
+  
+
+國家副主席韓正在北京分別會見來華參加中國發展高層論壇2025年年會的英國太古集團行政總裁施銘倫及瑞士諾華公司首席執行官萬思瀚。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm)
+
+---
+
 # 李強晤亞行行長　稱中方將擔起大國責任為世界發展注入更多穩定性
 
 ![李強在北京人民大會堂會見亞洲開發銀行行長神田真人。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797201_1_20250324201943.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796976-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796976-20250323.htm)
-
----
-
-# 澤連斯基視察烏東前線前指揮所
-
-![澤連斯基到東部頓涅茨克地區視察，並在波克羅夫斯克烏軍指揮所聽取前線局勢報告。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796975_1_20250323002251.jpg&q=90)
-  
-
-烏克蘭總統澤連斯基到東部頓涅茨克地區視察並在波克羅夫斯克烏軍指揮所聽取前線局勢報告。這是近期波克羅夫斯克局勢趨於穩定後，澤連斯基首次到訪烏東前線。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796975-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796975-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796975-20250323.htm)
 
 ---
