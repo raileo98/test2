@@ -1,6 +1,33 @@
+# 美股3大指數初段升逾1%
+
+![紐約股市3大指數初段升逾1%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797211_1_20250324214832.jpg&q=80)
+  
+
+紐約股市3大指數初段升逾1%。投資者憧憬美國政府計劃推出的全球對等關稅措施會更具針對性，以及注視美國經濟和通脹數據表現。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797211-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797211-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797211-20250324.htm)
+
+---
+
 # 荃灣港安醫院治療室檢查燈墜落擊中兩名醫護人員　病人沒有受傷
 
   
+
+荃灣港安醫院一間治療室有檢查燈墜落，擊中兩名醫護人員，兩人經檢查後沒有大礙。
+
   
 
 
