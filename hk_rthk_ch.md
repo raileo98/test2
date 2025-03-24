@@ -1,3 +1,27 @@
+# 一艘漁船涉走私懷疑受管制乾魚翅及電子產品　4名船員被捕
+
+![關員在船上一個暗格內檢獲部分懷疑走私電子產品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797216_1_20250324225402.jpg&q=90)
+  
+
+一艘出境漁船涉嫌走私懷疑受管制的乾魚翅、電子產品及雪茄等，約值2500萬元，海關拘捕4名涉案船員，並扣查有關漁船。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm)
+
+---
+
 # 霍啟剛歡迎當局彈性處理調整精英體育資助制度
 
 ![霍啟剛表示，歡迎當局今次彈性處理，調整精英體育資助制度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797215_1_20250324225435.jpg&q=80)
@@ -578,7 +602,7 @@
 ![外電報道，小米集團正以先舊後新方式配售7.5億股，集資最多52.7億美元。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797186_1_20250324182313.jpg&q=90)
   
 
-外電報道，小米集團正以先舊後新方式配售7.5億股，每股配售價52.8元54.6元，較今日收市價折讓4.2%至7.4%，集資最多52.7億美元。
+外電報道，小米集團正以先舊後新方式配售7.5億股，每股配售價52.8元至54.6元，較今日收市價折讓4.2%至7.4%，集資最多52.7億美元。
 
   
 
