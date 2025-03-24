@@ -72,7 +72,7 @@ Sources say new fees for public hospital services will be rolled out in three ph
 
 # Billiard, tennis retain Tier A status
 
-![Sports minister Rosanna Law says changes were made to accommodate sports with unique strengths to stay in the elite sports training system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797192_1_20250324184243.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797192_1_20250324223333.jpg&q=90)
   
 
 The government announced on Monday that tennis and billiards have retained their Tier A sport status for two years, avoiding a downgrade that would result in significant funding cuts.
@@ -96,7 +96,7 @@ The government announced on Monday that tennis and billiards have retained their
 
 # Cityline 'must explain Coldplay ticket errors'
 
-![The inaccurate information is printed on HK$1,399 'Coldplay: Music Of The Spheres World Tour – delivered by DHL' standing tickets. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797187_1_20250324182435.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797187_1_20250324182435.jpg&q=90)
   
 
 The secretary for culture, sports and tourism has called on the ticketing platform Cityline to explain misprints on Coldplay concert tickets.

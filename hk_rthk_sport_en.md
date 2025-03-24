@@ -1,6 +1,6 @@
 # Billiard, tennis retain Tier A status
 
-![Sports minister Rosanna Law says changes were made to accommodate sports with unique strengths to stay in the elite sports training system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797192_1_20250324184243.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797192_1_20250324223333.jpg&q=90)
   
 
 The government announced on Monday that tennis and billiards have retained their Tier A sport status for two years, avoiding a downgrade that would result in significant funding cuts.

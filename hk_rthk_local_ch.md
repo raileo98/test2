@@ -1,3 +1,26 @@
+# 荃灣港安醫院手術燈墜落　院方檢查同型號四組燈確認安全運作
+
+  
+
+荃灣港安醫院急診中心星期日晚發生一宗手術燈墜落事故，兩名醫護人員受輕傷，經檢查後暫無大礙 。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797213-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797213-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797213-20250324.htm)
+
+---
+
 # 荃灣港安醫院治療室檢查燈墜落擊中兩名醫護人員　病人沒有受傷
 
 ![涉事同一型號的Polaris® 50檢查燈。（Draeger Hong Kong Limited網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797210_1_20250324221818.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm)
-
----
-
-# 積金局舉辦全國兩會精神分享會　梁振英冀更積極主動發揮作用
-
-![梁振英獲邀出席分享兩會主要內容，積金局及積金易公司逾600名員工實體和透過線上參與。（積金局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797022_1_20250323155726.jpg&q=90)
-  
-
-積金局日前舉辦「全國兩會精神」分享會，全國政協副主席梁振英獲邀出席分享兩會主要內容，積金局及積金易公司超過600名員工實體和透過線上參與。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm)
 
 ---

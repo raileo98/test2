@@ -1,3 +1,27 @@
+# 美國3月製造業PMI初值跌至49.8　跌幅大過預期
+
+![美國3月製造業採購經理指數（PMI）初值降至49.8，跌至50以下的收縮區間，低過市場預期的51.7。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797212_1_20250324215640.jpg&q=80)
+  
+
+標普全球公布，美國3月製造業採購經理指數（PMI）初值降至49.8，跌至50以下的收縮區間，低過市場預期的51.7，亦低於2月的52.7。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797212-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797212-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797212-20250324.htm)
+
+---
+
 # 比亞迪股份去年盈利升34%　派末期息每股3.974元
 
 ![比亞迪股份去年盈利402.5億元人民幣，按年增長34%。派末期息每股3.974元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797209_1_20250324213953.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm)
-
----
-
-# 消委會暫接17宗投訴涉Coldplay香港演唱會需更換門票
-
-![消委會暫接獲17宗有關Coldplay香港演唱會需更換門票的投訴。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796971_1_20250322223427.jpg&q=85)
-  
-
-消委會表示，截至晚上7時，接獲17宗有關Coldplay香港演唱會需更換門票的投訴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm)
 
 ---
