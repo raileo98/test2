@@ -1,5 +1,6 @@
 # 「1+」藥物審批機制增設會面前諮詢服務
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797191_1_20250324184758.jpg&q=90)
   
 
 衞生署今年第一季會推出「1+」藥物審批機制申請前會面諮詢服務，希望協助更多想將新藥帶來香港的藥廠，了解相關程序同香港的情況。
