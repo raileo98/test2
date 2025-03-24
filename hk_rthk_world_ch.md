@@ -1,3 +1,27 @@
+# 韓悳洙恢復南韓代總統職務　強調民眾已對兩極化政治明確說不
+
+![韓悳洙強調，民眾已對兩極化政治明確說不。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797136_1_20250324130726.jpg&q=90)
+  
+
+南韓憲法法院駁回國務總理韓悳洙彈劾案，韓悳洙即時恢復代總統職務。崔相穆同時停止代總統身份。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797136-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797136-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797136-20250324.htm)
+
+---
+
 # 以色列批准設新機構推動遷出加沙地帶巴人
 
 ![卡茨說，「自願移民事務局」將為有意離開加沙的巴人提供安全監督下的離境通道和手續。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797109_1_20250324105215.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796934-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796934-20250322.htm)
-
----
-
-# 美國特使：澤連斯基很大程度接受烏克蘭不會成為北約成員國
-
-![威特科夫說，澤連斯基已在很大程度上接受烏克蘭不會成為北約成員國。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796932_1_20250322171941.jpg&q=90)
-  
-
-美國中東問題特使威特科夫說，如果烏克蘭要與俄羅斯達成和平協議，他認為烏克蘭總統澤連斯基已經在很大程度上接受烏克蘭不會成為北約成員國。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796932-20250322.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 港股下午開市後偏軟
+
+![港股偏軟，恒生指數較早時報23667點，跌22點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797137_1_20250324130737.jpg&q=75)
+  
+
+港股偏軟，恒生指數較早時報23667點，跌22點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm)
+
+---
+
 # 商務部國際貿易談判副代表稱將推動互聯網及文化等領域有序開放
 
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796820-20250321.htm)
-
----
-
-# 名創優品去年多賺逾16%
-
-![名創優品去年盈利26.2億元人民幣，按年升16.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796811_1_20250321170723.jpg&q=90)
-  
-
-名創優品（MINISO）去年盈利26.2億元人民幣，按年升16.2%。經調整盈利27.02億元，按年升15.7%。派發末期息每股美國存託股0.3268美元，或每股普通股0.0817美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796811-20250321.htm)
 
 ---

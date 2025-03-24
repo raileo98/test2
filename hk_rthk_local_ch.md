@@ -1,3 +1,27 @@
+# 港股下午開市後偏軟
+
+![港股偏軟，恒生指數較早時報23667點，跌22點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797137_1_20250324130737.jpg&q=75)
+  
+
+港股偏軟，恒生指數較早時報23667點，跌22點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm)
+
+---
+
 # 立法會8月暑期休會　11及12月不編排會議
 
 ![立法會秘書處公布下半年議程，7月至10月期間舉行例行會議，但8月將暑期休會，至於11月及12月不編排任何會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797133_1_20250324125610.jpg&q=80)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796960-20250322.htm)
-
----
-
-# 3名機場入境旅客管有未完稅煙及未有申報　分別判囚及罰款
-
-![海關展示檢獲的部分未完稅香煙。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796958_1_20250322205150.jpg&q=90)
-  
-
-3名從機場入境旅客因管有未完稅香煙以及未有向海關人員作出申報，違反《應課稅品條例》，在九龍城裁判法院分別被判處監禁38天至48天，以及罰款1000元至1200元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm)
 
 ---

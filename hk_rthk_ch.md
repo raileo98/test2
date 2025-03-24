@@ -1,3 +1,51 @@
+# 港股下午開市後偏軟
+
+![港股偏軟，恒生指數較早時報23667點，跌22點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797137_1_20250324130737.jpg&q=75)
+  
+
+港股偏軟，恒生指數較早時報23667點，跌22點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm)
+
+---
+
+# 韓悳洙恢復南韓代總統職務　強調民眾已對兩極化政治明確說不
+
+![韓悳洙強調，民眾已對兩極化政治明確說不。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797136_1_20250324130726.jpg&q=90)
+  
+
+南韓憲法法院駁回國務總理韓悳洙彈劾案，韓悳洙即時恢復代總統職務。崔相穆同時停止代總統身份。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797136-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797136-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797136-20250324.htm)
+
+---
+
 # 商務部國際貿易談判副代表稱將推動互聯網及文化等領域有序開放
 
   
