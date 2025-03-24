@@ -1,3 +1,26 @@
+# 公安部副部長陳思源：化解基層矛盾糾紛有助防範刑事案件發生
+
+  
+
+去年11月，內地接連發生兩宗導致多人死傷的殺人事件，內地稱為「一殺多」案件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797131-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797131-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797131-20250324.htm)
+
+---
+
 # 彭麗媛到北京市日壇中學調研學校結核病防治工作
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796637-20250320.htm)
-
----
-
-# 外交部：中國對不同國籍被告一視同仁　加方應停止干涉中國司法
-
-![毛寧說，中國對不同國籍的被告人一視同仁，依法保障當事人的合法權利。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796636_1_20250320175303.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧表示，打擊毒品犯罪是各國的共同責任，中國是法治國家，對不同國籍的被告人一視同仁，嚴格依法公正處理，依法保障當事人的合法權利和加拿大方面的領事權利。加方應尊重法治精神，停止干涉中國的司法主權。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm)
 
 ---

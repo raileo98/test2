@@ -72,7 +72,7 @@ Want to see vampires travelling through time and space? Local art space Para Sit
 
 # HK strives to attain carbon neutrality: Tse Chin-wan
 
-![The government is expanding the city's electric vehicle charging network, and will stop selling private cars that run on gasoline or diesel by 2035. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797124_1_20250324120907.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797124_1_20250324120907.jpg&q=80)
   
 
 Environment minister Tse Chin-wan said on Monday that Hong Kong will continue to strive for carbon neutrality by 2050, highlighting the SAR’s multi-pronged plan to achieve this goal.

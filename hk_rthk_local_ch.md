@@ -1,3 +1,49 @@
+# 立法會8月暑期休會　11及12月不編排會議
+
+  
+
+立法會秘書處公布下半年議程，7月至10月期間舉行例行會議，但8月將暑期休會，至於11月及12月不編排任何會議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797133-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797133-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797133-20250324.htm)
+
+---
+
+# 延續有時首席勞工事務主任職位　孫玉菡稱因維護國安有長期需要
+
+  
+
+勞工及福利局提出保留勞工處一個首席勞工事務主任有時限編外職位，為期3年，領導勞工處轄下的職工會登記局及勞資協商促進科。立法會人力事務委員會開會後，提交財委會人事編制小組委員會再作討論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797132-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797132-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797132-20250324.htm)
+
+---
+
 # 羅淑佩主持體育委員會會議後下午5時半見傳媒
 
   
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796958-20250322.htm)
-
----
-
-# 全港近4000間公司與大廈及地標建築物響應「地球一小時」活動
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796956_1_20250322205227.jpg&q=80)
-  
-
-維港兩岸多座建築物響應一年一度的「地球一小時」活動，晚上8時30分「熄燈」一小時。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796956-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796956-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796956-20250322.htm)
-
----
-
-# 林定國鼓勵私營機構參考政府合約加入調解條款　推廣調解為先文化
-
-![林定國說，朋輩調解能為雙方提供一個公平表達意見的平台，促進溝通和理解。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796955_1_20250322203344.jpg&q=90)
-  
-
-律政司司長林定國說，為了深化調解文化，政府以身作則，自今年2月6日起，有關在政府合約中加入調解條款的政策正式生效，表示政府和當事人同意在訴諸仲裁或訴訟前，先嘗試調解解決爭議，期望透過牽頭在政府合約中加入調解條款，鼓勵私營機構參考並在其合約中加入類近的調解條款，進一步推廣「調解為先」的文化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm)
 
 ---

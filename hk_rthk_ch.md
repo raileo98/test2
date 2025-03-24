@@ -1,3 +1,95 @@
+# 延續有時首席勞工事務主任職位　孫玉菡稱因維護國安有長期需要
+
+  
+
+勞工及福利局提出保留勞工處一個首席勞工事務主任有時限編外職位，為期3年，領導勞工處轄下的職工會登記局及勞資協商促進科。立法會人力事務委員會開會後，提交財委會人事編制小組委員會再作討論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797132-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797132-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797132-20250324.htm)
+
+---
+
+# 公安部副部長陳思源：化解基層矛盾糾紛有助防範刑事案件發生
+
+  
+
+去年11月，內地接連發生兩宗導致多人死傷的殺人事件，內地稱為「一殺多」案件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797131-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797131-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797131-20250324.htm)
+
+---
+
+# 羅淑佩主持體育委員會會議後下午5時半見傳媒
+
+  
+
+文化體育及旅遊局局長羅淑佩今日主持體育委員會會議後，將在下午5時30分在政府總部會見傳媒。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm)
+
+---
+
+# 林奮強：倘不改革公營醫療收費　難以持續應付人口老化
+
+  
+
+醫管局管治及架構改革委員會成員林奮強表示，本港公營醫療開支及需求都很大，已達「臨界點」，政府的醫療補貼比率亦比其他地方高，如果不改革公營醫療收費，難以持續應付人口老化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797129-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797129-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797129-20250324.htm)
+
+---
+
 # 港股半日跌27點　中石化及國藥績後偏軟
 
 ![恒生指數中午收市報23662點，跌27點，跌幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797125_1_20250324120954.jpg&q=10)
@@ -1343,102 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm)
-
----
-
-# 許勤訪西九文化區　參觀兩個博物館
-
-![許勤（左二）與唐英年（右二）等人於M+合影。（唐英年提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797056_1_20250323212057.jpg&q=85)
-![許勤亦參觀香港故宮文化博物館。（唐英年提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797056_2_20250323212057.jpg&q=85)
-  
-
-黑龍江省委書記許勤昨日到西九文化區參觀，西九文化區管理局董事局主席唐英年、行政總裁馮程淑儀及香港故宮文化博物館館長吳志華，向許勤講解文化區的發展情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm)
-
----
-
-# 香港打吡大賽逾6.1萬人入沙田馬場創賽事新高
-
-![馬場導賞團吸引不少內地旅客參加。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797055_1_20250323212139.jpg&q=85)
-  
-
-沙田馬場今日舉行香港打吡大賽，賽事吸引近7.2萬人入場，當中沙田入場人數為超過6.1萬人，內地及海外旅客的入場人數超過9000人，兩者均創下歷來香港打吡大賽新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm)
-
----
-
-# 印尼有周刊收到裝有豬頭鼠屍包裹　團體籲維護新聞自由
-
-![印尼有周刊收到裝有豬頭鼠屍包裹　團體籲維護新聞自由](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797054_1_20250323204535.jpg&q=90)
-  
-
-印尼一份批評政府的周刊近日收到裝有豬頭和斷頭老鼠屍體的包裹，有團體呼籲維護印尼的新聞自由，並要求調查事件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797054-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797054-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797054-20250323.htm)
-
----
-
-# 李強晤美國聯邦參議員戴安斯　稱中美關係發展到新的重要節點
-
-![李強在北京會見美國聯邦參議員戴安斯及部分美國企業界人士。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797053_1_20250323205041.jpg&q=90)
-  
-
-國務院總理李強在北京會見來華出席中國發展高層論壇2025年年會的美國聯邦參議員戴安斯及部分美國企業界人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm)
 
 ---
