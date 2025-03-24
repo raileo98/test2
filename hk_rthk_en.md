@@ -1,3 +1,27 @@
+# Coleman Wong loses to Adam Walton in Miami Open
+
+![Coleman Wong loses to Adam Walton in Miami Open](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797228_1_20250325043929.jpg&q=90)
+  
+
+Hong Kong's rising tennis star Coleman Wong has fallen short of a third round victory at this year's Miami Open.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797228-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797228-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797228-20250325.htm)
+
+---
+
 # Local airlines to ban in-flight charger use
 
 ![Using or recharging portable chargers during flights will be banned from April 7. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797203_1_20250324210630.jpg&q=90)
@@ -1414,29 +1438,5 @@ A secondary school said on Saturday that some students and teachers taking part 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm)
-
----
-
-# Durant scores 42 as Suns eclipse Cavs
-
-![Phoenix Suns forward Kevin Durant soars above Cleveland Cavaliers forward De'Andre Hunter. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796939_1_20250322180740.jpg&q=90)
-  
-
-Kevin Durant scored 42 points as the Phoenix Suns reignited their playoff hopes with a 123-112 upset of the Eastern Conference-leading Cleveland Cavaliers on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796939-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796939-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796939-20250322.htm)
 
 ---
