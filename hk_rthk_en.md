@@ -1,3 +1,27 @@
+# Journalist included in Houthi strike messaging group
+
+![Hours before those attacks started, US defence secretary Pete Hegseth posted operational details about the plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797229_1_20250325050810.jpg&q=90)
+  
+
+Top Trump administration officials, including US Vice President JD Vance and Secretary of Defence Pete Hegseth, mistakenly included a journalist in a messaging group discussing strikes against Yemen's Iran-aligned Houthis, according to a firsthand account by The Atlantic magazine.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797229-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797229-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797229-20250325.htm)
+
+---
+
 # Coleman Wong loses to Adam Walton in Miami Open
 
 ![Coleman Wong loses to Adam Walton in Miami Open](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797228_1_20250325043929.jpg&q=90)
@@ -1414,29 +1438,5 @@ Heathrow Airport said it was "fully operational" on Saturday but delays and canc
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm)
-
----
-
-# More school exchange tour members fall ill on mainland
-
-![The secondary school says the affected students and teachers are on an exchange tour to Zhaoqing. Photo: Po Leung Kuk Lo Kit Sing (1983) College's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796941_1_20250322181019.jpg&q=90)
-  
-
-A secondary school said on Saturday that some students and teachers taking part in an exchange tour on the mainland have fallen ill.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm)
 
 ---

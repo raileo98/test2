@@ -1,3 +1,27 @@
+# Journalist included in Houthi strike messaging group
+
+![Hours before those attacks started, US defence secretary Pete Hegseth posted operational details about the plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797229_1_20250325050810.jpg&q=90)
+  
+
+Top Trump administration officials, including US Vice President JD Vance and Secretary of Defence Pete Hegseth, mistakenly included a journalist in a messaging group discussing strikes against Yemen's Iran-aligned Houthis, according to a firsthand account by The Atlantic magazine.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797229-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797229-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797229-20250325.htm)
+
+---
+
 # Thai PM set to survive no-confidence vote
 
 ![Paetongtarn Shinawatra attends the first day of the no-confidence motion against her. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797189_1_20250324183239.jpg&q=80)
@@ -1412,29 +1436,5 @@ Talks on a ceasefire in Russia's conflict with Ukraine will continue on Sunday i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm)
-
----
-
-# Kyiv sees air raids hours after Trump-Putin call
-
-![Searchlights hunt for drones during a Russian raid in Kyiv after Donald Trump spoke with Vladimir Putin. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796372_1_20250319103135.jpg&q=90)
-  
-
-Ukraine on Wednesday accused Russia of effectively rejecting a US-backed ceasefire proposal, reporting a barrage of strikes on civilian infrastructure hours after Moscow agreed only to pause attacks on the energy grid.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796372-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796372-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796372-20250319.htm)
 
 ---
