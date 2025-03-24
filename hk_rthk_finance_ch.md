@@ -1,3 +1,27 @@
+# 韓股偏軟收市　結束5連升
+
+![首爾綜合指數收報2632點，跌11點，跌幅0.42%，結束5連升。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797147_1_20250324145054.jpg&q=90)
+  
+
+南韓股市收市偏軟，結束5連升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797147-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797147-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797147-20250324.htm)
+
+---
+
 # 日股收市偏軟
 
 ![日經指數收市報37608點，跌68點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797144_1_20250324143651.jpg&q=70)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm)
-
----
-
-# 李家超：今年內完成港深創新及科技園區第二期詳細規劃
-
-![李家超表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796833_1_20250321194247.jpg&q=25)
-  
-
-行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm)
 
 ---

@@ -1,7 +1,7 @@
 # Subsidy level for public healthcare 'unsustainable'
 
 ![Franklin Lam is confident people will not be deterred from seeking medical help even after healthcare subsidies are capped. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797138_1_20250324131612.jpg&q=90)
-![Public doctor Christopher Lung is calling for clear guidelines for frontline medics to handle future fee-related arguments with patients. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797138_2_20250324131612.jpg&q=80)
+![Public Doctors' Association chairman Christopher Lung is calling for clear guidelines for frontline medics to handle future fee-related arguments with patients. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797138_2_20250324131612.jpg&q=80)
   
 
 There's no way Hong Kong's public healthcare system will be sustainable in the long term if the government continues to subsidise nearly all of the expenses, according to an adviser tasked with reforming the body managing the hospitals.

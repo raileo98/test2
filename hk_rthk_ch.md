@@ -1,3 +1,27 @@
+# 韓股偏軟收市　結束5連升
+
+![首爾綜合指數收報2632點，跌11點，跌幅0.42%，結束5連升。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797147_1_20250324145054.jpg&q=90)
+  
+
+南韓股市收市偏軟，結束5連升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797147-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797147-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797147-20250324.htm)
+
+---
+
 # 湖南耒水上游地區鉈排放濃度超標　郴州及耒陽當局稱飲用水安全
 
 ![湖南耒水上游地區鉈排放濃度超標　郴州及耒陽當局稱飲用水安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797146_1_20250324144507.jpg&q=90)
