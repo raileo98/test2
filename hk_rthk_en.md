@@ -1,3 +1,51 @@
+# Mark Carney calls snap Canadian election
+
+![Canadian Prime Minister Mark Carney announced the move at a news conference in Ottawa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797074_1_20250324055036.jpg&q=90)
+  
+
+New Canadian Prime Minister Mark Carney on Sunday called a snap election for April 28, saying he needed a strong mandate to deal with the threat posed by US President Donald Trump, who "wants to break us so America can own us."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm)
+
+---
+
+# Cavs snap four-game losing skid; sink Jazz in Utah
+
+![The victory snapped the Cavs' longest losing streak of the season at four games. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797085_1_20250324080912.jpg&q=85)
+  
+
+NBA Eastern Conference leader Cleveland snapped a four-game losing streak with a balanced scoring performance in a 120-91 victory at Utah.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm)
+
+---
+
 # France, Spain through to Nations League semis on pens
 
 ![Mike Maignan was the hero for France in the penalty shoot-out against Croatia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797081_1_20250324074010.jpg&q=90)
@@ -1390,53 +1438,5 @@ The Hong Kong Metropolitan University on Friday launched a new online library th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm)
-
----
-
-# Cathay Pacific cancels flights to London
-
-![Some Cathay passengers said they were frustrated with the airline's arrangements. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796782_2_20250321161341.jpg&q=90)
-  
-
-Cathay Pacific said on Friday it cancelled two flights from Hong Kong to London, due to the temporary closure of Heathrow Airport.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm)
-
----
-
-# Diaz Hernandez takes first gold in Nanjing
-
-![Andy Diaz Hernandez celebrates after winning the men’s triple jump final during the Indoor World Athletics Championships in Nanjing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796776_1_20250321140117.jpg&q=85)
-  
-
-Italy's Olympic bronze medallist Andy Diaz Hernandez produced a stunning early effort of 17.8 metres to capture the triple jump gold medal in the first final of the world indoor athletics championships on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm)
 
 ---

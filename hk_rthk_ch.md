@@ -1,3 +1,123 @@
+# 韓股初段跌約0.2%
+
+![首爾綜合指數較早時報2638點，跌4點，跌幅0.16%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797088_1_20250324083329.jpg&q=90)
+  
+
+南韓股市初段偏軟，首爾綜合指數較早時報2638點，跌4點，跌幅0.16%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797088-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797088-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797088-20250324.htm)
+
+---
+
+# 日股倒跌　回吐早段逾160點升幅
+
+![日經指數開市後曾升至37841點，升逾160點，較早時倒跌25點，報37651點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797087_1_20250324083245.jpg&q=85)
+  
+
+日股先升後回，日經指數開市後曾升至37841點，升逾160點，較早時倒跌25點，報37651點，跌幅0.07%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797087-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797087-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797087-20250324.htm)
+
+---
+
+# 石破茂計劃出席大阪世博會下月12日的開幕儀式
+
+![大阪世博會下月開幕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797086_1_20250324081838.jpg&q=90)
+  
+
+共同社報道，首相石破茂計劃出席大阪關西世博會下月12日舉行的開幕儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797086-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797086-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797086-20250324.htm)
+
+---
+
+# 中原周末十大屋苑二手成交減至8宗　美聯增至12宗
+
+![中原及美聯周末十大屋苑二手成交個別發展，中原減至8宗，美聯則增至12宗，創4個周末新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797084_1_20250324075913.jpg&q=85)
+  
+
+在剛過去周末，本港兩大地產代理十大屋苑二手成交個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797084-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797084-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797084-20250324.htm)
+
+---
+
+# 招金礦業折讓近6%配股集資近20億元
+
+![招金礦業擬折讓約5.9%，配股集資逾19.8億元，用於補充營運資金及償還銀行貸款。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797083_1_20250324075039.jpg&q=85)
+  
+
+招金礦業擬配售最多1.4億股新H股，佔經擴大後已發行股份約3.95%，佔經擴大後已發行H股4.86%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797083-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797083-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797083-20250324.htm)
+
+---
+
 # 北韓譴責美韓「自由護盾」聯合軍演
 
 ![美韓本月10日至20日進行大規模聯合軍演。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797082_1_20250324074744.jpg&q=65)
@@ -360,7 +480,7 @@
 
 ---
 
-# 中大研發自動化線控砌磚機械人投入運作
+# 中大研自動化線控砌磚機械人精準度較人手高　可應用至建道路屏障
 
 ![中大研發的自動化線控砌磚機械人用於重建校園内的再生園。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797064_1_20250324011548.jpg&q=65)
   
@@ -1318,125 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm)
-
----
-
-# 泰國抵港旅客行李藏有懷疑大麻花　於機場被捕
-
-![海關在機場一個寄艙行李檢獲的懷疑大麻花。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797012_2_20250323130909.jpg&q=90)
-  
-
-海關在機場偵破一宗販毒案，在一件行李內檢獲約10公斤、估計市值約220萬元的懷疑大麻花。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm)
-
----
-
-# 日本三重縣有巴士撞向路邊防風林1死21傷
-
-![日本三重縣有巴士撞向路邊防風林1死21傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797011_1_20250323122453.jpg&q=90)
-  
-
-日本三重縣南部一條高速公路發生巴士撞向路邊防風林的意外，造成1人死亡，21人受傷。中國駐名古屋總領事館向新華社確認，目前並無中國籍人員傷亡報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm)
-
----
-
-# 南韓多地接連發生大規模山火　造成4死6傷　逾千人疏散
-
-![南韓多地的山火持續蔓延，當局出動直升機協助滅火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797010_1_20250323115116.jpg&q=90)
-  
-
-南韓多地接連發生大規模山火，至今造成4人死亡，6人受傷，其中5人傷勢嚴重，另外大約1500人疏散。山林廳上調針對忠清南道、全羅道、慶尚道的國家森林火災危機預警至最高的嚴重級別，政府宣布慶尚南道、慶尚北道、蔚山市進入災難狀態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm)
-
----
-
-# 香港母乳庫逾百位捐贈者　下階段服務將分發至新生兒深切治療部
-
-![黃明沁表示，母乳含有抗體和免疫因子，可保護嬰兒免受感染，對嬰兒來說是最好的食物，她呼籲社會支持捐贈。（政府新聞網）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797009_1_20250323113537.jpg&q=90)
-  
-
-位於香港兒童醫院的香港母乳庫今年1月初成立，至今招募到超過100位合資格捐贈者，收集超過300公升母乳，香港母乳庫總監黃明沁形容成果超乎預期，希望社會各界和各位媽媽支持這個計劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797009-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797009-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797009-20250323.htm)
-
----
-
-# 器官捐贈登記冊近40萬創新高　盧寵茂稱尚有進步空間籲踴躍登記
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797008_1_20250323114227.jpg&q=85)
-  
-
-本港目前有超過2600名器官衰竭患者等待器官移植，醫務衞生局局長盧寵茂表示，現時器官捐贈中央登記名冊數字接近40萬，創歷史新高，呼籲市民繼續踴躍登記。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797008-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797008-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797008-20250323.htm)
 
 ---

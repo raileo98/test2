@@ -1,3 +1,27 @@
+# Cavs snap four-game losing skid; sink Jazz in Utah
+
+![The victory snapped the Cavs' longest losing streak of the season at four games. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797085_1_20250324080912.jpg&q=85)
+  
+
+NBA Eastern Conference leader Cleveland snapped a four-game losing streak with a balanced scoring performance in a 120-91 victory at Utah.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm)
+
+---
+
 # France, Spain through to Nations League semis on pens
 
 ![Mike Maignan was the hero for France in the penalty shoot-out against Croatia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797081_1_20250324074010.jpg&q=90)
@@ -1414,29 +1438,5 @@ Shai Gilgeous-Alexander scored 34 points as the Oklahoma City Thunder punched th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795528-20250313.htm)
-
----
-
-# Axelsen suffers shock defeat at All England Open
-
-![Axelsen was unable to hold on for the victory despite dominating the second set. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795505_1_20250313081101.jpg&q=90)
-  
-
-Former badminton world number one Viktor Axelsen suffered a shock first-round defeat to Chinese Taipei's Lin Chun-yi at the All England Open.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795505-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795505-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795505-20250313.htm)
 
 ---

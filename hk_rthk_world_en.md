@@ -1,3 +1,27 @@
+# Mark Carney calls snap Canadian election
+
+![Canadian Prime Minister Mark Carney announced the move at a news conference in Ottawa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797074_1_20250324055036.jpg&q=90)
+  
+
+New Canadian Prime Minister Mark Carney on Sunday called a snap election for April 28, saying he needed a strong mandate to deal with the threat posed by US President Donald Trump, who "wants to break us so America can own us."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm)
+
+---
+
 # Hamas official killed as Gaza death toll passes 50,000
 
 ![Palestinians attend the funeral of Hamas political leader Salah al-Bardaweel. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797059_1_20250323233123.jpg&q=80)
@@ -1411,29 +1435,5 @@ US President Donald Trump and Russian President Vladimir Putin agreed on Tuesday
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796323-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796323-20250319.htm)
-
----
-
-# Pain, anger grip N Macedonia town after fire tragedy
-
-![People light candles in tribute to the victims of a massive night club fire in Skopje. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796305_1_20250318224701.jpg&q=85)
-  
-
-Despair mixed with anger in Kocani, North Macedonia on Tuesday in the wake of a horrific nightclub fire that left dozens dead and even more injured, prompting demands for justice.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796305-20250318.htm)
 
 ---

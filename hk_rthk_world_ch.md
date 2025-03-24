@@ -1,3 +1,27 @@
+# 石破茂計劃出席大阪世博會下月12日的開幕儀式
+
+![大阪世博會下月開幕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797086_1_20250324081838.jpg&q=90)
+  
+
+共同社報道，首相石破茂計劃出席大阪關西世博會下月12日舉行的開幕儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797086-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797086-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797086-20250324.htm)
+
+---
+
 # 北韓譴責美韓「自由護盾」聯合軍演
 
 ![美韓本月10日至20日進行大規模聯合軍演。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797082_1_20250324074744.jpg&q=65)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm)
-
----
-
-# 王毅晤日本外相　強調應正視歷史並積極推動關係改善和發展
-
-![外長王毅與日本外相岩屋毅在東京會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796922_1_20250322145841.jpg&q=90)
-  
-
-中共中央政治局委員兼外長王毅，與日本外相岩屋毅在東京會面，討論雙邊關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm)
 
 ---

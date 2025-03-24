@@ -1,3 +1,99 @@
+# 韓股初段跌約0.2%
+
+![首爾綜合指數較早時報2638點，跌4點，跌幅0.16%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797088_1_20250324083329.jpg&q=90)
+  
+
+南韓股市初段偏軟，首爾綜合指數較早時報2638點，跌4點，跌幅0.16%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797088-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797088-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797088-20250324.htm)
+
+---
+
+# 日股倒跌　回吐早段逾160點升幅
+
+![日經指數開市後曾升至37841點，升逾160點，較早時倒跌25點，報37651點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797087_1_20250324083245.jpg&q=85)
+  
+
+日股先升後回，日經指數開市後曾升至37841點，升逾160點，較早時倒跌25點，報37651點，跌幅0.07%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797087-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797087-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797087-20250324.htm)
+
+---
+
+# 中原周末十大屋苑二手成交減至8宗　美聯增至12宗
+
+![中原及美聯周末十大屋苑二手成交個別發展，中原減至8宗，美聯則增至12宗，創4個周末新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797084_1_20250324075913.jpg&q=85)
+  
+
+在剛過去周末，本港兩大地產代理十大屋苑二手成交個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797084-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797084-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797084-20250324.htm)
+
+---
+
+# 招金礦業折讓近6%配股集資近20億元
+
+![招金礦業擬折讓約5.9%，配股集資逾19.8億元，用於補充營運資金及償還銀行貸款。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797083_1_20250324075039.jpg&q=85)
+  
+
+招金礦業擬配售最多1.4億股新H股，佔經擴大後已發行股份約3.95%，佔經擴大後已發行H股4.86%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797083-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797083-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797083-20250324.htm)
+
+---
+
 # 國藥控股去年盈利跌22%　收入減少2%
 
 ![國藥控股去年盈利70.5億元人民幣，按年跌22%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797080_1_20250324073303.jpg&q=80)
@@ -1341,101 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm)
-
----
-
-# 招金礦業去年盈利升1.1倍
-
-![招金礦業去年盈利14.5億元人民幣，按年升1.1倍。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796768_1_20250321130553.jpg&q=85)
-  
-
-招金礦業去年盈利14.5億元人民幣，按年升1.1倍，由於金價上升及產銷量增加。派現金股息每股5分人民幣，按年升25%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796768-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796768-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796768-20250321.htm)
-
----
-
-# 華潤飲料去年多賺23%
-
-![怡寶母公司華潤飲料去年盈利16.4億元人民幣，按年升23%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796759_1_20250321123608.jpg&q=85)
-  
-
-華潤飲料去年盈利16.4億元人民幣，按年升23%。派末期息每股30.7分人民幣，另派特別息17.6分。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796759-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796759-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796759-20250321.htm)
-
----
-
-# 中國建築去年盈利升2%
-
-![中國建築去年盈利93.6億港元，按年升2.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796756_1_20250321121428.jpg&q=90)
-  
-
-中國建築去年盈利93.6億港元，按年升2.1%。派末期息每股28.5港仙，全年派息61.5港仙，按年升9.8%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796756-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796756-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796756-20250321.htm)
-
----
-
-# 港股下午初段跌約500點
-
-![恒生指數較早時報23751點，跌468點，跌幅1.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796769_1_20250321130731.jpg&q=75)
-  
-
-港股下午初段持續向下，恒生指數較早時報23751點，跌468點，跌幅1.94%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796769-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796769-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796769-20250321.htm)
 
 ---
