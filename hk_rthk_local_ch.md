@@ -1,7 +1,10 @@
 # 羅淑佩：Cityline必須交代印錯票事件　做好應變工作
 
-![羅淑佩表示，Cityline必須交代印錯票事件。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797184_1_20250324175825.jpg&q=90)
+![羅淑佩表示，Cityline必須交代印錯票事件。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797184_1_20250324180806.jpg&q=90)
   
+
+英國著名樂隊Coldplay下月在啟德體育園的巡迴演唱會，其中的1399元企位門票部分資料出錯，觀眾需要更換新版門票。文化體育及旅遊局局長羅淑佩表示，要由涉事的售票平台Cityline自行解釋事件為何出錯。
+
   
 
 
