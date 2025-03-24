@@ -1,3 +1,27 @@
+# 特朗普強調格陵蘭或成美國部分　丹麥斥美方訪島反映不恰當慾望
+
+![特朗普形容，格陵蘭對美國國家安全很重要。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797225_1_20250325025321.jpg&q=90)
+  
+
+美國總統特朗普再次強調，他認為丹麥自治領土格陵蘭可能會成為美國未來的一部分，形容對美國國家安全很重要。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797225-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797225-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797225-20250325.htm)
+
+---
+
 # 土耳其總統批評抗議活動變成暴力運動　逾千人被拘留
 
 ![伊斯坦布爾連續第六晚有民眾上街。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797224_1_20250325022503.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796983-20250323.htm)
-
----
-
-# 以軍空襲黎巴嫩南部提爾市造成1死7傷
-
-![以軍攔截來自黎巴嫩的火箭彈後，炮擊和空襲黎巴嫩南部作為回應。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796982_1_20250323031707.jpg&q=80)
-  
-
-以色列軍方空襲黎巴嫩南部提爾市，黎巴嫩衛生部緊急行動中心說，以軍當地周六晚發動空襲，已造成1人死亡，7人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796982-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796982-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796982-20250323.htm)
 
 ---

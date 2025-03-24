@@ -1,3 +1,27 @@
+# 特朗普強調格陵蘭或成美國部分　丹麥斥美方訪島反映不恰當慾望
+
+![特朗普形容，格陵蘭對美國國家安全很重要。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797225_1_20250325025321.jpg&q=90)
+  
+
+美國總統特朗普再次強調，他認為丹麥自治領土格陵蘭可能會成為美國未來的一部分，形容對美國國家安全很重要。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797225-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797225-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797225-20250325.htm)
+
+---
+
 # 土耳其總統批評抗議活動變成暴力運動　逾千人被拘留
 
 ![伊斯坦布爾連續第六晚有民眾上街。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797224_1_20250325022503.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm)
-
----
-
-# 駐港國安公署座談會　學習貫徹習近平講話回顧展望國安條例實施
-
-![駐港國家安全公署表示，昨日舉辦《維護國家安全條例》刊憲實施一周年座談會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797149_1_20250324151248.jpg&q=80)
-  
-
-駐港國家安全公署表示，昨日舉辦《維護國家安全條例》刊憲實施一周年座談會，深入學習貫徹國家主席習近平關於港澳工作的重要講話精神和中央決策部署，回顧展望國安條例實施，強調堅持以香港高水平安全保障高質量發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm)
 
 ---
