@@ -1,3 +1,27 @@
+# 日股收市偏軟
+
+![日經指數收市報37608點，跌68點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797144_1_20250324143651.jpg&q=70)
+  
+
+東京股市偏軟。日經指數收市報37608點，跌68點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797144-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797144-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797144-20250324.htm)
+
+---
+
 # 台股低收約0.5%
 
 ![台灣加權指數朝早曾升171點，收市報22106點，跌102點，跌幅0.46%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797140_1_20250324140700.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796833-20250321.htm)
-
----
-
-# 世界50最佳酒吧頒獎禮首落戶香港　10月連同美酒佳餚巡禮登場
-
-![旅發局宣布，成功爭取全球酒吧業年度盛事「世界50最佳酒吧」2025頒獎典禮，首度落戶香港。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796822_1_20250321182134.jpg&q=85)
-  
-
-旅發局宣布，成功爭取全球酒吧業年度盛事「世界50最佳酒吧」2025頒獎典禮，首度落戶香港，於今年10月8日在啟德郵輪碼頭舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796822-20250321.htm)
 
 ---

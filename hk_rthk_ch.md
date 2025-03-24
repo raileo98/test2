@@ -1,3 +1,27 @@
+# 日股收市偏軟
+
+![日經指數收市報37608點，跌68點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797144_1_20250324143651.jpg&q=70)
+  
+
+東京股市偏軟。日經指數收市報37608點，跌68點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797144-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797144-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797144-20250324.htm)
+
+---
+
 # 就任半年的泰國總理佩通坦首次面對國會不信任動議
 
 ![佩通坦上半年來，首次面對國會提出不信任動議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797143_1_20250324143156.jpg&q=90)
@@ -428,7 +452,7 @@
 
 ---
 
-# 公開展示商業顆伴個人資料　73歲男子涉違反私隱條例被捕
+# 公開展示商業夥伴個人資料　73歲男子涉違反私隱條例被捕
 
 ![男子涉嫌在未經資料當事人的同意下，披露個人資料，違反《個人資料（私隱）條例》的規定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797120_1_20250324120040.jpg&q=80)
   
