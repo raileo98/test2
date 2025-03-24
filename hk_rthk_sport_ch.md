@@ -1,3 +1,26 @@
+# 羅淑佩主持體育委員會會議後下午5時半見傳媒
+
+  
+
+文化體育及旅遊局局長羅淑佩今日主持體育委員會會議後，將在下午5時30分在政府總部會見傳媒。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm)
+
+---
+
 # 歐國聯4強產生德國對葡萄牙　西班牙硬撼法國
 
 ![基斯坦奴朗拿度帶領葡萄牙晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797079_1_20250324072025.jpg&q=90)
@@ -1430,31 +1453,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794662-20250307.htm)
-
----
-
-# 歐霸盃16強首回合熱刺不敵阿爾克馬爾　曼聯被皇蘇逼和
-
-![熱刺首回合輸波。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794655_1_20250307070916.jpg&q=90)
-![曼聯在領先下被皇蘇逼和。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794655_2_20250307070916.jpg&q=90)
-![車路士的安素費南迪斯今仗攻入一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794655_3_20250307070916.jpg&q=90)
-  
-
-歐霸盃16強首回合，熱刺因為一個烏龍球，作客0:1不敵阿爾克馬爾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1794655-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794655-20250307.htm](https://news.rthk.hk/rthk/ch/component/k2/1794655-20250307.htm)
 
 ---

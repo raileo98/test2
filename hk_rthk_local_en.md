@@ -1,4 +1,28 @@
-# Coldplay ticket exchanges 'could be deal with by post'
+# 'Public flat tenants will have ample time to move out'
+
+![The Housing Authority's Cleresa Wong expects at least a few hundred flats could be released after rules are tightened. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797127_1_20250324121128.jpg&q=80)
+  
+
+The Housing Authority on Monday said well-off public housing tenants will be given sufficient time to move out of their flats once rules are tightened.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm)
+
+---
+
+# Coldplay ticket fixes 'could be dealt with by post'
 
 ![Ticket exchange booths in Hong Kong and the mainland are open from today until April 7. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797121_1_20250324115705.jpg&q=90)
   
@@ -1417,29 +1441,5 @@ Education authorities on Tuesday stressed that plans to slash funding for univer
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796300-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796300-20250318.htm)
-
----
-
-# Hong Kong's jobless numbers edge up
-
-![The jobless rate rises were mostly seen in food and beverage, transport, construction and professional and business services, excluding cleaning. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796260_2_20250318175643.jpg&q=85)
-  
-
-Hong Kong's jobless rate has increased slightly as authorities warned about the "uncertainties" caused by US trade protection measures going forward.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796260-20250318.htm)
 
 ---

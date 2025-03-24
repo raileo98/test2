@@ -1,3 +1,49 @@
+# 羅淑佩主持體育委員會會議後下午5時半見傳媒
+
+  
+
+文化體育及旅遊局局長羅淑佩今日主持體育委員會會議後，將在下午5時30分在政府總部會見傳媒。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm)
+
+---
+
+# 林奮強：倘不改革公營醫療收費　難以持續應付人口老化
+
+  
+
+醫管局管治及架構改革委員會成員林奮強表示，本港公營醫療開支及需求都很大，已達「臨界點」，政府的醫療補貼比率亦比其他地方高，如果不改革公營醫療收費，難以持續應付人口老化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797129-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797129-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797129-20250324.htm)
+
+---
+
 # 港股半日跌27點　中石化及國藥績後偏軟
 
 ![恒生指數中午收市報23662點，跌27點，跌幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797125_1_20250324120954.jpg&q=10)
@@ -1389,54 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796955-20250322.htm)
-
----
-
-# 陳茂波鼓勵內企利用香港拓展全球業務　在港開設更多實體銷售網絡
-
-![陳茂波（右二）到訪了一家內地領先的潮流文化娛樂公司，並與負責人會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_2_20250322202451.jpg&q=85)
-![陳茂波（右二）到訪一家專注於高精度人工智能產品研發應用的企業。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_1_20250322202451.jpg&q=85)
-  
-
-財政司司長陳茂波鼓勵內地企業利用香港國際化的資金、人才和專業服務，將業務拓展至全球，亦歡迎公司在香港開設更多實體銷售網絡，以及開拓更多元服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm)
-
----
-
-# 鄧炳強：要以居安思危意識及守正創新思維　推動香港全面發展
-
-![鄧炳強表示，推動《基本法》23條立法是他工作生涯的最大挑戰。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796950_1_20250322205138.jpg&q=90)
-  
-
-《維護國家安全條例》生效一年，保安局局長鄧炳強表示，推動《基本法》23條立法是他工作生涯的最大挑戰，他與律政司司長及副司長3人拼盡全力去做，當條例獲立法會通過，大家都覺得值得。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796950-20250322.htm)
 
 ---

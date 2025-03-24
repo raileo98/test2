@@ -1,4 +1,28 @@
-# Coldplay ticket exchanges 'could be deal with by post'
+# 'Public flat tenants will have ample time to move out'
+
+![The Housing Authority's Cleresa Wong expects at least a few hundred flats could be released after rules are tightened. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797127_1_20250324121128.jpg&q=80)
+  
+
+The Housing Authority on Monday said well-off public housing tenants will be given sufficient time to move out of their flats once rules are tightened.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm)
+
+---
+
+# Coldplay ticket fixes 'could be dealt with by post'
 
 ![Ticket exchange booths in Hong Kong and the mainland are open from today until April 7. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797121_1_20250324115705.jpg&q=90)
   
@@ -1414,29 +1438,5 @@ Financial Secretary Paul Chan said on Friday a strategic partnership between the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm)
-
----
-
-# 'Record number of deaths on migration routes in 2024'
-
-![The UN has recorded a total of 2,452 people dying in the Mediterranean Sea, the main gateway for those trying to reach Europe. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796832_1_20250321183806.jpg&q=90)
-  
-
-Last year was the deadliest year for migrants, with nearly 9,000 people dying worldwide, the United Nations said on Friday, calling the "tragedy... unacceptable and preventable".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm)
 
 ---
