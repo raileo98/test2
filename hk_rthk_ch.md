@@ -1,5 +1,53 @@
+# 有市民到尖沙咀更換出錯Coldplay門票　稱主辧方須改善
+
+  
+
+英國樂隊Coldplay下月在啟德體育園的巡迴演唱會，因部分門票資料出錯，要更換新版門票。售票公司CityLine即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797122-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797122-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797122-20250324.htm)
+
+---
+
+# 內地股市向下　滬深股市半日跌約0.3%至0.4%
+
+![內地股市下跌，上證綜合指數中午收市報3356點，跌8點，跌幅0.25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797118_1_20250324114532.jpg&q=90)
+  
+
+內地股市下跌，算力租賃及軍工類股份向下；旅遊酒店、有色金屬、銀行及保險等金融股都向好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797118-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797118-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797118-20250324.htm)
+
+---
+
 # 公開展示商業顆伴個人資料　73歲男子涉違反私隱條例被捕
 
+![男子涉嫌在未經資料當事人的同意下，披露個人資料，違反《個人資料（私隱）條例》的規定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797120_1_20250324120040.jpg&q=80)
   
 
 個人資料私隱專員公署在港島區拘捕一名73歲中國籍男子，涉嫌在未經資料當事人的同意下，披露個人資料，違反《個人資料（私隱）條例》的規定，被捕人士獲准保釋。
@@ -23,6 +71,7 @@
 
 # 5款新藥按新機制獲批註冊　其中兩款價格下降3成至3成半
 
+![衞生署表示，今年第一季推出「1+」藥物審批機制申請前的會面諮詢服務，以提升處理申請效率。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797119_1_20250324115954.jpg&q=90)
   
 
 醫管局總藥劑師崔俊明表示，「1+」藥物審批機制生效以來，共5款新藥按機制獲批准註冊，包括治療轉移性大腸癌、屬罕見病的陣發性夜間血紅素尿症，經成本評估小組談判後，這兩款藥物價格分別下降3成至3成半，每年節省1500萬元至2400萬元不等。
@@ -46,6 +95,7 @@
 
 # 謝展寰：第一座垃圾焚化爐預計今年底投入運作
 
+![謝展寰表示，力爭在2035年前，減少一半的碳排放量，在2050年前實現碳中和。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797117_1_20250324115914.jpg&q=80)
   
 
 環境及生態局局長謝展寰在「香港氣候論壇」致辭，表示香港作為沿海城市，特別容易受到熱帶氣旋和水位上升等極端天氣影響，當局有應對策略，包括加強關鍵結構，更新設計標準，以符合最新的氣候情況。
@@ -92,6 +142,7 @@
 
 # 國家生態環境部官員稱中國擴大利用再生能源包括太陽能和風力發電
 
+![夏應顯提到，中國政府在造林方面作出很大的努力，減碳工作亦取得成果。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797114_1_20250324115846.jpg&q=80)
   
 
 環境及生態局與香港大學合辦「香港氣候論壇」，國家生態環境部應對氣候變化司司長夏應顯致辭時表示，外界有指今年全球氣溫會達到上升1.5 度的臨界點，目前還未能確定是否真的去到這臨界點，但氣候變化是真實的，大家必須應對這項挑戰。對中國來說，就是要繼續實現低碳和綠色轉型，他們已提出相關政策。
@@ -1390,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm)
-
----
-
-# 中大醫院證實手術室天花曾漏水　不屬須呈報衞生署類別
-
-![香港中文大學醫院證實，醫院一個日間手術室早前在手術進行期間，曾出現天花板漏水情況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797048_1_20250323201426.jpg&q=85)
-  
-
-香港中文大學醫院證實，醫院一個日間手術室早前在手術進行期間，曾出現天花板漏水情況，當時手術已進行最後階段，醫護團隊當時已即時作出適當措施，確保病人手術不受影響，而病人於術後亦獲適當監察及護理，術後情況沒有受影響並已康復。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm)
-
----
-
-# 方濟各啟程返回梵蒂岡　出院前透過醫院病房窗口向信眾揮手致意
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797047_1_20250323193650.jpg&q=90)
-  
-
-因肺炎留醫羅馬傑梅利醫院的教宗方濟各，在醫院病房透過窗口，向信眾揮手致意，並送上祝福，是他入院5個多星期以來，首次公開露面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm)
 
 ---

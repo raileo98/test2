@@ -1,5 +1,29 @@
+# 有市民到尖沙咀更換出錯Coldplay門票　稱主辧方須改善
+
+  
+
+英國樂隊Coldplay下月在啟德體育園的巡迴演唱會，因部分門票資料出錯，要更換新版門票。售票公司CityLine即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797122-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797122-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797122-20250324.htm)
+
+---
+
 # 公開展示商業顆伴個人資料　73歲男子涉違反私隱條例被捕
 
+![男子涉嫌在未經資料當事人的同意下，披露個人資料，違反《個人資料（私隱）條例》的規定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797120_1_20250324120040.jpg&q=80)
   
 
 個人資料私隱專員公署在港島區拘捕一名73歲中國籍男子，涉嫌在未經資料當事人的同意下，披露個人資料，違反《個人資料（私隱）條例》的規定，被捕人士獲准保釋。
@@ -23,6 +47,7 @@
 
 # 5款新藥按新機制獲批註冊　其中兩款價格下降3成至3成半
 
+![衞生署表示，今年第一季推出「1+」藥物審批機制申請前的會面諮詢服務，以提升處理申請效率。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797119_1_20250324115954.jpg&q=90)
   
 
 醫管局總藥劑師崔俊明表示，「1+」藥物審批機制生效以來，共5款新藥按機制獲批准註冊，包括治療轉移性大腸癌、屬罕見病的陣發性夜間血紅素尿症，經成本評估小組談判後，這兩款藥物價格分別下降3成至3成半，每年節省1500萬元至2400萬元不等。
@@ -46,6 +71,7 @@
 
 # 謝展寰：第一座垃圾焚化爐預計今年底投入運作
 
+![謝展寰表示，力爭在2035年前，減少一半的碳排放量，在2050年前實現碳中和。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797117_1_20250324115914.jpg&q=80)
   
 
 環境及生態局局長謝展寰在「香港氣候論壇」致辭，表示香港作為沿海城市，特別容易受到熱帶氣旋和水位上升等極端天氣影響，當局有應對策略，包括加強關鍵結構，更新設計標準，以符合最新的氣候情況。
@@ -69,6 +95,7 @@
 
 # 國家生態環境部官員稱中國擴大利用再生能源包括太陽能和風力發電
 
+![夏應顯提到，中國政府在造林方面作出很大的努力，減碳工作亦取得成果。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797114_1_20250324115846.jpg&q=80)
   
 
 環境及生態局與香港大學合辦「香港氣候論壇」，國家生態環境部應對氣候變化司司長夏應顯致辭時表示，外界有指今年全球氣溫會達到上升1.5 度的臨界點，目前還未能確定是否真的去到這臨界點，但氣候變化是真實的，大家必須應對這項挑戰。對中國來說，就是要繼續實現低碳和綠色轉型，他們已提出相關政策。
@@ -1412,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796944-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796944-20250322.htm)
-
----
-
-# 吊臂車吊臂撞架空電纜令輕鐵服務一度受阻　司機被捕
-
-![列車服務於上午11時許逐步恢復正常。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796943_1_20250322183731.jpg&q=80)
-  
-
-天水圍有夾斗吊臂車的吊臂撞到輕鐵天悅站附近的架空電纜，輕鐵服務一度受阻。經過大約4小時復修後，列車服務於上午11時許逐步恢復正常。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796943-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796943-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796943-20250322.htm)
 
 ---
