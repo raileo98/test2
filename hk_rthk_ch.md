@@ -1,5 +1,76 @@
+# 港股半日跌27點　中石化及國藥績後偏軟
+
+![恒生指數中午收市報23662點，跌27點，跌幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797125_1_20250324120954.jpg&q=10)
+  
+
+港股反覆偏軟，恒生指數中午收市報23662點，跌27點，跌幅0.12%，半日主板成交額約1275億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm)
+
+---
+
+# 統計處4月至7月進行小型試驗統計調查　抽選9千個住戶參與
+
+  
+
+統計處將於下月1日至7月31日期間進行一項小型試驗統計調查，測試2026年人口普查的問卷設計和運作，以及就相關安排徵詢住戶意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797126-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797126-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797126-20250324.htm)
+
+---
+
+# 花卉展覽派花卉活動結束　康文署籲市民不要往維園取花
+
+  
+
+康文署宣布，香港花卉展覽在環保回收日向公眾派發花卉的活動已經結束，市民不要前往維園排隊等候取花。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797123-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797123-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797123-20250324.htm)
+
+---
+
 # 有市民到尖沙咀更換出錯Coldplay門票　稱主辧方須改善
 
+![售票公司CityLine即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797122_1_20250324120631.jpg&q=90)
   
 
 英國樂隊Coldplay下月在啟德體育園的巡迴演唱會，因部分門票資料出錯，要更換新版門票。售票公司CityLine即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。
@@ -66,30 +137,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797120-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797120-20250324.htm)
-
----
-
-# 5款新藥按新機制獲批註冊　其中兩款價格下降3成至3成半
-
-![衞生署表示，今年第一季推出「1+」藥物審批機制申請前的會面諮詢服務，以提升處理申請效率。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797119_1_20250324115954.jpg&q=90)
-  
-
-醫管局總藥劑師崔俊明表示，「1+」藥物審批機制生效以來，共5款新藥按機制獲批准註冊，包括治療轉移性大腸癌、屬罕見病的陣發性夜間血紅素尿症，經成本評估小組談判後，這兩款藥物價格分別下降3成至3成半，每年節省1500萬元至2400萬元不等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm)
 
 ---
 
@@ -1393,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797052-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797052-20250323.htm)
-
----
-
-# 内地直播帶貨公司「三隻羊」整改符合要求　具備恢復經營條件
-
-![合肥市政府通報，經全面評估後，認為「三隻羊」公司整改符合要求，具備恢復經營條件。（合肥市政府網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797051_1_20250323201115.jpg&q=90)
-  
-
-内地直播帶貨公司「三隻羊」去年因虛假宣傳，被勒令停業整改。安徽合肥市政府通報，經全面評估後，認為「三隻羊」公司整改符合要求，具備恢復經營條件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797051-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797051-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797051-20250323.htm)
-
----
-
-# 羅傑承中學21師生往肇慶交流出現腸胃炎徵狀　8人染諾如病毒
-
-![21名師生參加肇慶交流團期間出現與諾如病毒感染吻合的病徵。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797049_1_20250323201458.jpg&q=85)
-  
-
-保良局羅傑承（一九八三）中學21名師生參加肇慶交流團期間出現與諾如病毒感染吻合的病徵，當中18人曾在當地求醫，全部情況穩定並已出院，其中8人對諾如病毒呈陽性反應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm)
 
 ---

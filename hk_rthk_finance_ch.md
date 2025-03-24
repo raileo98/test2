@@ -1,3 +1,27 @@
+# 港股半日跌27點　中石化及國藥績後偏軟
+
+![恒生指數中午收市報23662點，跌27點，跌幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797125_1_20250324120954.jpg&q=10)
+  
+
+港股反覆偏軟，恒生指數中午收市報23662點，跌27點，跌幅0.12%，半日主板成交額約1275億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm)
+
+---
+
 # 內地股市向下　滬深股市半日跌約0.3%至0.4%
 
 ![內地股市下跌，上證綜合指數中午收市報3356點，跌8點，跌幅0.25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797118_1_20250324114532.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796817-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796817-20250321.htm)
-
----
-
-# 中遠海運港口去年少賺約5%　總吞吐量升6%
-
-![中遠海運港口去年盈利3.09億美元，按年跌4.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796816_1_20250321173218.jpg&q=90)
-  
-
-中遠海運港口去年盈利3.09億美元，按年跌4.8%。派第二次中期股息每股14.2港仙，按年跌8.4%，可以股代息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796816-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796816-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796816-20250321.htm)
 
 ---

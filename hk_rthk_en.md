@@ -1,3 +1,27 @@
+# HK strives to attain carbon neutrality: Tse Chin-wan
+
+![The government is expanding the city's electric vehicle charging network, and will stop selling private cars that run on gasoline or diesel by 2035. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797124_1_20250324120907.jpg&q=80)
+  
+
+Environment minister Tse Chin-wan said on Monday that Hong Kong will continue to strive for carbon neutrality by 2050, highlighting the SAR’s multi-pronged plan to achieve this goal.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm)
+
+---
+
 # Donnarumma error puts Germany in Nations League semis
 
 ![Germany's Jamal Musiala, right, celebrates his goal with Joshua Kimmich, who provided the assist. Photo: DPA/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797116_1_20250324113927.jpg&q=90)
@@ -1414,29 +1438,5 @@ A "gobsmacked" Lewis Hamilton obliterated the Shanghai lap record to take a stun
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm)
-
----
-
-# Govt to make room for private sector in high-tech park
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796807_2_20250321173255.jpg&q=90)
-  
-
-Chief Executive John Lee said the government will soon offer land for private development in Hong Kong-Shenzhen Innovation and Technology Park, now that the first three buildings in zone's Hong Kong Park have been completed.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm)
 
 ---

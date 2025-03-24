@@ -1,3 +1,51 @@
+# Local art space takes Art Basel on vampire adventure
+
+![Para Site's executive director Billy Tang says he wants to bring new perspectives to Art Basel. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797128_1_20250324121452.jpg&q=80)
+  
+
+Want to see vampires travelling through time and space? Local art space Para Site is turning Art Basel's film section into a sci-fi wonderland.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm)
+
+---
+
+# HK strives to attain carbon neutrality: Tse Chin-wan
+
+![The government is expanding the city's electric vehicle charging network, and will stop selling private cars that run on gasoline or diesel by 2035. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797124_1_20250324120907.jpg&q=80)
+  
+
+Environment minister Tse Chin-wan said on Monday that Hong Kong will continue to strive for carbon neutrality by 2050, highlighting the SAR’s multi-pronged plan to achieve this goal.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm)
+
+---
+
 # Euro chamber head encouraged by meeting with Xia
 
 ![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing last week. File photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797113_1_20250324111447.jpg&q=90)
@@ -1393,53 +1441,5 @@ The Hong Kong Observatory on Tuesday said residents can expect hotter weather th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796261-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796261-20250318.htm)
-
----
-
-# ERB to offer new courses to highly educated trainees
-
-![The Employees Retraining Board says it has been actively promoting skills-based training. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796244_1_20250318161327.jpg&q=85)
-  
-
-The Employees Retraining Board (ERB) on Tuesday said it will step up collaboration with tertiary institutions this year to provide advanced courses for people with a higher education level.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796244-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796244-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796244-20250318.htm)
-
----
-
-# 22 arrested over alleged mortgage referral bribes
-
-![Grace Yee says she believes the case only involves a few bad apples at individual banks. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796247_1_20250318162219.jpg&q=90)
-  
-
-The ICAC on Tuesday said 22 people have been arrested on suspicion of accepting bribes and helping intermediaries defraud banks of mortgage referral fees.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796247-20250318.htm)
 
 ---
