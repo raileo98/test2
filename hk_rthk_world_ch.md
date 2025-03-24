@@ -1,3 +1,27 @@
+# 韓悳洙：竭盡智慧和力量應對貿易戰　籲朝野黨派實現合作
+
+![韓悳洙復職後向南韓國民發表講話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797155_1_20250324153129.jpg&q=90)
+  
+
+南韓憲法法院駁回國會對韓悳洙的彈劾案，韓悳洙停職87天後即時恢復國務總理及代總統職權。他復職後向國民發表講話，呼籲朝野黨派實現合作，克服當前國家面臨的危機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm)
+
+---
+
 # 尹錫悅涉嫌發動內亂案4月14日首次公審
 
 ![尹錫悅涉嫌發動內亂案4月14日首次公審。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797148_1_20250324150229.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796953-20250322.htm)
-
----
-
-# 尼日爾軍政府指西部省份發生恐襲最少44死　全國哀悼3日
-
-![尼日爾軍政府指西部省份發生恐襲最少44死　全國哀悼3日](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796951_1_20250322204009.jpg&q=90)
-  
-
-尼日爾軍政府指西部發生恐怖襲擊，最少44名平民遇害、13人受傷，其中4人傷勢嚴重。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm)
 
 ---

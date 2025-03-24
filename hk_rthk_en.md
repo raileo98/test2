@@ -576,9 +576,9 @@ Ticket sales for the Hong Kong Rugby Sevens are breaking records less than one w
 
 ---
 
-# Traveller arrested for carrying 10kg of cannabis buds
+# Traveller held 'for carrying 10kg of cannabis buds'
 
-![The man was found carrying 10 kilograms of suspected cannabis buds in his suitcase. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797038_1_20250323172952.jpg&q=85)
+![Authorities say the man was carrying 10 kilograms of suspected cannabis buds in his suitcase. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797038_1_20250323172952.jpg&q=85)
   
 
 Customs have arrested an inbound traveller at the airport for allegedly smuggling cannabis buds into Hong Kong.

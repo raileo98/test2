@@ -1,3 +1,27 @@
+# 韓悳洙：竭盡智慧和力量應對貿易戰　籲朝野黨派實現合作
+
+![韓悳洙復職後向南韓國民發表講話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797155_1_20250324153129.jpg&q=90)
+  
+
+南韓憲法法院駁回國會對韓悳洙的彈劾案，韓悳洙停職87天後即時恢復國務總理及代總統職權。他復職後向國民發表講話，呼籲朝野黨派實現合作，克服當前國家面臨的危機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm)
+
+---
+
 # 盧寵茂明日公布公營醫療服務收費改革詳情
 
   
