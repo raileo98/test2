@@ -1,3 +1,27 @@
+# 特朗普宣布將對購買委內瑞拉油氣的國家徵收25%關稅
+
+![特朗普經常指責拉美國家向美國輸送犯罪分子。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797220_1_20250325003813.jpg&q=90)
+  
+
+美國總統特朗普宣布，將會對購買委內瑞拉石油和天然氣的國家徵收25%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm)
+
+---
+
 # 王文濤晤蘋果行政總裁　支持外企產品公平參與以舊換新擴消費政策
 
 ![商務部部長王文濤會見美國蘋果公司行政總裁庫克。（商務部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797219_1_20250325001521.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797144-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797144-20250324.htm)
-
----
-
-# 就任半年的泰國總理佩通坦首次面對國會不信任動議
-
-![佩通坦上任半年來，首次面對國會提出不信任動議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797143_1_20250324143156.jpg&q=90)
-  
-
-泰國總理佩通坦就任半年來，首次面對國會提出不信任動議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm)
 
 ---

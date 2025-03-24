@@ -1,3 +1,27 @@
+# 特朗普宣布將對購買委內瑞拉油氣的國家徵收25%關稅
+
+![特朗普經常指責拉美國家向美國輸送犯罪分子。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797220_1_20250325003813.jpg&q=90)
+  
+
+美國總統特朗普宣布，將會對購買委內瑞拉石油和天然氣的國家徵收25%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm)
+
+---
+
 # 王文濤晤蘋果行政總裁　支持外企產品公平參與以舊換新擴消費政策
 
 ![商務部部長王文濤會見美國蘋果公司行政總裁庫克。（商務部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797219_1_20250325001521.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796980-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796980-20250323.htm)
-
----
-
-# 黎巴嫩總理警告南部局勢升級或引發戰爭
-
-![以軍炮擊後，黎巴嫩南部升起濃煙。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796979_1_20250323012800.jpg&q=90)
-  
-
-黎巴嫩總理薩拉姆警告，如果黎巴嫩南部邊境地區軍事活動持續升級，黎巴嫩可能被拖入一場「新的毀滅性戰爭」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796979-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796979-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796979-20250323.htm)
 
 ---
