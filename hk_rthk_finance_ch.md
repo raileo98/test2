@@ -1,3 +1,122 @@
+# 李家超明日赴海南出席博鰲亞洲論壇年會　將於論壇致辭
+
+  
+
+行政長官李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm)
+
+---
+
+# 滬深股市初段靠穩
+
+![上證指數較早時報3369點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797098_1_20250324094021.jpg&q=90)
+  
+
+內地股市初段靠穩，上證指數較早時報3369點，升5點，升幅0.15%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797098-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797098-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797098-20250324.htm)
+
+---
+
+# 人行逆回購1350億元人民幣　連續兩日淨回籠
+
+![人行公開市場開展1350億元人民幣7天期逆回購操作，單日淨回籠3460億元，連續兩日淨回籠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797095_1_20250324093840.jpg&q=75)
+  
+
+人民銀行公開市場開展1350億元人民幣7天期逆回購操作，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797095-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797095-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797095-20250324.htm)
+
+---
+
+# 港股競價時段升59點　科指升0.45%
+
+![恒生指數競價時段報23749點，升59點，升幅0.25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797094_1_20250324092308.jpg&q=45)
+  
+
+港股高開，恒生指數競價時段報23749點，升59點，升幅0.25%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797094-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797094-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797094-20250324.htm)
+
+---
+
+# 人民幣兌美元中間價創逾兩個月新低
+
+![人民幣中間價報7.178兌1美元，較上星期五收市價跌20點子，創逾兩個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797091_1_20250324091847.jpg&q=80)
+  
+
+人民幣中間價報7.178兌1美元，較上星期五收市價跌20點子，創逾兩個月新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797091-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797091-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797091-20250324.htm)
+
+---
+
 # 綠城中國開市前停牌
 
 ![綠城中國今早9時起停牌，股份上周五收市報12.08元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797090_1_20250324090837.jpg&q=90)
@@ -1316,126 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796788-20250321.htm)
-
----
-
-# 30億推前沿科技研究資助　李家超稱香港憑硬件及軟實力創造機遇
-
-![李家超說，聯盟成立證明了集體智慧的力量，展現開放交流的承諾。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_1_20250321154937.jpg&q=80)
-![李家超、葉玉如、孫東及張翔等出席活動主持儀式。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796786_2_20250321154937.jpg&q=90)
-  
-
-國際院士聯盟成立，行政長官李家超出席儀式時致辭時透露，將會很快推出金額涉及30億元的前沿科技研究資助計劃，資助由世界級研究人員和學者推動開創性基礎研究。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796786-20250321.htm)
-
----
-
-# 內地股市低收逾1%至逾2%　全星期累計亦跌
-
-![內地股市低收逾1%至逾2%，本周累計亦跌近2%至逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796784_1_20250321150709.jpg&q=90)
-  
-
-內地股市低收逾1%至逾2%，人形機器人、汽車產業鏈股份下跌，中藥、航運、海工裝備概念股造好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796784-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796784-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796784-20250321.htm)
-
----
-
-# 韓股高收0.23%　創近1個月新高
-
-![首爾綜合指數收報2643點，升6點，升幅0.23%，連升5日，創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796781_1_20250321143811.jpg&q=90)
-  
-
-南韓股市連升5日，創近1個月新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796781-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796781-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796781-20250321.htm)
-
----
-
-# 日股低收0.2%　本周累計升約1.7%
-
-![日經指數尾市回吐，收報37677點，跌74點，跌幅0.2%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796780_1_20250321143528.jpg&q=85)
-  
-
-日股尾市扭轉早段升幅，日經指數最多曾升約220點，高見37968點，收報37677點，跌74點，跌幅0.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796780-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796780-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796780-20250321.htm)
-
----
-
-# 台股低收0.75%
-
-![加權指數收報22209點，跌168點，跌幅0.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796777_1_20250321141041.jpg&q=90)
-  
-
-台股低收，加權指數收報22209點，跌168點，跌幅0.75%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796777-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796777-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796777-20250321.htm)
 
 ---

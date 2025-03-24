@@ -1,3 +1,51 @@
+# 訪華美參議員戴安斯：北京不制止芬太尼輸美　中美貿易談判難推動
+
+![戴安斯（左）訪華期間與總理李強等會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797099_1_20250324100417.jpg&q=90)
+  
+
+在中國訪問的美國國會參議員戴安斯說，北京必須制止芬太尼毒品流入美國，否則美中之間難以就關稅和非關稅障礙進行任何對話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm)
+
+---
+
+# 南韓憲法法院駁回總理韓悳洙彈劾案　韓悳洙即時恢復代總統職位
+
+![韓悳洙彈劾案被駁回，韓聯社報道，他即時恢復代總統職位。(路透社資料圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797096_1_20250324094203.jpg&q=90)
+  
+
+南韓憲法法院駁回國務總理韓悳洙彈劾案，韓聯社報道，韓悳洙即時恢復代總統職位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797096-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797096-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797096-20250324.htm)
+
+---
+
 # 石破茂計劃出席大阪世博會下月12日的開幕儀式
 
 ![大阪世博會下月開幕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797086_1_20250324081838.jpg&q=90)
@@ -1388,52 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796928-20250322.htm)
-
----
-
-# 王毅晤林芳正　冀日方樹立正確對華認知並於重大問題排除雜音干擾
-
-  
-
-中共中央政治局委員、外長王毅在東京，會見日本內閣官房長官林芳正。王毅說中方願意與日方共同落實國家主席習近平與日本首相石破茂之前在利馬會晤達成的重要共識，按照中日四個政治文件全面推進戰略互惠關係；文件就妥善處理歷史與台灣問題，立下規矩，希望日方樹立正確對華認知，在重大原則問題上重信守諾，排除雜音干擾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796926-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796926-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796926-20250322.htm)
-
----
-
-# 王毅稱中日韓要深化經貿合作　推動科技創新及擴大人文交流
-
-![中日韓外長在東京會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796924_1_20250322154611.jpg&q=90)
-  
-
-中日韓在東京舉行外長會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm)
 
 ---

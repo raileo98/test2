@@ -1,5 +1,30 @@
+# 李家超明日赴海南出席博鰲亞洲論壇年會　將於論壇致辭
+
+  
+
+行政長官李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm)
+
+---
+
 # 林奮強指政府醫療開支大達臨界點　醫生組織冀當局多作解說免爭拗
 
+![龍振邦亦認為，有需要調整收費，否則服務難以維持。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797092_2_20250324092545.jpg&q=80)
+![消息指，政府目標本月內公布公營醫療收費調整方案細節。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797092_3_20250324092545.jpg&q=80)
   
 
 政府目標本月內公布公營醫療收費調整方案細節。醫管局管治及架構改革委員會成員林奮強指出，現時政府補貼佔整個醫管局支出超過97%，重申改革收費目的為盡量精準利用有限資源，提高對重症危疾的保障。
@@ -50,7 +75,7 @@
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797064_1_20250324011548.jpg&q=65)
   
 
-中大研發的自動化線控砌磚機械人投入運作，用於重建校園内的再生園。
+中大研發的自動化線控砌磚機械人投入運作，用於重建校園內的再生園。
 
   
 
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796919-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796919-20250322.htm)
-
----
-
-# 香港花卉展覽明晚9時閉幕　大會料將向市民派約3500盆花卉
-
-![在維園舉行的香港花卉展覽，明日晚上9時閉幕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796917_1_20250322145448.jpg&q=40)
-  
-
-在維園舉行的香港花卉展覽，明日晚上9時閉幕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796917-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796917-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796917-20250322.htm)
 
 ---

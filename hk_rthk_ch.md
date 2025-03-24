@@ -1,5 +1,201 @@
+# 李家超明日赴海南出席博鰲亞洲論壇年會　將於論壇致辭
+
+  
+
+行政長官李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm)
+
+---
+
+# 訪華美參議員戴安斯：北京不制止芬太尼輸美　中美貿易談判難推動
+
+![戴安斯（左）訪華期間與總理李強等會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797099_1_20250324100417.jpg&q=90)
+  
+
+在中國訪問的美國國會參議員戴安斯說，北京必須制止芬太尼毒品流入美國，否則美中之間難以就關稅和非關稅障礙進行任何對話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm)
+
+---
+
+# 滬深股市初段靠穩
+
+![上證指數較早時報3369點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797098_1_20250324094021.jpg&q=90)
+  
+
+內地股市初段靠穩，上證指數較早時報3369點，升5點，升幅0.15%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797098-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797098-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797098-20250324.htm)
+
+---
+
+# 人行逆回購1350億元人民幣　連續兩日淨回籠
+
+![人行公開市場開展1350億元人民幣7天期逆回購操作，單日淨回籠3460億元，連續兩日淨回籠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797095_1_20250324093840.jpg&q=75)
+  
+
+人民銀行公開市場開展1350億元人民幣7天期逆回購操作，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797095-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797095-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797095-20250324.htm)
+
+---
+
+# 南韓憲法法院駁回總理韓悳洙彈劾案　韓悳洙即時恢復代總統職位
+
+![韓悳洙彈劾案被駁回，韓聯社報道，他即時恢復代總統職位。(路透社資料圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797096_1_20250324094203.jpg&q=90)
+  
+
+南韓憲法法院駁回國務總理韓悳洙彈劾案，韓聯社報道，韓悳洙即時恢復代總統職位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797096-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797096-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797096-20250324.htm)
+
+---
+
+# 港股競價時段升59點　科指升0.45%
+
+![恒生指數競價時段報23749點，升59點，升幅0.25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797094_1_20250324092308.jpg&q=45)
+  
+
+港股高開，恒生指數競價時段報23749點，升59點，升幅0.25%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797094-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797094-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797094-20250324.htm)
+
+---
+
+# 內地從重從快處理「一殺多」案　政法官員稱公正司法保障被告權益
+
+![全國政協社會和法制委員會副主任、最高人民法院前副院長楊萬明說，打擊犯罪有助維護社會穩定。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797093_3_20250324093312.jpg&q=75)
+![政協委員、公安部副部長孫茂利說，老百姓之間總有不同的想法，重點是更多、更好減少糾紛。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797093_1_20250324093312.jpg&q=75)
+![全國人大代表、廣東省高級人民法院院長張海波說，要提升處理「一殺多」案的效率。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797093_2_20250324093312.jpg&q=80)
+![全國政協委員、公安部副部長陳思源認為，「楓橋經驗」有助防範刑事案件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797093_4_20250324093312.jpg&q=75)
+  
+
+在全國兩會上，最高人民檢察院和最高人民法院的工作報告，均點名提到去年底在珠海和無錫發生的「一殺多」案件被告，指依法從重從快處理，形容震懾犯罪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797093-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797093-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797093-20250324.htm)
+
+---
+
+# 人民幣兌美元中間價創逾兩個月新低
+
+![人民幣中間價報7.178兌1美元，較上星期五收市價跌20點子，創逾兩個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797091_1_20250324091847.jpg&q=80)
+  
+
+人民幣中間價報7.178兌1美元，較上星期五收市價跌20點子，創逾兩個月新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797091-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797091-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797091-20250324.htm)
+
+---
+
 # 林奮強指政府醫療開支大達臨界點　醫生組織冀當局多作解說免爭拗
 
+![龍振邦亦認為，有需要調整收費，否則服務難以維持。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797092_2_20250324092545.jpg&q=80)
+![消息指，政府目標本月內公布公營醫療收費調整方案細節。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797092_3_20250324092545.jpg&q=80)
   
 
 政府目標本月內公布公營醫療收費調整方案細節。醫管局管治及架構改革委員會成員林奮強指出，現時政府補貼佔整個醫管局支出超過97%，重申改革收費目的為盡量精準利用有限資源，提高對重症危疾的保障。
@@ -556,7 +752,7 @@
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797064_1_20250324011548.jpg&q=65)
   
 
-中大研發的自動化線控砌磚機械人投入運作，用於重建校園内的再生園。
+中大研發的自動化線控砌磚機械人投入運作，用於重建校園內的再生園。
 
   
 
@@ -1245,197 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm)
-
----
-
-# 黃澤林在邁阿密網球精英賽挫世界排名14舒爾頓　形容勝利屬香港
-
-![黃澤林淘汰世界排名14的美國球手舒爾頓，晉級邁阿密網球公開賽第三圈。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797027_1_20250323160316.jpg&q=90)
-  
-
-美國邁阿密網球公開賽，香港網球「一哥」黃澤林，在男單次圈以盤數2:1，淘汰世界排名14的美國球手舒爾頓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm)
-
----
-
-# 盧煜明稱香港正值創科「黃金時期」　冀更多「尖子」來港發展
-
-![盧煜明形容，現時是香港創科的「黃金時期」，科創投入大增。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797026_1_20250323160615.jpg&q=80)
-  
-
-有「無創產前檢測之父」之稱的中大校長盧煜明形容，現時是香港創科的「黃金時期」，科創投入大增。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797026-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797026-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797026-20250323.htm)
-
----
-
-# 慢病共治90名醫生停收新症　彭飛舟稱不同醫生業務或會有變化
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797025_1_20250323155748.jpg&q=85)
-  
-
-基層醫療健康專員彭飛舟表示，「慢性疾病共同治理先導計劃」有90名醫生停收新症。他解釋，不同醫生的業務可能有變化，例如在流感季節可能會較著重處理流感病人等，醫生甚至可能暫停接收新症，強調相關醫生會繼續跟進已配對的市民，又指當局一直與醫生有密切接觸，當他們完成調節業務後，可能會恢復接收新症。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm)
-
----
-
-# 日本Sukiya鳥取縣分店味噌湯中發現老鼠　公司致歉
-
-![Sukiya就鳥取縣分店味噌湯中發現老鼠事件道歉。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797023_1_20250323151453.jpg&q=90)
-  
-
-日本快餐連鎖店Sukiya表示，公司旗下鳥取縣一間分店在供應的一碗味噌湯中發現一隻老鼠，這間分店隨即停業，在當地公共衛生部門到場檢查後，恢復營業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm)
-
----
-
-# 積金局舉辦全國兩會精神分享會　梁振英冀更積極主動發揮作用
-
-![梁振英獲邀出席分享兩會主要內容，積金局及積金易公司逾600名員工實體和透過線上參與。（積金局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797022_1_20250323155726.jpg&q=90)
-  
-
-積金局日前舉辦「全國兩會精神」分享會，全國政協副主席梁振英獲邀出席分享兩會主要內容，積金局及積金易公司超過600名員工實體和透過線上參與。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm)
-
----
-
-# 蕭澤頤稱有些騙案是「當局者迷」　冀市民要提防及提醒身邊人
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797021_1_20250323154428.jpg&q=80)
-  
-
-警務處處長蕭澤頤表示，近數星期出現一些騙案令人感到愕然，例如有受害人在一年間被騙超過1300萬元，銀行及警方均曾提醒有關受害人留意是否遇到騙案，但受害人最終仍然被騙。他形容這些騙案，有時是「當局者迷、旁觀者清」，希望所有市民都要提防，並提醒身邊人留意。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797021-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797021-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797021-20250323.htm)
-
----
-
-# 回應有否用過DeepSeek　蘋果CEO庫克形容感覺很好
-
-![庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他形容感覺很好。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797019_2_20250323160553.jpg&q=90)
-  
-
-中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他回應「當然，感覺很好」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm)
-
----
-
-# 港深西部鐵路連接洪水橋至前海　陳美寶冀下半年發邀請意向書
-
-![陳美寶希望與深圳採取創新模式推進項目。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797018_1_20250323143932.jpg&q=80)
-  
-
-運輸及物流局局長陳美寶表示，連接洪水橋至深圳前海的港深西部鐵路項目，目標下半年發出邀請意向書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm)
 
 ---

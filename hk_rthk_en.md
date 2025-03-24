@@ -1,3 +1,27 @@
+# Police arrest 32 in raid on unlicensed bar in Central
+
+![Officers said those arrested were aged between 28 and 70. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797097_1_20250324093956.jpg&q=90)
+  
+
+Police on late Sunday arrested 32 people following a raid on a suspected unlicensed bar on Li Yuen Street West in Central.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797097-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797097-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797097-20250324.htm)
+
+---
+
 # Mark Carney calls snap Canadian election
 
 ![Canadian Prime Minister Mark Carney announced the move at a news conference in Ottawa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797074_1_20250324055036.jpg&q=90)
@@ -1414,29 +1438,5 @@ A global pop culture festival ComplexCon has returned to Hong Kong for a second 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796791-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796791-20250321.htm)
-
----
-
-# HKMU launches Cantonese opera translation library
-
-![The team behind the Cantonese opera translations says they pay special attention to the culture and history behind the stories. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796790_1_20250321154817.jpg&q=90)
-  
-
-The Hong Kong Metropolitan University on Friday launched a new online library that features English translations of classic Cantonese opera scripts.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm)
 
 ---

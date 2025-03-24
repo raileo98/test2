@@ -1,3 +1,77 @@
+# 李家超明日赴海南出席博鰲亞洲論壇年會　將於論壇致辭
+
+  
+
+行政長官李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm)
+
+---
+
+# 訪華美參議員戴安斯：北京不制止芬太尼輸美　中美貿易談判難推動
+
+![戴安斯（左）訪華期間與總理李強等會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797099_1_20250324100417.jpg&q=90)
+  
+
+在中國訪問的美國國會參議員戴安斯說，北京必須制止芬太尼毒品流入美國，否則美中之間難以就關稅和非關稅障礙進行任何對話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm)
+
+---
+
+# 內地從重從快處理「一殺多」案　政法官員稱公正司法保障被告權益
+
+![全國政協社會和法制委員會副主任、最高人民法院前副院長楊萬明說，打擊犯罪有助維護社會穩定。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797093_3_20250324093312.jpg&q=75)
+![政協委員、公安部副部長孫茂利說，老百姓之間總有不同的想法，重點是更多、更好減少糾紛。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797093_1_20250324093312.jpg&q=75)
+![全國人大代表、廣東省高級人民法院院長張海波說，要提升處理「一殺多」案的效率。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797093_2_20250324093312.jpg&q=80)
+![全國政協委員、公安部副部長陳思源認為，「楓橋經驗」有助防範刑事案件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797093_4_20250324093312.jpg&q=75)
+  
+
+在全國兩會上，最高人民檢察院和最高人民法院的工作報告，均點名提到去年底在珠海和無錫發生的「一殺多」案件被告，指依法從重從快處理，形容震懾犯罪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797093-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797093-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797093-20250324.htm)
+
+---
+
 # 李強：沒哪個國家的繁榮靠加關稅實現　只能靠開放靠合作
 
 ![李強會見美國國會參議員戴安斯及部分美國企業界人士。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797068_1_20250324031706.jpg&q=80)
@@ -1364,78 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796625-20250320.htm)
-
----
-
-# 香港航空客機行李架起火　片段顯示機艙服務員用樽裝水向行李淋水
-
-![多名機艙服務員和乘客打開行李架後，不斷用樽裝水和飲品向冒煙的行李淋水。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796614_1_20250320165136.jpg&q=90)
-![行李架內部及頂部部份位置被薰黑。（網上片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796614_2_20250320165136.jpg&q=90)
-  
-
-香港航空一架由杭州飛往香港的客機，飛行期間機艙的行李架起火，改道安全降落於福州長樂國際機場，火勢已撲滅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796614-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796614-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796614-20250320.htm)
-
----
-
-# 內地2月不包括在校生16至24歲青年失業率升至16.9%
-
-![內地2月不包括在校生16至24歲青年失業率升至16.9%，比1月上升0.8個百分點，創4個月新高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796569_1_20250320120233.jpg&q=85)
-  
-
-國家統計局數據顯示，2月全國城鎮不包括在校生的16至24歲勞動力失業率升至16.9%，比1月上升0.8個百分點，創4個月新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796569-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796569-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796569-20250320.htm)
-
----
-
-# 李慧琼稱臨時通行證提高人流便捷度　黃國盼擴展至用於出入境
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796575_2_20250320124530.jpg&q=80)
-  
-
-國家出入境管理局宣布，即日起為有需要的港澳台居民簽發臨時電子通行證，以及提供通行證與居住證「雙證關聯」檢驗服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796575-20250320.htm)
 
 ---
