@@ -1,3 +1,27 @@
+# 《環看天下》：希斯路機場一度關閉　基建後備設施不足惹質疑
+
+![希斯路機場附近一個變電站日前發生火警，影響機場供電。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797241_1_20250325071115.jpg&q=90)
+  
+
+英國倫敦希斯路機場上星期五因附近一個變電站發生大火導致停電，一度暫停運作10多小時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm)
+
+---
+
 # 美俄代表團結束在沙特會談　美烏代表據報周二再度會晤
 
 ![美俄代表團星期一在利雅得一間酒店舉行閉門會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797237_1_20250325062023.jpg&q=80)
@@ -1411,30 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796994-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796994-20250323.htm)
-
----
-
-# 土耳其民眾連續4晚示威　抗議伊斯坦布爾市長被捕
-
-![在伊斯坦布爾，民眾連續第4晚示威，抗議市長伊馬姆奧盧被捕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796990_1_20250323072356.jpg&q=85)
-![示威者與防暴警察衝突。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796990_2_20250323073117.jpg&q=80)
-  
-
-土耳其大批民眾連續第4晚示威，抗議最大城市伊斯坦布爾市長伊馬姆奧盧被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796990-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796990-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796990-20250323.htm)
 
 ---

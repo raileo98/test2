@@ -1,3 +1,27 @@
+# 小米折讓近7%配股集資426億元
+
+![小米計劃以先舊後新形式配股集資426億元，每股配售價53.25元，較昨日收市價折讓約6.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797240_1_20250325070145.jpg&q=90)
+  
+
+小米計劃以先舊後新形式，配股集資426億元，扣除開支後的集資淨額約425億元，主要用於加速業務擴張、研發投資以提升科技實力，以及用作其他一般公司用途。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797240-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797240-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797240-20250325.htm)
+
+---
+
 # 美元指數創近3星期新高　美元兌日圓升穿150
 
 ![美元指數升至近3星期新高，高見104.44，升約0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797238_1_20250325062622.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm)
-
----
-
-# 陳茂波稱國家踐行真正多邊主義　同時推動科技及產業創新融合
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797032_1_20250323174025.jpg&q=85)
-  
-
-在北京，財政司司長陳茂波表示，當前世界百年未有之大變局正加速演進，有幾個大的趨勢正深刻影響世界的政治格局和經濟發展。首先是保護主義和單邊主義的抬頭，為全球經濟帶來了巨大的不確定性和不穩定性。其次是「全球南方」經濟體的崛起。第三是科技創新，特別是人工智能技術的飛躍提升，正引發生產模式、商業模式和消費模式的變革。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm)
 
 ---

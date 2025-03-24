@@ -1,3 +1,51 @@
+# 小米折讓近7%配股集資426億元
+
+![小米計劃以先舊後新形式配股集資426億元，每股配售價53.25元，較昨日收市價折讓約6.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797240_1_20250325070145.jpg&q=90)
+  
+
+小米計劃以先舊後新形式，配股集資426億元，扣除開支後的集資淨額約425億元，主要用於加速業務擴張、研發投資以提升科技實力，以及用作其他一般公司用途。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797240-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797240-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797240-20250325.htm)
+
+---
+
+# 《環看天下》：希斯路機場一度關閉　基建後備設施不足惹質疑
+
+![希斯路機場附近一個變電站日前發生火警，影響機場供電。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797241_1_20250325071115.jpg&q=90)
+  
+
+英國倫敦希斯路機場上星期五因附近一個變電站發生大火導致停電，一度暫停運作10多小時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm)
+
+---
+
 # 美元指數創近3星期新高　美元兌日圓升穿150
 
 ![美元指數升至近3星期新高，高見104.44，升約0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797238_1_20250325062622.jpg&q=85)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797168-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797168-20250324.htm)
-
----
-
-# 內地男子涉嫌航機上盜竊被捕　乘客放置物櫃背囊被偷現金
-
-![一名內地男子涉嫌在航機上盜竊其他乘客的財物，被控一項「違反航空保安條例」罪。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797169_1_20250324171524.jpg&q=90)
-  
-
-一名內地男子涉嫌在航機上盜竊其他乘客的財物，被控一項「違反航空保安條例」罪，在西九龍裁判法院提堂。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm)
-
----
-
-# 外交部：從未收到所謂杜特爾特及家人向中國政府尋求庇護申請
-
-![杜特爾特被指任內打擊毒品犯罪活動時，觸犯危害人類罪，日前在馬尼拉機場被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797167_1_20250324163541.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，中方從未收到所謂菲律賓前總統杜特爾特及家人向中國政府尋求庇護的申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm)
 
 ---
