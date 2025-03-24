@@ -1,3 +1,27 @@
+# 大熊貓福寶周二於卧龍神樹坪基地與公眾見面
+
+![福寶將於星期二在卧龍神樹坪基地幼兒園2號館與公眾見面。（研究中心影片截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797217_1_20250324231243.jpg&q=90)
+  
+
+中國大熊貓保護研究中心宣布，經過100多日靜養，大熊貓福寶將於星期二在卧龍神樹坪基地幼兒園2號館與公眾見面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm)
+
+---
+
 # 韓正冀英國太古集團參與大灣區建設　瑞士諾華抓緊機遇拓展合作
 
 ![韓正分別會見英國太古集團行政總裁施銘倫及瑞士諾華公司首席執行官萬思瀚。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797206_1_20250324212520.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796846-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796846-20250321.htm)
-
----
-
-# 中證監：要持續完善資本市場基礎制度　堅持保護投資者導向
-
-![中證監稱要堅持服務實體經濟，支持新質生產力發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796842_1_20250321202837.jpg&q=90)
-  
-
-中國證監會就推進資本市場法治建設表示，要持續完善資本市場基礎制度體系，牢牢守住不發生系統性風險底線；堅持保護投資者的鮮明導向，不斷健全投資者保護制度機制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796842-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796842-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796842-20250321.htm)
 
 ---

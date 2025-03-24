@@ -1,3 +1,50 @@
+# 劉永松稱財政資助對運動員只屬輔助　冀透過運動產業化提供支撐
+
+  
+
+香港浸會大學運動及健康科學系教授劉永松表示，歡迎當局調整精英體育資助制度，讓桌球和網球可以繼續成為體育學院的「A級」精英項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797218-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797218-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797218-20250324.htm)
+
+---
+
+# 大熊貓福寶周二於卧龍神樹坪基地與公眾見面
+
+![福寶將於星期二在卧龍神樹坪基地幼兒園2號館與公眾見面。（研究中心影片截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797217_1_20250324231243.jpg&q=90)
+  
+
+中國大熊貓保護研究中心宣布，經過100多日靜養，大熊貓福寶將於星期二在卧龍神樹坪基地幼兒園2號館與公眾見面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm)
+
+---
+
 # 一艘漁船涉走私懷疑受管制乾魚翅及電子產品　4名船員被捕
 
 ![關員在船上一個暗格內檢獲部分懷疑走私電子產品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797216_1_20250324225402.jpg&q=90)
@@ -693,7 +740,7 @@
 
 ---
 
-# 桌球網球未來兩年續為A級精英項目　精英運動員下月增薪8.3%
+# 桌球網球未來兩年續為A級精英項目　精英運動員資助增8.3%
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797182_1_20250324174300.jpg&q=90)
   
