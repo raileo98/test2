@@ -1,3 +1,72 @@
+# 「1+」藥物審批機制增設會面前諮詢服務
+
+  
+
+衞生署今年第一季會推出「1+」藥物審批機制申請前會面諮詢服務，希望協助更多想將新藥帶來香港的藥廠，了解相關程序同香港的情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797191-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797191-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797191-20250324.htm)
+
+---
+
+# 消息：住院門診收費上限或每年1萬元　急症服務收費不多於4百元
+
+  
+
+政府明日公布公營醫療服務收費改革詳情。消息指，新收費最快明年1月起分3階段實施，包括增設住院門診收費上限，很大機會定於每人每年1萬元，並按年計算。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797190-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797190-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797190-20250324.htm)
+
+---
+
+# 中大用線控砌磚機械人　協助重建校內角落
+
+  
+
+香港中文大學研發一款自動化線控機械人，協助重建校園內一個角落。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797188-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797188-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797188-20250324.htm)
+
+---
+
 # 羅淑佩：Cityline必須交代印錯票事件　做好應變工作
 
 ![羅淑佩表示，Cityline必須交代印錯票事件。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797184_1_20250324180806.jpg&q=90)
@@ -1367,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797008-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797008-20250323.htm)
-
----
-
-# Coldplay香港演唱會門票更換事件　消委會暫接25宗投訴
-
-![消委會對事件表示關注，敦促Cityline盡快完成換票安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797007_1_20250323113735.jpg&q=85)
-  
-
-消委會表示，截至今早11時，接獲25宗有關Coldplay香港演唱會需更換門票的投訴，消委會對事件表示關注，敦促Cityline盡快完成換票安排，以保障受影響消費者的權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm)
-
----
-
-# 科技園：低空經濟「監管沙盒」試點項目實際操作冀下月有定論
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797003_1_20250323105219.jpg&q=90)
-  
-
-首批低空經濟「監管沙盒」部分試點項目下月率先推出，包括以科學園為試點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797003-20250323.htm)
-
----
-
-# 陳茂波：文化創意產業發展帶來龐大商機　香港擁許多獨特優勢
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797002_1_20250323103757.jpg&q=85)
-  
-
-一連兩日的「中國發展高層論壇」早上在北京召開，財政司司長陳茂波表示，應邀到北京出席論壇，並會在其中一個專題研討會上，就如何透過改革激發增長動能發表主旨演講。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797002-20250323.htm)
 
 ---

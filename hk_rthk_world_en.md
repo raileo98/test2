@@ -1,3 +1,27 @@
+# Thai PM set to survive no-confidence vote
+
+![Paetongtarn Shinawatra attends the first day of the no-confidence motion against her. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797189_1_20250324183239.jpg&q=80)
+  
+
+Thai Prime Minister Paetongtarn Shinawatra on Monday faced a no-confidence motion in parliament as the opposition alleged she was being unduly influenced by her father, a former prime minister, and is mismanaging the country.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm)
+
+---
+
 # Heathrow 'had enough power to stay open on Friday'
 
 ![The National Grid's boss, John Pettigrew, says either of the two other substations could have supplied the power to keep Heathrow open on Friday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797178_1_20250324172618.jpg&q=90)
@@ -1412,29 +1436,5 @@ Ukraine on Wednesday accused Russia of effectively rejecting a US-backed ceasefi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796372-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796372-20250319.htm)
-
----
-
-# Trump to unveil reciprocal tariffs on April 2
-
-![US Treasury Secretary Scott Bessent said if countries stop their practices, the US would not put up the tariff wall. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796362_1_20250319092836.jpg&q=90)
-  
-
-Washington is expected to present US trading partners on April 2 with a number representing their tariff and other barriers, as it unveils reciprocal levies tailored to each country, US Treasury Secretary Scott Bessent said on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm)
 
 ---

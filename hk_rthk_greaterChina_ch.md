@@ -1,3 +1,27 @@
+# 人行：本月起MLF操作採固定數量、利率招標、多重價位中標開展
+
+![人行明日將開展4500億元人民幣MLF操作，首度採用固定數量、利率招標、多重價位中標方式開展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797185_1_20250324175707.jpg&q=80)
+  
+
+人民銀行公布，明日將開展4500億元人民幣中期借貸便利（MLF）操作，為期1年，以保持銀行體系流動性充裕。今次MLF續做規模超過本月到期的3870億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm)
+
+---
+
 # 財政部：今年財政政策要更加積極　具體提高財政赤字率
 
 ![財政部發布報告指，今年財政政策要更加積極，包括具體提高財政赤字率、加大支出強度、加速支出進度等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797183_1_20250324174156.jpg&q=75)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm)
-
----
-
-# 王毅與趙兌烈會談　稱中韓是分不開夥伴應更親近
-
-![王毅表示，中韓兩國是搬不走的鄰居，兩國應經常往來，更加親近。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796813_1_20250321172121.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在日本東京與南韓外長趙兌烈舉行會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796813-20250321.htm)
 
 ---

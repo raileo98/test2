@@ -1,3 +1,27 @@
+# 人行：本月起MLF操作採固定數量、利率招標、多重價位中標開展
+
+![人行明日將開展4500億元人民幣MLF操作，首度採用固定數量、利率招標、多重價位中標方式開展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797185_1_20250324175707.jpg&q=80)
+  
+
+人民銀行公布，明日將開展4500億元人民幣中期借貸便利（MLF）操作，為期1年，以保持銀行體系流動性充裕。今次MLF續做規模超過本月到期的3870億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm)
+
+---
+
 # 報道：小米正配股集資最多52.7億美元
 
 ![外電報道，小米集團正以先舊後新方式配售7.5億股，集資最多52.7億美元。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797186_1_20250324182313.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796879-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796879-20250322.htm)
-
----
-
-# 美元上升　聯儲局官員表示支持謹慎政策方針
-
-![美元指數重上104水平，報104.14，升幅0.3%。本周累升0.4%，結束連續2星期跌勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796877_1_20250322061832.jpg&q=85)
-  
-
-美元上升，聯儲局官員表示支持謹慎的政策方針，以面對經濟不確定性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796877-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796877-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796877-20250322.htm)
 
 ---

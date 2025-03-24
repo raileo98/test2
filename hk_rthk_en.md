@@ -1,3 +1,27 @@
+# Thai PM set to survive no-confidence vote
+
+![Paetongtarn Shinawatra attends the first day of the no-confidence motion against her. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797189_1_20250324183239.jpg&q=80)
+  
+
+Thai Prime Minister Paetongtarn Shinawatra on Monday faced a no-confidence motion in parliament as the opposition alleged she was being unduly influenced by her father, a former prime minister, and is mismanaging the country.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm)
+
+---
+
 # Health officials to help pharmas register new drugs
 
 ![Assistant Director of Health Frank Chan, centre, hopes the new arrangements can speed up the registration of new drugs in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797180_1_20250324172745.jpg&q=90)
@@ -1414,29 +1438,5 @@ Commissioner for primary healthcare Pang Fei-chau said on Saturday that it is ex
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796918-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796918-20250322.htm)
-
----
-
-# Lewis Hamilton wins Chinese Grand Prix sprint race
-
-![Ferrari's British driver Lewis Hamilton celebrates his victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796915_1_20250322130258.jpg&q=90)
-  
-
-Lewis Hamilton dominated from pole position to take his maiden victory for Ferrari in the sprint race at the Chinese Grand Prix on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm)
 
 ---
