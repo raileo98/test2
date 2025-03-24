@@ -1,3 +1,24 @@
+# 桌球網球未來兩年續為A級精英項目　精英運動員下月增薪8.3%
+
+![羅淑佩宣布，桌球及網球未來兩年續為A級精英項目。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797182_1_20250324174300.jpg&q=90)
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797182-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797182-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797182-20250324.htm)
+
+---
+
 # 消息：公院醫療費擬設收費上限按年計算　超出上限可申請減免
 
 ![據了解，改革急症室收費後，預料較集中處理重症個案，急症室成本將增加。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797179_1_20250324173222.jpg&q=80)
@@ -1415,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797000-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797000-20250323.htm)
-
----
-
-# 天水圍田廈路貨倉火警　經調查無證據顯示涉及刑事
-
-![天水圍田廈路一個貨倉昨晚發生火警，焚燒約3小時後被救熄。（香港消防處社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796997_1_20250323093246.jpg&q=90)
-  
-
-天水圍田廈路一個貨倉昨晚發生火警，其後救熄，警方及消防調查後，指無證據顯示案件涉及刑事成分。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796997-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796997-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796997-20250323.htm)
 
 ---

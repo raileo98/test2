@@ -1,5 +1,6 @@
 # 桌球網球未來兩年續為A級精英項目　精英運動員下月增薪8.3%
 
+![羅淑佩宣布，桌球及網球未來兩年續為A級精英項目。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797182_1_20250324174300.jpg&q=90)
   
   
 
