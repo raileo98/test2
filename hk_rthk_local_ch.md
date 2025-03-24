@@ -23,6 +23,7 @@
 
 # 楊永杰促CityLine考慮賠償受錯版門票影響人士
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797111_1_20250324113728.jpg&q=90)
   
 
 英國著名樂隊Coldplay下月在啟德體育園的巡迴演唱會，因部分門票資料出錯，要更換新版門票。售票公司CityLine即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。公司正探索提供快遞門票換領服務。

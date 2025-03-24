@@ -1,3 +1,27 @@
+# Donnarumma error puts Germany in Nations League semis
+
+![Germany's Jamal Musiala, right, celebrates his goal with Joshua Kimmich, who provided the assist. Photo: DPA/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797116_1_20250324113927.jpg&q=90)
+  
+
+Italy striker Moise Kean admitted his team "got distracted" after Germany's Jamal Musiala scored an easy goal into an empty net when absent-minded goalkeeper Gianluigi Donnarumma left his post during the Nations League quarter-final.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797116-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797116-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797116-20250324.htm)
+
+---
+
 # Euro chamber head encouraged by meeting with Xia
 
 ![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing last week. File photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797113_1_20250324111447.jpg&q=90)
@@ -46,7 +70,7 @@ The Hang Seng Index climbed 59.86 points, or 0.25 percent, to open at 23,749.58 
 
 ---
 
-# Andreeva streak ends in epic loss to Anisimova
+# Andreeva streak ends in loss to Anisimova
 
 ![Mirra Andreeva receives treatment from a WTA physiotherapist during an injury timeout in her Miami Open match against Amanda Anisimova at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797104_1_20250324103923.jpg&q=90)
   
@@ -1414,29 +1438,5 @@ Chief Executive John Lee said the government will soon offer land for private de
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm)
-
----
-
-# Police launch citywide crackdown on careless driving
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796806_1_20250321165421.jpg&q=90)
-  
-
-Police on Friday said they will launch a citywide operation next week to tackle inattentive driving, following an increase in fatal traffic accidents in the first three months of this year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796806-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796806-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796806-20250321.htm)
 
 ---

@@ -168,7 +168,7 @@
 
 # 教宗方濟各出院返回梵蒂岡　車上沿途需插鼻管供氧
 
-![方濟各由車隊護送返回梵蒂岡，沿途需要插著供氧的鼻管。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797071_1_20250324044539.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797071_1_20250324044539.jpg&q=85)
   
 
 因肺炎留醫五星期的教宗方濟各出院，回到梵蒂岡休養。

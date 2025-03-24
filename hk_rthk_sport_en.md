@@ -1,4 +1,28 @@
-# Andreeva streak ends in epic loss to Anisimova
+# Donnarumma error puts Germany in Nations League semis
+
+![Germany's Jamal Musiala, right, celebrates his goal with Joshua Kimmich, who provided the assist. Photo: DPA/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797116_1_20250324113927.jpg&q=90)
+  
+
+Italy striker Moise Kean admitted his team "got distracted" after Germany's Jamal Musiala scored an easy goal into an empty net when absent-minded goalkeeper Gianluigi Donnarumma left his post during the Nations League quarter-final.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797116-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797116-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797116-20250324.htm)
+
+---
+
+# Andreeva streak ends in loss to Anisimova
 
 ![Mirra Andreeva receives treatment from a WTA physiotherapist during an injury timeout in her Miami Open match against Amanda Anisimova at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797104_1_20250324103923.jpg&q=90)
   
@@ -1414,29 +1438,5 @@ Defending champion Iga Swiatek beat Zheng Qinwen of China 6-3, 6-3, avenging her
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795674-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795674-20250314.htm)
-
----
-
-# Angus Ng knocked out of All England Open by Loh
-
-![Angus Ng remains winless against Loh, having been beaten in each of their five meetings. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795625_1_20250313220623.jpg&q=90)
-  
-
-Hong Kong, China badminton star Angus Ng was sent packing at the All England Open in Birmingham, losing to Singapore's Loh Kean Yew in straight games in the round of 16 on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795625-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795625-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795625-20250313.htm)
 
 ---
