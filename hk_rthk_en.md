@@ -1,3 +1,27 @@
+# Local airlines to ban in-flight charger use
+
+![Using or recharging portable chargers during flights will be banned from April 7. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797203_1_20250324210630.jpg&q=90)
+  
+
+The Civil Aviation Department on Monday announced that local airlines will no longer let passengers use or recharge their portable chargers during flights, while storing power banks in the overhead compartments is also banned.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm)
+
+---
+
 # BYD posts record annual revenue, beats Tesla
 
 ![The firm's stock price also reached an all-time peak this month, after it unveiled new battery technology. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797208_1_20250324213146.jpg&q=90)
@@ -1414,29 +1438,5 @@ Kevin Durant scored 42 points as the Phoenix Suns reignited their playoff hopes 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796939-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796939-20250322.htm)
-
----
-
-# Woman remains in coma after tooth extraction
-
-![The Department of Health says the woman is still in a critical condition. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796933_1_20250322172551.jpg&q=90)
-  
-
-The Department of Health said on Saturday that a 35-year-old woman remains in a critical condition, after she was sedated before a tooth extraction at a dental clinic in Central two months ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796933-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796933-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796933-20250322.htm)
 
 ---

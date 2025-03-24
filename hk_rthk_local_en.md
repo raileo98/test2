@@ -1,3 +1,27 @@
+# Local airlines to ban in-flight charger use
+
+![Using or recharging portable chargers during flights will be banned from April 7. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797203_1_20250324210630.jpg&q=90)
+  
+
+The Civil Aviation Department on Monday announced that local airlines will no longer let passengers use or recharge their portable chargers during flights, while storing power banks in the overhead compartments is also banned.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm)
+
+---
+
 # New public hospital fees to start next year: sources
 
 ![Sources say the fixed accident and emergency fee will be raised to no more than HK$400 from the current HK$180, with exemptions for critically ill and urgent patients. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797197_1_20250324194549.jpg&q=90)
@@ -1417,29 +1441,5 @@ Polytechnic University (PolyU) on Wednesday said it will shoulder the cost of de
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796404-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796404-20250319.htm)
-
----
-
-# Eleven injured after bus hits exit ramp divider
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796402_1_20250319132024.jpg&q=90)
-  
-
-Eleven people including the driver were injured when a bus hit an exit ramp road divider on Tolo Highway on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm)
 
 ---
