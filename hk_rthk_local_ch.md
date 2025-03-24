@@ -1,3 +1,26 @@
+# 謝展寰：第一座垃圾焚化爐預計今年底投入運作
+
+  
+
+環境及生態局局長謝展寰在「香港氣候論壇」致辭，表示香港作為沿海城市，特別容易受到熱帶氣旋和水位上升等極端天氣影響，當局有應對策略，包括加強關鍵結構，更新設計標準，以符合最新的氣候情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797117-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797117-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797117-20250324.htm)
+
+---
+
 # 國家生態環境部官員稱中國擴大利用再生能源包括太陽能和風力發電
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm)
-
----
-
-# 放射檢查擬逐項收費　醫管局：仍有高度補貼及減免機制
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796936_1_20250322183113.jpg&q=80)
-  
-
-政府正檢討公營醫療服務收費，放射服務有機會逐項收費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm)
 
 ---

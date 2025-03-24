@@ -1,3 +1,26 @@
+# 謝展寰：第一座垃圾焚化爐預計今年底投入運作
+
+  
+
+環境及生態局局長謝展寰在「香港氣候論壇」致辭，表示香港作為沿海城市，特別容易受到熱帶氣旋和水位上升等極端天氣影響，當局有應對策略，包括加強關鍵結構，更新設計標準，以符合最新的氣候情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797117-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797117-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797117-20250324.htm)
+
+---
+
 # 彭麗媛到北京市日壇中學調研學校結核病防治工作
 
   
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm)
-
----
-
-# 滙豐艾橋智：供應鏈和產業鏈是促進中國及全球貿易增長基石
-
-![艾橋智提到，供應鏈和產業鏈發展是促進中國乃至全球貿易持續增長的基石。（滙豐資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797043_1_20250323201330.jpg&q=90)
-  
-
-滙豐行政總裁艾橋智出席在北京舉辦的中國發展高層論壇2025年年會。他表示，中國正進行的經濟轉型，創造了大量新的發展機遇，電動汽車、可再生能源、生物科技等領域的新動能表現亮眼，不單為經濟發展增值，也為出口提供了新的增長點，相信中國在今年及未來5年將繼續為世界經濟增長提供動力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm)
 
 ---
