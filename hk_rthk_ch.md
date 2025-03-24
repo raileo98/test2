@@ -1,3 +1,74 @@
+# 內地男子涉嫌航機上盜竊被捕　乘客放置物櫃背囊被偷現金
+
+  
+
+一名內地男子涉嫌在航機上盜竊其他乘客的財物，被控一項「違反航空保安條例」罪，在西九龍裁判法院提堂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm)
+
+---
+
+# 外交部：從未收到所謂杜特爾特及家人向中國政府尋求庇護申請
+
+![杜特爾特被指任內打擊毒品犯罪活動時，觸犯危害人類罪，日前在馬尼拉機場被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797167_1_20250324163541.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆表示，中方從未收到所謂菲律賓前總統杜特爾特及家人向中國政府尋求庇護的申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm)
+
+---
+
+# 港股高收215點　科指升逾1.7%
+
+![恒生指數下午跟隨內地股市倒升，收市報23905點，升215點，升幅0.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797164_1_20250324162351.jpg&q=65)
+  
+
+港股下午抽升，恒生指數初段曾跌近160點，其後表現反覆，下午跟隨內地股市轉強，曾升近280點，收市報23905點，升215點，升幅0.91%。主板總成交金額約2331億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm)
+
+---
+
 # 陳茂波：將推出創新政策　促進港深人員資金數據及生物樣本流動
 
   

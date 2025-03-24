@@ -1,3 +1,26 @@
+# 內地男子涉嫌航機上盜竊被捕　乘客放置物櫃背囊被偷現金
+
+  
+
+一名內地男子涉嫌在航機上盜竊其他乘客的財物，被控一項「違反航空保安條例」罪，在西九龍裁判法院提堂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm)
+
+---
+
 # 港股高收215點　科指升逾1.7%
 
 ![恒生指數下午跟隨內地股市倒升，收市報23905點，升215點，升幅0.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797164_1_20250324162351.jpg&q=65)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm)
-
----
-
-# 美國邁阿密網球公開賽　香港球手黃澤林淘汰13號種子晉級第三圈
-
-![黃澤林淘汰13號種子、美國的舒爾頓，晉級邁阿密網球公開賽第三圈。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796989_2_20250323081935.jpg&q=90)
-  
-
-美國邁阿密網球公開賽男單次圈，20歲、持「外卡」參賽的本港球手黃澤林，爆冷淘汰13號種子、美國的舒爾頓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm)
 
 ---

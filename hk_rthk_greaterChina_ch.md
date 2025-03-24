@@ -1,3 +1,27 @@
+# 外交部：從未收到所謂杜特爾特及家人向中國政府尋求庇護申請
+
+![杜特爾特被指任內打擊毒品犯罪活動時，觸犯危害人類罪，日前在馬尼拉機場被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797167_1_20250324163541.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆表示，中方從未收到所謂菲律賓前總統杜特爾特及家人向中國政府尋求庇護的申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm)
+
+---
+
 # 丁薛祥將出席博鰲亞洲論壇2025年年會
 
 ![丁薛祥將出席博鰲亞洲論壇2025年年會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797159_1_20250324155151.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796798-20250321.htm)
-
----
-
-# 謝展寰在北京到訪國家海關總署及國家生態環境部等機構
-
-![謝展寰展參觀中國農業科學院的蔬菜花卉研究所溫室。(政府新聞處)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796681_1_20250320231718.jpg&q=70)
-  
-
-環境及生態局局長謝展寰展開北京訪問行程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796681-20250320.htm)
 
 ---

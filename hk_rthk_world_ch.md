@@ -1,3 +1,27 @@
+# 外交部：從未收到所謂杜特爾特及家人向中國政府尋求庇護申請
+
+![杜特爾特被指任內打擊毒品犯罪活動時，觸犯危害人類罪，日前在馬尼拉機場被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797167_1_20250324163541.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆表示，中方從未收到所謂菲律賓前總統杜特爾特及家人向中國政府尋求庇護的申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm)
+
+---
+
 # 丁薛祥將出席博鰲亞洲論壇2025年年會
 
 ![丁薛祥將出席博鰲亞洲論壇2025年年會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797159_1_20250324155151.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm)
-
----
-
-# 中日舉行第六次經濟高層對話　王毅：中日互為伙伴而非對手
-
-![中日第六次經濟高層對話在東京舉行前，王毅（前排左五）和岩屋毅（前排左六）等官員合照留念。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796961_2_20250322212757.jpg&q=85)
-  
-
-中共中央政治局委員、外長王毅在東京同日本外相岩屋毅共同主持召開第六次中日經濟高層對話，雙方15個政府部門負責人出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm)
 
 ---
