@@ -1,3 +1,27 @@
+# 國泰稱將完全遵從外置充電器更新指引　會向顧客清晰傳達要求
+
+![國泰航空表示，認同民航處就航班上攜帶鋰電池外置充電器的最新指引。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797222_1_20250325012347.jpg&q=90)
+  
+
+民航處宣布，下月7日起，乘客不得在航班上使用外置充電器，為其他便攜式電子裝置或外置充電器充電，以及不得把外置充電器放置於行李架上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm)
+
+---
+
 # 劉永松稱財政資助對運動員只屬輔助　冀透過運動產業化提供支撐
 
 ![劉永松表示，歡迎當局調整精英體育資助制度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797218_1_20250324234351.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm)
-
----
-
-# 七欖賽事套票已售近43000張　大會料13萬8千名觀眾入場
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797028_1_20250323160849.jpg&q=80)
-  
-
-香港國際七人欖球賽本月28至30日、一連3天在啟德體育園主場館舉行，大會表示，過去一周再售出8000張門票，三日的套票累計已售出近43000張，預計一連三日的比賽將有13萬8千名觀眾入場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm)
 
 ---

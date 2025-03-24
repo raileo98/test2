@@ -1,3 +1,27 @@
+# 國泰稱將完全遵從外置充電器更新指引　會向顧客清晰傳達要求
+
+![國泰航空表示，認同民航處就航班上攜帶鋰電池外置充電器的最新指引。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797222_1_20250325012347.jpg&q=90)
+  
+
+民航處宣布，下月7日起，乘客不得在航班上使用外置充電器，為其他便攜式電子裝置或外置充電器充電，以及不得把外置充電器放置於行李架上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm)
+
+---
+
 # 卡尼：可與特朗普通話　惟會按加拿大作為主權國家條件進行
 
 ![卡尼認為特朗普正等待加拿大的大選結果，再與勝出者通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797221_1_20250325011313.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797147-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797147-20250324.htm)
-
----
-
-# 湖南耒水上游地區鉈排放濃度超標　郴州及耒陽當局稱飲用水安全
-
-![湖南耒水上游地區鉈排放濃度超標　郴州及耒陽當局稱飲用水安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797146_1_20250324144507.jpg&q=90)
-  
-
-湖南湘江最大支流耒水流域近日部分河段水質出現異常，懷疑因耒水上游地區鉈排放濃度超標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797146-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797146-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797146-20250324.htm)
 
 ---
