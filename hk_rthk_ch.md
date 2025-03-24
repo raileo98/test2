@@ -1,3 +1,27 @@
+# 以軍因標注有誤向紅十字會國際委員會建築物開火
+
+![加沙持續遭到以軍空襲，大量建築物受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797227_1_20250325042635.jpg&q=60)
+  
+
+以色列軍方繼續在加沙的軍事行動之際，位於加沙南部拉法的紅十字國際委員會辦事處，遭到以軍襲擊，無人員傷亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797227-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797227-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797227-20250325.htm)
+
+---
+
 # 特朗普料美烏很快簽署礦產協議　雙方討論美企擁有烏國發電站可能
 
 ![特朗普說，有些人認為美國具有專業知識，應該擁有烏克蘭的發電站。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797226_1_20250325034304.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797154-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797154-20250324.htm)
-
----
-
-# 內地股市回穩收市
-
-![上證指數最多曾跌逾0.7%，尾段轉升收市，報3370點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797151_1_20250324151120.jpg&q=85)
-  
-
-內地股市回穩收市。旅遊酒店、銀行、保險股造好，腦機接口、軍工、算力租賃等股份下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm)
 
 ---
