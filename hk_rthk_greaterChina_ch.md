@@ -24,7 +24,7 @@
 
 # 人行：本月起MLF操作採固定數量、利率招標、多重價位中標開展
 
-![人行明日將開展4500億元人民幣MLF操作，本月起採用固定數量、利率招標、多重價位中標方式開展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797185_1_20250324175707.jpg&q=80)
+![人行明日將開展4500億元人民幣MLF操作，本月起採用固定數量、利率招標、多重價位中標方式開展。（人行網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797185_2_20250324193652.jpg&q=90)
   
 
 人民銀行公布，明日將開展4500億元人民幣中期借貸便利（MLF）操作，為期1年，以保持銀行體系流動性充裕。今次MLF續做規模超過本月到期的3870億元。
