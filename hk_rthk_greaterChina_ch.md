@@ -1,3 +1,26 @@
+# 華春瑩到訪澳門　岑浩輝稱加強拓展對外聯繫尤其開拓葡語系等市場
+
+  
+
+澳門行政長官岑浩輝昨日在政府總部與外交部副部長華春瑩會面，雙方就澳門進一步透過加強拓展對外聯繫，落實經濟適度多元發展等議題交流。他歡迎外交部副部長華春瑩一行到訪澳門，並對外交部長期支持澳門特區的對外交往工作表達謝意，同時也感謝駐澳特派員公署在各項涉外工作所給予的支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797156-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797156-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797156-20250324.htm)
+
+---
+
 # 駐港國安公署座談會　學習貫徹習近平講話回顧展望國安條例實施
 
 ![駐港國家安全公署表示，昨日舉辦《維護國家安全條例》刊憲實施一周年座談會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797149_1_20250324151248.jpg&q=80)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796663-20250320.htm)
-
----
-
-# 商務部稱中方願同日方共同努力　推動經濟高層對話取得務實成果
-
-![商務部稱中日經濟高層對話時隔六年重啟，具有重要意義。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796612_1_20250320164133.jpg&q=75)
-  
-
-第六次中日經濟高層對話本月22日將在日本東京舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm)
 
 ---

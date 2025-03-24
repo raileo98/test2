@@ -289,10 +289,10 @@ The Secretary for Health Lo Chung-mau has urged more individuals to register as 
 
 # HK the place to be for creative firms, FS says
 
-![Financial secretary Paul Chan said Hong Kong will continue to help mainland companies enter international markets. Photo courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797020_1_20250323141446.jpg&q=85)
+![Financial Secretary Paul Chan said Hong Kong will continue to help mainland companies enter international markets. Photo courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797020_1_20250323141446.jpg&q=85)
   
 
-Financial secretary Paul Chan pledged his support for Hong Kong's cultural and creative industries, saying they will thrive under the city's unique east-meets-west and inclusive environment.
+Financial Secretary Paul Chan pledged his support for Hong Kong's cultural and creative industries, saying they will thrive under the city's unique east-meets-west and inclusive environment.
 
   
 

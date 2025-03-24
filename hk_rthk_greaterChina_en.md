@@ -118,7 +118,7 @@ Oscar Piastri led from pole to win the Chinese Grand Prix on Sunday as McLaren u
 
 ---
 
-# China prepared for "shocks" of trade war: Premier Li
+# China prepared for 'shocks' of trade war: Premier Li
 
 ![Delivering the opening address to the China Development Forum, Premier Li called on global executives to capture opportunities from the nation's renewed innovation drive. Photo: www.fmprc.gov.cn](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797024_1_20250323152102.jpg&q=90)
   

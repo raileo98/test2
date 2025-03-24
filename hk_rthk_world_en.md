@@ -1,3 +1,27 @@
+# Two injured in western Japan wildfires
+
+![A wildfire is seen in the hills above Imabari City in Ehime prefecture. Photo: Yomiuri Shimbun/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797157_1_20250324153925.jpg&q=85)
+  
+
+Wildfires have hit several regions in western Japan, injuring at least two people, forcing dozens of residents to evacuate and damaging a number of homes as hundreds of firefighters battled the widening blazes in the mountainous areas.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm)
+
+---
+
 # Venezuelans go home as US deportation flights resume
 
 ![An aircraft carrying Venezuelan migrants, who were deported from the United States, lands in Caracas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797145_1_20250324144241.jpg&q=90)
@@ -1411,29 +1435,5 @@ The US National Archives on Tuesday released the final batch of files related to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm)
-
----
-
-# Nasa astronauts Wilmore and Williams splash down
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796336_2_20250319063556.jpg&q=90)
-  
-
-Nasa astronauts Butch Wilmore and Suni Williams returned to Earth in a SpaceX capsule on Tuesday with a soft splashdown off Florida's coast, nine months after their faulty Boeing Starliner craft upended what was to be a week-long stay on the International Space Station.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796336-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Two injured in western Japan wildfires
+
+![A wildfire is seen in the hills above Imabari City in Ehime prefecture. Photo: Yomiuri Shimbun/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797157_1_20250324153925.jpg&q=85)
+  
+
+Wildfires have hit several regions in western Japan, injuring at least two people, forcing dozens of residents to evacuate and damaging a number of homes as hundreds of firefighters battled the widening blazes in the mountainous areas.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm)
+
+---
+
 # Laos, Chinese firm sign US$1.45b clean energy deal
 
 ![China Western Power Industrial has signed an agreement to design, supply, and build a 1,800-megawatt clean energy power project in southern Laos. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797153_2_20250324151758.jpg&q=90)
@@ -648,7 +672,7 @@ A Turkish court formally placed Istanbul Mayor Ekrem Imamoglu under arrest as pa
 
 ---
 
-# China prepared for "shocks" of trade war: Premier Li
+# China prepared for 'shocks' of trade war: Premier Li
 
 ![Delivering the opening address to the China Development Forum, Premier Li called on global executives to capture opportunities from the nation's renewed innovation drive. Photo: www.fmprc.gov.cn](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797024_1_20250323152102.jpg&q=90)
   
@@ -722,10 +746,10 @@ The Secretary for Health Lo Chung-mau has urged more individuals to register as 
 
 # HK the place to be for creative firms, FS says
 
-![Financial secretary Paul Chan said Hong Kong will continue to help mainland companies enter international markets. Photo courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797020_1_20250323141446.jpg&q=85)
+![Financial Secretary Paul Chan said Hong Kong will continue to help mainland companies enter international markets. Photo courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797020_1_20250323141446.jpg&q=85)
   
 
-Financial secretary Paul Chan pledged his support for Hong Kong's cultural and creative industries, saying they will thrive under the city's unique east-meets-west and inclusive environment.
+Financial Secretary Paul Chan pledged his support for Hong Kong's cultural and creative industries, saying they will thrive under the city's unique east-meets-west and inclusive environment.
 
   
 
@@ -1414,29 +1438,5 @@ Requiring patients to pay separately for tests and scans at public hospitals wil
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm)
-
----
-
-# Tuchel starts his reign as England coach with a win
-
-![England beat Albania 2-0 in their opening World Cup qualifier on Friday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796888_1_20250322075914.jpg&q=90)
-  
-
-Thomas Tuchel made a winning start to his England reign without delivering on his promise of a vibrant new era as the Three Lions beat Albania 2-0 in their opening World Cup qualifier on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796888-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796888-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796888-20250322.htm)
 
 ---
