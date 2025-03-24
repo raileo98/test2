@@ -1,3 +1,74 @@
+# 12人涉詐騙及洗黑錢被捕　當中3人包括1名內地男子已提堂
+
+  
+
+12名男女包括1名內地男子涉嫌「以欺騙手段取得財產」及「洗黑錢」等被捕，大部分被捕人相信為傀儡戶口持有人，當中2名本地男子及該名內地男子已提堂，其餘人士獲保釋候查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm)
+
+---
+
+# 李強晤亞行行長　稱中方將擔起大國責任為世界發展注入更多穩定性
+
+![李強在北京人民大會堂會見亞洲開發銀行行長神田真人。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797201_1_20250324201943.jpg&q=90)
+  
+
+國務院總理李強在北京人民大會堂會見亞洲開發銀行行長神田真人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm)
+
+---
+
+# 羅淑佩稱精英體育發展需考慮個別項目獨特性及彈性處理
+
+![羅淑佩說，新機制可以提供彈性，亦讓網球運動員有努力的目標。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797200_1_20250324201837.jpg&q=90)
+  
+
+政府宣布，桌球及網球未來兩年，將繼續保留為體育學院「A級」精英項目。另外，所有精英運動員的直接資助額，將會上調8.3%，今年4月1日起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm)
+
+---
+
 # 比亞迪電子去年盈利升近6%　收入升逾36%
 
 ![比亞迪電子去年盈利42.7億元人民幣，按年升約5.6%。派末期息每股0.568元，按年增加近6%。（港交所截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797198_1_20250324195419.jpg&q=90)
@@ -72,6 +143,7 @@
 
 # 民航處：下月7日起乘客不得在航班上使用外置充電器
 
+![下月7日起，乘客不得在航班上使用外置充電器，以及不得將外置充電器放置於行李架上。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797195_2_20250324202418.jpg&q=90)
   
 
 民航處更新對本地航空公司就航班乘客攜帶及使用外置充電器的要求及規管，由下月7日起，乘客不得在航班上使用外置充電器，為其他便攜式電子裝置、外置充電器充電，以及不得將外置充電器放置於行李架上。
@@ -119,6 +191,7 @@
 
 # 75歲陳金妹離開葵盛東邨盛喜樓後失蹤　警方呼籲市民提供消息
 
+![75歲陳金妹今早約7時48分離開位於葵盛東邨盛喜樓住所後失蹤。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797193_1_20250324202106.jpg&q=90)
   
 
 75歲陳金妹今早約7時48分離開位於葵盛東邨盛喜樓住所後失蹤，家人報案，警方呼籲市民提供消息。

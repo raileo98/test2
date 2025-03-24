@@ -1,3 +1,27 @@
+# New public hospital fees to start next year: sources
+
+![Sources say the fixed accident and emergency fee will be raised to no more than HK$400 from the current $180, with exemptions for critically ill and urgent patients. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797197_1_20250324194549.jpg&q=90)
+  
+
+Sources say new fees for public hospital services will be rolled out in three phases starting as early as January next year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797197-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797197-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797197-20250324.htm)
+
+---
+
 # Billiard, tennis retain Tier A status
 
 ![Sports minister Rosanna Law says changes were made to accommodate sports with unique strengths to stay in the elite sports training system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797192_1_20250324184243.jpg&q=90)
@@ -1414,29 +1438,5 @@ Thousands of people flocked to Ocean Park on Saturday as they can now see the pa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796927-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796927-20250322.htm)
-
----
-
-# China, Japan, S Korea agree to deepen cooperation
-
-![Foreign Minister Wang Yi and South Korea's Foreign Minister Cho Tae-yul shake hands as Japan's Foreign Minister Takeshi Iwaya looks on. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796925_1_20250322153847.jpg&q=90)
-  
-
-Foreign Minister Wang Yi said on Saturday that China, Japan and the South Korea have agreed to further strengthen communication, enhance mutual trust, and deepen cooperation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm)
 
 ---

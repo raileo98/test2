@@ -1,3 +1,27 @@
+# 李強晤亞行行長　稱中方將擔起大國責任為世界發展注入更多穩定性
+
+![李強在北京人民大會堂會見亞洲開發銀行行長神田真人。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797201_1_20250324201943.jpg&q=90)
+  
+
+國務院總理李強在北京人民大會堂會見亞洲開發銀行行長神田真人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm)
+
+---
+
 # 李強簽國務院令　 公布實施《反外國制裁法》規定
 
 ![李強簽署國務院令，公布實施《反外國制裁法》的規定。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797199_1_20250324195956.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm)
-
----
-
-# 外交部：美國應停止干擾破壞中國和伊朗正常商貿合作
-
-![毛寧說，美國應停止干擾破壞中國和伊朗正常的商貿合作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796843_1_20250321203038.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧表示，中方一貫反對濫施非法單邊制裁和長臂管轄，美國應停止干擾破壞中國和伊朗正常的商貿合作。中方將採取一切必要措施，堅決維護中國企業的合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796843-20250321.htm)
 
 ---

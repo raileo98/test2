@@ -1,5 +1,53 @@
+# 12人涉詐騙及洗黑錢被捕　當中3人包括1名內地男子已提堂
+
+  
+
+12名男女包括1名內地男子涉嫌「以欺騙手段取得財產」及「洗黑錢」等被捕，大部分被捕人相信為傀儡戶口持有人，當中2名本地男子及該名內地男子已提堂，其餘人士獲保釋候查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm)
+
+---
+
+# 羅淑佩稱精英體育發展需考慮個別項目獨特性及彈性處理
+
+![羅淑佩說，新機制可以提供彈性，亦讓網球運動員有努力的目標。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797200_1_20250324201837.jpg&q=90)
+  
+
+政府宣布，桌球及網球未來兩年，將繼續保留為體育學院「A級」精英項目。另外，所有精英運動員的直接資助額，將會上調8.3%，今年4月1日起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm)
+
+---
+
 # 民航處：下月7日起乘客不得在航班上使用外置充電器
 
+![下月7日起，乘客不得在航班上使用外置充電器，以及不得將外置充電器放置於行李架上。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797195_2_20250324202418.jpg&q=90)
   
 
 民航處更新對本地航空公司就航班乘客攜帶及使用外置充電器的要求及規管，由下月7日起，乘客不得在航班上使用外置充電器，為其他便攜式電子裝置、外置充電器充電，以及不得將外置充電器放置於行李架上。
@@ -23,6 +71,7 @@
 
 # 75歲陳金妹離開葵盛東邨盛喜樓後失蹤　警方呼籲市民提供消息
 
+![75歲陳金妹今早約7時48分離開位於葵盛東邨盛喜樓住所後失蹤。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797193_1_20250324202106.jpg&q=90)
   
 
 75歲陳金妹今早約7時48分離開位於葵盛東邨盛喜樓住所後失蹤，家人報案，警方呼籲市民提供消息。
@@ -1389,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm)
-
----
-
-# 陳美寶稱市區設無人機起降點有限制　正籌備載人項目相關修例
-
-![陳美寶強調當局持開放態度，會兼顧安全及實用性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797016_1_20250323143905.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶表示，低空經濟「監管沙盒」首批試點項目，部分以科學園、數碼港及醫院範圍為試點，累積足夠數據及信心後，或可擴大試驗至園區附近，例如跨海至對岸。被問到下一階段會否有載人項目，例如空中的士，陳美寶說，政府正籌備相關修例，包括無人機的負載水平，有待修例通過，相信可以更好籌備載人項目。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797016-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797016-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797016-20250323.htm)
-
----
-
-# 泰國抵港旅客行李藏有懷疑大麻花　於機場被捕
-
-![海關在機場一個寄艙行李檢獲的懷疑大麻花。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797012_2_20250323130909.jpg&q=90)
-  
-
-海關在機場偵破一宗販毒案，在一件行李內檢獲約10公斤、估計市值約220萬元的懷疑大麻花。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm)
 
 ---

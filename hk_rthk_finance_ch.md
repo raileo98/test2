@@ -1,3 +1,27 @@
+# 羅淑佩稱精英體育發展需考慮個別項目獨特性及彈性處理
+
+![羅淑佩說，新機制可以提供彈性，亦讓網球運動員有努力的目標。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797200_1_20250324201837.jpg&q=90)
+  
+
+政府宣布，桌球及網球未來兩年，將繼續保留為體育學院「A級」精英項目。另外，所有精英運動員的直接資助額，將會上調8.3%，今年4月1日起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm)
+
+---
+
 # 比亞迪電子去年盈利升近6%　收入升逾36%
 
 ![比亞迪電子去年盈利42.7億元人民幣，按年升約5.6%。派末期息每股0.568元，按年增加近6%。（港交所截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797198_1_20250324195419.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm)
-
----
-
-# 丘應樺：美國對華加徵關稅只會損人不利己
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796892_1_20250322093648.jpg&q=90)
-  
-
-商務及經濟發展局局長丘應樺表示，美國對華加徵關稅，將香港產品與來自中國的產品混為一談，是錯誤做法，不單只違反世貿規定，亦是對特區政府的無理打壓，政府已表態將向世貿提出申訴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796892-20250322.htm)
 
 ---

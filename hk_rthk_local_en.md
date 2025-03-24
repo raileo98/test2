@@ -1,3 +1,27 @@
+# New public hospital fees to start next year: sources
+
+![Sources say the fixed accident and emergency fee will be raised to no more than HK$400 from the current $180, with exemptions for critically ill and urgent patients. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797197_1_20250324194549.jpg&q=90)
+  
+
+Sources say new fees for public hospital services will be rolled out in three phases starting as early as January next year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797197-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797197-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797197-20250324.htm)
+
+---
+
 # Billiard, tennis retain Tier A status
 
 ![Sports minister Rosanna Law says changes were made to accommodate sports with unique strengths to stay in the elite sports training system. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797192_1_20250324184243.jpg&q=90)
@@ -1417,29 +1441,5 @@ Eleven people including the driver were injured when a bus hit an exit ramp road
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796402-20250319.htm)
-
----
-
-# Govt moves to boost healthcare data sharing
-
-![The government hopes healthcare providers will proactively upload their patients' records onto the "eHealth" platform. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796401_2_20250319135402.jpg&q=75)
-  
-
-The government said it plans to amend the law to help boost the development of its one-stop “eHealth” platform.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796401-20250319.htm)
 
 ---
