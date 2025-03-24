@@ -1,3 +1,49 @@
+# 彭麗媛到北京市日壇中學調研學校結核病防治工作
+
+  
+
+今日是世界防治結核病日。在北京，國家主席習近平夫人彭麗媛到北京市日壇中學調研學校結核病防治工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797115-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797115-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797115-20250324.htm)
+
+---
+
+# 國家生態環境部官員稱中國擴大利用再生能源包括太陽能和風力發電
+
+  
+
+環境及生態局與香港大學合辦「香港氣候論壇」，國家生態環境部應對氣候變化司司長夏應顯致辭時表示，外界有指今年全球氣溫會達到上升1.5 度的臨界點，目前還未能確定是否真的去到這臨界點，但氣候變化是真實的，大家必須應對這項挑戰。對中國來說，就是要繼續實現低碳和綠色轉型，他們已提出相關政策。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm)
+
+---
+
 # 北京市政府原黨組成員、副市長高朋涉嫌受賄被起訴
 
 ![北京市政府原黨組成員、副市長高朋涉嫌受賄被起訴。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797101_1_20250324102257.jpg&q=90)
@@ -1391,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796636-20250320.htm)
-
----
-
-# 外交部：美方不得對中國留學生採取歧視性限制措施
-
-![毛寧說，中方敦促美方停止泛化國家安全，不得對中國留學生採取歧視性限制措施。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796635_1_20250320175000.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧表示，中方敦促美方停止泛化國家安全，實際保障中國留學生的正當合法權利，不得對中國留學生採取歧視性限制措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796635-20250320.htm)
-
----
-
-# 習近平到雲南麗江考察　強調文旅產業要走一條持續、健康發展之路
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796630_1_20250320183940.jpg&q=90)
-  
-
-中共總書記習近平到雲南考察，昨日下午到位於雲南北部的麗江市，先後考察麗江現代花卉產業園和麗江古城，了解當地因地制宜發展特色農業、加強歷史文化遺產保護利用等情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796630-20250320.htm)
 
 ---

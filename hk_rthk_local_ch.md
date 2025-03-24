@@ -1,3 +1,26 @@
+# 國家生態環境部官員稱中國擴大利用再生能源包括太陽能和風力發電
+
+  
+
+環境及生態局與香港大學合辦「香港氣候論壇」，國家生態環境部應對氣候變化司司長夏應顯致辭時表示，外界有指今年全球氣溫會達到上升1.5 度的臨界點，目前還未能確定是否真的去到這臨界點，但氣候變化是真實的，大家必須應對這項挑戰。對中國來說，就是要繼續實現低碳和綠色轉型，他們已提出相關政策。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm)
+
+---
+
 # 楊永杰促CityLine考慮賠償受錯版門票影響人士
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796936-20250322.htm)
-
----
-
-# 丘應樺：美國做法「日新月異」　向世貿提出申訴需時準備
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796935_1_20250322183012.jpg&q=90)
-  
-
-特區政府就美國對華產品加徵關稅，範圍包括香港產品，決定向世貿組織提出申訴。商務及經濟發展局局長丘應樺表示，美國的做法「日新月異」，特區政府要審視情況發展，需要時間準備，準備好就會提出申訴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796935-20250322.htm)
 
 ---

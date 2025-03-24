@@ -119,6 +119,30 @@
 
 ---
 
+# 黃碧如：修訂公屋富戶政策相信可至少釋放數百個公屋單位
+
+![黃碧如形容新政策是「組合拳」，既提高額外租金，亦提供措施鼓勵「富戶」向上流。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797102_1_20250324105409.jpg&q=90)
+  
+
+房委會資助房屋小組委員會通過修訂公屋「富戶」政策，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。小組委員會主席黃碧如在一個電台節目形容新政策是「組合拳」，既提高額外租金，亦提供措施鼓勵「富戶」向上流。被問到有無預計新措施釋放到多少公屋單位，黃碧如說未有目標數字，但相信最起碼會有數百間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm)
+
+---
+
 # 李家超明日赴海南出席博鰲亞洲論壇年會　將於論壇致辭
 
 ![李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797100_1_20250324103437.jpg&q=90)
@@ -140,6 +164,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm)
+
+---
+
+# 訪華美參議員戴安斯：北京不制止芬太尼輸美　中美貿易談判難推動
+
+![戴安斯（左）訪華期間與總理李強等會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797099_1_20250324100417.jpg&q=90)
+  
+
+在中國訪問的美國國會參議員戴安斯說，北京必須制止芬太尼毒品流入美國，否則美中之間難以就關稅和非關稅障礙進行任何對話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm)
 
 ---
 
@@ -236,6 +284,31 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797091-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797091-20250324.htm)
+
+---
+
+# 林奮強指政府醫療開支大達臨界點　醫生組織冀當局多作解說免爭拗
+
+![龍振邦亦認為，有需要調整收費，否則服務難以維持。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797092_2_20250324092545.jpg&q=80)
+![消息指，政府目標本月內公布公營醫療收費調整方案細節。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797092_3_20250324092545.jpg&q=80)
+  
+
+政府目標本月內公布公營醫療收費調整方案細節。醫管局管治及架構改革委員會成員林奮強指出，現時政府補貼佔整個醫管局支出超過97%，重申改革收費目的為盡量精準利用有限資源，提高對重症危疾的保障。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm)
 
 ---
 
@@ -1365,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796812-20250321.htm)
-
----
-
-# 在岸人民幣兌美元低收逾百點子　創近兩星期新低
-
-![在岸人民幣收報7.2489兌1美元，較昨日收市價跌106點子，創近兩星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796805_1_20250321165350.jpg&q=85)
-  
-
-在岸人民幣收報7.2489兌1美元，較昨日收市價跌106點子，創近兩星期新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796805-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796805-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796805-20250321.htm)
-
----
-
-# 小鵬汽車在港至今已交付近1000輛車
-
-![顧宏地稱小鵬去年海外銷量突破2萬輛，位列非傳統汽車品牌中第一。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796810_1_20250321170604.jpg&q=85)
-  
-
-小鵬汽車名譽副董事長兼聯席總裁顧宏地表示，公司去年交付量按年增34.2%至19萬輛車，海外銷量突破2萬輛，位列非傳統汽車品牌中第一。今年首兩個月，內地交付量亦居「新勢力」品牌首位，預計首季交付量將按年增長逾3倍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796810-20250321.htm)
-
----
-
-# 日本最大工會聯盟第二輪勞資談判結果：企業同意加薪5.4%
-
-![日本最大工會聯盟公布第二輪年度勞資談判結果顯示，日本企業已同意今年加薪5.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796799_1_20250321163008.jpg&q=90)
-  
-
-日本最大工會聯盟，日本勞動組合總連合會公布第二輪年度勞資談判結果顯示，日本企業已同意今年將工資提高5.4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796799-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796799-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796799-20250321.htm)
 
 ---
