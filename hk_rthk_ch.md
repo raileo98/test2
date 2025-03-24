@@ -1,3 +1,51 @@
+# 比亞迪電子去年盈利升近6%　收入升逾36%
+
+![比亞迪電子去年盈利42.7億元人民幣，按年升約5.6%。派末期息每股0.568元，按年增加近6%。（港交所截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797198_1_20250324195419.jpg&q=90)
+  
+
+比亞迪電子公布，去年盈利42.7億元人民幣，按年升約5.6%。派末期息每股0.568元，按年增加近6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797198-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797198-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797198-20250324.htm)
+
+---
+
+# 李強簽國務院令　 公布實施《反外國制裁法》規定
+
+![李強簽署國務院令，公布實施《反外國制裁法》的規定。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797199_1_20250324195956.jpg&q=90)
+  
+
+國務院總理李強簽署國務院令，公布實施《中華人民共和國反外國制裁法》的規定，即日起施行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797199-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797199-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797199-20250324.htm)
+
+---
+
 # 舜宇光學去年多賺1.46倍　末期息每股派0.532港元
 
 ![舜宇光學去年盈利約27億元人民幣，按年急升約1.46倍。派末期息每股0.532港元，按年增加1.43倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797196_1_20250324193245.jpg&q=90)
