@@ -22,7 +22,7 @@ US and Russian officials opened talks in Saudi Arabia on Monday on a partial cea
 
 ---
 
-# S Korea deploys choppers in force to fight bushfire
+# S Korea deploys choppers in force to fight bushfires
 
 ![Unramsa temple in Uiseong, Gyeongbuk, is one of the buildings destroyed by a wildfire on Sunday.
 Photo: Yonhap/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797163_1_20250324162214.jpg&q=85)
