@@ -1,3 +1,27 @@
+# Appeal crunch time for Blatter and Platini
+
+![Michael Platini, left, with Sepp Blatter in 2014. File Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797152_1_20250324151246.jpg&q=90)
+  
+
+Former Fifa president Sepp Blatter and France football great Michel Platini will appear before a Swiss court on Tuesday to hear whether the case that finished their careers in football will end with their acquittals or convictions for corruption.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm)
+
+---
+
 # Venezuelans go home as US deportation flights resume
 
 ![An aircraft carrying Venezuelan migrants, who were deported from the United States, lands in Caracas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797145_1_20250324144241.jpg&q=90)
@@ -335,7 +359,7 @@ New Canadian Prime Minister Mark Carney on Sunday called a snap election for Apr
 
 ---
 
-# Cavs snap four-game losing skid; sink Jazz in Utah
+# Cavs snap four-game losing skid, sink Jazz in Utah
 
 ![The victory snapped the Cavs' longest losing streak of the season at four games. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797085_1_20250324080912.jpg&q=85)
   
@@ -1414,29 +1438,5 @@ The foreign ministers of Germany, France and Britain called late on Friday for a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm)
-
----
-
-# US stocks close higher ahead of April tariffs
-
-![All the major indices made minor gains. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796882_1_20250322065918.jpg&q=90)
-  
-
-Wall Street stocks closed higher Friday after fluctuations, shaking off ongoing economic uncertainty including those triggered by US President Donald Trump's tariff plans -- following his comments that these will contain some flexibility.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796882-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796882-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796882-20250322.htm)
 
 ---

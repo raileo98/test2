@@ -1,3 +1,74 @@
+# 旅發局：七欖閉幕禮首開放啟德體育園天幕綻放煙火　國際表演陣容
+
+  
+
+香港國際七人欖球賽本周末、一連三日在啟德體育園主場館舉行，旅發局表示，開幕典禮會有全新激光投影表演，閉幕禮更首次開放球場天幕綻放煙火，亦會邀來人氣南韓職業棒球隊啦啦隊助陣，展現「盛事之都」的動感魅力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm)
+
+---
+
+# 駐港國安公署座談會　學習貫徹習近平講話回顧展望國安條例實施
+
+![駐港國家安全公署表示，昨日舉辦《維護國家安全條例》刊憲實施一周年座談會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797149_1_20250324151248.jpg&q=80)
+  
+
+駐港國家安全公署表示，昨日舉辦《維護國家安全條例》刊憲實施一周年座談會，深入學習貫徹國家主席習近平關於港澳工作的重要講話精神和中央決策部署，回顧展望國安條例實施，強調堅持以香港高水平安全保障高質量發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm)
+
+---
+
+# 尹錫悅涉嫌發動內亂案4月14日首次公審
+
+![尹錫悅涉嫌發動內亂案4月14日首次公審。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797148_1_20250324150229.jpg&q=90)
+  
+
+南韓首爾中央地方法院宣布，將於4月14日對總統尹錫悅涉嫌發動內亂案進行第一次公審。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm)
+
+---
+
 # 韓股偏軟收市　結束5連升
 
 ![首爾綜合指數收報2632點，跌11點，跌幅0.42%，結束5連升。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797147_1_20250324145054.jpg&q=90)
@@ -457,7 +528,7 @@
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797122_1_20250324120631.jpg&q=90)
   
 
-英國樂隊Coldplay下月在啟德體育園的巡迴演唱會，因部分門票資料出錯，要更換新版門票。售票公司CityLine即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。
+英國樂隊Coldplay下月在啟德體育園的巡迴演唱會，因部分門票資料出錯，要更換新版門票。售票公司Cityline即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。
 
   
 

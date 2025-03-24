@@ -1,3 +1,27 @@
+# 駐港國安公署座談會　學習貫徹習近平講話回顧展望國安條例實施
+
+![駐港國家安全公署表示，昨日舉辦《維護國家安全條例》刊憲實施一周年座談會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797149_1_20250324151248.jpg&q=80)
+  
+
+駐港國家安全公署表示，昨日舉辦《維護國家安全條例》刊憲實施一周年座談會，深入學習貫徹國家主席習近平關於港澳工作的重要講話精神和中央決策部署，回顧展望國安條例實施，強調堅持以香港高水平安全保障高質量發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm)
+
+---
+
 # 湖南耒水上游地區鉈排放濃度超標　郴州及耒陽當局稱飲用水安全
 
 ![湖南耒水上游地區鉈排放濃度超標　郴州及耒陽當局稱飲用水安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797146_1_20250324144507.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796612-20250320.htm)
-
----
-
-# 習近平到雲南考察　強調在中國式現代化進程中開創雲南發展新局面
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796660_1_20250320225330.jpg&q=75)
-  
-
-中共總書記習近平在雲南考察時強調，雲南要認真落實黨中央關於西部大開發和長江經濟帶發展的戰略部署，完整準確全面貫徹新發展理念，堅持穩中求進工作總基調，著力推動高質量發展，解放思想、改革創新，奮發進取、真抓實幹，在中國式現代化進程中開創雲南發展新局面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796660-20250320.htm)
 
 ---

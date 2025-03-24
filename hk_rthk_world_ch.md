@@ -1,3 +1,27 @@
+# 尹錫悅涉嫌發動內亂案4月14日首次公審
+
+![尹錫悅涉嫌發動內亂案4月14日首次公審。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797148_1_20250324150229.jpg&q=90)
+  
+
+南韓首爾中央地方法院宣布，將於4月14日對總統尹錫悅涉嫌發動內亂案進行第一次公審。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm)
+
+---
+
 # 就任半年的泰國總理佩通坦首次面對國會不信任動議
 
 ![佩通坦上半年來，首次面對國會提出不信任動議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797143_1_20250324143156.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796951-20250322.htm)
-
----
-
-# 何立峰晤美國訪客　稱中方堅決反對將經貿問題政治化
-
-![國務院副總理何立峰在北京會見美國聯邦參議員戴安斯。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796949_1_20250322205034.jpg&q=80)
-  
-
-中共中央政治局委員、國務院副總理何立峰在北京分別會見美國聯邦參議員戴安斯，以及新加坡淡馬錫董事長林文興。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm)
 
 ---

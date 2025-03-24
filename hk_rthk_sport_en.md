@@ -1,3 +1,27 @@
+# Appeal crunch time for Blatter and Platini
+
+![Michael Platini, left, with Sepp Blatter in 2014. File Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797152_1_20250324151246.jpg&q=90)
+  
+
+Former Fifa president Sepp Blatter and France football great Michel Platini will appear before a Swiss court on Tuesday to hear whether the case that finished their careers in football will end with their acquittals or convictions for corruption.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm)
+
+---
+
 # Donnarumma error puts Germany in Nations League semis
 
 ![Germany's Jamal Musiala, right, celebrates his goal with Joshua Kimmich, who provided the assist. Photo: DPA/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797116_1_20250324113927.jpg&q=90)
@@ -46,7 +70,7 @@ Russian 17-year-old Mirra Andreeva, coming off back-to-back WTA 1000 wins in Dub
 
 ---
 
-# Cavs snap four-game losing skid; sink Jazz in Utah
+# Cavs snap four-game losing skid, sink Jazz in Utah
 
 ![The victory snapped the Cavs' longest losing streak of the season at four games. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797085_1_20250324080912.jpg&q=85)
   
@@ -1414,29 +1438,5 @@ Bruno Fernandes netted a hat-trick as Manchester United beat Real Sociedad 4-1 i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795685-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795685-20250314.htm)
-
----
-
-# Swiatek cruises past Zheng to reach Indian Wells semis
-
-![Iga Swiatek beat Zheng Qinwen in straight sets to reach the final four at Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795674_1_20250314093042.jpg&q=90)
-  
-
-Defending champion Iga Swiatek beat Zheng Qinwen of China 6-3, 6-3, avenging her Olympics semi-final loss to the Paris Games gold medallist, to reach the last four at Indian Wells.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795674-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795674-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795674-20250314.htm)
 
 ---

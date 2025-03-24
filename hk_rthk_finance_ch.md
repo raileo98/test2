@@ -1,3 +1,26 @@
+# 旅發局：七欖閉幕禮首開放啟德體育園天幕綻放煙火　國際表演陣容
+
+  
+
+香港國際七人欖球賽本周末、一連三日在啟德體育園主場館舉行，旅發局表示，開幕典禮會有全新激光投影表演，閉幕禮更首次開放球場天幕綻放煙火，亦會邀來人氣南韓職業棒球隊啦啦隊助陣，展現「盛事之都」的動感魅力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm)
+
+---
+
 # 韓股偏軟收市　結束5連升
 
 ![首爾綜合指數收報2632點，跌11點，跌幅0.42%，結束5連升。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797147_1_20250324145054.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796839-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796839-20250321.htm)
-
----
-
-# 李家超與5間有意落戶港深創新及科技園區頂尖科企代表交流
-
-![李家超表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796835_1_20250321194737.jpg&q=80)
-  
-
-行政長官李家超出席港深創新及科技園兩座大樓的平頂儀式。他表示，會於今年內完成園區第二期詳細規劃，已指示內部提速、提效，推動園區工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796835-20250321.htm)
 
 ---
