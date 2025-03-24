@@ -1,3 +1,27 @@
+# 比亞迪股份去年盈利升34%　派末期息每股3.974元
+
+![比亞迪股份去年盈利402.5億元人民幣，按年增長34%。派末期息每股3.974元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797209_1_20250324213953.jpg&q=90)
+  
+
+比亞迪股份公布，去年盈利402.5億元人民幣，按年增長34%。派末期息每股3.974元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797209-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797209-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797209-20250324.htm)
+
+---
+
 # 美股3大指數初段升逾1%
 
 ![紐約股市3大指數初段升逾1%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797211_1_20250324214832.jpg&q=80)
