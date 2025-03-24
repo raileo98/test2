@@ -1,3 +1,51 @@
+# 霍啟剛歡迎當局彈性處理調整精英體育資助制度
+
+![霍啟剛表示，歡迎當局今次彈性處理，調整精英體育資助制度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797215_1_20250324225435.jpg&q=80)
+  
+
+港協暨奧委會副會長霍啟剛表示，近年香港運動員在桌球和網球國際賽事的成績非常好，歡迎當局今次彈性處理，調整精英體育資助制度，讓這兩個項目來未在兩年繼續成為體育學院的「A級」精英項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm)
+
+---
+
+# 佳兆業料去年虧損擴大至不多於300億人民幣
+
+![佳兆業發預期去年將錄得不多於300億元人民幣虧損，按年增加最多51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797214_1_20250324224622.jpg&q=90)
+  
+
+佳兆業發盈警，預期去年將錄得不多於300億元人民幣虧損，按年增加最多51%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm)
+
+---
+
 # 美國3月製造業PMI初值跌至49.8　跌幅大過預期
 
 ![美國3月製造業採購經理指數（PMI）初值降至49.8，跌至50以下的收縮區間，低過市場預期的51.7。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797212_1_20250324215640.jpg&q=80)

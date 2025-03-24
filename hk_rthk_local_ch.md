@@ -1,3 +1,51 @@
+# 一艘漁船涉走私懷疑受管制乾魚翅及電子產品　4名船員被捕
+
+![關員在船上一個暗格內檢獲部分懷疑走私電子產品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797216_1_20250324225402.jpg&q=90)
+  
+
+一艘出境漁船涉嫌走私懷疑受管制的乾魚翅、電子產品及雪茄等，約值2500萬元，海關拘捕4名涉案船員，並扣查有關漁船。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm)
+
+---
+
+# 霍啟剛歡迎當局彈性處理調整精英體育資助制度
+
+![霍啟剛表示，歡迎當局今次彈性處理，調整精英體育資助制度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797215_1_20250324225435.jpg&q=80)
+  
+
+港協暨奧委會副會長霍啟剛表示，近年香港運動員在桌球和網球國際賽事的成績非常好，歡迎當局今次彈性處理，調整精英體育資助制度，讓這兩個項目來未在兩年繼續成為體育學院的「A級」精英項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm)
+
+---
+
 # 荃灣港安醫院手術燈墜落　院方檢查同型號四組燈確認安全運作
 
   
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm)
-
----
-
-# 盧煜明稱香港正值創科「黃金時期」　冀更多「尖子」來港發展
-
-![盧煜明形容，現時是香港創科的「黃金時期」，科創投入大增。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797026_1_20250323160615.jpg&q=80)
-  
-
-有「無創產前檢測之父」之稱的中大校長盧煜明形容，現時是香港創科的「黃金時期」，科創投入大增。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797026-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797026-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797026-20250323.htm)
-
----
-
-# 慢病共治90名醫生停收新症　彭飛舟稱不同醫生業務或會有變化
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797025_1_20250323155748.jpg&q=85)
-  
-
-基層醫療健康專員彭飛舟表示，「慢性疾病共同治理先導計劃」有90名醫生停收新症。他解釋，不同醫生的業務可能有變化，例如在流感季節可能會較著重處理流感病人等，醫生甚至可能暫停接收新症，強調相關醫生會繼續跟進已配對的市民，又指當局一直與醫生有密切接觸，當他們完成調節業務後，可能會恢復接收新症。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797025-20250323.htm)
 
 ---
