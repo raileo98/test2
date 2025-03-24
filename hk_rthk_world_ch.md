@@ -1,3 +1,27 @@
+# 國防部：中泰海軍聯合訓練將於湛江附近舉行
+
+![國防郈表示，中泰海軍聯合訓練將於3月下旬至4月上旬在湛江附近舉行。（國防部網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797139_1_20250324132905.jpg&q=90)
+  
+
+國防部網站公布，根據中泰雙方共識，中泰「藍色突擊-2025」海軍聯合訓練將於3月下旬至4月上旬在廣東湛江附近舉行。此次聯合訓練主要開展城市反恐戰術、聯合對海打擊、聯合反潛等內容訓練。是兩國海軍第六次舉行有關系列聯合訓練，對深化兩國海軍務實合作、提升海上聯合行動能力具有積極意義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797139-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797139-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797139-20250324.htm)
+
+---
+
 # 韓悳洙恢復南韓代總統職務　強調民眾已對兩極化政治明確說不
 
 ![韓悳洙強調，民眾已對兩極化政治明確說不。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797136_1_20250324130726.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm)
-
----
-
-# 石破茂：強化防衛力量對加強日本威懾力是不可或缺
-
-![石破茂到神奈川縣橫須賀市出席防衛大學畢業典禮並致辭。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796934_1_20250322173725.jpg&q=90)
-  
-
-日本首相石破茂說，從根本上強化防衛力量，對於加強日本的威懾力而言是不可或缺，會基於國家安全保障戰略等繼續採取措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796934-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796934-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796934-20250322.htm)
 
 ---

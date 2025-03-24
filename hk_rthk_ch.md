@@ -1,3 +1,27 @@
+# 國防部：中泰海軍聯合訓練將於湛江附近舉行
+
+![國防郈表示，中泰海軍聯合訓練將於3月下旬至4月上旬在湛江附近舉行。（國防部網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797139_1_20250324132905.jpg&q=90)
+  
+
+國防部網站公布，根據中泰雙方共識，中泰「藍色突擊-2025」海軍聯合訓練將於3月下旬至4月上旬在廣東湛江附近舉行。此次聯合訓練主要開展城市反恐戰術、聯合對海打擊、聯合反潛等內容訓練。是兩國海軍第六次舉行有關系列聯合訓練，對深化兩國海軍務實合作、提升海上聯合行動能力具有積極意義。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797139-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797139-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797139-20250324.htm)
+
+---
+
 # 港股下午開市後偏軟
 
 ![港股偏軟，恒生指數較早時報23667點，跌22點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797137_1_20250324130737.jpg&q=75)

@@ -1,3 +1,27 @@
+# Govt to exceed family office target: treasury chief
+
+![Christopher Hui says about one fourth of the new family offices had set up shop in the SAR partly due to the 'Wealth for Good in Hong Kong Summit.' Photo: Courtesy of Financial Services and the Treasury Bureau](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797135_1_20250324130303.jpg&q=90)
+  
+
+The Secretary for Financial Services and the Treasury Christopher Hui said on Monday he is confident that the government will be able to beat the target of bringing in over 200 large family offices by the end of the year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm)
+
+---
+
 # 'Public flat tenants will have ample time to move out'
 
 ![The Housing Authority's Cleresa Wong expects at least a few hundred flats could be released after rules are tightened. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797127_1_20250324121128.jpg&q=80)
@@ -1413,30 +1437,5 @@ Counter-terror police on Friday launched a probe into an electricity substation 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796855-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796855-20250321.htm)
-
----
-
-# HK Investment Corp chips in with strategic deal
-
-![Paul Chan says the design and application of RISC-V open-source chips will speed up industrial revolutions. Photo: Courtesy of Government Information Services](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796829_1_20250321182218.jpg&q=90)
-![Hong Kong Investment Corporation has signed a strategic partnership deal with Shanghai-based startup StarFive to speed up RISC-V chips' adoption in the SAR. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796829_2_20250321182218.jpg&q=90)
-  
-
-Financial Secretary Paul Chan said on Friday a strategic partnership between the government-backed investment firm and a mainland chipmaker will speed up adoption of the popular RISC-V chips in the city.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm)
 
 ---

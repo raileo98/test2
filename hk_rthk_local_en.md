@@ -1,3 +1,27 @@
+# Govt to exceed family office target: treasury chief
+
+![Christopher Hui says about one fourth of the new family offices had set up shop in the SAR partly due to the 'Wealth for Good in Hong Kong Summit.' Photo: Courtesy of Financial Services and the Treasury Bureau](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797135_1_20250324130303.jpg&q=90)
+  
+
+The Secretary for Financial Services and the Treasury Christopher Hui said on Monday he is confident that the government will be able to beat the target of bringing in over 200 large family offices by the end of the year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm)
+
+---
+
 # 'Public flat tenants will have ample time to move out'
 
 ![The Housing Authority's Cleresa Wong expects at least a few hundred flats could be released after rules are tightened. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797127_1_20250324121128.jpg&q=80)
@@ -1417,29 +1441,5 @@ Five primary school pupils who took part in an exchange tour on the mainland hav
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796303-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796303-20250318.htm)
-
----
-
-# 'Funding cut won't affect non-local student tuition'
-
-![Education chief Christine Choi says non-local students' tuition fee adjustments are not linked with the income of a university. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796300_1_20250318215610.jpg&q=80)
-  
-
-Education authorities on Tuesday stressed that plans to slash funding for universities does not translate to a rise in tuition fees for non-local students as a source of income.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796300-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796300-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796300-20250318.htm)
 
 ---
