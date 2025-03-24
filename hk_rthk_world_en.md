@@ -49,7 +49,7 @@ South Korean authorities said on Monday they would deploy dozens of helicopters 
 
 # Beijing says no Duterte asylum application received
 
-![Rodrigo Duterte at Villamor Air Base in Pasay, Metro Manila, after returning from Hong Kong on March 11. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797161_1_20250324160317.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797161_1_20250324160317.jpg&q=90)
   
 
 China has not received any application for asylum from Philippines' former President Rodrigo Duterte and his family, a foreign ministry spokesperson said on Monday.

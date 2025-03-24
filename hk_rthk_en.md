@@ -1,3 +1,27 @@
+# China vows more proactive fiscal policy at dev't forum
+
+![Entrepreneurs, government officials, experts and business representatives attend the China Development Forum 2025. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797174_1_20250324171122.jpg&q=75)
+  
+
+Beijing on Monday said it will implement a more proactive fiscal policy this year, with finance minister Lan Fo'an saying the nation's economic and fiscal strengths have grown significantly.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797174-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797174-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797174-20250324.htm)
+
+---
+
 # US-Russia talks on Ukraine begin in Saudi Arabia
 
 ![Different plans for temporary ceasefires in the Ukraine war have been proposed, but attacks have continued unabated. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797165_1_20250324162833.jpg&q=60)
@@ -49,7 +73,7 @@ South Korean authorities said on Monday they would deploy dozens of helicopters 
 
 # Beijing says no Duterte asylum application received
 
-![Rodrigo Duterte at Villamor Air Base in Pasay, Metro Manila, after returning from Hong Kong on March 11. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797161_1_20250324160317.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797161_1_20250324160317.jpg&q=90)
   
 
 China has not received any application for asylum from Philippines' former President Rodrigo Duterte and his family, a foreign ministry spokesperson said on Monday.
@@ -1414,29 +1438,5 @@ The MTR says Light Rail services are returning to normal after several routes in
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796898-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796898-20250322.htm)
-
----
-
-# French film star Depardieu to go on trial next week
-
-![Depardieu has faced a growing number of sexual assault allegations in recent years. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796836_1_20250321191832.jpg&q=90)
-  
-
-French actor Gerard Depardieu faces trial on Monday over alleged sexual assaults of two women on a film set, a case placing one of the world's best known movie stars at the heart of France's broader reckoning over sexual violence.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 中石化：今年保持高強度投資　「增儲上產」力度不減
+
+![趙東稱現時俄羅斯原油價格與其他地方相若。向俄羅斯採購原油時將確保規範運作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797173_1_20250324171111.jpg&q=90)
+  
+
+中石化去年盈利489.4億元人民幣，按年跌16%，創4年新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797173-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797173-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797173-20250324.htm)
+
+---
+
 # 康師傅去年多賺近20%　末期息及特別息多派近20%
 
 ![康師傅去年盈利37.3億元人民幣，按年升近20%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797168_1_20250324163733.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796852-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796852-20250321.htm)
-
----
-
-# 有券商認為證監會限制新股孖展最高借九成對市場氣氛影響不大
-
-![證監會向所有持牌法團發出內部監控措施指引，要求業界對新股孖展最高只可以借九成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796848_1_20250321210308.jpg&q=90)
-  
-
-近月多隻新股錄得數以千倍超額認購。證監會近日完成檢視數家選定持牌法團的新股融資活動，發現存在缺失，包括部分券商被發現曾採取不謹慎和過分進取的融資手法，接納超出客戶財政能力認購指示。證監會向所有持牌法團發出內部監控措施指引，加強風險管理，包括要求業界應向客戶收取最低相等於認購金額10%的預付認購資金，即新股孖展最高只可以借九成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796848-20250321.htm)
 
 ---

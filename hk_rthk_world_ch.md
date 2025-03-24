@@ -144,7 +144,7 @@
 
 # 就任半年的泰國總理佩通坦首次面對國會不信任動議
 
-![佩通坦上半年來，首次面對國會提出不信任動議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797143_1_20250324143156.jpg&q=90)
+![佩通坦上任半年來，首次面對國會提出不信任動議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797143_1_20250324143156.jpg&q=90)
   
 
 泰國總理佩通坦就任半年來，首次面對國會提出不信任動議。

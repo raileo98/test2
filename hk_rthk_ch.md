@@ -1,3 +1,27 @@
+# 中石化：今年保持高強度投資　「增儲上產」力度不減
+
+![趙東稱現時俄羅斯原油價格與其他地方相若。向俄羅斯採購原油時將確保規範運作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797173_1_20250324171111.jpg&q=90)
+  
+
+中石化去年盈利489.4億元人民幣，按年跌16%，創4年新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797173-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797173-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797173-20250324.htm)
+
+---
+
 # 康師傅去年多賺近20%　末期息及特別息多派近20%
 
 ![康師傅去年盈利37.3億元人民幣，按年升近20%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797168_1_20250324163733.jpg&q=85)
@@ -453,7 +477,7 @@
 
 # 就任半年的泰國總理佩通坦首次面對國會不信任動議
 
-![佩通坦上半年來，首次面對國會提出不信任動議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797143_1_20250324143156.jpg&q=90)
+![佩通坦上任半年來，首次面對國會提出不信任動議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797143_1_20250324143156.jpg&q=90)
   
 
 泰國總理佩通坦就任半年來，首次面對國會提出不信任動議。
