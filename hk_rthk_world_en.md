@@ -1,3 +1,52 @@
+# S Korea deploys choppers in force to fight bushfire
+
+![Unramsa temple in Uiseong, Gyeongbuk, is one of the buildings destroyed by a wildfire on Sunday.
+Photo: Yonhap/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797163_1_20250324162214.jpg&q=85)
+  
+
+South Korean authorities said on Monday they would deploy dozens of helicopters and thousands of firefighters and soldiers as they struggle to control multiple wildfires in the southeast, which have been burning for days.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm)
+
+---
+
+# Beijing says no Duterte asylum application received
+
+![Rodrigo Duterte at Villamor Air Base in Pasay, Metro Manila, after returning from Hong Kong on March 11. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797161_1_20250324160317.jpg&q=90)
+  
+
+China has not received any application for asylum from Philippines' former President Rodrigo Duterte and his family, a foreign ministry spokesperson said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm)
+
+---
+
 # Two injured in western Japan wildfires
 
 ![A wildfire is seen in the hills above Imabari City in Ehime prefecture. Photo: Yomiuri Shimbun/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797157_1_20250324153925.jpg&q=85)
@@ -1387,53 +1436,5 @@ US Chief Justice John Roberts on Tuesday issued a rare public rebuke of Presiden
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796357-20250319.htm)
-
----
-
-# Netanyahu warns strikes on Gaza 'just the beginning'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796354_1_20250319085145.jpg&q=90)
-  
-
-Israeli Prime Minister Benjamin Netanyahu warned on Tuesday that massive overnight strikes on Gaza were "only the beginning" and that future negotiations with Hamas "will take place only under fire".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796354-20250319.htm)
-
----
-
-# US releases final trove of Kennedy assassination files
-
-![Documents related to the 1963 assassination of President John F Kennedy are displayed after they were released. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796353_1_20250319084345.jpg&q=85)
-  
-
-The US National Archives on Tuesday released the final batch of files related to the assassination of president John F Kennedy - a case that still fuels conspiracy theories more than 60 years after his death.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796353-20250319.htm)
 
 ---

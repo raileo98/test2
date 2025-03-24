@@ -1,3 +1,51 @@
+# 丁薛祥將出席博鰲亞洲論壇2025年年會
+
+![丁薛祥將出席博鰲亞洲論壇2025年年會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797159_1_20250324155151.jpg&q=90)
+  
+
+在北京，外交部表示，中共中央政治局常委、國務院副總理丁薛祥將於本星期四，應邀出席在海南舉行的博鰲亞洲論壇2025年年會開幕式並發表主旨演講。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm)
+
+---
+
+# 外交部：所謂台灣有事就是日本有事的謬論不僅大錯特錯且十分危險
+
+![郭嘉昆敦促日方重信守諾，審慎處理台灣問題。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797162_1_20250324161800.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆表示，所謂台灣有事就是日本有事、《中日聯合聲明》不具法律約束力的謬論將嚴重侵蝕中日關係政治基礎，不僅大錯特錯，而且十分危險，敦促日方重信守諾，審慎處理台灣問題，以實際行動維護中日關係改善發展的勢頭。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm)
+
+---
+
 # 法國外長巴羅本周四起訪華兩日
 
 ![巴羅將於本星期四至五訪華。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797158_1_20250324154336.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm)
-
----
-
-# 美國將限制加國人進入跨境圖書館　指圖書館運作帶來邊境安全風險
-
-![圖書館建於1904年，美加國界穿過圖書館。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796959_1_20250322205734.jpg&q=80)
-  
-
-加拿大廣播公司報道，美國將限制加拿大人進入一座地標式的跨境圖書館，引發兩國邊境地區民眾強烈不滿。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796959-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796959-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796959-20250322.htm)
-
----
-
-# 新華社：特朗普政府「交易外交」陷入僵局
-
-![新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796957_1_20250322203746.jpg&q=90)
-  
-
-新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章，認為在烏克蘭危機上，美國與俄烏兩國的分歧顯現；在巴以問題上，加沙和也門戰火重燃；另外，為解決美國國內的非法移民和芬太尼問題，美國向墨西哥和加拿大揮起「關稅大棒」，但多國反制美國加徵關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm)
 
 ---

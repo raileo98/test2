@@ -1,3 +1,51 @@
+# 丁薛祥將出席博鰲亞洲論壇2025年年會
+
+![丁薛祥將出席博鰲亞洲論壇2025年年會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797159_1_20250324155151.jpg&q=90)
+  
+
+在北京，外交部表示，中共中央政治局常委、國務院副總理丁薛祥將於本星期四，應邀出席在海南舉行的博鰲亞洲論壇2025年年會開幕式並發表主旨演講。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm)
+
+---
+
+# 外交部：所謂台灣有事就是日本有事的謬論不僅大錯特錯且十分危險
+
+![郭嘉昆敦促日方重信守諾，審慎處理台灣問題。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797162_1_20250324161800.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆表示，所謂台灣有事就是日本有事、《中日聯合聲明》不具法律約束力的謬論將嚴重侵蝕中日關係政治基礎，不僅大錯特錯，而且十分危險，敦促日方重信守諾，審慎處理台灣問題，以實際行動維護中日關係改善發展的勢頭。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm)
+
+---
+
 # 七欖期間有酒店安排免費穿梭巴士　的士業稱啟德設專區接送乘客
 
   

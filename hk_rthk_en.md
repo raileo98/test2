@@ -1,3 +1,52 @@
+# S Korea deploys choppers in force to fight bushfire
+
+![Unramsa temple in Uiseong, Gyeongbuk, is one of the buildings destroyed by a wildfire on Sunday.
+Photo: Yonhap/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797163_1_20250324162214.jpg&q=85)
+  
+
+South Korean authorities said on Monday they would deploy dozens of helicopters and thousands of firefighters and soldiers as they struggle to control multiple wildfires in the southeast, which have been burning for days.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm)
+
+---
+
+# Beijing says no Duterte asylum application received
+
+![Rodrigo Duterte at Villamor Air Base in Pasay, Metro Manila, after returning from Hong Kong on March 11. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797161_1_20250324160317.jpg&q=90)
+  
+
+China has not received any application for asylum from Philippines' former President Rodrigo Duterte and his family, a foreign ministry spokesperson said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm)
+
+---
+
 # Two injured in western Japan wildfires
 
 ![A wildfire is seen in the hills above Imabari City in Ehime prefecture. Photo: Yomiuri Shimbun/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797157_1_20250324153925.jpg&q=85)
@@ -96,7 +145,6 @@ Venezuela on Monday received nearly 200 citizens deported from the United States
 
 # Subsidy level for public healthcare 'unsustainable'
 
-![Franklin Lam is confident people will not be deterred from seeking medical help even after healthcare subsidies are capped. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797138_1_20250324131612.jpg&q=90)
 ![Public Doctors' Association chairman Christopher Lung is calling for clear guidelines for frontline medics to handle future fee-related arguments with patients. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797138_2_20250324131612.jpg&q=80)
   
 
@@ -169,7 +217,7 @@ The Housing Authority on Monday said well-off public housing tenants will be giv
 
 # Coldplay ticket fixes 'could be dealt with by post'
 
-![Ticket exchange booths in Hong Kong and the mainland are open from today until April 7. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797121_1_20250324115705.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797121_1_20250324115705.jpg&q=90)
   
 
 A lawmaker suggested on Monday that the ticketing platform Cityline deal with exchanges necessitated by printing errors on some Coldplay concert tickets by post.
@@ -1390,53 +1438,5 @@ Donald Trump announced on Friday that Boeing has been awarded the contract for t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm)
-
----
-
-# China, Japan should boost trust, cooperation: FM
-
-![The FM noted that since Ishiba took office, China-Japan ties had improved. Photo: MOFA](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796871_1_20250322034618.jpg&q=90)
-  
-
-China and Japan should enhance mutual trust and cooperation to provide global stability amid complex international challenges, Foreign Minister Wang Yi said on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796871-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796871-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796871-20250322.htm)
-
----
-
-# Separate fees for radiology services 'minimal': HA
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796895_1_20250322085424.jpg&q=90)
-  
-
-Requiring patients to pay separately for tests and scans at public hospitals will leave them with a "minimal" financial burden as such services will still be "highly subsidised" by the government, health officials say amid plans to adjust medical fees.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm)
 
 ---
