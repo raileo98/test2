@@ -1,3 +1,26 @@
+# 林奮強指政府醫療開支大達臨界點　醫生組織冀當局多作解說免爭拗
+
+  
+
+政府目標本月內公布公營醫療收費調整方案細節。醫管局管治及架構改革委員會成員林奮強指出，現時政府補貼佔整個醫管局支出超過97%，重申改革收費目的為盡量精準利用有限資源，提高對重症危疾的保障。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm)
+
+---
+
 # 警方在利源西街樓上單位搗破懷疑無牌酒吧拘捕32人
 
 ![警方帶走被捕人士。（警方圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797067_1_20250324025417.jpg&q=80)
@@ -24,7 +47,7 @@
 
 # 中大研自動化線控砌磚機械人精準度較人手高　可應用至建道路屏障
 
-![中大研發的自動化線控砌磚機械人用於重建校園内的再生園。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797064_1_20250324011548.jpg&q=65)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797064_1_20250324011548.jpg&q=65)
   
 
 中大研發的自動化線控砌磚機械人投入運作，用於重建校園内的再生園。
@@ -484,7 +507,7 @@
 ![庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他形容感覺很好。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797019_2_20250323160553.jpg&q=90)
   
 
-中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，形容感覺很好。
+中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他回應「當然，感覺很好」。
 
   
 
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796917-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796917-20250322.htm)
-
----
-
-# 輕鐵天悅站有吊臂車損毁架空電纜　吊臂車司機被捕
-
-![港鐵人員搶修後，受損的架空電纜於上午11時10分完成臨時修復，輕鐵服務陸續回復正常。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796916_1_20250322130612.jpg&q=85)
-  
-
-輕鐵天悅站附近早上有吊臂車損毁架空電纜，影響電力供應，輕鐵服務一度受阻約4小時。警方拘捕涉事的吊臂車司機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796916-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796916-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796916-20250322.htm)
 
 ---

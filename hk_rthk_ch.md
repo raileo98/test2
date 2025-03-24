@@ -1,3 +1,74 @@
+# 林奮強指政府醫療開支大達臨界點　醫生組織冀當局多作解說免爭拗
+
+  
+
+政府目標本月內公布公營醫療收費調整方案細節。醫管局管治及架構改革委員會成員林奮強指出，現時政府補貼佔整個醫管局支出超過97%，重申改革收費目的為盡量精準利用有限資源，提高對重症危疾的保障。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm)
+
+---
+
+# 綠城中國開市前停牌
+
+![綠城中國今早9時起停牌，股份上周五收市報12.08元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797090_1_20250324090837.jpg&q=90)
+  
+
+綠城中國今早9時起停牌，股份上周五收市報12.08元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797090-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797090-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797090-20250324.htm)
+
+---
+
+# 台股初段升逾百點
+
+![加權指數較早時報22366點，升156點，升幅0.71%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797089_1_20250324090454.jpg&q=90)
+  
+
+台股初段造好，加權指數較早時報22366點，升156點，升幅0.71%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797089-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797089-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797089-20250324.htm)
+
+---
+
 # 韓股初段跌約0.2%
 
 ![首爾綜合指數較早時報2638點，跌4點，跌幅0.16%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797088_1_20250324083329.jpg&q=90)
@@ -482,7 +553,7 @@
 
 # 中大研自動化線控砌磚機械人精準度較人手高　可應用至建道路屏障
 
-![中大研發的自動化線控砌磚機械人用於重建校園内的再生園。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797064_1_20250324011548.jpg&q=65)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797064_1_20250324011548.jpg&q=65)
   
 
 中大研發的自動化線控砌磚機械人投入運作，用於重建校園内的再生園。
@@ -1326,7 +1397,7 @@
 ![庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他形容感覺很好。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797019_2_20250323160553.jpg&q=90)
   
 
-中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，形容感覺很好。
+中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他回應「當然，感覺很好」。
 
   
 
@@ -1366,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm)
-
----
-
-# 莫斯科市郊音樂廳恐襲案一周年　民眾到紀念碑前悼念死者
-
-![莫斯科市郊音樂廳恐襲案一周年，民眾到紀念碑前悼念死難者。 （法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797017_1_20250323133401.jpg&q=90)
-  
-
-俄羅斯莫斯科市郊音樂廳恐襲案發生一周年，現場豎立新建成的紀念碑，數百名民眾到場擺放鮮花和照片，悼念145名死難者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm)
-
----
-
-# 陳美寶稱市區設無人機起降點有限制　正籌備載人項目相關修例
-
-![陳美寶強調當局持開放態度，會兼顧安全及實用性。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797016_1_20250323143905.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶表示，低空經濟「監管沙盒」首批試點項目，部分以科學園、數碼港及醫院範圍為試點，累積足夠數據及信心後，或可擴大試驗至園區附近，例如跨海至對岸。被問到下一階段會否有載人項目，例如空中的士，陳美寶說，政府正籌備相關修例，包括無人機的負載水平，有待修例通過，相信可以更好籌備載人項目。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797016-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797016-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797016-20250323.htm)
-
----
-
-# 韓文秀稱擴大服務消費　形成高質量發展與高品質生活相互促進
-
-![韓文秀表示，會綜合施策擴大消費，包括增加城鄉居民的收入，優化收入分配結構，讓消費者有錢能消費。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797015_1_20250323175247.jpg&q=90)
-  
-
-在北京，中央財經委員會辦公室常務副主任韓文秀表示，會綜合施策擴大消費，包括增加城鄉居民的收入，優化收入分配結構，讓消費者有錢能消費，同時擴大服務消費，形成高質量發展與高品質生活相互促進，相得益彰的局面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm)
 
 ---

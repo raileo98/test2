@@ -1,3 +1,51 @@
+# 綠城中國開市前停牌
+
+![綠城中國今早9時起停牌，股份上周五收市報12.08元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797090_1_20250324090837.jpg&q=90)
+  
+
+綠城中國今早9時起停牌，股份上周五收市報12.08元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797090-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797090-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797090-20250324.htm)
+
+---
+
+# 台股初段升逾百點
+
+![加權指數較早時報22366點，升156點，升幅0.71%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797089_1_20250324090454.jpg&q=90)
+  
+
+台股初段造好，加權指數較早時報22366點，升156點，升幅0.71%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797089-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797089-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797089-20250324.htm)
+
+---
+
 # 韓股初段跌約0.2%
 
 ![首爾綜合指數較早時報2638點，跌4點，跌幅0.16%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797088_1_20250324083329.jpg&q=90)
@@ -291,7 +339,7 @@
 ![庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他形容感覺很好。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797019_2_20250323160553.jpg&q=90)
   
 
-中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，形容感覺很好。
+中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他回應「當然，感覺很好」。
 
   
 
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796777-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796777-20250321.htm)
-
----
-
-# 新世界與招商蛇口合作發展北都商住項目動工
-
-![新世界發展與招商蛇口共同發展的北部都會區商住項目今日舉行動工儀式。（新世界發展圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796779_1_20250321142137.jpg&q=85)
-  
-
-新世界發展與招商蛇口共同發展的北部都會區商住項目今日舉行動工儀式，項目總樓面面積逾110萬平方呎，將提供約2300個住宅單位，可與新田科技城創科產業發揮協同效應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796779-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796779-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796779-20250321.htm)
-
----
-
-# 法國領先航空與機管局簽署備忘錄　陳茂波：香港商業環境充滿活力
-
-![陳茂波表示，今次備忘錄的簽訂，印證香港充滿活力的商業環境以及龐大的增長潛力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796778_1_20250321143912.jpg&q=85)
-  
-
-法國領先航空服務公司Elior Group SA計劃拓展香港業務，與機管局簽署合作備忘錄，探討在港提供飛機拆解、部件回收、人才培訓等專業服務，推動香港發展成為亞洲首個飛機部件處理及交易中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796778-20250321.htm)
 
 ---
