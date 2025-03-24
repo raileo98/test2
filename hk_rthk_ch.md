@@ -1,3 +1,27 @@
+# 土耳其總統批評抗議活動變成暴力運動　逾千人被拘留
+
+![伊斯坦布爾連續第六晚有民眾上街。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797224_1_20250325022503.jpg&q=90)
+  
+
+土耳其伊斯坦布爾連續第六晚有民眾上街，抗議當局拘捕市長伊馬姆奧盧。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797224-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797224-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797224-20250325.htm)
+
+---
+
 # 黃澤林不敵禾頓　邁阿密網球公開賽男單第三圈止步
 
 ![黃澤林未能晉級十六強。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797223_1_20250325013300.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm)
-
----
-
-# 尹錫悅涉嫌發動內亂案4月14日首次公審
-
-![尹錫悅涉嫌發動內亂案4月14日首次公審。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797148_1_20250324150229.jpg&q=90)
-  
-
-南韓首爾中央地方法院宣布，將於4月14日對總統尹錫悅涉嫌發動內亂案進行第一次公審。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm)
 
 ---
