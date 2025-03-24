@@ -1,5 +1,31 @@
+# 內地股市回穩收市
+
+![上證指數最多曾跌逾0.7%，尾段轉升收市，報3370點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797151_1_20250324151120.jpg&q=85)
+  
+
+內地股市回穩收市。旅遊酒店、銀行、保險股造好，腦機接口、軍工、算力租賃等股份下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm)
+
+---
+
 # 旅發局：七欖閉幕禮首開放啟德體育園天幕綻放煙火　國際表演陣容
 
+![閉幕式會打開啟德主場館天幕在球場上空，呈獻煙火匯演。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797150_1_20250324152236.jpg&q=90)
+![開幕典禮會有全新激光投影表演。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797150_2_20250324152236.jpg&q=85)
   
 
 香港國際七人欖球賽本周末、一連三日在啟德體育園主場館舉行，旅發局表示，開幕典禮會有全新激光投影表演，閉幕禮更首次開放球場天幕綻放煙火，亦會邀來人氣南韓職業棒球隊啦啦隊助陣，展現「盛事之都」的動感魅力。
@@ -1412,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796844-20250321.htm)
-
----
-
-# 俄羅斯維持利率不變　指標利率維持21厘
-
-![俄羅斯央行維持指標利率21厘不變，表示未來可能進一步加息，因通脹壓力居高不下。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796839_1_20250321192742.jpg&q=80)
-  
-
-俄羅斯央行維持指標利率21厘不變，符合市場預期，又表示未來仍可能進一步加息，因為通脹壓力居高不下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796839-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796839-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796839-20250321.htm)
 
 ---

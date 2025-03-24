@@ -1,3 +1,27 @@
+# Laos, Chinese firm sign US$1.45b clean energy deal
+
+![China Western Power Industrial has signed an agreement to design, supply, and build a 1,800-megawatt clean energy power project in southern Laos. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797153_2_20250324151758.jpg&q=90)
+  
+
+Laos has signed a US$1.45 billion clean energy deal with a Chinese power plant equipment manufacturer as the country furthers its push into clean power generation and transmission.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm)
+
+---
+
 # Stocks open up amid caution over tariffs
 
 ![The Hang Seng Index opened 59.86 points, or 0.25 percent, up at 23,749. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797110_1_20250324110326.jpg&q=80)
@@ -1411,29 +1435,5 @@ Wall Street stocks resumed their retreat on Thursday, falling hard ahead of key 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794654-20250307.htm)
-
----
-
-# "Home demand is keen": govt rejects oversupply claims
-
-![Only 4.5 percent of private flats were vacant as of end-2024, the government says. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794626_1_20250306222204.jpg&q=85)
-  
-
-Authorities insist there is still keen demand for housing, citing a low vacancy rate for private flats, in response to a market report suggesting the city's home market is on the decline due to a supply glut.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm](https://news.rthk.hk/rthk/en/component/k2/1794626-20250306.htm)
 
 ---

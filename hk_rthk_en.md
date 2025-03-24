@@ -1,3 +1,27 @@
+# Laos, Chinese firm sign US$1.45b clean energy deal
+
+![China Western Power Industrial has signed an agreement to design, supply, and build a 1,800-megawatt clean energy power project in southern Laos. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797153_2_20250324151758.jpg&q=90)
+  
+
+Laos has signed a US$1.45 billion clean energy deal with a Chinese power plant equipment manufacturer as the country furthers its push into clean power generation and transmission.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm)
+
+---
+
 # Appeal crunch time for Blatter and Platini
 
 ![Michael Platini, left, with Sepp Blatter in 2014. File Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797152_1_20250324151246.jpg&q=90)
@@ -145,7 +169,7 @@ A lawmaker suggested on Monday that the ticketing platform Cityline deal with ex
 
 # Local art space takes Art Basel on vampire adventure
 
-![Para Site's executive director Billy Tang says he wants to bring new perspectives to Art Basel. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797128_1_20250324121452.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797128_1_20250324121452.jpg&q=80)
   
 
 Want to see vampires travelling through time and space? Local art space Para Site is turning Art Basel's film section into a sci-fi wonderland.
@@ -1414,29 +1438,5 @@ Thomas Tuchel made a winning start to his England reign without delivering on hi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796888-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796888-20250322.htm)
-
----
-
-# Germany, France and UK call for Gaza ceasefire return
-
-![The joint appeal came after Israeli Defence Minister Israel Katz threatened Friday to annex parts of the Gaza Strip. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796887_1_20250322075550.jpg&q=90)
-  
-
-The foreign ministers of Germany, France and Britain called late on Friday for an "immediate return" to a Gaza ceasefire, as Israel's military pressed its renewed offensive in the Palestinian territory.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm)
 
 ---

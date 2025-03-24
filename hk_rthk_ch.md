@@ -1,5 +1,54 @@
+# 盧寵茂明日公布公營醫療服務收費改革詳情
+
+  
+
+醫務衞生局局長盧寵茂明日中午十二時於政府總部舉行記者會，公布公營醫療服務收費改革的詳情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797154-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797154-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797154-20250324.htm)
+
+---
+
+# 內地股市回穩收市
+
+![上證指數最多曾跌逾0.7%，尾段轉升收市，報3370點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797151_1_20250324151120.jpg&q=85)
+  
+
+內地股市回穩收市。旅遊酒店、銀行、保險股造好，腦機接口、軍工、算力租賃等股份下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm)
+
+---
+
 # 旅發局：七欖閉幕禮首開放啟德體育園天幕綻放煙火　國際表演陣容
 
+![閉幕式會打開啟德主場館天幕在球場上空，呈獻煙火匯演。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797150_1_20250324152236.jpg&q=90)
+![開幕典禮會有全新激光投影表演。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797150_2_20250324152236.jpg&q=85)
   
 
 香港國際七人欖球賽本周末、一連三日在啟德體育園主場館舉行，旅發局表示，開幕典禮會有全新激光投影表演，閉幕禮更首次開放球場天幕綻放煙火，亦會邀來人氣南韓職業棒球隊啦啦隊助陣，展現「盛事之都」的動感魅力。
@@ -381,6 +430,7 @@
 
 # 公安部副部長陳思源：化解基層矛盾糾紛有助防範刑事案件發生
 
+![陳思源認為，「楓橋經驗」有助防範刑事案件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797131_1_20250324152340.jpg&q=75)
   
 
 去年11月，內地接連發生兩宗導致多人死傷的殺人事件，內地稱為「一殺多」案件。

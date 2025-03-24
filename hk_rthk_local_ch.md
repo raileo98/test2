@@ -1,5 +1,30 @@
+# 盧寵茂明日公布公營醫療服務收費改革詳情
+
+  
+
+醫務衞生局局長盧寵茂明日中午十二時於政府總部舉行記者會，公布公營醫療服務收費改革的詳情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797154-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797154-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797154-20250324.htm)
+
+---
+
 # 旅發局：七欖閉幕禮首開放啟德體育園天幕綻放煙火　國際表演陣容
 
+![閉幕式會打開啟德主場館天幕在球場上空，呈獻煙火匯演。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797150_1_20250324152236.jpg&q=90)
+![開幕典禮會有全新激光投影表演。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797150_2_20250324152236.jpg&q=85)
   
 
 香港國際七人欖球賽本周末、一連三日在啟德體育園主場館舉行，旅發局表示，開幕典禮會有全新激光投影表演，閉幕禮更首次開放球場天幕綻放煙火，亦會邀來人氣南韓職業棒球隊啦啦隊助陣，展現「盛事之都」的動感魅力。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796971-20250322.htm)
-
----
-
-# 消防處籲如受廈村貨倉火警煙霧或異味影響　關閉窗戶保持鎮定
-
-![消防處派出三條喉及三隊煙帽隊到場灌救。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796968_1_20250322221753.jpg&q=90)
-  
-
-天水圍廈村附近一個貨倉發生火警，消防處正進行滅火行動，提醒附近居民如果受到隨風飄散的煙霧和異味影響，要關閉門窗及保持鎮定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796968-20250322.htm)
 
 ---

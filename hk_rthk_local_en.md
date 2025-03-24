@@ -97,7 +97,7 @@ A lawmaker suggested on Monday that the ticketing platform Cityline deal with ex
 
 # Local art space takes Art Basel on vampire adventure
 
-![Para Site's executive director Billy Tang says he wants to bring new perspectives to Art Basel. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797128_1_20250324121452.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797128_1_20250324121452.jpg&q=80)
   
 
 Want to see vampires travelling through time and space? Local art space Para Site is turning Art Basel's film section into a sci-fi wonderland.

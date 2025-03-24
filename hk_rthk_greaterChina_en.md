@@ -1,3 +1,27 @@
+# Laos, Chinese firm sign US$1.45b clean energy deal
+
+![China Western Power Industrial has signed an agreement to design, supply, and build a 1,800-megawatt clean energy power project in southern Laos. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797153_2_20250324151758.jpg&q=90)
+  
+
+Laos has signed a US$1.45 billion clean energy deal with a Chinese power plant equipment manufacturer as the country furthers its push into clean power generation and transmission.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm)
+
+---
+
 # Euro chamber head encouraged by meeting with Xia
 
 ![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing last week. File photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797113_1_20250324111447.jpg&q=90)
@@ -1412,29 +1436,5 @@ A mainland Catholic bishop attending the ongoing "Two Sessions" in Beijing on Sa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794877-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794877-20250308.htm)
-
----
-
-# China's top judge vows sanction countermeasures
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794874_1_20250308121124.jpg&q=90)
-  
-
-The country’s most senior judge has promised to take steps to counter unlawful sanctions and long-arm jurisdiction to safeguard national security.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794874-20250308.htm)
 
 ---
