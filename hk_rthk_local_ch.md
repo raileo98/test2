@@ -1,3 +1,26 @@
+# 5款新藥按新機制獲批註冊　其中兩款價格下降3成至3成半
+
+  
+
+醫管局總藥劑師崔俊明表示，「1+」藥物審批機制生效以來，共5款新藥按機制獲批准註冊，包括治療轉移性大腸癌、屬罕見病的陣發性夜間血紅素尿症，經成本評估小組談判後，這兩款藥物價格分別下降3成至3成半，每年節省1500萬元至2400萬元不等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm)
+
+---
+
 # 謝展寰：第一座垃圾焚化爐預計今年底投入運作
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796940-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796940-20250322.htm)
-
----
-
-# 張欣宇：新登記及今年9月後年檢之吊臂車須裝警報器提示收妥吊臂
-
-![欣宇相信，事故一般都是司機忘記將吊臂收好。（港鐵提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796937_1_20250322183131.jpg&q=75)
-  
-
-天水圍有夾斗吊臂車的吊臂，撞到輕鐵天悅站附近的架空電纜，輕鐵服務一度受阻約4小時，41歲的吊臂車司機涉嫌駕駛危險車輛，被警方拘捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796937-20250322.htm)
 
 ---

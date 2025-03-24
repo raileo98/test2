@@ -1,3 +1,26 @@
+# 5款新藥按新機制獲批註冊　其中兩款價格下降3成至3成半
+
+  
+
+醫管局總藥劑師崔俊明表示，「1+」藥物審批機制生效以來，共5款新藥按機制獲批准註冊，包括治療轉移性大腸癌、屬罕見病的陣發性夜間血紅素尿症，經成本評估小組談判後，這兩款藥物價格分別下降3成至3成半，每年節省1500萬元至2400萬元不等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm)
+
+---
+
 # 謝展寰：第一座垃圾焚化爐預計今年底投入運作
 
   
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm)
-
----
-
-# 伊斯坦布爾市長稱不會低頭　團隊稱會就法庭羈押裁決提出上訴
-
-![伊馬姆奧盧形容事件是國家民主的污點，他誓不低頭。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797044_1_20250323201701.jpg&q=90)
-  
-
-土耳其伊斯坦布爾刑事法庭就貪污指控，將市長伊馬姆奧盧羈押候訊。法庭說雖然伊馬姆奧盧有重大嫌疑，協助持械恐怖組織，但現階段並無必要為此拘捕他，不過他涉嫌干犯的金融罪行，足以令法庭頒令拘捕他。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm)
 
 ---
