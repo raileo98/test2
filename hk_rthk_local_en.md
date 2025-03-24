@@ -1,3 +1,27 @@
+# Cityline 'must explain Coldplay ticket errors'
+
+![The inaccurate information is printed on HK$1,399 'Coldplay: Music Of The Spheres World Tour – delivered by DHL' standing tickets. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797187_1_20250324182435.jpg&q=90)
+  
+
+The secretary for culture, sports and tourism has called on the ticketing platform Cityline to explain misprints on Coldplay concert tickets.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm)
+
+---
+
 # Health officials to help pharmas register new drugs
 
 ![Assistant Director of Health Frank Chan, centre, hopes the new arrangements can speed up the registration of new drugs in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797180_1_20250324172745.jpg&q=90)
@@ -1417,29 +1441,5 @@ The ICAC said on Wednesday two frontline staff from the Electrical and Mechanica
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796388-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796388-20250319.htm)
-
----
-
-# Ocean Park cable cars, upper park facilities closed
-
-![Ocean Park says no transport services are available between its lower and upper parks. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796396_1_20250319125104.jpg&q=55)
-  
-
-Ocean Park said on Wednesday its cable car services were suspended due to signal issues, and facilities at its upper park were closed temporarily.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796396-20250319.htm)
 
 ---

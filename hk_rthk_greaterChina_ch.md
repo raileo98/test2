@@ -430,7 +430,7 @@
 
 # 訪華美參議員戴安斯：北京不制止芬太尼輸美　中美貿易談判難推動
 
-![戴安斯（左）訪華期間與總理李強等會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797099_1_20250324100417.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797099_1_20250324100417.jpg&q=90)
   
 
 在中國訪問的美國國會參議員戴安斯說，北京必須制止芬太尼毒品流入美國，否則美中之間難以就關稅和非關稅障礙進行任何對話。
