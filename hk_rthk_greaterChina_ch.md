@@ -1,3 +1,27 @@
+# 李強簽國務院令　 公布修訂後的《保障中小企業款項支付條例》
+
+![李強簽署國務院令，公布修訂後的《保障中小企業款項支付條例》。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797194_1_20250324192142.jpg&q=90)
+  
+
+國務院總理李強簽署國務院令，公布修訂後的《保障中小企業款項支付條例》，今年6月1日起施行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797194-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797194-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797194-20250324.htm)
+
+---
+
 # 人行：本月起MLF操作採固定數量、利率招標、多重價位中標開展
 
 ![人行明日將開展4500億元人民幣MLF操作，本月起採用固定數量、利率招標、多重價位中標方式開展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797185_1_20250324175707.jpg&q=80)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796815-20250321.htm)
-
----
-
-# 外交部：民進黨當局勾連外部勢力謀「獨」挑釁不會得逞
-
-![毛寧說，民進黨當局勾連外部勢力謀「獨」挑釁是不會得逞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796814_1_20250321172343.jpg&q=90)
-  
-
-在北京，外交部發言人毛寧回應台灣行政部門聘請日本前自衛隊統合幕僚長岩崎茂擔任顧問時表示，中方已經就有關動向向日方提出交涉，民進黨當局勾連外部勢力謀「獨」挑釁是不會得逞。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796814-20250321.htm)
 
 ---

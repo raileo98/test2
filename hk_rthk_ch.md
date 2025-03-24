@@ -1,3 +1,50 @@
+# 民航處：下月7日起乘客不得在航班上使用外置充電器
+
+  
+
+民航處更新對本地航空公司就航班乘客攜帶及使用外置充電器的要求及規管，由下月7日起，乘客不得在航班上使用外置充電器，為其他便攜式電子裝置、外置充電器充電，以及不得將外置充電器放置於行李架上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797195-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797195-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797195-20250324.htm)
+
+---
+
+# 李強簽國務院令　 公布修訂後的《保障中小企業款項支付條例》
+
+![李強簽署國務院令，公布修訂後的《保障中小企業款項支付條例》。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797194_1_20250324192142.jpg&q=90)
+  
+
+國務院總理李強簽署國務院令，公布修訂後的《保障中小企業款項支付條例》，今年6月1日起施行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797194-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797194-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797194-20250324.htm)
+
+---
+
 # 75歲陳金妹離開葵盛東邨盛喜樓後失蹤　警方呼籲市民提供消息
 
   

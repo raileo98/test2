@@ -1,3 +1,26 @@
+# 民航處：下月7日起乘客不得在航班上使用外置充電器
+
+  
+
+民航處更新對本地航空公司就航班乘客攜帶及使用外置充電器的要求及規管，由下月7日起，乘客不得在航班上使用外置充電器，為其他便攜式電子裝置、外置充電器充電，以及不得將外置充電器放置於行李架上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797195-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797195-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797195-20250324.htm)
+
+---
+
 # 75歲陳金妹離開葵盛東邨盛喜樓後失蹤　警方呼籲市民提供消息
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797012-20250323.htm)
-
----
-
-# 香港母乳庫逾百位捐贈者　下階段服務將分發至新生兒深切治療部
-
-![黃明沁表示，母乳含有抗體和免疫因子，可保護嬰兒免受感染，對嬰兒來說是最好的食物，她呼籲社會支持捐贈。（政府新聞網）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797009_1_20250323113537.jpg&q=90)
-  
-
-位於香港兒童醫院的香港母乳庫今年1月初成立，至今招募到超過100位合資格捐贈者，收集超過300公升母乳，香港母乳庫總監黃明沁形容成果超乎預期，希望社會各界和各位媽媽支持這個計劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797009-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797009-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797009-20250323.htm)
 
 ---
