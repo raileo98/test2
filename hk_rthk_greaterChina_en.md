@@ -1,3 +1,27 @@
+# BYD posts record annual revenue, beats Tesla
+
+![The firm's stock price also reached an all-time peak this month, after it unveiled new battery technology. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797208_1_20250324213146.jpg&q=90)
+  
+
+Shenzhen-based carmaker BYD saw a surge in revenue last year, a stock filing showed on Monday, surpassing the US$100 billion mark and beating rival Tesla as the car-giant firm accelerates its overseas expansion.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm)
+
+---
+
 # China vows more proactive fiscal policy at dev't forum
 
 ![Entrepreneurs, government officials, experts and business representatives attend the China Development Forum 2025. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797174_1_20250324171122.jpg&q=75)
@@ -1412,29 +1436,5 @@ The chairwoman of Gree Electrics on Saturday said private enterprises need conti
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794911-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794911-20250308.htm)
-
----
-
-# HK officials pledge to implement Two Sessions spirit
-
-![Hong Kong officials pledge to implement the spirit of "Two Sessions". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794903_1_20250308160513.jpg&q=85)
-  
-
-Hong Kong officials on Saturday said they will learn from the spirit of "Two Sessions" and stressed the importance of unity in advancing the SAR's development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794903-20250308.htm)
 
 ---

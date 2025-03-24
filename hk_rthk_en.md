@@ -1,3 +1,27 @@
+# BYD posts record annual revenue, beats Tesla
+
+![The firm's stock price also reached an all-time peak this month, after it unveiled new battery technology. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797208_1_20250324213146.jpg&q=90)
+  
+
+Shenzhen-based carmaker BYD saw a surge in revenue last year, a stock filing showed on Monday, surpassing the US$100 billion mark and beating rival Tesla as the car-giant firm accelerates its overseas expansion.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm)
+
+---
+
 # New public hospital fees to start next year: sources
 
 ![Sources say the fixed accident and emergency fee will be raised to no more than HK$400 from the current $180, with exemptions for critically ill and urgent patients. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797197_1_20250324194549.jpg&q=90)
@@ -1414,29 +1438,5 @@ The Department of Health said on Saturday that a 35-year-old woman remains in a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796933-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796933-20250322.htm)
-
----
-
-# Fans excited to see Ying Ying appear with panda twins
-
-![People who collect an entry ticket can see the pandas for three minutes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796927_2_20250322155956.jpg&q=90)
-  
-
-Thousands of people flocked to Ocean Park on Saturday as they can now see the panda twins and their mother, Ying Ying, all in one go.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796927-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796927-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796927-20250322.htm)
 
 ---

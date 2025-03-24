@@ -1,3 +1,27 @@
+# BYD posts record annual revenue, beats Tesla
+
+![The firm's stock price also reached an all-time peak this month, after it unveiled new battery technology. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797208_1_20250324213146.jpg&q=90)
+  
+
+Shenzhen-based carmaker BYD saw a surge in revenue last year, a stock filing showed on Monday, surpassing the US$100 billion mark and beating rival Tesla as the car-giant firm accelerates its overseas expansion.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm)
+
+---
+
 # HK ends up on mixed day for equities
 
 ![The benchmark Hang Seng Index was up 0.91 percent to close at 23,905.56. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797176_1_20250324171443.jpg&q=80)
@@ -1411,29 +1435,5 @@ China has ushered in a golden era to develop the so-called "low altitude" econom
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794701-20250307.htm)
-
----
-
-# Hong Kong stocks open lower
-
-![The Hang Seng Index was down 0.8 percent to open at 24,182. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794681_1_20250307094410.jpg&q=75)
-  
-
-Hong Kong stocks on Friday opened lower, following uncertainty on Wall Street over US President Donald Trump's shifting trade policy, while European bourses advanced following an ECB interest rate cut.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794681-20250307.htm)
 
 ---

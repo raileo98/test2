@@ -1,5 +1,30 @@
+# 美俄代表會談尋求達成黑海海上停火　俄方稱會談正有創造力地進行
+
+![美俄會談在利雅得一間酒店閉門進行。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797207_1_20250324212258.jpg&q=80)
+  
+
+美國代表團在沙特阿拉伯首都利雅得與烏克蘭代表團舉行會談後一日，再與俄羅斯代表團會談，尋求達成黑海海上停火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797207-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797207-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797207-20250324.htm)
+
+---
+
 # 韓正冀英國太古集團參與大灣區建設　瑞士諾華抓緊機遇拓展合作
 
+![韓正分別會見英國太古集團行政總裁施銘倫及瑞士諾華公司首席執行官萬思瀚。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797206_1_20250324212520.jpg&q=90)
   
 
 國家副主席韓正在北京分別會見來華參加中國發展高層論壇2025年年會的英國太古集團行政總裁施銘倫及瑞士諾華公司首席執行官萬思瀚。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796978-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796978-20250323.htm)
-
----
-
-# 美國新墨西哥州發生槍擊案3死14人傷
-
-![美國新墨西哥州發生槍擊案3死14人傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796976_1_20250323003039.jpg&q=90)
-  
-
-美國新墨西哥州發生槍擊事件，造成3人死亡，14人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796976-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796976-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796976-20250323.htm)
 
 ---
