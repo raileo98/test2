@@ -1,3 +1,75 @@
+# Depardieu denies 'groping' in sex abuse trial
+
+![Gerard Depardieu, 76, has been accused of improper behaviour by around 20 women but this is the first case to come to trial. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797392_1_20250326035129.jpg&q=90)
+  
+
+French star actor Gerard Depardieu, on trial for sexual assault, told the Paris court on Tuesday that he was not in the habit of "groping" women, and called the #MeToo movement a "reign of terror".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm)
+
+---
+
+# World Athletics approves swab test to determine gender
+
+![The president of the international track and field federation said the female category had to be protected. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797391_1_20250326033236.jpg&q=80)
+  
+
+World Athletics said on Tuesday it had approved the introduction of a cheek swab test to determine if an athlete is biologically female.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm)
+
+---
+
+# Trump, intel chiefs dismiss chat breach
+
+![Senators blasted US Director of National Intelligence Tulsi Gabbard (middle) and CIA Director John Ratcliffe (right) over the leak. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797390_1_20250326032257.jpg&q=90)
+  
+
+US President Donald Trump and his top intelligence officials raced on Tuesday to stem a growing scandal after a journalist was accidentally added to a group chat about air strikes on Yemen's Houthi rebels in a security breach.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm)
+
+---
+
 # HK open Asian Cup final round qualifier with draw
 
 ![Hong Kong is held to a 0-0 draw against Singapore. Image courtesy of Hong Kong Football Association](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797379_1_20250325224218.jpg&q=90)
@@ -1369,77 +1441,5 @@ Environment minister Tse Chin-wan said on Monday that Hong Kong will continue to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm)
-
----
-
-# Donnarumma error puts Germany in Nations League semis
-
-![Germany's Jamal Musiala, right, celebrates his goal with Joshua Kimmich, who provided the assist. Photo: DPA/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797116_1_20250324113927.jpg&q=90)
-  
-
-Italy striker Moise Kean admitted his team "got distracted" after Germany's Jamal Musiala scored an easy goal into an empty net when absent-minded goalkeeper Gianluigi Donnarumma left his post during the Nations League quarter-final.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797116-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797116-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797116-20250324.htm)
-
----
-
-# Euro chamber head encouraged by meeting with Xia
-
-![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing last week. File photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797113_1_20250324111447.jpg&q=90)
-  
-
-The chair of the European Chamber of Commerce in Hong Kong on Monday welcomed last week's remarks from the director of the Hong Kong and Macau Affairs Office, who praised EuroCham's work in the SAR.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797113-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797113-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797113-20250324.htm)
-
----
-
-# Stocks open up amid caution over tariffs
-
-![The Hang Seng Index opened 59.86 points, or 0.25 percent, up at 23,749. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797110_1_20250324110326.jpg&q=80)
-  
-
-The Hang Seng Index climbed 59.86 points, or 0.25 percent, to open at 23,749.58 on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm)
 
 ---

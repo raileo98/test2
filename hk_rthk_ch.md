@@ -1,3 +1,27 @@
+# 澤連斯基：莫斯科已試圖扭曲黑海航運及能源設施停火協議
+
+![澤連斯基表示，莫斯科已試圖扭曲協議，實際上欺騙了烏俄的中間人和整個世界。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797393_1_20250326042026.jpg&q=90)
+  
+
+美國白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全，並禁止俄烏兩國互相攻擊對方的能源設施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm)
+
+---
+
 # 克宮稱俄美同意確保落實黑海倡議　將於撤銷部分對俄制裁後生效
 
 ![克里姆林宮表示，俄美雙方同意確保黑海航行安全、不使用武力、防止把商船用於軍事目的。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797389_1_20250326032145.jpg&q=85)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797319-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797319-20250325.htm)
-
----
-
-# 港股低收561點　比亞迪電子及舜宇挫近10%或以上
-
-![恒生指數最多跌逾580點，收市報23344點，跌561點，跌幅2.35%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797317_1_20250325161756.jpg&q=90)
-  
-
-港股捱沽，恒生指數今早最多跌逾580點，收市報23344點，跌561點，跌幅2.35%，主板成交額約2853億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 澤連斯基：莫斯科已試圖扭曲黑海航運及能源設施停火協議
+
+![澤連斯基表示，莫斯科已試圖扭曲協議，實際上欺騙了烏俄的中間人和整個世界。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797393_1_20250326042026.jpg&q=90)
+  
+
+美國白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全，並禁止俄烏兩國互相攻擊對方的能源設施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm)
+
+---
+
 # 克宮稱俄美同意確保落實黑海倡議　將於撤銷部分對俄制裁後生效
 
 ![克里姆林宮表示，俄美雙方同意確保黑海航行安全、不使用武力、防止把商船用於軍事目的。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797389_1_20250326032145.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797072-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797072-20250324.htm)
-
----
-
-# 教宗方濟各出院返回梵蒂岡　車上沿途需插鼻管供氧
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797071_1_20250324044539.jpg&q=85)
-  
-
-因肺炎留醫五星期的教宗方濟各出院，回到梵蒂岡休養。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797071-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797071-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797071-20250324.htm)
 
 ---

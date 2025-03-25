@@ -1,3 +1,51 @@
+# Depardieu denies 'groping' in sex abuse trial
+
+![Gerard Depardieu, 76, has been accused of improper behaviour by around 20 women but this is the first case to come to trial. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797392_1_20250326035129.jpg&q=90)
+  
+
+French star actor Gerard Depardieu, on trial for sexual assault, told the Paris court on Tuesday that he was not in the habit of "groping" women, and called the #MeToo movement a "reign of terror".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm)
+
+---
+
+# Trump, intel chiefs dismiss chat breach
+
+![Senators blasted US Director of National Intelligence Tulsi Gabbard (middle) and CIA Director John Ratcliffe (right) over the leak. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797390_1_20250326032257.jpg&q=90)
+  
+
+US President Donald Trump and his top intelligence officials raced on Tuesday to stem a growing scandal after a journalist was accidentally added to a group chat about air strikes on Yemen's Houthi rebels in a security breach.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm)
+
+---
+
 # Vietnam death row tycoon begins appeal
 
 ![Vietnamese property tycoon Truong My Lan (Centre) looks on at a court in Ho Chi Minh City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797356_1_20250325193707.jpg&q=90)
@@ -1388,53 +1436,5 @@ Malaysia’s government has given final approval for a Texas-based marine roboti
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm)
-
----
-
-# Indonesia passes controversial military law revisions
-
-![Defence Minister Sjafrie Sjamsoeddin speaks in the House of Representatives ahead of law revisions' passage. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796583_2_20250320134731.jpg&q=80)
-  
-
-Indonesia's parliament on Thursday passed contentious revisions to the country's military law, which will allocate more civilian posts for military officers, and street protests against the changes are expected to take place.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796583-20250320.htm)
-
----
-
-# Canadian farmers fear 'devastating tariffs impact'
-
-![China has traditionally been one of Canada's biggest export markets for canola, grown on farms in such places as Alberta. File photo: Artur Widak/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796564_1_20250320112443.jpg&q=80)
-  
-
-Chinese tariffs on Canadian products including rapeseed oil and pork come into effect on Thursday, with an industry lobby warning the new levies will have a "devastating impact" on farmers.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796564-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796564-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796564-20250320.htm)
 
 ---
