@@ -1,3 +1,27 @@
+# 政府「裕澤香江」高峰晚宴　逾130位家辦決策人和家族成員出席
+
+![政府今晚舉辦「裕澤香江」高峰晚宴。陳國基表示，香港是一個「超級聯繫人」，是一個讓家族辦公室和家族蓬勃發展的活力之都。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797373_1_20250325220033.jpg&q=90)
+  
+
+第三屆「裕澤香江」高峰論壇明日舉行，政府晚上舉辦高峰晚宴，逾130位來自內地、亞洲、歐洲、美洲、中東的家族辦公室決策人和家族成員到港出席。當局指，高峰晚宴再次印證香港作為全球頂級家族辦公室樞紐的地位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797373-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797373-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797373-20250325.htm)
+
+---
+
 # 海南省加緊推進自由貿易港核心政策　確保今年底如期落實相關運作
 
 ![劉小明說，海南自由貿易港與世界各地貿易投資自由便利程度將進一步提升。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_1_20250325214113.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797234-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797234-20250325.htm)
-
----
-
-# 港股美國預託證券大多下跌　小米急挫近6%
-
-![小米ADR比本港昨日收市價急挫近6%，以港元計折合報53.7元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797236_1_20250325061917.jpg&q=90)
-  
-
-港股美國預託證券(ADR)大多下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797236-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797236-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797236-20250325.htm)
 
 ---

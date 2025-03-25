@@ -1,3 +1,27 @@
+# 政府「裕澤香江」高峰晚宴　逾130位家辦決策人和家族成員出席
+
+![政府今晚舉辦「裕澤香江」高峰晚宴。陳國基表示，香港是一個「超級聯繫人」，是一個讓家族辦公室和家族蓬勃發展的活力之都。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797373_1_20250325220033.jpg&q=90)
+  
+
+第三屆「裕澤香江」高峰論壇明日舉行，政府晚上舉辦高峰晚宴，逾130位來自內地、亞洲、歐洲、美洲、中東的家族辦公室決策人和家族成員到港出席。當局指，高峰晚宴再次印證香港作為全球頂級家族辦公室樞紐的地位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797373-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797373-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797373-20250325.htm)
+
+---
+
 # 荃灣失蹤男子李展文已被尋回
 
 ![荃灣失蹤男子李展文已被尋回](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797372_1_20250325215126.jpg&q=90)
@@ -265,7 +289,7 @@
 
 # 南韓首爾路陷造成一死一傷
 
-![南韓首爾路陷造成一死一傷。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797358_1_20250325202247.jpg&q=60)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797358_1_20250325202247.jpg&q=60)
   
 
 南韓首爾江東區昨日發生的道路塌陷造成1人死亡、1人受傷。
