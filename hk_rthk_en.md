@@ -3,7 +3,7 @@
 ![Mintz Group's office in Beijing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797274_1_20250325111046.jpg&q=90)
   
 
-Chinese authorities have released all employees of a US corporate due diligence firm detained in Beijing two years ago in an apparent move to reassure foreign firms operating in China amid sliding foreign investment in the world's No 2 economy.
+Chinese authorities have released all employees of a US corporate due diligence firm detained in Beijing two years ago.
 
   
 
@@ -288,12 +288,12 @@ Top Trump administration officials, including US Vice President JD Vance and Sec
 
 ---
 
-# Hong Kong's Coleman Wong crashes out of Miami Open
+# Hong Kong's Coleman Wong bows out of Miami Open
 
 ![Wong's historic Miami Open run ended in a three-set defeat to Australia's Adam Walton. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797228_2_20250325054405.jpg&q=90)
   
 
-Hong Kong's rising tennis star Coleman Wong on Tuesday fell short of a third round victory at this year's Miami Open.
+Hong Kong's rising tennis star Coleman Wong on Monday fell short of a third round victory at this year's Miami Open.
 
   
 
@@ -384,7 +384,7 @@ Sources say new fees for public hospital services will be rolled out in three ph
 
 ---
 
-# Billiard, tennis retain Tier A status
+# Billiards, tennis retain Tier A status
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797192_1_20250324223333.jpg&q=90)
   

@@ -1,3 +1,27 @@
+# 陳國基：香港經濟展現韌性　超級聯繫人角色比以往更為重要
+
+![陳國基表示，香港作為「超級聯繫人」的角色比以往更為重要，將繼續增強離岸人民幣流動性。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797277_1_20250325112821.jpg&q=75)
+  
+
+署理行政長官陳國基表示，香港作為亞洲首屈一指的金融樞紐，於《全球金融中心指數》繼續位列全球第三，預計經濟在2026年至2029年間每年增長2.9%，即使面對環球挑戰，香港經濟仍展現韌性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm)
+
+---
+
 # 祁斌：香港資本市場復蘇　應進一步改革確保持續健康發展
 
 ![祁斌建議進一步改革和發展香港資本市場，鞏固目前的正面勢頭，並確保市場持續健康發展。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797272_1_20250325105800.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm)
-
----
-
-# 中大醫院證實手術室天花曾漏水　不屬須呈報衞生署類別
-
-![香港中文大學醫院證實，醫院一個日間手術室早前在手術進行期間，曾出現天花板漏水情況。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797048_1_20250323201426.jpg&q=85)
-  
-
-香港中文大學醫院證實，醫院一個日間手術室早前在手術進行期間，曾出現天花板漏水情況，當時手術已進行最後階段，醫護團隊當時已即時作出適當措施，確保病人手術不受影響，而病人於術後亦獲適當監察及護理，術後情況沒有受影響並已康復。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm)
 
 ---

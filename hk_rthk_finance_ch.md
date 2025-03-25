@@ -1,3 +1,50 @@
+# 博鰲亞洲論壇年會旗艦報告倡推動綠色轉型
+
+  
+
+博鰲亞洲論壇年會發表旗艦報告，包括亞洲經濟前景及一體化進程、應對氣候變化兩份報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm)
+
+---
+
+# 陳國基：香港經濟展現韌性　超級聯繫人角色比以往更為重要
+
+![陳國基表示，香港作為「超級聯繫人」的角色比以往更為重要，將繼續增強離岸人民幣流動性。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797277_1_20250325112821.jpg&q=75)
+  
+
+署理行政長官陳國基表示，香港作為亞洲首屈一指的金融樞紐，於《全球金融中心指數》繼續位列全球第三，預計經濟在2026年至2029年間每年增長2.9%，即使面對環球挑戰，香港經濟仍展現韌性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm)
+
+---
+
 # 蔡崇信：要消費者重拾消費意欲需要重建商業信心
 
   
@@ -116,7 +163,7 @@
 
 ---
 
-# 蔡崇信：民營企業座談會後內地企業家信心增強
+# 蔡崇信稱民營企業座談會後內地企業家信心增強
 
 ![蔡崇信表示，自今年2月國家主席習近平會見民營企業以來，企業家信心明顯增強。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797262_1_20250325100958.jpg&q=75)
   
@@ -1385,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm)
-
----
-
-# 內地股市向下　滬深股市半日跌約0.3%至0.4%
-
-![內地股市下跌，上證綜合指數中午收市報3356點，跌8點，跌幅0.25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797118_1_20250324114532.jpg&q=90)
-  
-
-內地股市下跌，算力租賃及軍工類股份向下；旅遊酒店、有色金屬、銀行及保險等金融股都向好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797118-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797118-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797118-20250324.htm)
-
----
-
-# 南方東英擬進一步拓展更多個股槓桿及反向產品
-
-![王卓峯（中）稱新產品令亞洲時段投資者能更快速反應，毋須等到美國開市或熬夜交易。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797112_1_20250324110942.jpg&q=90)
-  
-
-南方東英在香港上市亞洲首批9隻個股槓桿及反向產品。據介紹，產品以美股個股為標的，以合成模擬策略作為基礎，與交易對手簽訂掉期合約，追蹤標的股票每日表現的兩倍或反向兩倍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797112-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797112-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797112-20250324.htm)
 
 ---

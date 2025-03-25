@@ -3,7 +3,7 @@
 ![Mintz Group's office in Beijing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797274_1_20250325111046.jpg&q=90)
   
 
-Chinese authorities have released all employees of a US corporate due diligence firm detained in Beijing two years ago in an apparent move to reassure foreign firms operating in China amid sliding foreign investment in the world's No 2 economy.
+Chinese authorities have released all employees of a US corporate due diligence firm detained in Beijing two years ago.
 
   
 

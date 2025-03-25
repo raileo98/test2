@@ -1,3 +1,50 @@
+# 博鰲亞洲論壇年會旗艦報告倡推動綠色轉型
+
+  
+
+博鰲亞洲論壇年會發表旗艦報告，包括亞洲經濟前景及一體化進程、應對氣候變化兩份報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm)
+
+---
+
+# 陳國基：香港經濟展現韌性　超級聯繫人角色比以往更為重要
+
+![陳國基表示，香港作為「超級聯繫人」的角色比以往更為重要，將繼續增強離岸人民幣流動性。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797277_1_20250325112821.jpg&q=75)
+  
+
+署理行政長官陳國基表示，香港作為亞洲首屈一指的金融樞紐，於《全球金融中心指數》繼續位列全球第三，預計經濟在2026年至2029年間每年增長2.9%，即使面對環球挑戰，香港經濟仍展現韌性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm)
+
+---
+
 # 博鰲亞洲論壇展開　料60多個國家和地區約2000名代表參加
 
   
@@ -234,7 +281,7 @@
 
 ---
 
-# 蔡崇信：民營企業座談會後內地企業家信心增強
+# 蔡崇信稱民營企業座談會後內地企業家信心增強
 
 ![蔡崇信表示，自今年2月國家主席習近平會見民營企業以來，企業家信心明顯增強。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797262_1_20250325100958.jpg&q=75)
   
@@ -1383,53 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797205-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797205-20250324.htm)
-
----
-
-# 深水灣麗海堤岸路有污水管滲漏　渠務署緊急維修籲勿附近水域游泳
-
-![渠務署呼籲市民不要在深水灣（圖示）、淺水灣或附近海域游泳。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797204_1_20250324212427.jpg&q=75)
-  
-
-深水灣麗海堤岸路有污水管滲漏，鄰近水域水質可能受到影響，渠務署正進行緊急維修工程，呼籲市民不要在深水灣、淺水灣或附近海域游泳。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797204-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797204-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797204-20250324.htm)
-
----
-
-# 12人涉詐騙及洗黑錢被捕　當中3人包括1名內地男子已提堂
-
-![警方重申「洗黑錢」是嚴重罪行，一旦被判罪名成立，最高可被判罰款500萬元及監禁14年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797202_1_20250324212236.jpg&q=90)
-  
-
-12名男女包括1名內地男子涉嫌「以欺騙手段取得財產」及「洗黑錢」等被捕，大部分被捕人相信為傀儡戶口持有人，當中2名本地男子及該名內地男子已提堂，其餘人士獲保釋候查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 博鰲亞洲論壇年會旗艦報告倡推動綠色轉型
+
+  
+
+博鰲亞洲論壇年會發表旗艦報告，包括亞洲經濟前景及一體化進程、應對氣候變化兩份報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm)
+
+---
+
 # 博鰲亞洲論壇展開　料60多個國家和地區約2000名代表參加
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm)
-
----
-
-# 王毅晤南韓外長　冀韓方奉行積極友好對華政策
-
-![王毅在日本東京會見共同出席第11次中日韓外長會的南韓外長趙兌烈。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796864_1_20250322032350.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在東京會見共同出席第11次中日韓外長會的南韓外長趙兌烈。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796864-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796864-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796864-20250322.htm)
 
 ---
