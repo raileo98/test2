@@ -1,3 +1,27 @@
+# 荃灣失蹤男子李展文已被尋回
+
+![荃灣失蹤男子李展文已被尋回](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797372_1_20250325215126.jpg&q=90)
+  
+
+早前在荃灣失蹤的42歲男子李展文，下午在蕙荃路被尋回，他沒有受傷，案件沒有可疑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797372-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797372-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797372-20250325.htm)
+
+---
+
 # 孫東稱推出多個加強數字能力建構政策　促進香港成為國際化人才庫
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797191-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797191-20250324.htm)
-
----
-
-# 消息：住院門診收費上限或每年1萬元　急症服務收費不多於4百元
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797190_1_20250324184714.jpg&q=90)
-  
-
-政府明日公布公營醫療服務收費改革詳情。消息指，新收費最快明年1月起分3階段實施，包括增設住院門診收費上限，很大機會定於每人每年1萬元，並按年計算。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797190-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797190-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797190-20250324.htm)
 
 ---

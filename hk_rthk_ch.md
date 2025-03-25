@@ -1,3 +1,27 @@
+# 荃灣失蹤男子李展文已被尋回
+
+![荃灣失蹤男子李展文已被尋回](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797372_1_20250325215126.jpg&q=90)
+  
+
+早前在荃灣失蹤的42歲男子李展文，下午在蕙荃路被尋回，他沒有受傷，案件沒有可疑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797372-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797372-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797372-20250325.htm)
+
+---
+
 # 海南省加緊推進自由貿易港核心政策　確保今年底如期落實相關運作
 
 ![劉小明說，海南自由貿易港與世界各地貿易投資自由便利程度將進一步提升。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_1_20250325214113.jpg&q=90)
