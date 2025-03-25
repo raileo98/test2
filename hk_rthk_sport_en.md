@@ -1,3 +1,27 @@
+# De Minaur finds way through Fonseca fervor in Miami
+
+![Alex de Minaur goes for an overhead drive in his Miami Open match against Joao Fonseca at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797270_1_20250325105235.jpg&q=90)
+  
+
+Australia's Alex de Minaur put an end to Brazilian talent Joao Fonseca's challenge at the Miami Open, outlasting the 18-year-old 5-7, 7-5, 6-3 in an enthralling contest.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797270-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797270-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797270-20250325.htm)
+
+---
+
 # Hong Kong's Coleman Wong crashes out of Miami Open
 
 ![Wong's historic Miami Open run ended in a three-set defeat to Australia's Adam Walton. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797228_2_20250325054405.jpg&q=90)
@@ -1414,29 +1438,5 @@ Aryna Sabalenka avenged her Australian Open loss to Madison Keys on Friday, thra
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795836-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795836-20250315.htm)
-
----
-
-# Rashford recalled in Tuchel's first England squad
-
-![Marcus Rashford has looked more like his old self since his loan move to Aston Villa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795783_1_20250314215113.jpg&q=90)
-  
-
-Thomas Tuchel said Marcus Rashford and Jordan Henderson are contenders for England's 2026 World Cup squad after earning recalls in his first squad on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795783-20250314.htm)
 
 ---

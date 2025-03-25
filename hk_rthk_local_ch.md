@@ -1,3 +1,26 @@
+# 鄭泳舜：精英運動員資助增至1萬元屬起步　桌球總會：並非無壓力
+
+  
+
+政府公布由下月起，所有精英運動員直接資助額增加8.3%，成年隊資助由每月7千多元加至1萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797268-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797268-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797268-20250325.htm)
+
+---
+
 # 港股跌幅擴大至逾400點　汽車及手機設備股沽壓大
 
 ![港股跌幅擴大，恒生指數較早時報23446點，跌459點，跌幅1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797267_1_20250325103521.jpg&q=75)
@@ -24,6 +47,7 @@
 
 # 精英體育事務委員會修訂A級資助條件　主席稱體育發展更穩定
 
+![鄭景亮表示，為了令體育發展更穩定，委員會一致通過修訂。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797261_1_20250325104643.jpg&q=85)
   
 
 文化體育及旅遊局昨日公布精英體育項目資助機制檢討，桌球繼續獲保留為A級精英體育項目。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm)
-
----
-
-# 衞生署稱已聯絡中大醫院調查及跟進手術期間天花漏水事件
-
-![衞生署回覆查詢時表示，已即時聯絡中大醫院調查和跟進事件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797042_1_20250323201253.jpg&q=80)
-  
-
-​有報道指香港中文大學醫院的一間手術室，早前在手術期間天花漏水，衞生署回覆查詢時表示，已即時聯絡中大醫院調查和跟進事件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797042-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797042-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797042-20250323.htm)
 
 ---

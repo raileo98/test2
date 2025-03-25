@@ -1,3 +1,26 @@
+# 鄭泳舜：精英運動員資助增至1萬元屬起步　桌球總會：並非無壓力
+
+  
+
+政府公布由下月起，所有精英運動員直接資助額增加8.3%，成年隊資助由每月7千多元加至1萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797268-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797268-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797268-20250325.htm)
+
+---
+
 # 港股跌幅擴大至逾400點　汽車及手機設備股沽壓大
 
 ![港股跌幅擴大，恒生指數較早時報23446點，跌459點，跌幅1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797267_1_20250325103521.jpg&q=75)
@@ -48,6 +71,7 @@
 
 # 新西蘭里弗頓海岸地震　美國地質勘探局指強度為7級
 
+![新西蘭里弗頓海岸地震　美國地質勘探局指強度為7級](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797264_1_20250325104709.jpg&q=90)
   
 
 新西蘭里弗頓海岸發生地震，美國地質勘探局指強度為黎克特制7級，震源深度為10公里。
@@ -118,6 +142,7 @@
 
 # 精英體育事務委員會修訂A級資助條件　主席稱體育發展更穩定
 
+![鄭景亮表示，為了令體育發展更穩定，委員會一致通過修訂。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797261_1_20250325104643.jpg&q=85)
   
 
 文化體育及旅遊局昨日公布精英體育項目資助機制檢討，桌球繼續獲保留為A級精英體育項目。
@@ -261,6 +286,7 @@
 
 # 委內瑞拉面對美方涉能源關稅　中國是委内瑞拉石油最大買家
 
+![委內瑞拉是石油輸出國組織成員國，石油是主要出口產品。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797254_1_20250325104323.jpg&q=90)
   
 
 美國總統特朗普表示，汽車關稅即將來臨，但並非所有他打算要徵收的關稅，都要在4月2日實施，部分國家可獲減免，但他未有提供細節。市場認為特朗普對關稅措施展現靈活性。
@@ -404,6 +430,7 @@
 
 # 美眾議長稱特朗普政府確認記者無意中被加入高官群組屬錯誤
 
+![約翰遜認為事件顯示白宮高層官員正在履行職責，而且做得很好。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797248_1_20250325104251.jpg&q=90)
   
 
 美國國會眾議院議長、共和黨籍的約翰遜表示，在記者無意中被加入高官通訊群組的事件上，總統特朗普政府確認是一個錯誤，但他認為確實見到白宮高層官員正在履行職責，而且做得很好。約翰遜又說政府正應對及追查事件，確保不再發生同類情況。
@@ -1406,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797196-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797196-20250324.htm)
-
----
-
-# 民航處：下月7日起乘客不得在航班上使用外置充電器
-
-![下月7日起，乘客不得在航班上使用外置充電器，以及不得將外置充電器放置於行李架上。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797195_2_20250324202418.jpg&q=90)
-  
-
-民航處更新對本地航空公司就航班乘客攜帶及使用外置充電器的要求及規管，由下月7日起，乘客不得在航班上使用外置充電器，為其他便攜式電子裝置、外置充電器充電，以及不得將外置充電器放置於行李架上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797195-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797195-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797195-20250324.htm)
 
 ---
