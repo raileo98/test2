@@ -1,3 +1,27 @@
+# 彭清華主持召開中俄議會合作委員會聯合工作組會議
+
+![彭清華主持召開中俄議會合作委員會聯合工作組會議](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797384_1_20250326001907.jpg&q=90)
+  
+
+全國人大常委會副委員長彭清華在北京與俄羅斯國家杜馬副主席巴巴科夫共同主持召開中俄議會合作委員會聯合工作組會議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797384-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797384-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797384-20250326.htm)
+
+---
+
 # 丹麥首相：美國副總統夫人率團訪格陵蘭是不可接受的施壓
 
 ![弗雷澤里克森說，美國副總統夫人及多位官員即將對格陵蘭島進行的訪問是一種不可接受的施壓。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797381_1_20250325225856.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797065-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797065-20250324.htm)
-
----
-
-# 加拿大總理卡尼宣布解散議會　提前下月28日舉行大選
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797063_1_20250324004656.jpg&q=90)
-  
-
-加拿大總理卡尼宣布解散議會，並提前在4月28日舉行眾議院選舉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797063-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797063-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797063-20250324.htm)
 
 ---

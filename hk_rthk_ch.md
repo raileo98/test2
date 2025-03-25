@@ -1,3 +1,27 @@
+# 彭清華主持召開中俄議會合作委員會聯合工作組會議
+
+![彭清華主持召開中俄議會合作委員會聯合工作組會議](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797384_1_20250326001907.jpg&q=90)
+  
+
+全國人大常委會副委員長彭清華在北京與俄羅斯國家杜馬副主席巴巴科夫共同主持召開中俄議會合作委員會聯合工作組會議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797384-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797384-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797384-20250326.htm)
+
+---
+
 # 張國清：平台經濟要發揮擴消費、穩就業等引領帶動作用
 
 ![張國清表示，平台經濟要發揮在促創新、擴消費、穩就業等方面的引領帶動作用，要堅決整治低質低價「內卷式」競爭等問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797383_1_20250325231910.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm)
-
----
-
-# 滙控預計將加倍投資在亞洲和中東投資銀行業務
-
-![艾橋智形容滙控充滿動力，預計將重新分配15億美元資金到富有增長及優勢的領域。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797310_1_20250325152101.jpg&q=90)
-  
-
-滙豐控股行政總裁艾橋智表示，退出歐洲和美國的關鍵業務後，預計將加倍投資在亞洲和中東的投資銀行業務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797310-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797310-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797310-20250325.htm)
 
 ---
