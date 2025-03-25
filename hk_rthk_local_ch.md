@@ -1,3 +1,26 @@
+# 陳茂波：香港作為國際金融中心擅長將優質綠色專案與資金配對
+
+  
+
+財政司司長陳茂波表示，香港致力於在2050年實現碳中和，而氣候目標同時為企業創造新的機遇。他又認為人工智能與綠色發展的關係應該有更廣闊視野，形容人工智能在綠色領域的應用機會無所不在。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm)
+
+---
+
 # 5.1起可帶貓或狗乘輕鐵　須放袋或背包長闊高有限制
 
 ![乘客須於輕鐵車廂的最後一道門上落，並須逗留於車廂的車尾位置，貓狗要放入寵物專用袋或背包內。（黃凱宜攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797279_1_20250325114731.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm)
-
----
-
-# 皇仁書院據報有資訊系統事故　教育局：已提醒按指引處理
-
-![教育局表示，已提醒學校按相關指引處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797052_1_20250323202808.jpg&q=90)
-  
-
-有報道指，皇仁書院資訊系統發生保安事故，發現有人未經授權，擅自修改學生違規記錄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797052-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797052-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797052-20250323.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 陳茂波：香港作為國際金融中心擅長將優質綠色專案與資金配對
+
+  
+
+財政司司長陳茂波表示，香港致力於在2050年實現碳中和，而氣候目標同時為企業創造新的機遇。他又認為人工智能與綠色發展的關係應該有更廣闊視野，形容人工智能在綠色領域的應用機會無所不在。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm)
+
+---
+
 # 滬股半日跌約0.2%　深證成指及創業板指數跌逾0.6%
 
 ![上證指數半日收報3364點，跌5點，跌幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797280_1_20250325113831.jpg&q=85)
@@ -1407,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797210-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797210-20250324.htm)
-
----
-
-# 美俄代表會談尋求達成黑海海上停火　俄方稱會談正有創造力地進行
-
-![美俄會談在利雅得一間酒店閉門進行。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797207_1_20250324212258.jpg&q=80)
-  
-
-美國代表團在沙特阿拉伯首都利雅得與烏克蘭代表團舉行會談後一日，再與俄羅斯代表團會談，尋求達成黑海海上停火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797207-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797207-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797207-20250324.htm)
 
 ---

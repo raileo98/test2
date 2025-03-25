@@ -1,3 +1,26 @@
+# 陳茂波：香港作為國際金融中心擅長將優質綠色專案與資金配對
+
+  
+
+財政司司長陳茂波表示，香港致力於在2050年實現碳中和，而氣候目標同時為企業創造新的機遇。他又認為人工智能與綠色發展的關係應該有更廣闊視野，形容人工智能在綠色領域的應用機會無所不在。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm)
+
+---
+
 # 滬股半日跌約0.2%　深證成指及創業板指數跌逾0.6%
 
 ![上證指數半日收報3364點，跌5點，跌幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797280_1_20250325113831.jpg&q=85)
@@ -1409,28 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm)
-
----
-
-# 商務部國際貿易談判副代表稱將推動互聯網及文化等領域有序開放
-
-  
-
-在北京，商務部國際貿易談判副代表李詠箑表示，目前全國版外資准入負面清單已減少到29項限制措施，將推動互聯網、文化等領域有序開放。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm)
 
 ---
