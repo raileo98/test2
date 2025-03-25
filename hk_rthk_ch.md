@@ -1,3 +1,27 @@
+# 漁護署：本地優質漁農產品將可獲統一Q嘜認證　令市民食得放心
+
+![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_1_20250326072129.jpg&q=70)
+  
+
+漁護署表示，本地優質漁農產品將可獲得統一的「Q嘜」認證，目標是2025/26財政年度內推出相關制度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm)
+
+---
+
 # 世界盃外圍賽　埃及主場1:0小勝塞拉利昂
 
 ![埃及主場1:0小勝塞拉利昂。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797406_1_20250326071907.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm)
-
----
-
-# 本港首2個月出口按年升6.5%　上月出口升15.4%
-
-![本港首2個月整體出口貨值按年升6.5%，進口貨值升5.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797325_1_20250325164835.jpg&q=80)
-  
-
-政府統計處公布，本港首2個月整體出口貨值按年升6.5%，進口貨值升5.7%。首兩個月錄得有形貿易逆差346億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm)
 
 ---

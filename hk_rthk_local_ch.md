@@ -1,3 +1,27 @@
+# 漁護署：本地優質漁農產品將可獲統一Q嘜認證　令市民食得放心
+
+![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_1_20250326072129.jpg&q=70)
+  
+
+漁護署表示，本地優質漁農產品將可獲得統一的「Q嘜」認證，目標是2025/26財政年度內推出相關制度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm)
+
+---
+
 # 醫管局停用200支與港安醫院手術燈墮下事故相同型號檢查燈
 
 ![涉事的同一型號檢查燈。（Draeger Hong Kong Limited網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797382_1_20250325230852.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797205-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797205-20250324.htm)
-
----
-
-# 深水灣麗海堤岸路有污水管滲漏　渠務署緊急維修籲勿附近水域游泳
-
-![渠務署呼籲市民不要在深水灣（圖示）、淺水灣或附近海域游泳。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797204_1_20250324212427.jpg&q=75)
-  
-
-深水灣麗海堤岸路有污水管滲漏，鄰近水域水質可能受到影響，渠務署正進行緊急維修工程，呼籲市民不要在深水灣、淺水灣或附近海域游泳。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797204-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797204-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797204-20250324.htm)
 
 ---
