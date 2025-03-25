@@ -1,3 +1,27 @@
+# 德國新一屆聯邦議院召開首次全體會議　基民盟的克勒克納當選議長
+
+![總統施泰因邁爾（右）解散現任政府，總理朔爾茨（左）將繼續履職，直至新一屆聯邦政府成立。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797388_1_20250326023615.jpg&q=90)
+  
+
+德國新一屆聯邦議院召開首次全體會議，隸屬基督教民主聯盟的克勒克納當選新一屆議長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797388-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797388-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797388-20250326.htm)
+
+---
+
 # 美國宣布制裁3名伊朗情報官員　涉與前聯邦調查局特工失蹤有關
 
 ![美國財長貝森特表示，萊文森所受的對待，是伊朗本已惡劣侵犯人權紀錄上的污點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797387_1_20250326021821.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm)
-
----
-
-# 施俊輝：專責小組進一步完善內地考察各項安排
-
-![施俊輝最近參與公民與社會發展科「珠海創新科技內地考察」，與寧波第二中學的師生在北京師範大學珠海分校出席一場以人工智能為主題的講座。（教育局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797315_1_20250325161912.jpg&q=80)
-  
-
-教育局副局長施俊輝說，教育局一直致力推動內地考察活動的發展，近日成立了專責小組，進一步完善內地考察的各項安排，期望未來讓更多學生親身體驗國家的發展成就，提升國民身分認同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm)
 
 ---

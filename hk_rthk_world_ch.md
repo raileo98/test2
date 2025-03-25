@@ -1,3 +1,27 @@
+# 德國新一屆聯邦議院召開首次全體會議　基民盟的克勒克納當選議長
+
+![總統施泰因邁爾（右）解散現任政府，總理朔爾茨（左）將繼續履職，直至新一屆聯邦政府成立。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797388_1_20250326023615.jpg&q=90)
+  
+
+德國新一屆聯邦議院召開首次全體會議，隸屬基督教民主聯盟的克勒克納當選新一屆議長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797388-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797388-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797388-20250326.htm)
+
+---
+
 # 美國宣布制裁3名伊朗情報官員　涉與前聯邦調查局特工失蹤有關
 
 ![美國財長貝森特表示，萊文森所受的對待，是伊朗本已惡劣侵犯人權紀錄上的污點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797387_1_20250326021821.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797070-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797070-20250324.htm)
-
----
-
-# 胡塞武裝稱美軍空襲也門首都　白宮稱已成功打擊組織關鍵領導層
-
-![也門首都薩那日前亦遭受美軍空襲。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797069_1_20250324041859.jpg&q=90)
-  
-
-也門胡塞武裝控制的電視台報道，美軍當地星期日晚空襲也門首都薩那，造成多人傷亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797069-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797069-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797069-20250324.htm)
 
 ---
