@@ -1,3 +1,27 @@
+# AI a game-changer for climate transition: FS
+
+![Paul Chan says AI will act as a catalyst in helping Hong Kong become a more sustainable society. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797342_1_20250325181504.jpg&q=80)
+  
+
+Financial Secretary Paul Chan on Tuesday said that artificial intelligence is a game changer for Hong Kong in its goal to become a more sustainable society, as the city goes all out to achieve its carbon emission goals.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm)
+
+---
+
 # Art Central returns to Central Harbourfront
 
 ![Art Central runs from Wednesday to Sunday at the Central Harbourfront. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797322_1_20250325164605.jpg&q=90)
@@ -1422,29 +1446,5 @@ The government on Wednesday said the King's Park site, currently home to Queen E
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm)
-
----
-
-# Over 60 cabbies penalised under demerit points system
-
-![Authorities say none of the penalised taxi drivers under the demerit system have racked up enough points to be disqualified. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796466_1_20250319184126.jpg&q=80)
-  
-
-Sixty-six taxi drivers have been slapped with demerit points for overcharging, refusing passengers and not taking the most direct route under a new penalty points system that was implemented around half a year ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796466-20250319.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 博鰲論壇秘書長張軍冀傳遞保持信心，戰勝困難的強烈信號
+
+  
+
+博鰲亞洲論壇2025年年會今日至本周五在海南博鰲舉行，今年主題是「在世界變局中共創亞洲未來」。中共中央政治局常委、國務院副總理丁薛祥將在開幕式發表主旨演講。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797348-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797348-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797348-20250325.htm)
+
+---
+
 # 林定國明啓程往北京訪問　向港澳辦匯報主要政策措施進展
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm)
-
----
-
-# 新華社：特朗普政府「交易外交」陷入僵局
-
-![新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796957_1_20250322203746.jpg&q=90)
-  
-
-新華社以《特朗普政府「交易外交」陷入僵局》為題發表文章，認為在烏克蘭危機上，美國與俄烏兩國的分歧顯現；在巴以問題上，加沙和也門戰火重燃；另外，為解決美國國內的非法移民和芬太尼問題，美國向墨西哥和加拿大揮起「關稅大棒」，但多國反制美國加徵關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm)
 
 ---

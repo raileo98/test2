@@ -1,3 +1,26 @@
+# 病人組織指收費改革繁多冀清楚說明　前線醫生憂易惹爭拗
+
+  
+
+有病人組織認為，公營醫療收費改革涉及的改變繁多，期望當局清楚說明，最重要的原則是市民不會因為經濟條件而得不到妥善醫治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797347-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797347-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797347-20250325.htm)
+
+---
+
 # 每名病人每年最多支付1萬元料7萬人受惠　並放寬費用減免資格
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm)
-
----
-
-# 港股高收215點　科指升逾1.7%
-
-![恒生指數下午跟隨內地股市倒升，收市報23905點，升215點，升幅0.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797164_1_20250324162351.jpg&q=65)
-  
-
-港股下午抽升，恒生指數初段曾跌近160點，其後表現反覆，下午跟隨內地股市轉強，曾升近280點，收市報23905點，升215點，升幅0.91%。主板總成交金額約2331億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm)
 
 ---

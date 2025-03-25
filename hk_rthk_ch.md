@@ -1,3 +1,49 @@
+# 病人組織指收費改革繁多冀清楚說明　前線醫生憂易惹爭拗
+
+  
+
+有病人組織認為，公營醫療收費改革涉及的改變繁多，期望當局清楚說明，最重要的原則是市民不會因為經濟條件而得不到妥善醫治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797347-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797347-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797347-20250325.htm)
+
+---
+
+# 每名病人每年最多支付1萬元料7萬人受惠　並放寬費用減免資格
+
+  
+
+公營醫療體系改革方案增設每人每年1萬元收費上限，適用於除了自費藥械外的所有收費項目，預料7萬人受惠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797346-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797346-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797346-20250325.htm)
+
+---
+
 # 急症室收費將增至4百　危急病人豁免　普通科門診加至150元
 
 ![急症室收費將增至4百　危急病人豁免　普通科門診加至150元](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797345_1_20250325183446.jpg&q=90)
