@@ -1,5 +1,30 @@
+# 港股半日跌517點　舜宇及比亞迪電子績後急挫
+
+![恒生指數中午收市報23387點，跌517點，跌幅2.2%，半日主板成交額約1845億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797285_1_20250325120719.jpg&q=65)
+  
+
+港股捱沽，恒生指數今早最多跌逾580點，中午收市報23387點，跌517點，跌幅2.2%，半日主板成交額約1845億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797285-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797285-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797285-20250325.htm)
+
+---
+
 # 陳茂波：香港作為國際金融中心擅長將優質綠色專案與資金配對
 
+![陳茂波認為，人工智能與綠色發展的關係應該有更廣闊視野，形容人工智能在綠色領域的應用機會無所不在。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797282_1_20250325120618.jpg&q=80)
   
 
 財政司司長陳茂波表示，香港致力於在2050年實現碳中和，而氣候目標同時為企業創造新的機遇。他又認為人工智能與綠色發展的關係應該有更廣闊視野，形容人工智能在綠色領域的應用機會無所不在。
@@ -142,6 +167,7 @@
 
 # 布雷納德：聯儲局觀望取態是正確策略
 
+![布雷納德（右）稱經濟面臨不確定，聯儲局觀望取態屬正確策略。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797271_1_20250325121501.jpg&q=90)
   
 
 聯儲局前副主席兼白宮國家經濟委員會前主任布雷納德（Lael Brainard）表示，經濟面臨不確定性，包括特朗普政府提出的關稅、移民和減稅政策，認為聯儲局觀望的取態是正確策略。
@@ -1409,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797140-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797140-20250324.htm)
-
----
-
-# 港股下午開市後偏軟
-
-![港股偏軟，恒生指數較早時報23667點，跌22點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797137_1_20250324130737.jpg&q=75)
-  
-
-港股偏軟，恒生指數較早時報23667點，跌22點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm)
 
 ---
