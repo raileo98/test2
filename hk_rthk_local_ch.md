@@ -1,3 +1,26 @@
+# 簡樸房規管制度建議設登記期及寬限期　業主共有4年時間適應制度
+
+  
+
+房屋局向立法會提交「簡樸房」規管制度最新建議方案，就多項細節進行優化，登記期正式建議訂為12個月，寬限期則建議為登記期完結後的36個月，即業主有4年時間，適應新的規管制度，以及讓不合標準分間單位住戶尋找其他租盤搬遷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797351-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797351-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797351-20250325.htm)
+
+---
+
 # 李家超在海南表示希望香港盡快加入區域全面經濟夥伴協定
 
 ![博鰲亞洲論壇2025年年會主題是「在世界變局中共創亞洲未來」。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797349_1_20250325185133.jpg&q=80)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797179-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797179-20250324.htm)
-
----
-
-# 63歲有長期病患男子感染退伍軍人病　潛伏期曾乘郵輪
-
-![衞生防護中心正展開流行病學調查，以找出可能的感染源頭、高風險接觸因素和是否出現群組個案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797175_1_20250324173302.jpg&q=80)
-  
-
-衞生防護中心公布，本月16至22日期間錄得1宗輸入退伍軍人病個案，涉及63歲男病人，有長期病患，於潛伏期內曾乘搭郵輪及到印度尼西亞、菲律賓及台灣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797175-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797175-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797175-20250324.htm)
 
 ---
