@@ -1,3 +1,27 @@
+# 港股低收561點　比亞迪電子及舜宇挫近10%或以上
+
+![恒生指數最多跌逾580點，收市報23344點，跌561點，跌幅2.35%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797317_1_20250325161756.jpg&q=90)
+  
+
+港股捱沽，恒生指數今早最多跌逾580點，收市報23344點，跌561點，跌幅2.35%，主板成交額約2853億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm)
+
+---
+
 # 滙控預計將加倍投資在亞洲和中東投資銀行業務
 
 ![艾橋智形容滙控充滿動力，預計將重新分配15億美元資金到富有增長及優勢的領域。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797310_1_20250325152101.jpg&q=90)
@@ -240,7 +264,7 @@
 
 # 陳茂波：香港作為國際金融中心擅長將優質綠色專案與資金配對
 
-![陳茂波認為，人工智能與綠色發展的關係應該有更廣闊視野，形容人工智能在綠色領域的應用機會無所不在。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797282_1_20250325120618.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797282_1_20250325120618.jpg&q=80)
   
 
 財政司司長陳茂波表示，香港致力於在2050年實現碳中和，而氣候目標同時為企業創造新的機遇。他又認為人工智能與綠色發展的關係應該有更廣闊視野，形容人工智能在綠色領域的應用機會無所不在。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm)
-
----
-
-# 在岸人民幣低收31點子　創2個星期新低
-
-![在岸人民幣收市創2個星期新低，收報7.252兌1美元，較上周五跌31點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797170_1_20250324170551.jpg&q=80)
-  
-
-在岸人民幣收市創2個星期新低，報7.252兌1美元，較上周五跌31點子。中間價報7.178兌1美元，跌20點子，創逾2個月低位，與市場預測偏離擴大至逾700點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797170-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797170-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797170-20250324.htm)
 
 ---

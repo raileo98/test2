@@ -1,5 +1,30 @@
+# 北京：加國執意對部分中國進口商品採取歧視性限制措施違世貿規則
+
+![郭嘉昆說，加拿大執意對部分中國進口商品採取歧視性限制措施，嚴重違反世貿組織規則。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797318_1_20250325162306.jpg&q=90)
+  
+
+對於有報道指，加拿大已在世界貿易組織提出申訴，反對中國對加拿大農產品和漁業產品加徵關稅，在北京，外交部發言人郭嘉昆回應， 加拿大方面不顧中方多次規勸，執意對部分中國進口商品採取歧視性限制措施，嚴重違反世貿組織規則，干擾正常的貿易秩序，嚴重損害了中方的合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm)
+
+---
+
 # 外交部籲美方停止干涉委內瑞拉內政　廢除對委國的非法單邊制裁
 
+![郭嘉昆表示，中方堅決反對美國長期濫用非法單邊制裁和所謂「長臂管轄」，粗暴干涉其他國家內政。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797314_1_20250325162332.jpg&q=90)
   
 
 在北京，外交部發言人郭嘉昆表示，中方堅決反對美國長期濫用非法單邊制裁和所謂「長臂管轄」，粗暴干涉其他國家內政。
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm)
-
----
-
-# 王毅晤日本外相　強調應正視歷史並積極推動關係改善和發展
-
-![外長王毅與日本外相岩屋毅在東京會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796922_1_20250322145841.jpg&q=90)
-  
-
-中共中央政治局委員兼外長王毅，與日本外相岩屋毅在東京會面，討論雙邊關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm)
 
 ---

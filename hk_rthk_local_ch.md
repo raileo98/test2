@@ -1,5 +1,30 @@
+# 港股低收561點　比亞迪電子及舜宇挫近10%或以上
+
+![恒生指數最多跌逾580點，收市報23344點，跌561點，跌幅2.35%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797317_1_20250325161756.jpg&q=90)
+  
+
+港股捱沽，恒生指數今早最多跌逾580點，收市報23344點，跌561點，跌幅2.35%，主板成交額約2853億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm)
+
+---
+
 # 施俊輝：專責小組進一步完善內地考察各項安排
 
+![施俊輝最近參與公民與社會發展科「珠海創新科技內地考察」，與寧波第二中學的師生在北京師範大學珠海分校出席一場以人工智能為主題的講座。（教育局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797315_1_20250325161912.jpg&q=80)
   
 
 教育局副局長施俊輝說，教育局一直致力推動內地考察活動的發展，近日成立了專責小組，進一步完善內地考察的各項安排，期望未來讓更多學生親身體驗國家的發展成就，提升國民身分認同。
@@ -360,7 +385,7 @@
 
 # 陳茂波：香港作為國際金融中心擅長將優質綠色專案與資金配對
 
-![陳茂波認為，人工智能與綠色發展的關係應該有更廣闊視野，形容人工智能在綠色領域的應用機會無所不在。（伍榮笙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797282_1_20250325120618.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797282_1_20250325120618.jpg&q=80)
   
 
 財政司司長陳茂波表示，香港致力於在2050年實現碳中和，而氣候目標同時為企業創造新的機遇。他又認為人工智能與綠色發展的關係應該有更廣闊視野，形容人工智能在綠色領域的應用機會無所不在。
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797126-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797126-20250324.htm)
-
----
-
-# 花卉展覽派花卉活動結束　康文署籲市民不要往維園取花
-
-![康文署宣布，香港花卉展覽在環保回收日向公眾派發花卉的活動已經結束。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797123_1_20250324124925.jpg&q=50)
-  
-
-康文署宣布，香港花卉展覽在環保回收日向公眾派發花卉的活動已經結束，市民不要前往維園排隊等候取花。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797123-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797123-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797123-20250324.htm)
 
 ---

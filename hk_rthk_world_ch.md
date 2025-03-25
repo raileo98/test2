@@ -1,5 +1,30 @@
+# 北京：加國執意對部分中國進口商品採取歧視性限制措施違世貿規則
+
+![郭嘉昆說，加拿大執意對部分中國進口商品採取歧視性限制措施，嚴重違反世貿組織規則。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797318_1_20250325162306.jpg&q=90)
+  
+
+對於有報道指，加拿大已在世界貿易組織提出申訴，反對中國對加拿大農產品和漁業產品加徵關稅，在北京，外交部發言人郭嘉昆回應， 加拿大方面不顧中方多次規勸，執意對部分中國進口商品採取歧視性限制措施，嚴重違反世貿組織規則，干擾正常的貿易秩序，嚴重損害了中方的合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm)
+
+---
+
 # 外交部籲美方停止干涉委內瑞拉內政　廢除對委國的非法單邊制裁
 
+![郭嘉昆表示，中方堅決反對美國長期濫用非法單邊制裁和所謂「長臂管轄」，粗暴干涉其他國家內政。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797314_1_20250325162332.jpg&q=90)
   
 
 在北京，外交部發言人郭嘉昆表示，中方堅決反對美國長期濫用非法單邊制裁和所謂「長臂管轄」，粗暴干涉其他國家內政。
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797036-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797036-20250323.htm)
-
----
-
-# 哈馬斯政治領導人巴達維爾據報在以軍空襲加沙中喪生
-
-![以軍空襲加沙南部汗尤尼斯，有建築物損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797033_1_20250323165641.jpg&q=85)
-  
-
-巴勒斯坦武裝組織哈馬斯政治領導人巴達維爾據報在以色列對加沙地帶的空襲中喪生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797033-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797033-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797033-20250323.htm)
 
 ---
