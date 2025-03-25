@@ -1,3 +1,75 @@
+# 周生生去年少賺20%　正縮減內地三線及以下城市實體店
+
+![周生生去年盈利約8.1億元，按年跌20%。派末期息每股0.36元，全年派息0.51元，按年減少15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797365_1_20250325210852.jpg&q=90)
+  
+
+周生生公布，去年盈利約8.1億元，按年跌20%。派末期息每股0.36元，全年派息0.51元，按年減少15%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797365-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797365-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797365-20250325.htm)
+
+---
+
+# 海底撈去年多賺近5%　末期息每股0.507港元
+
+![海底撈去年盈利47.1億元人民幣，按年增長4.6%。派末期息每股0.507港元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797360_1_20250325204317.jpg&q=90)
+  
+
+海底撈公布，去年盈利47.1億元人民幣，按年增長4.6%。派末期息每股0.507港元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797360-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797360-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797360-20250325.htm)
+
+---
+
+# 政府積極籌備成立香港海運港口發展局　期待與業界緊密合作
+
+![香港海運港口局昨天舉行最後一次會議。（運輸及物流局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797362_1_20250325211116.jpg&q=90)
+  
+
+政府正積極籌備在今年年中成立新的「香港海運港口發展局」，運輸及物流局期待在新架構下繼續與業界緊密合作，共同以求新求變的精神，為香港航運業創造美好篇章。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm)
+
+---
+
 # 農夫山泉去年盈利微升0.4%　毛利率收窄1.4個百分點
 
 ![農夫山泉去年盈利121.2億元人民幣，按年微升0.4%。派末期息每股0.76元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797354_1_20250325192146.jpg&q=80)
@@ -1361,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm)
-
----
-
-# 國泰稱將完全遵從外置充電器更新指引　會向顧客清晰傳達要求
-
-![國泰航空表示，認同民航處就航班上攜帶鋰電池外置充電器的最新指引。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797222_1_20250325012347.jpg&q=90)
-  
-
-民航處宣布，下月7日起，乘客不得在航班上使用外置充電器，為其他便攜式電子裝置或外置充電器充電，以及不得把外置充電器放置於行李架上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm)
-
----
-
-# 特朗普宣布將對購買委內瑞拉油氣的國家徵收25%關稅
-
-![特朗普經常指責拉美國家向美國輸送犯罪分子。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797220_1_20250325003813.jpg&q=90)
-  
-
-美國總統特朗普宣布，將會對購買委內瑞拉石油和天然氣的國家徵收25%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm)
-
----
-
-# 王文濤晤蘋果行政總裁　支持外企產品公平參與以舊換新擴消費政策
-
-![商務部部長王文濤會見美國蘋果公司行政總裁庫克。（商務部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797219_1_20250325001521.jpg&q=90)
-  
-
-在北京，商務部部長王文濤會見美國蘋果公司行政總裁庫克，就蘋果公司在華業務發展、中美經貿關係等議題交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm)
 
 ---

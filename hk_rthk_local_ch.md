@@ -1,6 +1,30 @@
+# 政府積極籌備成立香港海運港口發展局　期待與業界緊密合作
+
+![香港海運港口局昨天舉行最後一次會議。（運輸及物流局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797362_1_20250325211116.jpg&q=90)
+  
+
+政府正積極籌備在今年年中成立新的「香港海運港口發展局」，運輸及物流局期待在新架構下繼續與業界緊密合作，共同以求新求變的精神，為香港航運業創造美好篇章。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm)
+
+---
+
 # 孫玉菡：「多元共融藝術巡禮」展示本港多元共融成績
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797355_1_20250325202953.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797355_2_20250325205633.jpg&q=80)
   
 
 勞工及福利局局長孫玉菡說，香港正值「盛匯超級三月」，有欖球、Art Basel Hong Kong及Art Central等活動，另一盛事就是「多元共融藝術巡禮」的活動，希望藉此向全社會及國際展示本港在推廣多元共融方面的成績，殘疾藝術家的作品及才華，若能被賞識就更理想。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797188-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797188-20250324.htm)
-
----
-
-# 羅淑佩：Cityline必須交代印錯票事件　做好應變工作
-
-![羅淑佩表示，Cityline必須交代印錯票事件。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797184_1_20250324180806.jpg&q=90)
-  
-
-英國著名樂隊Coldplay下月在啟德體育園的巡迴演唱會，其中的1399元企位門票部分資料出錯，觀眾需要更換新版門票。文化體育及旅遊局局長羅淑佩表示，要由涉事的售票平台Cityline自行解釋事件為何出錯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm)
 
 ---

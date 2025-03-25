@@ -1,3 +1,142 @@
+# 周生生去年少賺20%　正縮減內地三線及以下城市實體店
+
+![周生生去年盈利約8.1億元，按年跌20%。派末期息每股0.36元，全年派息0.51元，按年減少15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797365_1_20250325210852.jpg&q=90)
+  
+
+周生生公布，去年盈利約8.1億元，按年跌20%。派末期息每股0.36元，全年派息0.51元，按年減少15%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797365-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797365-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797365-20250325.htm)
+
+---
+
+# 海底撈去年多賺近5%　末期息每股0.507港元
+
+![海底撈去年盈利47.1億元人民幣，按年增長4.6%。派末期息每股0.507港元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797360_1_20250325204317.jpg&q=90)
+  
+
+海底撈公布，去年盈利47.1億元人民幣，按年增長4.6%。派末期息每股0.507港元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797360-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797360-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797360-20250325.htm)
+
+---
+
+# 世盃亞洲區外圍賽中國0:2負澳洲
+
+![國足負澳洲，已無法以小組前兩名直接晉級世界盃。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797367_1_20250325211248.jpg&q=90)
+  
+
+世界盃亞洲區外圍賽C組賽事，中國在杭州主場0:2不敵澳洲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797367-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797367-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797367-20250325.htm)
+
+---
+
+# 世界盃亞洲區外圍賽國足主場0:2澳洲
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797364-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797364-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797364-20250325.htm)
+
+---
+
+# 美軍兩架魚鷹運輸機分別在日本兩個機場緊急降落
+
+  
+
+共同社報道，兩架美軍魚鷹運輸機分別在日本兩個機場緊急降落。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797363-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797363-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797363-20250325.htm)
+
+---
+
+# 政府積極籌備成立香港海運港口發展局　期待與業界緊密合作
+
+![香港海運港口局昨天舉行最後一次會議。（運輸及物流局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797362_1_20250325211116.jpg&q=90)
+  
+
+政府正積極籌備在今年年中成立新的「香港海運港口發展局」，運輸及物流局期待在新架構下繼續與業界緊密合作，共同以求新求變的精神，為香港航運業創造美好篇章。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm)
+
+---
+
 # 王毅：世界只能向前走　不能倒退回弱肉強食的叢林法則
 
 ![王毅同葡萄牙國務部長兼外長蘭熱爾舉行中葡第二次外長級戰略對話。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797361_1_20250325204636.jpg&q=90)
@@ -120,7 +259,7 @@
 
 # 孫玉菡：「多元共融藝術巡禮」展示本港多元共融成績
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797355_1_20250325202953.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797355_2_20250325205633.jpg&q=80)
   
 
 勞工及福利局局長孫玉菡說，香港正值「盛匯超級三月」，有欖球、Art Basel Hong Kong及Art Central等活動，另一盛事就是「多元共融藝術巡禮」的活動，希望藉此向全社會及國際展示本港在推廣多元共融方面的成績，殘疾藝術家的作品及才華，若能被賞識就更理想。

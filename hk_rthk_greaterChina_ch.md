@@ -1,3 +1,47 @@
+# 世盃亞洲區外圍賽中國0:2負澳洲
+
+![國足負澳洲，已無法以小組前兩名直接晉級世界盃。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797367_1_20250325211248.jpg&q=90)
+  
+
+世界盃亞洲區外圍賽C組賽事，中國在杭州主場0:2不敵澳洲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797367-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797367-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797367-20250325.htm)
+
+---
+
+# 世界盃亞洲區外圍賽國足主場0:2澳洲
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797364-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797364-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797364-20250325.htm)
+
+---
+
 # 王毅：世界只能向前走　不能倒退回弱肉強食的叢林法則
 
 ![王毅同葡萄牙國務部長兼外長蘭熱爾舉行中葡第二次外長級戰略對話。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797361_1_20250325204636.jpg&q=90)
@@ -1387,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm)
-
----
-
-# 第六次中日經濟高層對話達成20項重要共識
-
-![第六次中日經濟高層對話在東京舉行。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796974_1_20250322235617.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在日本東京與日本外相岩屋毅，共同主持第六次中日經濟高層對話，達成20項重要共識。新華社報道，關於福島核污水排海問題和日本水產品輸華問題，中方反對日方單方面啟動排海的立場沒有變化。雙方重申完整準確全面理解2024年9月20日發表的共識，確認持續開展針對排海的長期國際監測和中方獨立取樣監測，在結果沒有異常前提下，就日本水產品輸華問題開展相關磋商。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm)
-
----
-
-# 中國代表在聯合國人權理事會闡述中國人權理念、反對人權政治化
-
-![陳旭發言時闡述中國人權理念，反對人權政治化。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796965_1_20250322214923.jpg&q=90)
-  
-
-中國常駐聯合國日內瓦辦事處和瑞士其他國際組織代表陳旭在聯合國人權理事會第58屆會議國別人權問題環節發言，闡述中國人權理念，反對人權政治化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 美軍兩架魚鷹運輸機分別在日本兩個機場緊急降落
+
+  
+
+共同社報道，兩架美軍魚鷹運輸機分別在日本兩個機場緊急降落。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797363-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797363-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797363-20250325.htm)
+
+---
+
 # 王毅：世界只能向前走　不能倒退回弱肉強食的叢林法則
 
 ![王毅同葡萄牙國務部長兼外長蘭熱爾舉行中葡第二次外長級戰略對話。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797361_1_20250325204636.jpg&q=90)
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797054-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797054-20250323.htm)
-
----
-
-# 李強晤美國聯邦參議員戴安斯　稱中美關係發展到新的重要節點
-
-![李強在北京會見美國聯邦參議員戴安斯及部分美國企業界人士。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797053_1_20250323205041.jpg&q=90)
-  
-
-國務院總理李強在北京會見來華出席中國發展高層論壇2025年年會的美國聯邦參議員戴安斯及部分美國企業界人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 'Coleman Wong's magical run inspires next generation'
+
+![The SAR's tennis chief Michael Cheng says he is impressed with Coleman Wong's achievements at the Miami Open. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797357_2_20250325210437.jpg&q=90)
+  
+
+Coleman Wong’s history-making performance at the Miami Open will serve as a huge morale boost for the SAR’s next generation of tennis players, Hong Kong, China’s tennis chief said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm)
+
+---
+
 # 'Fee revamp prioritises patients' overall health'
 
 ![Experts say family doctors should educate patients about whether a visit to the accident and emergency unit is necessary. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797359_1_20250325203807.jpg&q=90)
@@ -1417,29 +1441,5 @@ South Korea's Constitutional Court dismissed the impeachment of Prime Minister H
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm)
-
----
-
-# Police arrest 32 in raid on unlicensed bar in Central
-
-![Officers said those arrested were aged between 28 and 70. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797097_1_20250324093956.jpg&q=90)
-  
-
-Police on late Sunday arrested 32 people following a raid on a suspected unlicensed bar on Li Yuen Street West in Central.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797097-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797097-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797097-20250324.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 'Coleman Wong's magical run inspires next generation'
+
+![The SAR's tennis chief Michael Cheng says he is impressed with Coleman Wong's achievements at the Miami Open. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797357_2_20250325210437.jpg&q=90)
+  
+
+Coleman Wong’s history-making performance at the Miami Open will serve as a huge morale boost for the SAR’s next generation of tennis players, Hong Kong, China’s tennis chief said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm)
+
+---
+
 # 'Fee revamp prioritises patients' overall health'
 
 ![Experts say family doctors should educate patients about whether a visit to the accident and emergency unit is necessary. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797359_1_20250325203807.jpg&q=90)
@@ -1422,29 +1446,5 @@ Medical sector lawmaker David Lam on Thursday welcomed the government's plans to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796558-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796558-20250320.htm)
-
----
-
-# Price adjustment can help those most in need: HA
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796525_1_20250320073507.jpg&q=90)
-  
-
-The Hospital Authority said it hopes an increase in the Accident and Emergency (A&E) service fee would ensure resources are reserved for those most in need.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796525-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796525-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796525-20250320.htm)
 
 ---
