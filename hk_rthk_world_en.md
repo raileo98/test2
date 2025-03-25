@@ -1,3 +1,27 @@
+# UN cuts headcount in Gaza after worker dies
+
+![A foreign worker wounded in an airstrike at UN headquarters on March 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797253_1_20250325090322.jpg&q=85)
+  
+
+The United Nations said Monday it would “reduce its footprint” in Gaza after an Israeli tank strike hit one of its compounds last week, killing one staff member from Bulgaria and wounding five other employees.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797253-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797253-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797253-20250325.htm)
+
+---
+
 # 'Trump's fees on Chinese ships will backfire'
 
 ![A container ship sails beneath the Golden Gate Bridge as it makes its way into port in San Francisco. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797249_1_20250325083906.jpg&q=90)
@@ -1412,29 +1436,5 @@ Malaysia has agreed to the terms and conditions of an agreement with exploration
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm)
-
----
-
-# 'New Israeli strikes on Gaza dramatic step backwards'
-
-![Palestinians flee their homes after the Israeli army issued evacuation orders for a number of neighborhoods following heavy strikes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796484_1_20250319222238.jpg&q=90)
-  
-
-Israel's resumption of strikes on the Gaza Strip is a major step in the wrong direction after its ceasefire with Palestinian militant group Hamas earlier this year, French President Emmanuel Macron said on Wednesday alongside Jordan's King Abdullah II.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm)
 
 ---

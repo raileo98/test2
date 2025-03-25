@@ -1,4 +1,4 @@
-# Hang Seng opens over a percentage point lower
+# Hang Seng Index opens over a percentage point lower
 
 ![US President Donald Trump's reciprocal tariffs are due to be unveiled on April 2. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797260_1_20250325094919.jpg&q=90)
   

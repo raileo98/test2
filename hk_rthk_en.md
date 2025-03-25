@@ -1,3 +1,51 @@
+# UN cuts headcount in Gaza after worker dies
+
+![A foreign worker wounded in an airstrike at UN headquarters on March 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797253_1_20250325090322.jpg&q=85)
+  
+
+The United Nations said Monday it would “reduce its footprint” in Gaza after an Israeli tank strike hit one of its compounds last week, killing one staff member from Bulgaria and wounding five other employees.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797253-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797253-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797253-20250325.htm)
+
+---
+
+# Hang Seng Index opens over a percentage point lower
+
+![US President Donald Trump's reciprocal tariffs are due to be unveiled on April 2. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797260_1_20250325094919.jpg&q=90)
+  
+
+The Hang Seng Index lost 262.24 points, or 1.1 percent, to open at 23,643.32 on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm)
+
+---
+
 # Hyundai to invest US$21 billion in US manufacturing
 
 ![Hyundai Motor Group Executive Chair Euisun Chung told a White House gathering that the new plant in Louisiana would create 1,300 American jobs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797250_1_20250325084822.jpg&q=90)
@@ -1389,54 +1437,5 @@ A pumped Oscar Piastri seized his first Formula One pole position at the Chinese
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm)
-
----
-
-# Government demands action on Coldplay ticket errors
-
-![The British band is due to perform at the Kai Tak Sports Park next month. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796977_3_20250323055100.jpg&q=90)
-![In a statement issued late on Saturday, the Culture, Sports and Tourism Bureau said Cityline should deal with the matter swiftly. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796977_2_20250323043112.jpg&q=90)
-  
-
-The government is demanding that ticketing platform Cityline fix printing errors on some Coldplay concert tickets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm)
-
----
-
-# FS encourages mainland firms to use city's advantages
-
-![Paul Chan encouraged one AI firm to utilise Hong Kong's capital, talent, and professional services to expand internationally. Photo: GIS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796969_1_20250322222525.jpg&q=90)
-  
-
-Financial Secretary Paul Chan visited two mainland firms in Beijing on Friday, highlighting Hong Kong's role as a gateway for business expansion and global market access.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm)
 
 ---

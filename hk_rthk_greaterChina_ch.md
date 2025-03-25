@@ -1,5 +1,29 @@
+# 湖南當局指丰水流域污染源已受控　處置工作有序進行
+
+  
+
+湖南湘江最大支流丰水流域，近日部分河段水質異常，引起關注。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797263-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797263-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797263-20250325.htm)
+
+---
+
 # 博鰲亞洲論壇報告料今年亞洲加權實際國內生產總值增長率4.5%
 
+![報告指，雖然世界經濟增長不確定性增大，但亞洲仍將成為世界經濟的主要引擎。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797259_1_20250325100833.jpg&q=90)
   
 
 博鰲亞洲論壇發表亞洲經濟前景及一體化進程年度報告提及，當前全球經濟保持中低速增長，面臨貿易戰、地緣政治局勢複雜多變、持續通脹及主要經濟體增長放緩等重大風險挑戰。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm)
-
----
-
-# 商務部：進一步加強貿易政策合規工作有助營造一流營商環境
-
-![商務部稱，進一步加強貿易政策合規工作有助營造一流營商環境。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796857_1_20250321224025.jpg&q=75)
-  
-
-國務院辦公廳日前印發《關於進一步加強貿易政策合規工作的意見》。商務部世貿司負責人今日表示，進一步加強貿易政策合規工作有助營造一流營商環境，推動構建全國統一大市場，通過保障非歧視、透明的政策環境，推動生產要素暢通流動和資源高效配置，從而釋放市場潛力，為穩步擴大制度型開放、建設更高水平開放型經濟新體制打下堅實基礎。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796857-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796857-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796857-20250321.htm)
 
 ---

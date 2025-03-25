@@ -1,5 +1,30 @@
+# 蔡崇信：民營企業座談會後內地企業家信心增強
+
+![蔡崇信表示，自今年1月國家主席習近平會見民營企業以來，企業家信心明顯增強。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797262_1_20250325100958.jpg&q=75)
+  
+
+阿里巴巴主席蔡崇信表示，自今年1月國家主席習近平會見民營企業以來，企業家信心明顯增強。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797262-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797262-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797262-20250325.htm)
+
+---
+
 # 博鰲亞洲論壇報告料今年亞洲加權實際國內生產總值增長率4.5%
 
+![報告指，雖然世界經濟增長不確定性增大，但亞洲仍將成為世界經濟的主要引擎。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797259_1_20250325100833.jpg&q=90)
   
 
 博鰲亞洲論壇發表亞洲經濟前景及一體化進程年度報告提及，當前全球經濟保持中低速增長，面臨貿易戰、地緣政治局勢複雜多變、持續通脹及主要經濟體增長放緩等重大風險挑戰。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm)
-
----
-
-# 李家超明日赴海南出席博鰲亞洲論壇年會　將於論壇致辭
-
-![李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797100_1_20250324103437.jpg&q=90)
-  
-
-行政長官李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm)
 
 ---

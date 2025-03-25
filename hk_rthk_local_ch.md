@@ -1,5 +1,29 @@
+# 精英體育事務委員會修訂A級資助條件　主席稱體育發展更穩定
+
+  
+
+文化體育及旅遊局昨日公布精英體育項目資助機制檢討，桌球繼續獲保留為A級精英體育項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797261-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797261-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797261-20250325.htm)
+
+---
+
 # 博鰲亞洲論壇報告料今年亞洲加權實際國內生產總值增長率4.5%
 
+![報告指，雖然世界經濟增長不確定性增大，但亞洲仍將成為世界經濟的主要引擎。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797259_1_20250325100833.jpg&q=90)
   
 
 博鰲亞洲論壇發表亞洲經濟前景及一體化進程年度報告提及，當前全球經濟保持中低速增長，面臨貿易戰、地緣政治局勢複雜多變、持續通脹及主要經濟體增長放緩等重大風險挑戰。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797041-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797041-20250323.htm)
-
----
-
-# 陳美寶稱低空經濟要考慮成本效益　考慮維港兩岸要兼顧安全及實用
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797040_1_20250323182806.jpg&q=90)
-  
-
-政府正推動低空經濟，運輸及物流局局長陳美寶表示，市區人口密集，亦有高樓大樓，要找適當的無人機起降點有一定限制，亦要考慮成本效益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm)
 
 ---

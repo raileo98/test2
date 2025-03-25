@@ -1,5 +1,76 @@
+# 湖南當局指丰水流域污染源已受控　處置工作有序進行
+
+  
+
+湖南湘江最大支流丰水流域，近日部分河段水質異常，引起關注。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797263-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797263-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797263-20250325.htm)
+
+---
+
+# 蔡崇信：民營企業座談會後內地企業家信心增強
+
+![蔡崇信表示，自今年1月國家主席習近平會見民營企業以來，企業家信心明顯增強。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797262_1_20250325100958.jpg&q=75)
+  
+
+阿里巴巴主席蔡崇信表示，自今年1月國家主席習近平會見民營企業以來，企業家信心明顯增強。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797262-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797262-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797262-20250325.htm)
+
+---
+
+# 精英體育事務委員會修訂A級資助條件　主席稱體育發展更穩定
+
+  
+
+文化體育及旅遊局昨日公布精英體育項目資助機制檢討，桌球繼續獲保留為A級精英體育項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797261-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797261-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797261-20250325.htm)
+
+---
+
 # 博鰲亞洲論壇報告料今年亞洲加權實際國內生產總值增長率4.5%
 
+![報告指，雖然世界經濟增長不確定性增大，但亞洲仍將成為世界經濟的主要引擎。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797259_1_20250325100833.jpg&q=90)
   
 
 博鰲亞洲論壇發表亞洲經濟前景及一體化進程年度報告提及，當前全球經濟保持中低速增長，面臨貿易戰、地緣政治局勢複雜多變、持續通脹及主要經濟體增長放緩等重大風險挑戰。
@@ -1360,77 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm)
-
----
-
-# 「1+」藥物審批機制增設會面前諮詢服務
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797191_1_20250324184758.jpg&q=90)
-  
-
-衞生署今年第一季會推出「1+」藥物審批機制申請前會面諮詢服務，希望協助更多想將新藥帶來香港的藥廠，了解相關程序同香港的情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797191-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797191-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797191-20250324.htm)
-
----
-
-# 消息：住院門診收費上限或每年1萬元　急症服務收費不多於4百元
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797190_1_20250324184714.jpg&q=90)
-  
-
-政府明日公布公營醫療服務收費改革詳情。消息指，新收費最快明年1月起分3階段實施，包括增設住院門診收費上限，很大機會定於每人每年1萬元，並按年計算。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797190-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797190-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797190-20250324.htm)
-
----
-
-# 中大用線控砌磚機械人　協助重建校內角落
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797188_1_20250324185422.jpg&q=90)
-  
-
-香港中文大學研發一款自動化線控機械人，協助重建校園內一個角落。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797188-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797188-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797188-20250324.htm)
 
 ---
