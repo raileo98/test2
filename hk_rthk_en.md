@@ -1,3 +1,27 @@
+# Red Army Faction fugitive faces trial at last
+
+![Daniela Klette is led away to a helicopter after a detention review hearing in Karlsruhe last March. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797316_1_20250325155616.jpg&q=90)
+  
+
+A former member of Germany's far-left Baader-Meinhof gang who was arrested last year after more than 30 years on the run will face trial on Tuesday for a series of armed robberies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm)
+
+---
+
 # Beijing looking to boost ties with Lisbon: Wang Yi
 
 ![Wang Yi says China is willing to work with Portugal to promote China and Europe to become strategic partners with mutual trust. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797311_1_20250325152545.jpg&q=90)
@@ -1417,29 +1441,5 @@ Former Masters champion Patrick Reed qualified for the British Open after coming
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm)
-
----
-
-# Rugby Sevens tickets selling like hotcakes: organiser
-
-![The Hong Kong Sevens will take place from March 28 to 30 at Kai Tak Stadium. Photo courtesy of Hong Kong, China Rugby](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797035_1_20250323172148.jpg&q=75)
-  
-
-Ticket sales for the Hong Kong Rugby Sevens are breaking records less than one week before the event kicks off at the Kai Tak Sports Park, according to the event's organiser.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 外交部籲美方停止干涉委內瑞拉內政　廢除對委國的非法單邊制裁
+
+  
+
+在北京，外交部發言人郭嘉昆表示，中方堅決反對美國長期濫用非法單邊制裁和所謂「長臂管轄」，粗暴干涉其他國家內政。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm)
+
+---
+
 # 李家超抵達海南海口準備出席博鰲論壇　下午致辭分享香港發展機遇
 
 ![李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797294_1_20250325131305.jpg&q=90)
@@ -94,12 +117,12 @@
 
 ---
 
-# 湖南當局指丰水流域污染源已受控　處置工作有序進行
+# 湖南當局指耒水流域污染源已受控　處置工作有序進行
 
-![湖南當局指丰水流域污染源已受控　處置工作有序進行](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797263_1_20250325124754.jpg&q=90)
+![湖南當局指耒水流域污染源已受控　處置工作有序進行](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797263_1_20250325124754.jpg&q=90)
   
 
-湖南湘江最大支流丰水流域，近日部分河段水質異常，引起關注。
+湖南湘江最大支流耒水流域，近日部分河段水質異常，引起關注。
 
   
 
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796922-20250322.htm)
-
----
-
-# 特朗普上任後首度有美國國會議員訪華　與馬朝旭討論中美關係
-
-![外交部副部長馬朝旭昨日會見訪華的美國共和黨參議員戴安斯。（外交部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796889_1_20250322080837.jpg&q=90)
-  
-
-外交部副部長馬朝旭昨日會見訪華的美國共和黨參議員戴安斯，雙方就中美關係和共同關心的問題深入交換意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm)
 
 ---

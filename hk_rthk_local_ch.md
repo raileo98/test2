@@ -1,5 +1,29 @@
+# 施俊輝：專責小組進一步完善內地考察各項安排
+
+  
+
+教育局副局長施俊輝說，教育局一直致力推動內地考察活動的發展，近日成立了專責小組，進一步完善內地考察的各項安排，期望未來讓更多學生親身體驗國家的發展成就，提升國民身分認同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm)
+
+---
+
 # 42歲男子上周六離開荃灣曹公街住所後失蹤
 
+![李展文身高約1.7米，體重約70公斤，瘦身材，圓面型，黃皮膚及蓄短黑髮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797313_1_20250325155258.jpg&q=90)
   
 
 42歲男子李展文上星期六凌晨離開位於荃灣曹公街的住所後失蹤，家人昨日報案，警方呼籲市民提供消息。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797123-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797123-20250324.htm)
-
----
-
-# 有市民到尖沙咀更換出錯Coldplay門票　稱主辧方須改善
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797122_1_20250324120631.jpg&q=90)
-  
-
-英國樂隊Coldplay下月在啟德體育園的巡迴演唱會，因部分門票資料出錯，要更換新版門票。售票公司Cityline即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797122-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797122-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797122-20250324.htm)
 
 ---

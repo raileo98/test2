@@ -1,5 +1,52 @@
+# 施俊輝：專責小組進一步完善內地考察各項安排
+
+  
+
+教育局副局長施俊輝說，教育局一直致力推動內地考察活動的發展，近日成立了專責小組，進一步完善內地考察的各項安排，期望未來讓更多學生親身體驗國家的發展成就，提升國民身分認同。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm)
+
+---
+
+# 外交部籲美方停止干涉委內瑞拉內政　廢除對委國的非法單邊制裁
+
+  
+
+在北京，外交部發言人郭嘉昆表示，中方堅決反對美國長期濫用非法單邊制裁和所謂「長臂管轄」，粗暴干涉其他國家內政。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm)
+
+---
+
 # 42歲男子上周六離開荃灣曹公街住所後失蹤
 
+![李展文身高約1.7米，體重約70公斤，瘦身材，圓面型，黃皮膚及蓄短黑髮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797313_1_20250325155258.jpg&q=90)
   
 
 42歲男子李展文上星期六凌晨離開位於荃灣曹公街的住所後失蹤，家人昨日報案，警方呼籲市民提供消息。
@@ -861,12 +908,12 @@
 
 ---
 
-# 湖南當局指丰水流域污染源已受控　處置工作有序進行
+# 湖南當局指耒水流域污染源已受控　處置工作有序進行
 
-![湖南當局指丰水流域污染源已受控　處置工作有序進行](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797263_1_20250325124754.jpg&q=90)
+![湖南當局指耒水流域污染源已受控　處置工作有序進行](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797263_1_20250325124754.jpg&q=90)
   
 
-湖南湘江最大支流丰水流域，近日部分河段水質異常，引起關注。
+湖南湘江最大支流耒水流域，近日部分河段水質異常，引起關注。
 
   
 

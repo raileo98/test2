@@ -1,3 +1,27 @@
+# Red Army Faction fugitive faces trial at last
+
+![Daniela Klette is led away to a helicopter after a detention review hearing in Karlsruhe last March. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797316_1_20250325155616.jpg&q=90)
+  
+
+A former member of Germany's far-left Baader-Meinhof gang who was arrested last year after more than 30 years on the run will face trial on Tuesday for a series of armed robberies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm)
+
+---
+
 # Abe assassination probe leads to church's dissolution
 
 ![The Unification Church's Tokyo headquarters in Shibuya. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797307_1_20250325151020.jpg&q=85)
@@ -1412,29 +1436,5 @@ Israel resumed ground operations in Gaza and issued what it called a "last warni
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796554-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796554-20250320.htm)
-
----
-
-# White House attacks courts for 'usurping' powers
-
-![Karoline Leavitt in a press briefing at the White House. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796546_1_20250320101240.jpg&q=90)
-  
-
-The White House accused judges of "usurping" executive power in its latest broadside against federal courts whose rulings have gone against President Donald Trump's administration.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm)
 
 ---
