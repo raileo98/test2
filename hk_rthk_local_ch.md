@@ -260,7 +260,7 @@
 
 ---
 
-# 鄭泳舜：精英運動員資助增至1萬元屬起步　桌球總會：並非無壓力
+# 鄭泳舜：成年隊精英運動員資助增至1萬元只是起步
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797268_1_20250325105728.jpg&q=90)
   
