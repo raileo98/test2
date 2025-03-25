@@ -1,3 +1,50 @@
+# 外交部：中方從未也沒有興趣干涉加拿大內政
+
+![郭嘉昆表示，中方一貫堅持不干涉別國內政的原則，從未也沒有興趣干涉加拿大的內政。(路透社資料圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797321_1_20250325164026.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆表示，中方一貫堅持不干涉別國內政的原則，從未也沒有興趣干涉加拿大的內政。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm)
+
+---
+
+# 陳翊庭：互聯互通助力內地耐心資本多元化配置
+
+  
+
+港交所行政總裁陳翊庭表示，自互聯互通機制推出後，內地投資者的耐心資本除了可投資於A股市場，亦可多元化配置到香港掛牌的股票，或交易所買賣基金（ETF）等資產。她提到，北水南下佔日均成交量的比重越來越大，由以往約12%至15%，去年升至近20%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797320-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797320-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797320-20250325.htm)
+
+---
+
 # 社協憂公營醫療收費調整不利基層及夾心階層長期病患者
 
   

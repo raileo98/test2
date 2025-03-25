@@ -1,3 +1,27 @@
+# 外交部：中方從未也沒有興趣干涉加拿大內政
+
+![郭嘉昆表示，中方一貫堅持不干涉別國內政的原則，從未也沒有興趣干涉加拿大的內政。(路透社資料圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797321_1_20250325164026.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆表示，中方一貫堅持不干涉別國內政的原則，從未也沒有興趣干涉加拿大的內政。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm)
+
+---
+
 # 北京：加國執意對部分中國進口商品採取歧視性限制措施違世貿規則
 
 ![郭嘉昆說，加拿大執意對部分中國進口商品採取歧視性限制措施，嚴重違反世貿組織規則。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797318_1_20250325162306.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796926-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796926-20250322.htm)
-
----
-
-# 王毅稱中日韓要深化經貿合作　推動科技創新及擴大人文交流
-
-![中日韓外長在東京會面。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796924_1_20250322154611.jpg&q=90)
-  
-
-中日韓在東京舉行外長會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796924-20250322.htm)
 
 ---

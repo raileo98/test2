@@ -1,3 +1,26 @@
+# 陳翊庭：互聯互通助力內地耐心資本多元化配置
+
+  
+
+港交所行政總裁陳翊庭表示，自互聯互通機制推出後，內地投資者的耐心資本除了可投資於A股市場，亦可多元化配置到香港掛牌的股票，或交易所買賣基金（ETF）等資產。她提到，北水南下佔日均成交量的比重越來越大，由以往約12%至15%，去年升至近20%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797320-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797320-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797320-20250325.htm)
+
+---
+
 # 港股低收561點　比亞迪電子及舜宇挫近10%或以上
 
 ![恒生指數最多跌逾580點，收市報23344點，跌561點，跌幅2.35%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797317_1_20250325161756.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm)
-
----
-
-# 分析料內地四大行去年盈利按年持平　上季表現按季表現較好
-
-![分析預計內銀今年盈利表現要視乎LPR走勢，估計仍有向下空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797177_1_20250324172340.jpg&q=85)
-  
-
-內地四大國有銀行本周陸續公布去年業績。富瑞中國經濟學家、中國金融地產行業首席分析師陳姝瑾估計，四大行去年盈利按年持平，單計去年第4季的表現略好過第3季度，受到債券投資收益帶動。她相信，季內淨息差按年跌幅不大，但按季就相對明顯，主要受到存量房貸利率及貸款市場報價利率（LPR）下行影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm)
 
 ---
