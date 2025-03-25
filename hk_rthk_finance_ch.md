@@ -1,5 +1,30 @@
+# 港股下午初段跌逾500點
+
+![恒生指數較早時報23378點，跌526點，跌幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797295_1_20250325130524.jpg&q=15)
+  
+
+港股下午初段繼續捱沽，恒生指數較早時報23378點，跌526點，跌幅2.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797295-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797295-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797295-20250325.htm)
+
+---
+
 # 李家超抵達海南海口準備出席博鰲論壇　下午致辭分享香港發展機遇
 
+![李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797294_1_20250325131305.jpg&q=90)
   
 
 行政長官李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。
@@ -143,6 +168,7 @@
 
 # 博鰲亞洲論壇年會旗艦報告倡推動綠色轉型
 
+![張軍表示，亞洲經濟前景及一體化進程報告反映面對諸多挑戰。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797278_1_20250325131407.jpg&q=80)
   
 
 博鰲亞洲論壇年會發表旗艦報告，包括亞洲經濟前景及一體化進程、應對氣候變化兩份報告。
@@ -214,7 +240,7 @@
 
 # 祁斌：香港資本市場復蘇　應進一步改革確保持續健康發展
 
-![祁斌建議進一步改革和發展香港資本市場，鞏固目前的正面勢頭，並確保市場持續健康發展。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797272_2_20250325115931.jpg&q=75)
+![祁斌建議進一步改革和發展香港資本市場，鞏固目前的正面勢頭，並確保市場持續健康發展。（滙豐圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797272_3_20250325131616.jpg&q=90)
   
 
 中聯辦副主任祁斌表示，港股今年以來跑贏英美日等主要市場，形容香港資本市場迎來春天並充滿新的活力，眾多科技股股價創新高，日均成交額顯著改善，新股市場亦見回暖。他又說，本港就業和消費表現正面，樓市信心有所回升。
@@ -1409,30 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm)
-
----
-
-# 七欖開幕禮有激光投影表演 閉幕禮首開天幕放煙火
-
-![閉幕式會打開啟德主場館天幕在球場上空，呈獻煙火匯演。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797150_1_20250324152236.jpg&q=90)
-![開幕典禮會有全新激光投影表演。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797150_2_20250324152236.jpg&q=85)
-  
-
-香港國際七人欖球賽本周末、一連三日在啟德體育園主場館舉行，旅發局表示，開幕典禮會有全新激光投影表演，閉幕禮更首次開放球場天幕綻放煙火，亦會邀來人氣南韓職業棒球隊啦啦隊助陣，展現「盛事之都」的動感魅力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm)
 
 ---

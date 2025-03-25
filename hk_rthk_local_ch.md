@@ -1,5 +1,53 @@
+# 盧寵茂：不應將急症室當普通科門診　非跟隨通脹調整而是改革
+
+  
+
+政府公布公營醫療服務收費改革方案，急症室收費將由現時180元增至400元，被問到急症室收費與私家醫生看齊，會否造成私家醫生加價。醫管局行政總裁高拔陞預料急症室加費後，第四、五類非危急病人一定會減少，讓急症服務更有能力照顧必須的病人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797296-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797296-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797296-20250325.htm)
+
+---
+
+# 港股下午初段跌逾500點
+
+![恒生指數較早時報23378點，跌526點，跌幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797295_1_20250325130524.jpg&q=15)
+  
+
+港股下午初段繼續捱沽，恒生指數較早時報23378點，跌526點，跌幅2.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797295-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797295-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797295-20250325.htm)
+
+---
+
 # 李家超抵達海南海口準備出席博鰲論壇　下午致辭分享香港發展機遇
 
+![李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797294_1_20250325131305.jpg&q=90)
   
 
 行政長官李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。
@@ -47,6 +95,7 @@
 
 # 公營醫療收費每人每年1萬元上限　料7萬名重症病人受惠
 
+![政府公布公營醫療服務收費改革方案，包括增設全年收費上限，每人每年1萬元，適用於所有收費項目。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797292_2_20250325131612.jpg&q=90)
   
 
 政府公布公營醫療服務收費改革方案，當局強調，今次改革是從系統角度改革資助架構，按不同公營醫療服務𨤳定政府資助水平和共付比例，理順住院和急症室等服務的相對需求。政府強調會循序漸進，分階段5年內達致目標，第一階段調整將於明年推行，每兩年檢討一次。
@@ -70,7 +119,7 @@
 
 # 急症室收費400元　住院急症病床每日300元
 
-![當局公布，急症室收費將由現時180元增至400元，第一類危殆及第二類危急病人可獲豁免。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797289_1_20250325125114.jpg&q=90)
+![急症室收費將由現時的180元增至400元，第一類危殆及第二類危急病人可獲豁免。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797289_2_20250325131711.jpg&q=80)
   
 
 政府公布公營醫療服務收費改革方案，涉及的服務範圍涵蓋住院、日間程序、急症室、專科門診、病理檢驗、非緊急放射造影、家庭醫學門診等。
@@ -94,7 +143,7 @@
 
 # 盧寵茂公布公營醫療服務收費改革　稱共付比率屬可負擔水平
 
-![盧寵茂公布公營醫療服務收費改革　稱共付比率屬可負擔水平（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797286_1_20250325124022.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797286_1_20250325124022.jpg&q=80)
   
 
 政府公布公營醫療服務收費改革詳情，醫務衞生局局長盧寵茂表示，香港一直有高效、高質量的醫療系統，發揮全民安全網角色，但系統面臨很大挑戰，人口老化令醫療需求不斷上升，醫學進步、診治能力提升及先進新藥械和治療方法，亦令醫療成本上升，本港奉行簡單低稅制，沒有全民醫保，市民以3%的超低共付率使用公營醫療服務，政府資助達97.6%。
@@ -238,7 +287,7 @@
 
 # 祁斌：香港資本市場復蘇　應進一步改革確保持續健康發展
 
-![祁斌建議進一步改革和發展香港資本市場，鞏固目前的正面勢頭，並確保市場持續健康發展。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797272_2_20250325115931.jpg&q=75)
+![祁斌建議進一步改革和發展香港資本市場，鞏固目前的正面勢頭，並確保市場持續健康發展。（滙豐圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797272_3_20250325131616.jpg&q=90)
   
 
 中聯辦副主任祁斌表示，港股今年以來跑贏英美日等主要市場，形容香港資本市場迎來春天並充滿新的活力，眾多科技股股價創新高，日均成交額顯著改善，新股市場亦見回暖。他又說，本港就業和消費表現正面，樓市信心有所回升。
@@ -1387,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797111-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797111-20250324.htm)
-
----
-
-# 港交所：個股槓桿及反向產品上市加強香港區內領先ETP市場地位
-
-![港交所稱亞洲首批個股槓桿及反向產品上市將加強香港區內領先ETP市場地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797108_1_20250324105109.jpg&q=90)
-  
-
-港交所歡迎亞洲首批個股槓桿及反向產品上市，指進一步豐富香港產品生態圈，加強香港作為區內領先的交易所買賣產品（ETP）市場地位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm)
-
----
-
-# 許正宇：年底前可望引入逾200間家辦來港　料超額達標
-
-![許正宇稱逾160間已落戶香港的家辦，約四分之一與過去兩屆「裕澤香江」高峰論壇直接有關。（財庫局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797106_2_20250324104432.jpg&q=90)
-  
-
-財經事務及庫務局局長許正宇相信，今年底前可望引入逾200間家族辦公室來港，超額完成2022年施政報告提出的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm)
 
 ---

@@ -1,9 +1,33 @@
-# Relief as billiards keeps Tier A status
+# Non-urgent A&E visits to cost more in fee revamp
+
+![Health minister Lo Chung-mau (middle) says the fee reform is aimed at directing public resources to patients most in need. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797291_1_20250325131640.jpg&q=90)
+  
+
+Non-urgent patients seeking help at the city's public accident and emergency wards are set to pay more than double the current rate as part of the government's revamp on healthcare charges, with the new fees taking effect next year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797291-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797291-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797291-20250325.htm)
+
+---
+
+# Relief as billiards keep Tier A status
 
 ![Vincent Law says the decision allows billiard players and coaches to focus on training. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797283_1_20250325120446.jpg&q=90)
   
 
-The chairman of the Billiard Sports Council of Hong Kong welcomes the government's decision to retain the sport's Tier A status, saying the impact would have been devastating had the sport been downgraded.
+The chairman of the Billiard Sports Council of Hong Kong China welcomes the government's decision to retain the sport's Tier A status, saying the impact would have been devastating had the sport been downgraded.
 
   
 
@@ -24,7 +48,7 @@ The chairman of the Billiard Sports Council of Hong Kong welcomes the government
 
 # Cats and dogs allowed on light rail from May
 
-![The two-month pilot scheme will require owners to board the light rail with pets in bags that comply with luggage restrictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797287_1_20250325122816.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797287_1_20250325122816.jpg&q=85)
   
 
 Cat and dog owners will soon be able to bring pets on board the light rail on weekends and public holidays once the MTR Corporation rolls out a HK$99 monthly pet pass from May as part of a trial scheme.
@@ -1419,29 +1443,5 @@ Authorities on Wednesday launched its first community living room on Hong Kong I
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796434-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796434-20250319.htm)
-
----
-
-# Ocean Park swings back into full action
-
-![Some visitors are disappointed with the temporary suspension of cable car services and upper section facilities. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796433_1_20250319164747.jpg&q=75)
-  
-
-Ocean Park said on Wednesday cable car services and facilities in its upper section resumed operations at about 4 pm after they had to be closed down for more than half a day.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796433-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Relief as billiards keep Tier A status
+
+![Vincent Law says the decision allows billiard players and coaches to focus on training. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797283_1_20250325120446.jpg&q=90)
+  
+
+The chairman of the Billiard Sports Council of Hong Kong China welcomes the government's decision to retain the sport's Tier A status, saying the impact would have been devastating had the sport been downgraded.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm)
+
+---
+
 # De Minaur finds way through Fonseca fervor in Miami
 
 ![Alex de Minaur goes for an overhead drive in his Miami Open match against Joao Fonseca at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797270_1_20250325105235.jpg&q=90)
@@ -1414,29 +1438,5 @@ The Hong Kong Rugby Sevens, one of the city's most popular and highly anticipate
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm)
-
----
-
-# Sabalenka books Indian Wells title clash with Andreeva
-
-![Belarus's Aryna Sabalenka shakes hands with USA's Madison Keys after winning their semi-final match at the Indian Wells Tennis. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795836_1_20250315123114.jpg&q=85)
-  
-
-Aryna Sabalenka avenged her Australian Open loss to Madison Keys on Friday, thrashing the American 6-0, 6-1 to book an Indian Wells title showdown with teen sensation Mirra Andreeva.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795836-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795836-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795836-20250315.htm)
 
 ---
