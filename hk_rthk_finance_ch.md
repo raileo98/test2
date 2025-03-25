@@ -1,3 +1,26 @@
+# 李家超在海南表示希望香港盡快加入區域全面經濟夥伴協定
+
+  
+
+行政長官李家超在博鰲亞洲論壇的分論壇致辭時到，亞洲作為全球增長的擎，香港將致力深化國際交流與合作，希望可以盡快加入區域全面經濟夥伴協定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm)
+
+---
+
 # 博鰲論壇秘書長張軍冀傳遞保持信心，戰勝困難的強烈信號
 
   
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm)
-
----
-
-# 美國3月製造業PMI初值跌至49.8　跌幅大過預期
-
-![美國3月製造業採購經理指數（PMI）初值降至49.8，跌至50以下的收縮區間，低過市場預期的51.7。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797212_1_20250324215640.jpg&q=80)
-  
-
-標普全球公布，美國3月製造業採購經理指數（PMI）初值降至49.8，跌至50以下的收縮區間，低過市場預期的51.7，亦低於2月的52.7。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797212-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797212-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797212-20250324.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 李家超在海南表示希望香港盡快加入區域全面經濟夥伴協定
+
+  
+
+行政長官李家超在博鰲亞洲論壇的分論壇致辭時到，亞洲作為全球增長的擎，香港將致力深化國際交流與合作，希望可以盡快加入區域全面經濟夥伴協定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm)
+
+---
+
 # 博鰲論壇秘書長張軍冀傳遞保持信心，戰勝困難的強烈信號
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm)
-
----
-
-# 中日舉行第六次經濟高層對話　王毅：中日互為伙伴而非對手
-
-![中日第六次經濟高層對話在東京舉行前，王毅（前排左五）和岩屋毅（前排左六）等官員合照留念。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796961_2_20250322212757.jpg&q=85)
-  
-
-中共中央政治局委員、外長王毅在東京同日本外相岩屋毅共同主持召開第六次中日經濟高層對話，雙方15個政府部門負責人出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796961-20250322.htm)
 
 ---

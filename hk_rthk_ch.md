@@ -1,3 +1,49 @@
+# 李家超在海南表示希望香港盡快加入區域全面經濟夥伴協定
+
+  
+
+行政長官李家超在博鰲亞洲論壇的分論壇致辭時到，亞洲作為全球增長的擎，香港將致力深化國際交流與合作，希望可以盡快加入區域全面經濟夥伴協定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm)
+
+---
+
+# 博鰲論壇秘書長張軍冀傳遞保持信心，戰勝困難的強烈信號
+
+  
+
+博鰲亞洲論壇2025年年會今日至本周五在海南博鰲舉行，今年主題是「在世界變局中共創亞洲未來」。中共中央政治局常委、國務院副總理丁薛祥將在開幕式發表主旨演講。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797348-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797348-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797348-20250325.htm)
+
+---
+
 # 病人組織指收費改革繁多冀清楚說明　前線醫生憂易惹爭拗
 
   
@@ -23,6 +69,7 @@
 
 # 每名病人每年最多支付1萬元料7萬人受惠　並放寬費用減免資格
 
+![改革方案增設每人每年1萬元收費上限。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797346_1_20250325184856.jpg&q=80)
   
 
 公營醫療體系改革方案增設每人每年1萬元收費上限，適用於除了自費藥械外的所有收費項目，預料7萬人受惠。

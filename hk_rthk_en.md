@@ -1,3 +1,27 @@
+# AI a game-changer for climate transition: FS
+
+![Paul Chan says AI will act as a catalyst in helping Hong Kong become a more sustainable society. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797342_1_20250325181504.jpg&q=80)
+  
+
+Financial Secretary Paul Chan on Tuesday said that artificial intelligence is a game changer for Hong Kong in its goal to become a more sustainable society, as the city goes all out to achieve its carbon emission goals.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm)
+
+---
+
 # Blatter and Platini cleared of graft charges again
 
 ![Michel Platini, left, and Sepp Blatter were cleared of fraud mismanagement by a Swiss court. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797334_1_20250325173315.jpg&q=85)
@@ -1417,30 +1441,5 @@ NBA Eastern Conference leader Cleveland snapped a four-game losing streak with a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm)
-
----
-
-# France, Spain through to Nations League semis on pens
-
-![Mike Maignan was the hero for France in the penalty shoot-out against Croatia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797081_1_20250324074010.jpg&q=90)
-![Mikel Oiarzabal opened the scoring for Spain in their second leg clash against the Netherlands. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797081_2_20250324074010.jpg&q=90)
-  
-
-Goalkeeper Mike Maignan saved twice in the shoot-out as France beat Croatia 5-4 on penalties after their Uefa Nations League quarter-final tie had ended 2-2 on aggregate, sealing a place in the last four in June.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797081-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797081-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797081-20250324.htm)
 
 ---

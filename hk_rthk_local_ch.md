@@ -1,3 +1,26 @@
+# 李家超在海南表示希望香港盡快加入區域全面經濟夥伴協定
+
+  
+
+行政長官李家超在博鰲亞洲論壇的分論壇致辭時到，亞洲作為全球增長的擎，香港將致力深化國際交流與合作，希望可以盡快加入區域全面經濟夥伴協定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm)
+
+---
+
 # 病人組織指收費改革繁多冀清楚說明　前線醫生憂易惹爭拗
 
   
@@ -23,6 +46,7 @@
 
 # 每名病人每年最多支付1萬元料7萬人受惠　並放寬費用減免資格
 
+![改革方案增設每人每年1萬元收費上限。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797346_1_20250325184856.jpg&q=80)
   
 
 公營醫療體系改革方案增設每人每年1萬元收費上限，適用於除了自費藥械外的所有收費項目，預料7萬人受惠。
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797175-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797175-20250324.htm)
-
----
-
-# 內地男子涉嫌航機上盜竊被捕　乘客放置物櫃背囊被偷現金
-
-![一名內地男子涉嫌在航機上盜竊其他乘客的財物，被控一項「違反航空保安條例」罪。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797169_1_20250324171524.jpg&q=90)
-  
-
-一名內地男子涉嫌在航機上盜竊其他乘客的財物，被控一項「違反航空保安條例」罪，在西九龍裁判法院提堂。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797169-20250324.htm)
 
 ---
