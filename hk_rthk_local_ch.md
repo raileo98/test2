@@ -1,3 +1,27 @@
+# 政府消息：有人貪方便求診急症室　護士反映病人半夜因腳痕求診
+
+![政府消息人士表示，急症室的功能是救急扶危，不是領取假紙或因為24小時運作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797343_1_20250325182128.jpg&q=90)
+  
+
+政府公布公營醫療服務收費改革方案， 急症室收費將由現時180元增至400元，第一類危殆及第二類危急病人可獲豁免。政府消息人士表示，急症室的功能是救急扶危，不是領取假紙或因為24小時運作，有人可以貪方便求診，如果急症室堆滿第四及第五類非緊急病人，對醫護人員士氣會有很大打擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797343-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797343-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797343-20250325.htm)
+
+---
+
 # 公營醫療每人每年一萬元收費上限　放寬減免申請資額及範圍
 
   
@@ -1408,30 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797154-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797154-20250324.htm)
-
----
-
-# 七欖開幕禮有激光投影表演 閉幕禮首開天幕放煙火
-
-![閉幕式會打開啟德主場館天幕在球場上空，呈獻煙火匯演。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797150_1_20250324152236.jpg&q=90)
-![開幕典禮會有全新激光投影表演。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797150_2_20250324152236.jpg&q=85)
-  
-
-香港國際七人欖球賽本周末、一連三日在啟德體育園主場館舉行，旅發局表示，開幕典禮會有全新激光投影表演，閉幕禮更首次開放球場天幕綻放煙火，亦會邀來人氣南韓職業棒球隊啦啦隊助陣，展現「盛事之都」的動感魅力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm)
 
 ---

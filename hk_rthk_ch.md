@@ -1,3 +1,51 @@
+# 政府消息：有人貪方便求診急症室　護士反映病人半夜因腳痕求診
+
+![政府消息人士表示，急症室的功能是救急扶危，不是領取假紙或因為24小時運作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797343_1_20250325182128.jpg&q=90)
+  
+
+政府公布公營醫療服務收費改革方案， 急症室收費將由現時180元增至400元，第一類危殆及第二類危急病人可獲豁免。政府消息人士表示，急症室的功能是救急扶危，不是領取假紙或因為24小時運作，有人可以貪方便求診，如果急症室堆滿第四及第五類非緊急病人，對醫護人員士氣會有很大打擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797343-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797343-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797343-20250325.htm)
+
+---
+
+# 在岸人民幣兌美元低收120點子
+
+![在岸人民幣低收120點子，報7.264兌1美元，創逾2星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797341_1_20250325181501.jpg&q=85)
+  
+
+在岸人民幣低收120點子，報7.264兌1美元，創逾2星期新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797341-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797341-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797341-20250325.htm)
+
+---
+
 # 中電信去年多賺逾8%　全年派息升逾11%
 
 ![中電信公布，去年盈利330.1億元人民幣，按年升8.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797337_1_20250325174545.jpg&q=85)

@@ -1,3 +1,27 @@
+# 在岸人民幣兌美元低收120點子
+
+![在岸人民幣低收120點子，報7.264兌1美元，創逾2星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797341_1_20250325181501.jpg&q=85)
+  
+
+在岸人民幣低收120點子，報7.264兌1美元，創逾2星期新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797341-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797341-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797341-20250325.htm)
+
+---
+
 # 中電信去年多賺逾8%　全年派息升逾11%
 
 ![中電信公布，去年盈利330.1億元人民幣，按年升8.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797337_1_20250325174545.jpg&q=85)
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797209-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797209-20250324.htm)
-
----
-
-# 美股3大指數初段升逾1%
-
-![紐約股市3大指數初段升逾1%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797211_1_20250324214832.jpg&q=80)
-  
-
-紐約股市3大指數初段升逾1%。投資者憧憬美國政府計劃推出的全球對等關稅措施會更具針對性，以及注視美國經濟和通脹數據表現。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797211-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797211-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797211-20250324.htm)
 
 ---
