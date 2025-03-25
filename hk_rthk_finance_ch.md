@@ -1,3 +1,27 @@
+# 日股高收172點
+
+![日經指數一度升逾500點，收市報37780點，升172點，升幅0.46%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797305_1_20250325143525.jpg&q=90)
+  
+
+日股高收近0.5%，但未能企穩38000點收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797305-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797305-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797305-20250325.htm)
+
+---
+
 # 台股收市升近1%
 
 ![台灣加權指數收市報22273點，升166點，升幅0.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797304_1_20250325141855.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm)
-
----
-
-# 陳茂波：將推出創新政策　促進港深人員資金數據及生物樣本流動
-
-![陳茂波指政府將推出試驗性質的創新政策，促進香港與深圳的人員、資金、貨物、數據，甚至生物樣本的流動。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797166_1_20250324171436.jpg&q=90)
-  
-
-財政司司長陳茂波表示，北部都會區與深圳接壤，將成為粵港兩地合作的橋頭堡，佔地300公頃的創新科技園區，涵蓋「河套合作區」，政府將推出試驗性質的創新政策，促進香港與深圳的人員、資金、貨物、數據，甚至生物樣本的流動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm)
 
 ---
