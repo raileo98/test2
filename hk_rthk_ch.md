@@ -1,3 +1,75 @@
+# 金價曾升約0.8%　受避險資金支撐
+
+![現貨金高見每盎司3035.71美元，升約0.8%，較早時徘徊3020美元附近。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797397_1_20250326055910.jpg&q=90)
+  
+
+金價造好，受避險資金支撐，市場觀望美國總統特朗普下星期宣布的關稅措施，憂慮或會拖累經濟增長，進一步令貿易緊張局勢加劇，並推高通脹。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797397-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797397-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797397-20250326.htm)
+
+---
+
+# 英美期油創逾3星期新高後個別發展
+
+![英美期油曾觸及逾3星期高位，收市個別發展，布蘭特期油全日升2美仙，紐約期油跌約0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797396_1_20250326055419.jpg&q=90)
+  
+
+英美期油曾觸及逾3星期高位，收市個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797396-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797396-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797396-20250326.htm)
+
+---
+
+# 歐洲股市造好　德法股市高收逾1%
+
+![英法德股市結束多日跌勢，德法股市單日升逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797395_1_20250326054432.jpg&q=90)
+  
+
+歐洲主要股市造好，英法德股市結束多日跌勢，投資者預期美國總統特朗普會採取更溫和的關稅立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797395-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797395-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797395-20250326.htm)
+
+---
+
 # 特朗普稱華爾茲不需為記者加入通訊群組道歉　民主黨人促官員辭職
 
 ![特朗普認為華爾茲不需要道歉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797403_1_20250326063715.jpg&q=90)
@@ -1362,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797330-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797330-20250325.htm)
-
----
-
-# 醫務衞生局：普通科門診非急症室替代品　日後主要照顧弱勢基層
-
-![當局正進行定位重組，日後普通科門診主要用於照顧弱勢基層，期望並非經濟最困難人士如果只患一般傷風感冒，應在社區網絡或向家庭醫生求診。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797328_1_20250325172903.jpg&q=90)
-  
-
-政府公布公營醫療服務收費改革方案。醫務衞生局發言人表示，預計明年實施改動後，政府資助率將由現時大約97%降至94%，預計2028年和2030年再檢討成效，探討是否需要再作調整，目標2030年再降至90%；又指相信新收費將改變市民使用服務的模式，但難以預計對使用人次的具體影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797328-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797328-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797328-20250325.htm)
-
----
-
-# 雙層巴士大埔行駛途中車尾起火冒濃煙　消防救熄無人受傷
-
-![事發在下午約2時半，涉事的雙層巴士沿完善路往吐露港公路方向行駛，駛至完善公園附近時，車尾起火並冒出濃煙。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797324_1_20250325171222.jpg&q=70)
-  
-
-一部雙層巴士在大埔行駛途中，車尾起火，消防員到場灌救，將火撲熄，事件中沒有人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797324-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797324-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797324-20250325.htm)
-
----
-
-# 外交部：中方從未也沒有興趣干涉加拿大內政
-
-![郭嘉昆表示，中方一貫堅持不干涉別國內政的原則，從未也沒有興趣干涉加拿大的內政。(路透社資料圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797321_1_20250325164026.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，中方一貫堅持不干涉別國內政的原則，從未也沒有興趣干涉加拿大的內政。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm)
 
 ---

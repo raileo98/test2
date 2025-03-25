@@ -1,3 +1,75 @@
+# 金價曾升約0.8%　受避險資金支撐
+
+![現貨金高見每盎司3035.71美元，升約0.8%，較早時徘徊3020美元附近。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797397_1_20250326055910.jpg&q=90)
+  
+
+金價造好，受避險資金支撐，市場觀望美國總統特朗普下星期宣布的關稅措施，憂慮或會拖累經濟增長，進一步令貿易緊張局勢加劇，並推高通脹。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797397-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797397-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797397-20250326.htm)
+
+---
+
+# 英美期油創逾3星期新高後個別發展
+
+![英美期油曾觸及逾3星期高位，收市個別發展，布蘭特期油全日升2美仙，紐約期油跌約0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797396_1_20250326055419.jpg&q=90)
+  
+
+英美期油曾觸及逾3星期高位，收市個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797396-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797396-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797396-20250326.htm)
+
+---
+
+# 歐洲股市造好　德法股市高收逾1%
+
+![英法德股市結束多日跌勢，德法股市單日升逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797395_1_20250326054432.jpg&q=90)
+  
+
+歐洲主要股市造好，英法德股市結束多日跌勢，投資者預期美國總統特朗普會採取更溫和的關稅立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797395-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797395-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797395-20250326.htm)
+
+---
+
 # 道指全日升4點　納指升約0.5%　關注關稅政策發展
 
 ![美股3大指數連升3日，創近3星期新高，但全日升幅有限。道瓊斯指數收市報42587點，升4點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797394_1_20250326054015.jpg&q=90)
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797245-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797245-20250325.htm)
-
----
-
-# 日股初段升逾1%　重上38000點
-
-![日經指數重上38000點水平，較早時報38069點，升461點，升幅1.23%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797244_1_20250325080516.jpg&q=75)
-  
-
-日股初段跟隨隔夜美股造好，重上38000點水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797244-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797244-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797244-20250325.htm)
-
----
-
-# 特朗普敦促聯儲局減息　博斯蒂克料今年只會減息1次
-
-![博斯蒂克預計，未來數月通脹進展將放緩，因此預料今年聯儲局只會減息1次。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797242_1_20250325073112.jpg&q=85)
-  
-
-美國總統特朗普較早時再次敦促聯儲局減息，他在白宮與內閣會面時表示，希望見到聯儲局降低利率。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm)
-
----
-
-# 小米折讓近7%配股集資426億元
-
-![小米計劃以先舊後新形式配股集資426億元，每股配售價53.25元，較昨日收市價折讓約6.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797240_1_20250325070145.jpg&q=90)
-  
-
-小米計劃以先舊後新形式，配股集資426億元，扣除開支後的集資淨額約425億元，主要用於加速業務擴張、研發投資以提升科技實力，以及用作其他一般公司用途。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797240-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797240-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797240-20250325.htm)
 
 ---
