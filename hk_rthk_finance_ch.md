@@ -1,3 +1,51 @@
+# 信德集團去年虧損擴大近22%
+
+![信德集團去年虧損8.24億元，按年擴大近22%。不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797352_1_20250325190842.jpg&q=90)
+  
+
+信德集團公布，去年虧損8.24億元，按年擴大近22%。不派末期息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797352-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797352-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797352-20250325.htm)
+
+---
+
+# 招商銀行去年多賺1.2%　末期息每股2元人民幣
+
+![招商銀行去年盈利1483.9億元人民幣，按年增長1.22%。派末期息每股2元人民幣，按年增加1.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797350_1_20250325185817.jpg&q=90)
+  
+
+招商銀行公布，去年盈利1483.9億元人民幣，按年增長1.22%。派末期息每股2元人民幣，按年增加1.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797350-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797350-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797350-20250325.htm)
+
+---
+
 # 李家超在海南表示希望香港盡快加入區域全面經濟夥伴協定
 
 ![博鰲亞洲論壇2025年年會主題是「在世界變局中共創亞洲未來」。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797349_1_20250325185133.jpg&q=80)
@@ -1385,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm)
-
----
-
-# 霍啟剛歡迎當局彈性處理調整精英體育資助制度
-
-![霍啟剛表示，歡迎當局今次彈性處理，調整精英體育資助制度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797215_1_20250324225435.jpg&q=80)
-  
-
-港協暨奧委會副會長霍啟剛表示，近年香港運動員在桌球和網球國際賽事的成績非常好，歡迎當局今次彈性處理，調整精英體育資助制度，讓這兩個項目在未來兩年繼續成為體育學院的「A級」精英項目。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm)
-
----
-
-# 佳兆業料去年虧損擴大至不多於300億人民幣
-
-![佳兆業發預期去年將錄得不多於300億元人民幣虧損，按年增加最多51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797214_1_20250324224622.jpg&q=90)
-  
-
-佳兆業發盈警，預期去年將錄得不多於300億元人民幣虧損，按年增加最多51%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm)
 
 ---

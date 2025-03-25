@@ -1,3 +1,49 @@
+# 孫玉菡：「多元共融藝術巡禮」展示本港多元共融成績
+
+  
+
+勞工及福利局局長孫玉菡說，香港正值「盛匯超級三月」，有欖球、Art Basel Hong Kong及Art Central等活動，另一盛事就是「多元共融藝術巡禮」的活動，希望藉此向全社會及國際展示本港在推廣多元共融方面的成績，殘疾藝術家的作品及才華，若能被賞識就更理想。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797355-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797355-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797355-20250325.htm)
+
+---
+
+# 林定國：維護國家安全與深化國際交往合作絕對沒有任何衝突
+
+  
+
+律政司司長林定國說，深化國際交往合作有一個基本前提，就是維護國家安全，強調維護國家安全與深化國際交往合作絕對沒有任何衝突，香港的維護國家安全法律都是極具針對性，亦只有在充分理據下才會運用，難以想像一般正常的國際交往合作會危害國家安全，違反國家安全的行為和活動也不可能是一般正常的國際交往合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797353-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797353-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797353-20250325.htm)
+
+---
+
 # 簡樸房規管制度建議設登記期及寬限期　業主共有4年時間適應制度
 
   
@@ -1386,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm)
-
----
-
-# 桌球網球未來兩年續為A級精英項目　精英運動員資助增8.3%
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797182_1_20250324174300.jpg&q=90)
-  
-
-政府宣布，桌球及網球未來兩年，將繼續保留為體育學院「A級」精英項目；另外，所有精英運動員的直接資助，會上調8.3%，今年4月1日起生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797182-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797182-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797182-20250324.htm)
-
----
-
-# 消息：公院醫療費擬設收費上限按年計算　超出上限可申請減免
-
-![據了解，改革急症室收費後，預料較集中處理重症個案，急症室成本將增加。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797179_1_20250324173222.jpg&q=80)
-  
-
-政府明日公布公營醫療服務收費改革詳情。消息人士指，新收費最快明年1月起分3階段實施，期望5年時間可以完成改革，每兩年檢討一次。據悉，其中急症室只有一個收費，有關收費會比現時高，危殆及危急病人可獲豁免，希望藉此減少接收輕症個案，將更多資源投放治療危急重症。據了解，改革急症室收費後，預料較集中處理重症個案，急症室成本將增加。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797179-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797179-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797179-20250324.htm)
 
 ---
