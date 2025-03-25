@@ -1,3 +1,27 @@
+# 快手去年盈利按年急升1.4倍
+
+![快手去年盈利153.4億元人民幣，按年急升1.4倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797326_1_20250325165713.jpg&q=90)
+  
+
+快手去年盈利153.4億元人民幣，按年急升1.4倍。不派末期息。按非國際財務報告準則計，去年經調整利潤177.16億元，按年升72.5%。全年收入約1269億元，按年升近12%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797326-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797326-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797326-20250325.htm)
+
+---
+
 # 本港首2個月出口按年升6.5%　上月出口升15.4%
 
 ![本港首2個月整體出口貨值按年升6.5%，進口貨值升5.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797325_1_20250325164835.jpg&q=80)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm)
-
----
-
-# 報道：小米正配股集資最多52.7億美元
-
-![外電報道，小米集團正以先舊後新方式配售7.5億股，集資最多52.7億美元。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797186_1_20250324182313.jpg&q=90)
-  
-
-外電報道，小米集團正以先舊後新方式配售7.5億股，每股配售價52.8元至54.6元，較今日收市價折讓4.2%至7.4%，集資最多52.7億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797186-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797186-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797186-20250324.htm)
 
 ---

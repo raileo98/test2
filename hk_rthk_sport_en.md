@@ -1,3 +1,27 @@
+# Blatter and Platini cleared of graft charges again
+
+![Michel Platini, left, and Sepp Blatter were cleared of fraud mismanagement by a Swiss court. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797334_1_20250325173315.jpg&q=85)
+  
+
+Former FIFA president Sepp Blatter and France football great Michel Platini were both cleared of corruption charges by a Swiss court on Tuesday, two and a half years after they were first acquitted of the offences.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm)
+
+---
+
 # Relief as billiards keep Tier A status
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797283_1_20250325120446.jpg&q=90)
@@ -1414,29 +1438,5 @@ Lando Norris clinched pole position on Saturday for the season-opening Australia
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795861-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795861-20250315.htm)
-
----
-
-# 'Rugby Sevens tourists opting for HK Island hotels'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795834_1_20250315121225.jpg&q=70)
-  
-
-The Hong Kong Rugby Sevens, one of the city's most popular and highly anticipated events, will be hosted at a brand new location this year, but the retail and tourism sectors are still expecting a boost in spending.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795834-20250315.htm)
 
 ---

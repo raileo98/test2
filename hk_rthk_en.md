@@ -1,3 +1,27 @@
+# Blatter and Platini cleared of graft charges again
+
+![Michel Platini, left, and Sepp Blatter were cleared of fraud mismanagement by a Swiss court. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797334_1_20250325173315.jpg&q=85)
+  
+
+Former FIFA president Sepp Blatter and France football great Michel Platini were both cleared of corruption charges by a Swiss court on Tuesday, two and a half years after they were first acquitted of the offences.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm)
+
+---
+
 # Microplastics fear for those who chew gum
 
 ![Researchers say a gram of gum releases an average of 100 microplastic fragments and that some shed more than 600. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797333_1_20250325172205.jpg&q=90)
@@ -1418,29 +1442,5 @@ Goalkeeper Mike Maignan saved twice in the shoot-out as France beat Croatia 5-4 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797081-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797081-20250324.htm)
-
----
-
-# Filipino teenager Eala sends Keys packing in Miami
-
-![Eala is the first Filipino woman in the Open Era to beat a top-10 opponent since 1975. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797077_1_20250324055913.jpg&q=90)
-  
-
-Fifth-seeded American Madison Keys, the Australian Open champion, crashed out of the Miami Open suffering a shock loss to 19-year-old Filipino wildcard Alexandra Eala.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm)
 
 ---
