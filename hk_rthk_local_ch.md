@@ -1,3 +1,72 @@
+# 入境處於黃大仙美食展覽會拘捕14名懷疑當黑工內地訪客
+
+  
+
+入境處昨日在黃大仙一個展覽會展開反非法勞工行動，拘捕14名懷疑從事非法工作的內地訪客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797300-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797300-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797300-20250325.htm)
+
+---
+
+# 公營醫療收費改革後政府獲額外收入30億元　將全數投放醫療服務
+
+  
+
+政府公布公營醫療收費改革，涉及住院、專科門診、非緊急放射造影檢查等，其中急症室收費將由現時180元增至400元，第一類危殆及第二類危急病人可獲豁免。醫衞局常任秘書長陳松青預料收費改革後，政府所得額外收入約為30億元，會全數用於公營醫療服務，又重申改革是希望引導市民改變過往使用公營醫療系統的模式，多善用基層醫療服務，而非濫用高成本服務，例如急症室及放射造影服務等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797299-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797299-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797299-20250325.htm)
+
+---
+
+# 醫管局：放寬收費減免機制　料受惠人數由30萬增至約140萬
+
+  
+
+政府提出公營醫療收費改革，包括加強醫療保障，期望加固全民安全網。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797298-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797298-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797298-20250325.htm)
+
+---
+
 # 盧寵茂：不應將急症室當普通科門診　非跟隨通脹調整而是改革
 
 ![盧寵茂強調，急症室收費不應與普通門診直接比較，市民亦不應將急症室當成普通科門診。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797296_1_20250325132054.jpg&q=80)
@@ -361,7 +430,7 @@
 
 # 精英體育事務委員會修訂A級資助條件　主席稱體育發展更穩定
 
-![鄭景亮表示，為了令體育發展更穩定，委員會一致通過修訂。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797261_1_20250325104643.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797261_1_20250325104643.jpg&q=85)
   
 
 文化體育及旅遊局昨日公布精英體育項目資助機制檢討，桌球繼續獲保留為A級精英體育項目。
@@ -1366,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm)
-
----
-
-# 謝展寰：第一座垃圾焚化爐預計今年底投入運作
-
-![謝展寰表示，力爭在2035年前，減少一半的碳排放量，在2050年前實現碳中和。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797117_1_20250324115914.jpg&q=80)
-  
-
-環境及生態局局長謝展寰在「香港氣候論壇」致辭，表示香港作為沿海城市，特別容易受到熱帶氣旋和水位上升等極端天氣影響，當局有應對策略，包括加強關鍵結構，更新設計標準，以符合最新的氣候情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797117-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797117-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797117-20250324.htm)
-
----
-
-# 國家生態環境部官員稱中國擴大利用再生能源包括太陽能和風力發電
-
-![夏應顯提到，中國政府在造林方面作出很大的努力，減碳工作亦取得成果。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797114_1_20250324115846.jpg&q=80)
-  
-
-環境及生態局與香港大學合辦「香港氣候論壇」，國家生態環境部應對氣候變化司司長夏應顯致辭時表示，外界有指今年全球氣溫會達到上升1.5 度的臨界點，目前還未能確定是否真的去到這臨界點，但氣候變化是真實的，大家必須應對這項挑戰。對中國來說，就是要繼續實現低碳和綠色轉型，他們已提出相關政策。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm)
-
----
-
-# 楊永杰促CityLine考慮賠償受錯版門票影響人士
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797111_1_20250324113728.jpg&q=90)
-  
-
-英國著名樂隊Coldplay下月在啟德體育園的巡迴演唱會，因部分門票資料出錯，要更換新版門票。售票公司CityLine即日起至4月7日，在香港設有7個換票點，廣州和深圳各有一個換票點換領新門票。公司正探索提供快遞門票換領服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797111-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797111-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797111-20250324.htm)
 
 ---

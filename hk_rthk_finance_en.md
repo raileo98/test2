@@ -1,3 +1,27 @@
+# Tesla sales fall off a cliff in Europe
+
+![A woman encourages people outside the Tesla Centre Park Royal in London to boycott the electric vehicle giant. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797297_1_20250325132757.jpg&q=90)
+  
+
+European sales of Tesla electric cars dropped 49 percent in January and February compared with the same period a year earlier, the ACEA manufacturers' association said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm)
+
+---
+
 # Hang Seng Index opens over a percentage point lower
 
 ![US President Donald Trump's reciprocal tariffs are due to be unveiled on April 2. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797260_1_20250325094919.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump declined on Sunday to rule out the possibility that th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm)
-
----
-
-# Mainland sees year-on-year drop in inflation
-
-![Customers buy vegetables at a supermarket in Handan in Hebei province. China's consumer price index is down 0.7 percent year on year in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=75)
-  
-
-China's consumer inflation in February fell at the quickest pace since January 2024, while producer price deflation persisted, as seasonal demand faded while households are still cautious about spending.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm)
 
 ---

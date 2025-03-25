@@ -1,3 +1,72 @@
+# 入境處於黃大仙美食展覽會拘捕14名懷疑當黑工內地訪客
+
+  
+
+入境處昨日在黃大仙一個展覽會展開反非法勞工行動，拘捕14名懷疑從事非法工作的內地訪客。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797300-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797300-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797300-20250325.htm)
+
+---
+
+# 公營醫療收費改革後政府獲額外收入30億元　將全數投放醫療服務
+
+  
+
+政府公布公營醫療收費改革，涉及住院、專科門診、非緊急放射造影檢查等，其中急症室收費將由現時180元增至400元，第一類危殆及第二類危急病人可獲豁免。醫衞局常任秘書長陳松青預料收費改革後，政府所得額外收入約為30億元，會全數用於公營醫療服務，又重申改革是希望引導市民改變過往使用公營醫療系統的模式，多善用基層醫療服務，而非濫用高成本服務，例如急症室及放射造影服務等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797299-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797299-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797299-20250325.htm)
+
+---
+
+# 醫管局：放寬收費減免機制　料受惠人數由30萬增至約140萬
+
+  
+
+政府提出公營醫療收費改革，包括加強醫療保障，期望加固全民安全網。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797298-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797298-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797298-20250325.htm)
+
+---
+
 # 盧寵茂：不應將急症室當普通科門診　非跟隨通脹調整而是改革
 
 ![盧寵茂強調，急症室收費不應與普通門診直接比較，市民亦不應將急症室當成普通科門診。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797296_1_20250325132054.jpg&q=80)
@@ -648,7 +717,7 @@
 
 # 精英體育事務委員會修訂A級資助條件　主席稱體育發展更穩定
 
-![鄭景亮表示，為了令體育發展更穩定，委員會一致通過修訂。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797261_1_20250325104643.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797261_1_20250325104643.jpg&q=85)
   
 
 文化體育及旅遊局昨日公布精英體育項目資助機制檢討，桌球繼續獲保留為A級精英體育項目。

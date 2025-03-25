@@ -1,3 +1,27 @@
+# Tesla sales fall off a cliff in Europe
+
+![A woman encourages people outside the Tesla Centre Park Royal in London to boycott the electric vehicle giant. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797297_1_20250325132757.jpg&q=90)
+  
+
+European sales of Tesla electric cars dropped 49 percent in January and February compared with the same period a year earlier, the ACEA manufacturers' association said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm)
+
+---
+
 # Tariffs crunch looms for buyers of Venezuelan oil
 
 ![Buyers of Venezuelan oil and gas exports such as China are likely to switch to Russian supplies as a result of Donald Trump's latest executive order. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797281_1_20250325114524.jpg&q=80)
@@ -1412,29 +1436,5 @@ Chile said on Wednesday it was reviewing an agreement for the construction of a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm)
-
----
-
-# Japan marks 30 years since subway sarin attack
-
-![A commuter is treated after being exposed to sarin gas fumes on the Tokyo Metro system on March 20, 1995. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796530_1_20250320083940.jpg&q=90)
-  
-
-Japan on Thursday marked the 30th anniversary of the sarin gas attack on Tokyo's subway that killed more than a dozen people and injured more than 5,800.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796530-20250320.htm)
 
 ---

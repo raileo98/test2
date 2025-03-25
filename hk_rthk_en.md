@@ -1,3 +1,27 @@
+# Tesla sales fall off a cliff in Europe
+
+![A woman encourages people outside the Tesla Centre Park Royal in London to boycott the electric vehicle giant. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797297_1_20250325132757.jpg&q=90)
+  
+
+European sales of Tesla electric cars dropped 49 percent in January and February compared with the same period a year earlier, the ACEA manufacturers' association said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm)
+
+---
+
 # Non-urgent A&E visits to cost more in fee revamp
 
 ![Health minister Lo Chung-mau (middle) says the fee reform is aimed at directing public resources to patients most in need. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797291_1_20250325131640.jpg&q=90)
@@ -1415,29 +1439,5 @@ Premier Li Qiang told a gathering of business executives in Beijing on Sunday th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797024-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797024-20250323.htm)
-
----
-
-# HK breast milk bank began feeding vulnerable newborns
-
-![Rosanna Wong, who heads Hong Kong's first breast milk bank, is upbeat about donation figures just two months after the facility began service. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797014_1_20250323125157.jpg&q=90)
-  
-
-The Hong Kong Breast Milk Bank has begun serving premature or critically-ill newborns across the city, just two months after it came into operation in January.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797014-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797014-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797014-20250323.htm)
 
 ---
