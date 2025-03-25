@@ -1,3 +1,27 @@
+# 道指全日升4點　納指升約0.5%　關注關稅政策發展
+
+![美股3大指數連升3日，創近3星期新高，但全日升幅有限。道瓊斯指數收市報42587點，升4點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797394_1_20250326054015.jpg&q=90)
+  
+
+美股3大指數反覆向上，連升3日，創近3星期新高，但全日升幅有限，市場持續關注美國關稅措施如何實施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797394-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797394-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797394-20250326.htm)
+
+---
+
 # 澤連斯基：莫斯科已試圖扭曲黑海航運及能源設施停火協議
 
 ![澤連斯基表示，莫斯科已試圖扭曲協議，實際上欺騙了烏俄的中間人和整個世界。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797393_1_20250326042026.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797320-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797320-20250325.htm)
-
----
-
-# 社協憂公營醫療收費調整不利基層及夾心階層長期病患者
-
-![社區組織協會認為，相對於「封頂」的更好做法，是病人在無需另行申請的情況下，醫管局財務系統可自動豁免費用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797319_1_20250325164912.jpg&q=80)
-  
-
-社區組織協會回應政府公布公營醫療服務收費改革，表示擔心收費調整不利基層市民及夾心階層的長期病患者，認為必須透過更全面的醫療收費減免制度，保障他們不因經濟困難而得不到適切治療。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797319-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797319-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797319-20250325.htm)
 
 ---

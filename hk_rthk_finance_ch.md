@@ -1,3 +1,27 @@
+# 道指全日升4點　納指升約0.5%　關注關稅政策發展
+
+![美股3大指數連升3日，創近3星期新高，但全日升幅有限。道瓊斯指數收市報42587點，升4點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797394_1_20250326054015.jpg&q=90)
+  
+
+美股3大指數反覆向上，連升3日，創近3星期新高，但全日升幅有限，市場持續關注美國關稅措施如何實施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797394-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797394-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797394-20250326.htm)
+
+---
+
 # 張國清：平台經濟要發揮擴消費、穩就業等引領帶動作用
 
 ![張國清表示，平台經濟要發揮在促創新、擴消費、穩就業等方面的引領帶動作用，要堅決整治低質低價「內卷式」競爭等問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797383_1_20250325231910.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797240-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797240-20250325.htm)
-
----
-
-# 《環看天下》：希斯路機場一度關閉　基建後備設施不足惹質疑
-
-![希斯路機場附近一個變電站日前發生火警，影響機場供電。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797241_1_20250325071115.jpg&q=90)
-  
-
-英國倫敦希斯路機場上星期五因附近一個變電站發生大火導致停電，一度暫停運作10多小時。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm)
 
 ---
