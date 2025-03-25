@@ -1,3 +1,99 @@
+# 歐洲央行管委料存款利率夏季末或降至2厘
+
+![維勒魯瓦德加洛預料，存款利率或於夏季末減至2厘，亦即比現時有0.5厘下調空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797404_1_20250326070353.jpg&q=85)
+  
+
+歐洲央行管委、法國央行總裁維勒魯瓦德加洛表示，歐洲央行仍有進一步減息空間，預料存款利率或於夏季末減至2厘，亦即比現時有0.5厘下調空間。但他指，進一步放鬆政策的步伐及程度仍有待確定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797404-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797404-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797404-20250326.htm)
+
+---
+
+# 美國10年期債息觸及1個月新高後回軟
+
+![美國10年期債息曾升至4.369厘，升3.8個基點，創1個月新高，其後回軟。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797402_1_20250326062905.jpg&q=90)
+  
+
+美國10年期債息曾升至4.369厘，升3.8個基點，創1個月新高，尾市回軟至4.317厘附近，跌超過1個基點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797402-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797402-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797402-20250326.htm)
+
+---
+
+# 美元指數曾於104失而復得
+
+![美元指數曾升至104.46，升約0.2%，其後一度失守104。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797400_1_20250326062305.jpg&q=90)
+  
+
+市場對美國即將實施的關稅政策保持謹慎，美元指數曾升至104.46，升約0.2%，其後一度失守104，低見103.94，尾市徘徊104.2附近。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797400-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797400-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797400-20250326.htm)
+
+---
+
+# 港股美國預託證券大多造好　滙控升約3%
+
+![滙控ADR比本港昨日收市價升約3%，以港元計折合報90.8元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797398_1_20250326060241.jpg&q=90)
+  
+
+港股美國預託證券(ADR)大多造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797398-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797398-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797398-20250326.htm)
+
+---
+
 # 金價曾升約0.8%　受避險資金支撐
 
 ![現貨金高見每盎司3035.71美元，升約0.8%，較早時徘徊3020美元附近。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797397_1_20250326055910.jpg&q=90)
@@ -1339,101 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm)
-
----
-
-# 台股初段升逾1%
-
-![加權指數較早時報22365點，升258點，升幅1.17%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797252_1_20250325090210.jpg&q=90)
-  
-
-台股初段升逾1%，加權指數較早時報22365點，升258點，升幅1.17%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797252-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797252-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797252-20250325.htm)
-
----
-
-# 融創服務去年虧損擴大約4%　核心盈利基本持平
-
-![融創服務去年虧損4.5億元人民幣，虧損按年擴大約4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797247_1_20250325081626.jpg&q=80)
-  
-
-融創服務去年虧損4.5億元人民幣，虧損按年擴大約4%。錄得虧損，因為出於謹慎考量，對關聯方貿易及其他應收款項計提減值撥備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797247-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797247-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797247-20250325.htm)
-
----
-
-# 現代汽車擬在美國投資210億美元　興建鋼鐵廠及提高汽車產能
-
-![現代汽車計劃在美國投資210億美元，包括在路易斯安那州新建一座斥資58億美元的鋼鐵廠。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797243_1_20250325080328.jpg&q=90)
-  
-
-南韓現代汽車宣布，計劃在美國投資210億美元，包括在路易斯安那州新建一座斥資58億美元的鋼鐵廠，每年將生產超過270萬噸鋼材，創造1400多個職位，這個鋼鐵廠預計將為阿拉巴馬州及喬治亞州的車廠供應鋼材。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm)
-
----
-
-# 韓股初段升0.5%
-
-![首爾綜合指數較早時報2645點，升13點，升幅0.51%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797245_1_20250325080609.jpg&q=85)
-  
-
-南韓股市早段靠穩，首爾綜合指數較早時報2645點，升13點，升幅0.51%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797245-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797245-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797245-20250325.htm)
 
 ---

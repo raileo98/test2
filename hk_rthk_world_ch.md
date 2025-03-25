@@ -1,3 +1,27 @@
+# 南韓慶尚北道山火持續蔓延　增至15人死亡
+
+![在南韓安東市，山火持續燃燒，濃煙升至半空。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797410_1_20250326074128.jpg&q=90)
+  
+
+南韓慶尚北道義城郡發生的山火持續多日，已蔓延至安東市等附近四個地區，增至15人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797410-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797410-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797410-20250326.htm)
+
+---
+
 # 特朗普稱華爾茲不需為記者加入通訊群組道歉　民主黨人促官員辭職
 
 ![特朗普認為華爾茲不需要道歉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797403_1_20250326063715.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797082-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797082-20250324.htm)
-
----
-
-# 土國民眾聲援伊斯坦布爾市長　法國稱囚禁伊馬姆奧盧嚴重攻擊民主
-
-![首都安卡拉有民眾上街聲援伊馬姆奧盧。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797075_1_20250324055719.jpg&q=90)
-  
-
-土耳其全國多處連續第五晚有民眾上街，聲援因貪污指控被羈押的伊斯坦布爾市長伊馬姆奧盧。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797075-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797075-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797075-20250324.htm)
 
 ---

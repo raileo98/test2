@@ -1,6 +1,54 @@
+# 漁護署：正在金山郊野公園試行人工智能閉路電視監察野豬出沒情況
+
+![漁護署表示，本港現時野豬問題黑點只剩10多個。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797409_1_20250326072909.jpg&q=80)
+  
+
+漁護署助理署長陳堅峰表示，本港現時野豬問題黑點只剩10多個，署方正在金山郊野公園試行以人工智能閉路電視，監察野豬出沒的情況，減省人手監測。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797409-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797409-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797409-20250326.htm)
+
+---
+
+# 黎堅明：冀三寶樹濕地公園做到保育與旅遊平衡
+
+![漁護署表示，三寶樹濕地保育公園將加入旅遊元素，包括生態旅舍等。（立法會文件截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797408_1_20250326072548.jpg&q=90)
+  
+
+漁護署表示，位於北部都會區的三寶樹濕地保育公園，除了發展現代化塘魚養殖等保育項目，亦會加入旅遊元素，包括推出觀鳥活動、生態旅舍等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm)
+
+---
+
 # 漁護署：本地優質漁農產品將可獲統一Q嘜認證　令市民食得放心
 
-![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_1_20250326072129.jpg&q=70)
+![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_2_20250326072955.jpg&q=70)
   
 
 漁護署表示，本地優質漁農產品將可獲得統一的「Q嘜」認證，目標是2025/26財政年度內推出相關制度。
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797213-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797213-20250324.htm)
-
----
-
-# 荃灣港安醫院治療室檢查燈墜落擊中兩名醫護人員　病人沒有受傷
-
-![涉事同一型號的Polaris® 50檢查燈。（Draeger Hong Kong Limited網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797210_1_20250324221818.jpg&q=90)
-  
-
-荃灣港安醫院一間治療室有檢查燈墜落，擊中兩名醫護人員，兩人經檢查後沒有大礙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797210-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797210-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797210-20250324.htm)
-
----
-
-# 彭鴻昌憂住院門診新收費加重某些病人負擔　陳沛良稱助減醫護壓力
-
-![消息指，將設訂的住院門診收費上限，很大機會定於每人每年1萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797205_1_20250324221918.jpg&q=75)
-  
-
-政府明日公布公營醫療服務收費改革詳情。消息指，將會增設住院門診收費上限，好大機會定於每人每年1萬元。據了解，急症服務只有一個收費，增至不多於400元，危殆及危急病人可獲豁免。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797205-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797205-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797205-20250324.htm)
 
 ---

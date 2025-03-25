@@ -1,6 +1,174 @@
+# 南韓慶尚北道山火持續蔓延　增至15人死亡
+
+![在南韓安東市，山火持續燃燒，濃煙升至半空。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797410_1_20250326074128.jpg&q=90)
+  
+
+南韓慶尚北道義城郡發生的山火持續多日，已蔓延至安東市等附近四個地區，增至15人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797410-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797410-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797410-20250326.htm)
+
+---
+
+# 歐洲央行管委料存款利率夏季末或降至2厘
+
+![維勒魯瓦德加洛預料，存款利率或於夏季末減至2厘，亦即比現時有0.5厘下調空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797404_1_20250326070353.jpg&q=85)
+  
+
+歐洲央行管委、法國央行總裁維勒魯瓦德加洛表示，歐洲央行仍有進一步減息空間，預料存款利率或於夏季末減至2厘，亦即比現時有0.5厘下調空間。但他指，進一步放鬆政策的步伐及程度仍有待確定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797404-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797404-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797404-20250326.htm)
+
+---
+
+# 美國10年期債息觸及1個月新高後回軟
+
+![美國10年期債息曾升至4.369厘，升3.8個基點，創1個月新高，其後回軟。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797402_1_20250326062905.jpg&q=90)
+  
+
+美國10年期債息曾升至4.369厘，升3.8個基點，創1個月新高，尾市回軟至4.317厘附近，跌超過1個基點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797402-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797402-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797402-20250326.htm)
+
+---
+
+# 美元指數曾於104失而復得
+
+![美元指數曾升至104.46，升約0.2%，其後一度失守104。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797400_1_20250326062305.jpg&q=90)
+  
+
+市場對美國即將實施的關稅政策保持謹慎，美元指數曾升至104.46，升約0.2%，其後一度失守104，低見103.94，尾市徘徊104.2附近。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797400-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797400-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797400-20250326.htm)
+
+---
+
+# 港股美國預託證券大多造好　滙控升約3%
+
+![滙控ADR比本港昨日收市價升約3%，以港元計折合報90.8元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797398_1_20250326060241.jpg&q=90)
+  
+
+港股美國預託證券(ADR)大多造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797398-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797398-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797398-20250326.htm)
+
+---
+
+# 漁護署：正在金山郊野公園試行人工智能閉路電視監察野豬出沒情況
+
+![漁護署表示，本港現時野豬問題黑點只剩10多個。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797409_1_20250326072909.jpg&q=80)
+  
+
+漁護署助理署長陳堅峰表示，本港現時野豬問題黑點只剩10多個，署方正在金山郊野公園試行以人工智能閉路電視，監察野豬出沒的情況，減省人手監測。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797409-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797409-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797409-20250326.htm)
+
+---
+
+# 黎堅明：冀三寶樹濕地公園做到保育與旅遊平衡
+
+![漁護署表示，三寶樹濕地保育公園將加入旅遊元素，包括生態旅舍等。（立法會文件截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797408_1_20250326072548.jpg&q=90)
+  
+
+漁護署表示，位於北部都會區的三寶樹濕地保育公園，除了發展現代化塘魚養殖等保育項目，亦會加入旅遊元素，包括推出觀鳥活動、生態旅舍等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm)
+
+---
+
 # 漁護署：本地優質漁農產品將可獲統一Q嘜認證　令市民食得放心
 
-![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_1_20250326072129.jpg&q=70)
+![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_2_20250326072955.jpg&q=70)
   
 
 漁護署表示，本地優質漁農產品將可獲得統一的「Q嘜」認證，目標是2025/26財政年度內推出相關制度。
@@ -1269,170 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm)
-
----
-
-# 公營醫療收費改革出爐　急症收費增至400元設豁免
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797339_1_20250325182519.jpg&q=90)
-  
-
-政府交代公營醫療收費改革方案，建議將公立醫院急症室收費由現時180元，增加至400元，危殆及危急類病人可獲豁免；住院病床及門診收費亦會增加，電腦掃描及磁力共振等非緊急檢查項目，最高每次收500元，新收費於明年1月1日起實施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm)
-
----
-
-# 藥明生物去年少賺逾1%
-
-![藥明生物去年盈利約33.6億元人民幣，按年跌1.3%。不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797327_1_20250325170239.jpg&q=90)
-  
-
-藥明生物去年盈利約33.6億元人民幣，按年跌1.3%。不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797327-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797327-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797327-20250325.htm)
-
----
-
-# 林定國明啓程往北京訪問　向港澳辦匯報主要政策措施進展
-
-  
-
-律政司司長林定國明日上午啓程前往北京，展開為期四日的訪問，將拜訪國務院港澳辦，匯報律政司主要政策措施的進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm)
-
----
-
-# 發改委前副主任彭森：中國經濟步入穩定健康可持續發展軌道
-
-  
-
-中國經濟體制改革研究會會長、國家發改委前副主任彭森說，隨著政策落實，中國經濟運行出現穩中有進的局面 ，去年中國經濟實現5%增長 ，今年首兩個月經濟平穩開局，兩會一系列利好政策推出，再加上去年7月二十屆三中全會的一系列改革政策的加持，中國經濟目前已經重新步入穩定健康，可持續發展軌道，中國經濟穩定回升態勢已經確立。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm)
-
----
-
-# 李家超博鰲分論壇致辭　稱香港致力深化國際交流與合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797335_1_20250325182921.jpg&q=90)
-  
-
-正在博鰲論壇亞洲年會的行政長官李家超，下午出席「全球自由貿易港發展」分論壇並致辭。他表示，亞洲作為全球增長引擎，必須推動多邊主義，拒絕保護主義，香港將致力於深化國際交流與合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm)
-
----
-
-# 快手去年盈利按年急升1.4倍
-
-![快手去年盈利153.4億元人民幣，按年急升1.4倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797326_1_20250325165713.jpg&q=90)
-  
-
-快手去年盈利153.4億元人民幣，按年急升1.4倍。不派末期息。按非國際財務報告準則計，去年經調整利潤177.16億元，按年升72.5%。全年收入約1269億元，按年升近12%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797326-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797326-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797326-20250325.htm)
-
----
-
-# 外交部：報告揭示美方多年來慣於在供應鏈安全問題「賊喊捉賊」
-
-  
-
-中國網絡安全產業聯盟發佈報告，披露美國針對全球移動智能終端機、移動產供鏈、運營商等開展網絡攻擊和監聽竊密活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm)
 
 ---
