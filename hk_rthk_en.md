@@ -72,7 +72,7 @@ US President Donald Trump and his top intelligence officials raced on Tuesday to
 
 # HK open Asian Cup final round qualifier with draw
 
-![Hong Kong is held to a 0-0 draw against Singapore. Image courtesy of Hong Kong Football Association](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797379_1_20250325224218.jpg&q=90)
+![The goalless draw ended the SAR's record seven-match winning run. Image courtesy of Hong Kong Football Association](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797379_2_20250326053556.jpg&q=90)
   
 
 The Hong Kong, China football team had a disappointing start in the final round of their AFC Asian Cup qualifying campaign, as they ended up in a goalless draw against Singapore on Tuesday night.
