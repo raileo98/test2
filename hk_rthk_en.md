@@ -3,7 +3,7 @@
 ![Michel Platini, left, and Sepp Blatter were cleared of fraud mismanagement by a Swiss court. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797334_1_20250325173315.jpg&q=85)
   
 
-Former FIFA president Sepp Blatter and France football great Michel Platini were both cleared of corruption charges by a Swiss court on Tuesday, two and a half years after they were first acquitted of the offences.
+Sepp Blatter and Michel Platini won again in court on Tuesday and now lead 2-0 in trial verdicts against Swiss federal prosecutors.
 
   
 

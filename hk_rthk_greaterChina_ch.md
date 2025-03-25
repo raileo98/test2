@@ -1,3 +1,26 @@
+# 李家超博鰲分論壇致辭　稱香港致力深化國際交流與合作
+
+  
+
+正在博鰲論壇亞洲年會的行政長官李家超，下午出席「全球自由貿易港發展」分論壇並致辭。他表示，亞洲作為全球增長引擎，必須推動多邊主義，拒絕保護主義，香港將致力於深化國際交流與合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm)
+
+---
+
 # 外交部：報告揭示美方多年來慣於在供應鏈安全問題「賊喊捉賊」
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm)
-
----
-
-# 中日韓外長會　王毅：推動三國合作發揮1+1+1大於3作用
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796938_1_20250322183010.jpg&q=90)
-  
-
-中日韓外長會於東京舉行，中共中央政治局委員、外長王毅說，三國應重溫正視歷史、面向未來的共識，推動中日韓合作，發揮一加一加一大過三的作用，造福三國、地區同世界。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796938-20250322.htm)
 
 ---

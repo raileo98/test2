@@ -1,3 +1,26 @@
+# 李家超博鰲分論壇致辭　稱香港致力深化國際交流與合作
+
+  
+
+正在博鰲論壇亞洲年會的行政長官李家超，下午出席「全球自由貿易港發展」分論壇並致辭。他表示，亞洲作為全球增長引擎，必須推動多邊主義，拒絕保護主義，香港將致力於深化國際交流與合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm)
+
+---
+
 # 本港首2個月出口按年升6.5%　上月出口升15.4%
 
 ![本港首2個月整體出口貨值按年升6.5%，進口貨值升5.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797325_1_20250325164835.jpg&q=80)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm)
-
----
-
-# 立法會8月暑期休會　11及12月不編排會議
-
-![立法會秘書處公布下半年議程，7月至10月期間舉行例行會議，但8月將暑期休會，至於11月及12月不編排任何會議。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797133_1_20250324125610.jpg&q=80)
-  
-
-立法會秘書處公布下半年議程，7月至10月期間舉行例行會議，但8月將暑期休會，至於11月及12月不編排任何會議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797133-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797133-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797133-20250324.htm)
 
 ---

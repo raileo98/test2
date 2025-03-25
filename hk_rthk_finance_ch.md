@@ -1,3 +1,26 @@
+# 李家超博鰲分論壇致辭　稱香港致力深化國際交流與合作
+
+  
+
+正在博鰲論壇亞洲年會的行政長官李家超，下午出席「全球自由貿易港發展」分論壇並致辭。他表示，亞洲作為全球增長引擎，必須推動多邊主義，拒絕保護主義，香港將致力於深化國際交流與合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm)
+
+---
+
 # 快手去年盈利按年急升1.4倍
 
 ![快手去年盈利153.4億元人民幣，按年急升1.4倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797326_1_20250325165713.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797196-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797196-20250324.htm)
-
----
-
-# 人行：本月起MLF操作採固定數量、利率招標、多重價位中標開展
-
-![人行明日將開展4500億元人民幣MLF操作，本月起採用固定數量、利率招標、多重價位中標方式開展。（人行網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797185_2_20250324193652.jpg&q=90)
-  
-
-人民銀行公布，明日將開展4500億元人民幣中期借貸便利（MLF）操作，為期1年，以保持銀行體系流動性充裕。今次MLF續做規模超過本月到期的3870億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm)
 
 ---
