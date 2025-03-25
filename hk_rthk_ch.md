@@ -1,3 +1,51 @@
+# 內地股市收市偏軟
+
+![內地股市收市偏軟。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797309_1_20250325151147.jpg&q=90)
+  
+
+內地股市反覆偏軟。化工概念、煤炭股造好；算力租賃、通信服務等股份向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797309-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797309-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797309-20250325.htm)
+
+---
+
+# 東京地方法院下令解散原「統一教會」
+
+![原「統一教會」已改名為「世界和平統一家庭聯合會」。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797308_1_20250325151259.jpg&q=80)
+  
+
+日本文部科學省向東京地方法院申請，下令解散原「統一教會」的「世界和平統一家庭聯合會」，法院依據《宗教法人法》發出解散命令。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797308-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797308-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797308-20250325.htm)
+
+---
+
 # 韓股低收0.62%
 
 ![首爾綜合指數收報2615點，跌16點，跌幅0.62%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797306_1_20250325143716.jpg&q=90)

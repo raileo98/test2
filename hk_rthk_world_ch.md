@@ -1,3 +1,27 @@
+# 東京地方法院下令解散原「統一教會」
+
+![原「統一教會」已改名為「世界和平統一家庭聯合會」。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797308_1_20250325151259.jpg&q=80)
+  
+
+日本文部科學省向東京地方法院申請，下令解散原「統一教會」的「世界和平統一家庭聯合會」，法院依據《宗教法人法》發出解散命令。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797308-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797308-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797308-20250325.htm)
+
+---
+
 # 新西蘭南島外海地震　當局正評估海嘯威脅
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm)
-
----
-
-# 日本Sukiya鳥取縣分店味噌湯中發現老鼠　公司致歉
-
-![Sukiya就鳥取縣分店味噌湯中發現老鼠事件道歉。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797023_1_20250323151453.jpg&q=90)
-  
-
-日本快餐連鎖店Sukiya表示，公司旗下鳥取縣一間分店在供應的一碗味噌湯中發現一隻老鼠，這間分店隨即停業，在當地公共衛生部門到場檢查後，恢復營業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm)
 
 ---

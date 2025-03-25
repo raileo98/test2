@@ -1,3 +1,27 @@
+# Abe assassination probe leads to church's dissolution
+
+![The Unification Church's Tokyo headquarters in Shibuya. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797307_1_20250325151020.jpg&q=85)
+  
+
+A court ordered the dissolution of the Unification Church in Japan, upholding a government request for a revocation spurred by the investigation into the 2022 assassination of former Prime Minister Shinzo Abe.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm)
+
+---
+
 # Oscar-winning Palestinian filmmaker arrested by IDF
 
 ![According to Jewish American activists who witnessed the attack, Hamdan Ballal was surrounded and attacked by settlers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797302_2_20250325135917.jpg&q=90)
@@ -1412,29 +1436,5 @@ The White House accused judges of "usurping" executive power in its latest broad
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796546-20250320.htm)
-
----
-
-# Trump to sign order to dismantle Education Department
-
-![A protester stands near the US Department of Education headquarters after the agency said it would lay off nearly half its staff. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796539_1_20250320092913.jpg&q=90)
-  
-
-US President Donald Trump is expected to sign an order on Thursday aiming to dismantle the Department of Education, fulfilling a long-held goal of American conservatives.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm)
 
 ---

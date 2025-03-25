@@ -1,3 +1,27 @@
+# Abe assassination probe leads to church's dissolution
+
+![The Unification Church's Tokyo headquarters in Shibuya. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797307_1_20250325151020.jpg&q=85)
+  
+
+A court ordered the dissolution of the Unification Church in Japan, upholding a government request for a revocation spurred by the investigation into the 2022 assassination of former Prime Minister Shinzo Abe.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm)
+
+---
+
 # HK capital market 'needs blueprint for further growth'
 
 ![Qi Bin, deputy director of the central government's liaison office, has called on Hong Kong to seize the momentum offered by the strong return of foreign capital. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_1_20250325140507.jpg&q=80)
@@ -101,7 +125,7 @@ European sales of Tesla electric cars dropped 49 percent in January and February
 ![Health minister Lo Chung-mau (middle) says the fee reform is aimed at directing public resources to patients most in need. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797291_1_20250325131640.jpg&q=90)
   
 
-Non-urgent patients seeking help at the city's public accident and emergency wards are set to pay more than double the current rate as part of the government's revamp on healthcare charges, with the new fees taking effect next year.
+Non-urgent patients seeking help at the city's public accident and emergency wards are set to pay more than double the current rate as part of the government's revamp on healthcare charges, with the new fees taking effect over three phases starting on January 1, 2026.
 
   
 
@@ -1417,29 +1441,5 @@ Customs have arrested an inbound traveller at the airport for allegedly smugglin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797038-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797038-20250323.htm)
-
----
-
-# McLaren's Piastri wins Chinese Grand Prix
-
-![McLaren's Oscar Piastri celebrates on the podium after winning the Chinese Grand Prix with second placed McLaren's Lando Norris and third placed Mercedes' George Russell. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797037_1_20250323172831.jpg&q=55)
-  
-
-Oscar Piastri led from pole to win the Chinese Grand Prix on Sunday as McLaren used a one-stop strategy to complete a dominant one-two with Lando Norris second.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm)
 
 ---

@@ -29,7 +29,7 @@ A deputy at Beijing's top office on Hong Kong affairs has called on the SAR to r
 ![Health minister Lo Chung-mau (middle) says the fee reform is aimed at directing public resources to patients most in need. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797291_1_20250325131640.jpg&q=90)
   
 
-Non-urgent patients seeking help at the city's public accident and emergency wards are set to pay more than double the current rate as part of the government's revamp on healthcare charges, with the new fees taking effect next year.
+Non-urgent patients seeking help at the city's public accident and emergency wards are set to pay more than double the current rate as part of the government's revamp on healthcare charges, with the new fees taking effect over three phases starting on January 1, 2026.
 
   
 
