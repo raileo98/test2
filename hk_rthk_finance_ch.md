@@ -1,3 +1,74 @@
+# 美股初段靠穩
+
+![美股初段靠穩。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797370_1_20250325213404.jpg&q=75)
+  
+
+美股初段靠穩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797370-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797370-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797370-20250325.htm)
+
+---
+
+# 美國1月樓價按月升0.2%　按年升4.8%
+
+![美國聯邦住房金融局(FHFA)公布，美國1月樓價按月升0.2%，按年升4.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797368_1_20250325212127.jpg&q=75)
+  
+
+美國聯邦住房金融局(FHFA)公布，美國1月樓價按月升0.2%，按年升4.8%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797368-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797368-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797368-20250325.htm)
+
+---
+
+# 孫東稱推出多個加強數字能力建構政策　促進香港成為國際化人才庫
+
+  
+
+創新科技及工業局局長孫東說，今年博鰲科技論壇將於6月在香港舉行，明日會舉行相關新聞發佈會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm)
+
+---
+
 # 周生生去年少賺20%　正縮減內地三線及以下城市實體店
 
 ![周生生去年盈利約8.1億元，按年跌20%。派末期息每股0.36元，全年派息0.51元，按年減少15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797365_1_20250325210852.jpg&q=90)
@@ -1361,77 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797232-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797232-20250325.htm)
-
----
-
-# 美股升逾1%至逾2%　創超過兩星期新高　憧憬關稅措施轉趨溫和
-
-![美股3大指數連升兩個交易日，創逾兩星期新高，由於憧憬美國關稅措施轉趨溫和。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797231_1_20250325054559.jpg&q=90)
-  
-
-美股3大指數連升兩個交易日，創逾兩星期新高，由於憧憬美國關稅措施轉趨溫和。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797231-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797231-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797231-20250325.htm)
-
----
-
-# 特朗普：或向多國提供關稅優惠　但需要實現對等
-
-![特朗普說，未來數日將會宣布涉及汽車、木材、晶片等產品的關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797233_1_20250325055421.jpg&q=85)
-  
-
-美國總統特朗普表示，隨著4月2日對等關稅生效日期臨近，他可能會向很多國家提供關稅優惠，但需要實現對等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm)
-
----
-
-# 特朗普料美烏很快簽署礦產協議　雙方討論美企擁有烏國發電站可能
-
-![特朗普說，有些人認為美國具有專業知識，應該擁有烏克蘭的發電站。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797226_1_20250325034304.jpg&q=90)
-  
-
-美國總統特朗普預計，美國與烏克蘭很快會簽署關於分享當地關鍵礦產收入的協議，雙方亦正討論由美國企業擁有烏克蘭發電站的可能性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm)
 
 ---

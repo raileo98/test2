@@ -1,30 +1,10 @@
-# 世盃亞洲區外圍賽中國0:2負澳洲
-
-![國足負澳洲，已無法以小組前兩名直接晉級世界盃。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797367_1_20250325211248.jpg&q=90)
-  
-
-世界盃亞洲區外圍賽C組賽事，中國在杭州主場0:2不敵澳洲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797367-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797367-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797367-20250325.htm)
-
----
-
 # 世界盃亞洲區外圍賽國足主場0:2澳洲
 
+![國家隊上半場落後兩球，換邊後，積極反撲，製造不少攻勢，但始終未能取得入球。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797364_1_20250325213352.jpg&q=90)
   
+
+世界盃亞洲區外圍賽第三圈賽事，國家隊主場 0:2 不敵澳洲，未能直接晉級明年決賽周。
+
   
 
 
@@ -1431,5 +1411,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm)
+
+---
+
+# 第六次中日經濟高層對話達成20項重要共識
+
+![第六次中日經濟高層對話在東京舉行。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796974_1_20250322235617.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在日本東京與日本外相岩屋毅，共同主持第六次中日經濟高層對話，達成20項重要共識。新華社報道，關於福島核污水排海問題和日本水產品輸華問題，中方反對日方單方面啟動排海的立場沒有變化。雙方重申完整準確全面理解2024年9月20日發表的共識，確認持續開展針對排海的長期國際監測和中方獨立取樣監測，在結果沒有異常前提下，就日本水產品輸華問題開展相關磋商。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796974-20250322.htm)
 
 ---

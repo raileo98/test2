@@ -1,3 +1,51 @@
+# China's World Cup qualifying hopes take a big hit
+
+![The national team stayed at the bottom of the group of six, seven points behind second place Australia with two matches remaining. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797366_1_20250325213048.jpg&q=80)
+  
+
+China's hopes of directly qualifying for the 2026 World Cup took a hit after suffering a 2-0 defeat against Australia on Tuesday night.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm)
+
+---
+
+# 'Coleman Wong's magical run inspires next generation'
+
+![The SAR's tennis chief Michael Cheng says he is impressed with Coleman Wong's achievements at the Miami Open. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797357_2_20250325210437.jpg&q=90)
+  
+
+Coleman Wong’s history-making performance at the Miami Open will serve as a huge morale boost for the SAR’s next generation of tennis players, Hong Kong, China’s tennis chief said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm)
+
+---
+
 # Blatter and Platini cleared of graft charges again
 
 ![Michel Platini, left, and Sepp Blatter were cleared of fraud mismanagement by a Swiss court. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797334_1_20250325173315.jpg&q=85)
@@ -1390,53 +1438,5 @@ France claimed their seventh Six Nations trophy in a record-strewn 35-16 victory
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm)
-
----
-
-# Ohtani hits home run in Dodgers' Tokyo exhibition game
-
-![Superstar Shohei Ohtani sends the crowd wild with a two-run homer in the third inning. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795879_1_20250315205024.jpg&q=85)
-  
-
-Shohei Ohtani fever in Tokyo reached boiling point on Saturday as the Japanese baseball superstar hit a home run in his first game in a Los Angeles Dodgers uniform in his home country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795879-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795879-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795879-20250315.htm)
-
----
-
-# Norris on pole as McLaren lock out Melbourne front row
-
-![Lando Norris says he knows Sunday's race conditions will be completely different to those during Saturday's qualifying. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795861_1_20250315171554.jpg&q=90)
-  
-
-Lando Norris clinched pole position on Saturday for the season-opening Australian Grand Prix ahead of teammate Oscar Piastri as McLaren fired a warning shot to their rivals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795861-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795861-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795861-20250315.htm)
 
 ---

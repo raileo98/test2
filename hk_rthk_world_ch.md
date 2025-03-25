@@ -1,3 +1,26 @@
+# 孫東稱推出多個加強數字能力建構政策　促進香港成為國際化人才庫
+
+  
+
+創新科技及工業局局長孫東說，今年博鰲科技論壇將於6月在香港舉行，明日會舉行相關新聞發佈會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm)
+
+---
+
 # 美軍兩架魚鷹運輸機分別在日本兩個機場緊急降落
 
   
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797060-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797060-20250324.htm)
-
----
-
-# 印尼有周刊收到裝有豬頭鼠屍包裹　團體籲維護新聞自由
-
-![印尼有周刊收到裝有豬頭鼠屍包裹　團體籲維護新聞自由](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797054_1_20250323204535.jpg&q=90)
-  
-
-印尼一份批評政府的周刊近日收到裝有豬頭和斷頭老鼠屍體的包裹，有團體呼籲維護印尼的新聞自由，並要求調查事件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797054-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797054-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797054-20250323.htm)
 
 ---

@@ -1,3 +1,27 @@
+# China's World Cup qualifying hopes take a big hit
+
+![The national team stayed at the bottom of the group of six, seven points behind second place Australia with two matches remaining. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797366_1_20250325213048.jpg&q=80)
+  
+
+China's hopes of directly qualifying for the 2026 World Cup took a hit after suffering a 2-0 defeat against Australia on Tuesday night.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm)
+
+---
+
 # 'Coleman Wong's magical run inspires next generation'
 
 ![The SAR's tennis chief Michael Cheng says he is impressed with Coleman Wong's achievements at the Miami Open. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797357_2_20250325210437.jpg&q=90)
@@ -1417,29 +1441,5 @@ Russian 17-year-old Mirra Andreeva, coming off back-to-back WTA 1000 wins in Dub
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797104-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797104-20250324.htm)
-
----
-
-# S Korea court dismisses impeachment of prime minister
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797103_1_20250324103248.jpg&q=90)
-  
-
-South Korea's Constitutional Court dismissed the impeachment of Prime Minister Han Duck-soo on Monday, reinstating him as acting president – a role he was given after the president was suspended for declaring martial law.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm)
 
 ---

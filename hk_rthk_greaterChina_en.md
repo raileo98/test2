@@ -1,3 +1,27 @@
+# China's World Cup qualifying hopes take a big hit
+
+![The national team stayed at the bottom of the group of six, seven points behind second place Australia with two matches remaining. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797366_1_20250325213048.jpg&q=80)
+  
+
+China's hopes of directly qualifying for the 2026 World Cup took a hit after suffering a 2-0 defeat against Australia on Tuesday night.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm)
+
+---
+
 # Boao forum offers upbeat forecast on Asia growth
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797323_1_20250325164614.jpg&q=80)
@@ -1411,29 +1435,5 @@ Beijing officials on Sunday said it is not easy to stabilise and expand the job 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm)
-
----
-
-# Link HK closely to national development, says FS
-
-![Paul Chan says Hong Kong needs to integrate the spirit of the Two Sessions into its development. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794969_1_20250309120252.jpg&q=90)
-  
-
-Financial Secretary Paul Chan said on Sunday that Hong Kong must closely link its development with that of the country's, as the SAR actively integrates into the nation's growth.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794969-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794969-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794969-20250309.htm)
 
 ---
