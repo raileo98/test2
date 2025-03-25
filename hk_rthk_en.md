@@ -1,3 +1,27 @@
+# Hyundai to invest US$21 billion in US manufacturing
+
+![Hyundai Motor Group Executive Chair Euisun Chung told a White House gathering that the new plant in Louisiana would create 1,300 American jobs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797250_1_20250325084822.jpg&q=90)
+  
+
+South Korean auto giant Hyundai on Monday announced a multi-billion-dollar investment in the United States, including a new US$5.8 billion steel plant.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm)
+
+---
+
 # 'Trump's fees on Chinese ships will backfire'
 
 ![A container ship sails beneath the Golden Gate Bridge as it makes its way into port in San Francisco. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797249_1_20250325083906.jpg&q=90)
@@ -1414,29 +1438,5 @@ Financial Secretary Paul Chan visited two mainland firms in Beijing on Friday, h
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm)
-
----
-
-# Fatah movement urges Hamas to cede power in Gaza
-
-![Mahmoud Abbas's Fatah movement says the very existence of Palestinians in Gaza depends on Hamas giving up control. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796966_1_20250322215125.jpg&q=80)
-  
-
-Palestinian president Mahmoud Abbas's Fatah movement called on its Islamist rivals Hamas on Saturday to relinquish power in order to safeguard the "existence" of Palestinians in the Gaza Strip.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796966-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796966-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796966-20250322.htm)
 
 ---

@@ -1,3 +1,98 @@
+# 博鰲亞洲論壇報告料今年亞洲加權實際國內生產總值增長率4.5%
+
+  
+
+博鰲亞洲論壇發表亞洲經濟前景及一體化進程年度報告提及，當前全球經濟保持中低速增長，面臨貿易戰、地緣政治局勢複雜多變、持續通脹及主要經濟體增長放緩等重大風險挑戰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm)
+
+---
+
+# 內地股市初段窄幅上落
+
+![內地股市初段窄幅上落。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797258_1_20250325093319.jpg&q=90)
+  
+
+內地股市初段窄幅上落。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797258-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797258-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797258-20250325.htm)
+
+---
+
+# 人行逆回購操作3779億元人民幣
+
+![人行公開市場開展3779億元人民幣7天期逆回購操作，單日淨投放1046億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797257_1_20250325092905.jpg&q=80)
+  
+
+人民銀行公開市場開展3779億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，單日淨投放1046億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797257-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797257-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797257-20250325.htm)
+
+---
+
+# 港股競價時段跌262點　小米低開5.5%
+
+![小米低開5.5%，集團今早宣布計劃折讓約6.6%配股集資426億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797256_1_20250325092443.jpg&q=90)
+  
+
+港股回軟，恒生指數競價時段報23643點，跌262點，跌幅1.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm)
+
+---
+
 # 人民幣兌美元中間價跌8點子　再創逾兩個月新低
 
 ![人民幣中間價報7.1788兌1美元，較昨日收市價跌8點子，再創逾兩個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797255_1_20250325092029.jpg&q=85)
@@ -838,6 +933,7 @@
 
 # 荃灣港安醫院手術燈墜落　院方檢查同型號四組燈確認安全運作
 
+![院方表示，事故發生後，已即時通知承辦商到場處理並展開調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797213_1_20250325094143.jpg&q=90)
   
 
 荃灣港安醫院急診中心星期日晚發生一宗手術燈墜落事故，兩名醫護人員受輕傷，經檢查後暫無大礙 。
@@ -1336,101 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797188-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797188-20250324.htm)
-
----
-
-# 報道：小米正配股集資最多52.7億美元
-
-![外電報道，小米集團正以先舊後新方式配售7.5億股，集資最多52.7億美元。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797186_1_20250324182313.jpg&q=90)
-  
-
-外電報道，小米集團正以先舊後新方式配售7.5億股，每股配售價52.8元至54.6元，較今日收市價折讓4.2%至7.4%，集資最多52.7億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797186-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797186-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797186-20250324.htm)
-
----
-
-# 財政部：今年財政政策要更加積極　具體提高財政赤字率
-
-![財政部發布報告指，今年財政政策要更加積極，包括具體提高財政赤字率、加大支出強度、加速支出進度等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797183_1_20250324174156.jpg&q=75)
-  
-
-在北京，財政部發布《中國財政政策執行情況報告》，表示今年財政政策要更加積極、持續用力、更加給力，包括具體提高財政赤字率、加大支出強度、加速支出進度；安排更大規模政府債券，為穩增長、調結構提供更多支撐；大力優化支出結構、加強精準投放，更加注重惠民生、促消費、增後勁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm)
-
----
-
-# 羅淑佩：Cityline必須交代印錯票事件　做好應變工作
-
-![羅淑佩表示，Cityline必須交代印錯票事件。（陳感恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797184_1_20250324180806.jpg&q=90)
-  
-
-英國著名樂隊Coldplay下月在啟德體育園的巡迴演唱會，其中的1399元企位門票部分資料出錯，觀眾需要更換新版門票。文化體育及旅遊局局長羅淑佩表示，要由涉事的售票平台Cityline自行解釋事件為何出錯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797184-20250324.htm)
-
----
-
-# 外交部：中美關係保持穩定健康可持續發展符合兩國人民共同利益
-
-![郭嘉昆表示，中方始終認為中美關係保持穩定、健康可持續發展，符合兩國人民共同利益。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797181_1_20250324173329.jpg&q=90)
-  
-
-在北京，外交部回應有關中方是否將與美方進行對話的提問，發言人郭嘉昆表示，中方始終認為中美關係保持穩定、健康可持續發展，符合兩國人民共同利益及國際社會普遍期待。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm)
 
 ---

@@ -1,3 +1,74 @@
+# 博鰲亞洲論壇報告料今年亞洲加權實際國內生產總值增長率4.5%
+
+  
+
+博鰲亞洲論壇發表亞洲經濟前景及一體化進程年度報告提及，當前全球經濟保持中低速增長，面臨貿易戰、地緣政治局勢複雜多變、持續通脹及主要經濟體增長放緩等重大風險挑戰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm)
+
+---
+
+# 港股競價時段跌262點　小米低開5.5%
+
+![小米低開5.5%，集團今早宣布計劃折讓約6.6%配股集資426億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797256_1_20250325092443.jpg&q=90)
+  
+
+港股回軟，恒生指數競價時段報23643點，跌262點，跌幅1.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm)
+
+---
+
+# 黃澤林不敵禾頓　邁阿密網球公開賽男單第三圈止步
+
+![黃澤林未能晉級十六強。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797223_1_20250325013300.jpg&q=90)
+  
+
+邁阿密網球公開賽男單第三圈，持外卡參賽的香港球手黃澤林，以盤數1:2不敵澳洲的禾頓，未能晉級十六強，但仍然創下本港球手在ATP-1000分賽的最佳成績。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797223-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797223-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797223-20250325.htm)
+
+---
+
 # 國泰稱將完全遵從外置充電器更新指引　會向顧客清晰傳達要求
 
 ![國泰航空表示，認同民航處就航班上攜帶鋰電池外置充電器的最新指引。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797222_1_20250325012347.jpg&q=90)
@@ -96,6 +167,7 @@
 
 # 荃灣港安醫院手術燈墜落　院方檢查同型號四組燈確認安全運作
 
+![院方表示，事故發生後，已即時通知承辦商到場處理並展開調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797213_1_20250325094143.jpg&q=90)
   
 
 荃灣港安醫院急診中心星期日晚發生一宗手術燈墜落事故，兩名醫護人員受輕傷，經檢查後暫無大礙 。
@@ -1366,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797040-20250323.htm)
-
----
-
-# 工聯會稱收到建造及服務行業工友投訴　輸入外勞致開工不足
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797034_1_20250323173945.jpg&q=90)
-  
-
-當局早前透露，「補充勞工優化計劃」推行一年半，批出配額達51000個。工聯會表示，當中以飲食業佔最多，有超過2萬人，工聯會過去幾個月陸續收到建造業、飲食零售等服務行業的工友投訴，指有僱主輸入外勞，令他們開工不足，甚至無工可做。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797034-20250323.htm)
-
----
-
-# 陳茂波稱國家踐行真正多邊主義　同時推動科技及產業創新融合
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797032_1_20250323174025.jpg&q=85)
-  
-
-在北京，財政司司長陳茂波表示，當前世界百年未有之大變局正加速演進，有幾個大的趨勢正深刻影響世界的政治格局和經濟發展。首先是保護主義和單邊主義的抬頭，為全球經濟帶來了巨大的不確定性和不穩定性。其次是「全球南方」經濟體的崛起。第三是科技創新，特別是人工智能技術的飛躍提升，正引發生產模式、商業模式和消費模式的變革。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm)
-
----
-
-# 大嶼山梅窩發生山火　初步無人傷
-
-![消防下午接報，大嶼山梅窩窩田村附近起火。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797029_1_20250323170214.jpg&q=80)
-  
-
-大嶼山梅窩發生山火，初步無人受傷，毋須疏散。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797029-20250323.htm)
 
 ---

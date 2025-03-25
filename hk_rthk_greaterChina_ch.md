@@ -1,3 +1,26 @@
+# 博鰲亞洲論壇報告料今年亞洲加權實際國內生產總值增長率4.5%
+
+  
+
+博鰲亞洲論壇發表亞洲經濟前景及一體化進程年度報告提及，當前全球經濟保持中低速增長，面臨貿易戰、地緣政治局勢複雜多變、持續通脹及主要經濟體增長放緩等重大風險挑戰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm)
+
+---
+
 # 委內瑞拉面對美方涉能源關稅　中國是委内瑞拉石油最大買家
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796857-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796857-20250321.htm)
-
----
-
-# 神十九航天員乘組完成第三次出艙活動
-
-![神舟十九號航天員乘組完成第三次出艙活動，圖為宋令東第二次出艙時的情況。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796850_1_20250321213421.jpg&q=90)
-  
-
-神舟十九號航天員乘組完成第三次出艙活動，歷時約7小時。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796850-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796850-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796850-20250321.htm)
 
 ---

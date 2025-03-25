@@ -1,3 +1,51 @@
+# Hang Seng opens over a percentage point lower
+
+![US President Donald Trump's reciprocal tariffs are due to be unveiled on April 2. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797260_1_20250325094919.jpg&q=90)
+  
+
+The Hang Seng Index lost 262.24 points, or 1.1 percent, to open at 23,643.32 on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm)
+
+---
+
+# Hyundai to invest US$21 billion in US manufacturing
+
+![Hyundai Motor Group Executive Chair Euisun Chung told a White House gathering that the new plant in Louisiana would create 1,300 American jobs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797250_1_20250325084822.jpg&q=90)
+  
+
+South Korean auto giant Hyundai on Monday announced a multi-billion-dollar investment in the United States, including a new US$5.8 billion steel plant.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm)
+
+---
+
 # 'Trump's fees on Chinese ships will backfire'
 
 ![A container ship sails beneath the Golden Gate Bridge as it makes its way into port in San Francisco. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797249_1_20250325083906.jpg&q=90)
@@ -1387,53 +1435,5 @@ China's consumer inflation in February fell at the quickest pace since January 2
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm)
-
----
-
-# US stocks end higher after Powell remarks
-
-![The broad-based S&P 500 finished at 5,770, up 0.6 percent for the day but down 3.1 percent for the week. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794835_1_20250308054159.jpg&q=90)
-  
-
-Wall Street stocks finished higher on Friday after a roller-coaster session following mixed labor market data, concluding a losing week on a positive note.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794835-20250308.htm)
-
----
-
-# Hong Kong stocks finish week in the red
-
-![The Hang Seng Index closes 0.57 percent on Friday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794768_1_20250307172828.jpg&q=90)
-  
-
-Hong Kong's stock market ended lower on Friday with the benchmark Hang Seng Index down 0.57 percent to close at 24,231.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794768-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794768-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794768-20250307.htm)
 
 ---

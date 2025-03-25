@@ -1,3 +1,98 @@
+# 博鰲亞洲論壇報告料今年亞洲加權實際國內生產總值增長率4.5%
+
+  
+
+博鰲亞洲論壇發表亞洲經濟前景及一體化進程年度報告提及，當前全球經濟保持中低速增長，面臨貿易戰、地緣政治局勢複雜多變、持續通脹及主要經濟體增長放緩等重大風險挑戰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm)
+
+---
+
+# 內地股市初段窄幅上落
+
+![內地股市初段窄幅上落。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797258_1_20250325093319.jpg&q=90)
+  
+
+內地股市初段窄幅上落。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797258-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797258-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797258-20250325.htm)
+
+---
+
+# 人行逆回購操作3779億元人民幣
+
+![人行公開市場開展3779億元人民幣7天期逆回購操作，單日淨投放1046億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797257_1_20250325092905.jpg&q=80)
+  
+
+人民銀行公開市場開展3779億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，單日淨投放1046億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797257-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797257-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797257-20250325.htm)
+
+---
+
+# 港股競價時段跌262點　小米低開5.5%
+
+![小米低開5.5%，集團今早宣布計劃折讓約6.6%配股集資426億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797256_1_20250325092443.jpg&q=90)
+  
+
+港股回軟，恒生指數競價時段報23643點，跌262點，跌幅1.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm)
+
+---
+
 # 人民幣兌美元中間價跌8點子　再創逾兩個月新低
 
 ![人民幣中間價報7.1788兌1美元，較昨日收市價跌8點子，再創逾兩個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797255_1_20250325092029.jpg&q=85)
@@ -1339,101 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm)
-
----
-
-# 訪華美參議員戴安斯：北京不制止芬太尼輸美　中美貿易談判難推動
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797099_1_20250324100417.jpg&q=90)
-  
-
-在中國訪問的美國國會參議員戴安斯說，北京必須制止芬太尼毒品流入美國，否則美中之間難以就關稅和非關稅障礙進行任何對話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm)
-
----
-
-# 滬深股市初段靠穩
-
-![上證指數較早時報3369點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797098_1_20250324094021.jpg&q=90)
-  
-
-內地股市初段靠穩，上證指數較早時報3369點，升5點，升幅0.15%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797098-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797098-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797098-20250324.htm)
-
----
-
-# 人行逆回購1350億元人民幣　連續兩日淨回籠
-
-![人行公開市場開展1350億元人民幣7天期逆回購操作，單日淨回籠3460億元，連續兩日淨回籠。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797095_1_20250324093840.jpg&q=75)
-  
-
-人民銀行公開市場開展1350億元人民幣7天期逆回購操作，利率維持1.5厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797095-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797095-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797095-20250324.htm)
-
----
-
-# 港股競價時段升59點　科指升0.45%
-
-![恒生指數競價時段報23749點，升59點，升幅0.25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797094_1_20250324092308.jpg&q=45)
-  
-
-港股高開，恒生指數競價時段報23749點，升59點，升幅0.25%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797094-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797094-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797094-20250324.htm)
 
 ---
