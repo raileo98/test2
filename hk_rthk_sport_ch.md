@@ -1,5 +1,6 @@
 # 亞洲盃外圍賽港隊作客0:0賽和新加坡
 
+![亞洲盃外圍賽港隊作客0:0賽和新加坡。（中國香港足球總會社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797377_1_20250325230346.jpg&q=90)
   
 
 亞洲盃外圍賽第三圈首場賽事，港隊作客0:0賽和新加坡，各得一分。

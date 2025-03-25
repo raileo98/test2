@@ -1,3 +1,27 @@
+# 醫管局停用200支與港安醫院手術燈墮下事故相同型號檢查燈
+
+![涉事的同一型號檢查燈。（Draeger Hong Kong Limited網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797382_1_20250325230852.jpg&q=90)
+  
+
+醫管局轄下公立醫院及診所，暫停使用200支與港安醫院早前手術燈墮下事故相同型號的檢查燈。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797382-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797382-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797382-20250325.htm)
+
+---
+
 # 丹麥首相：美國副總統夫人率團訪格陵蘭是不可接受的施壓
 
 ![弗雷澤里克森說，美國副總統夫人及多位官員即將對格陵蘭島進行的訪問是一種不可接受的施壓。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797381_1_20250325225856.jpg&q=90)
@@ -96,6 +120,7 @@
 
 # 亞洲盃外圍賽港隊作客0:0賽和新加坡
 
+![亞洲盃外圍賽港隊作客0:0賽和新加坡。（中國香港足球總會社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797377_1_20250325230346.jpg&q=90)
   
 
 亞洲盃外圍賽第三圈首場賽事，港隊作客0:0賽和新加坡，各得一分。

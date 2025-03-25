@@ -1,5 +1,30 @@
+# 醫管局停用200支與港安醫院手術燈墮下事故相同型號檢查燈
+
+![涉事的同一型號檢查燈。（Draeger Hong Kong Limited網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797382_1_20250325230852.jpg&q=90)
+  
+
+醫管局轄下公立醫院及診所，暫停使用200支與港安醫院早前手術燈墮下事故相同型號的檢查燈。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797382-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797382-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797382-20250325.htm)
+
+---
+
 # 亞洲盃外圍賽港隊作客0:0賽和新加坡
 
+![亞洲盃外圍賽港隊作客0:0賽和新加坡。（中國香港足球總會社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797377_1_20250325230346.jpg&q=90)
   
 
 亞洲盃外圍賽第三圈首場賽事，港隊作客0:0賽和新加坡，各得一分。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797204-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797204-20250324.htm)
-
----
-
-# 12人涉詐騙及洗黑錢被捕　當中3人包括1名內地男子已提堂
-
-![警方重申「洗黑錢」是嚴重罪行，一旦被判罪名成立，最高可被判罰款500萬元及監禁14年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797202_1_20250324212236.jpg&q=90)
-  
-
-12名男女包括1名內地男子涉嫌「以欺騙手段取得財產」及「洗黑錢」等被捕，大部分被捕人相信為傀儡戶口持有人，當中2名本地男子及該名內地男子已提堂，其餘人士獲保釋候查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm)
 
 ---
