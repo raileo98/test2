@@ -1,3 +1,49 @@
+# 林定國明啓程往北京展開三日訪問　向港澳辦匯報主要政策措施進展
+
+  
+
+律政司司長林定國明日上午啓程前往北京，展開為期三日的訪問，將拜訪國務院港澳辦，匯報律政司主要政策措施的進展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm)
+
+---
+
+# 發改委前副主任彭森：中國經濟步入穩定健康可持續發展軌道
+
+  
+
+中國經濟體制改革研究會會長、國家發改委前副主任彭森說，隨著政策落實，中國經濟運行出現穩中有進的局面 ，去年中國經濟實現5%增長 ，今年首兩個月經濟平穩開局，兩會一系列利好政策推出，再加上去年7月二十屆三中全會的一系列改革政策的加持，中國經濟目前已經重新步入穩定健康，可持續發展軌道，中國經濟穩定回升態勢已經確立。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm)
+
+---
+
 # 李家超博鰲分論壇致辭　稱香港致力深化國際交流與合作
 
   
@@ -1388,54 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796957-20250322.htm)
-
----
-
-# 陳茂波鼓勵內企利用香港拓展全球業務　在港開設更多實體銷售網絡
-
-![陳茂波（右二）到訪了一家內地領先的潮流文化娛樂公司，並與負責人會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_2_20250322202451.jpg&q=85)
-![陳茂波（右二）到訪一家專注於高精度人工智能產品研發應用的企業。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796952_1_20250322202451.jpg&q=85)
-  
-
-財政司司長陳茂波鼓勵內地企業利用香港國際化的資金、人才和專業服務，將業務拓展至全球，亦歡迎公司在香港開設更多實體銷售網絡，以及開拓更多元服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796952-20250322.htm)
-
----
-
-# 何立峰晤美國訪客　稱中方堅決反對將經貿問題政治化
-
-![國務院副總理何立峰在北京會見美國聯邦參議員戴安斯。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796949_1_20250322205034.jpg&q=80)
-  
-
-中共中央政治局委員、國務院副總理何立峰在北京分別會見美國聯邦參議員戴安斯，以及新加坡淡馬錫董事長林文興。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796949-20250322.htm)
 
 ---

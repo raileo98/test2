@@ -1,3 +1,49 @@
+# 林定國明啓程往北京展開三日訪問　向港澳辦匯報主要政策措施進展
+
+  
+
+律政司司長林定國明日上午啓程前往北京，展開為期三日的訪問，將拜訪國務院港澳辦，匯報律政司主要政策措施的進展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm)
+
+---
+
+# 發改委前副主任彭森：中國經濟步入穩定健康可持續發展軌道
+
+  
+
+中國經濟體制改革研究會會長、國家發改委前副主任彭森說，隨著政策落實，中國經濟運行出現穩中有進的局面 ，去年中國經濟實現5%增長 ，今年首兩個月經濟平穩開局，兩會一系列利好政策推出，再加上去年7月二十屆三中全會的一系列改革政策的加持，中國經濟目前已經重新步入穩定健康，可持續發展軌道，中國經濟穩定回升態勢已經確立。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm)
+
+---
+
 # 李家超博鰲分論壇致辭　稱香港致力深化國際交流與合作
 
   

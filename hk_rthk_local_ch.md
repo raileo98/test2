@@ -1,3 +1,26 @@
+# 林定國明啓程往北京展開三日訪問　向港澳辦匯報主要政策措施進展
+
+  
+
+律政司司長林定國明日上午啓程前往北京，展開為期三日的訪問，將拜訪國務院港澳辦，匯報律政司主要政策措施的進展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm)
+
+---
+
 # 李家超博鰲分論壇致辭　稱香港致力深化國際交流與合作
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm)
-
----
-
-# 港股下午開市後偏軟
-
-![港股偏軟，恒生指數較早時報23667點，跌22點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797137_1_20250324130737.jpg&q=75)
-  
-
-港股偏軟，恒生指數較早時報23667點，跌22點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797137-20250324.htm)
 
 ---
