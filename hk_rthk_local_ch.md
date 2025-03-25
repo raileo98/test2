@@ -1,3 +1,27 @@
+# 港股跌幅擴大至逾400點　汽車及手機設備股沽壓大
+
+![港股跌幅擴大，恒生指數較早時報23446點，跌459點，跌幅1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797267_1_20250325103521.jpg&q=75)
+  
+
+港股低開262點後跌幅持續擴大，恒生指數較早時報23446點，跌459點，跌幅1.9%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm)
+
+---
+
 # 精英體育事務委員會修訂A級資助條件　主席稱體育發展更穩定
 
   
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797042-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797042-20250323.htm)
-
----
-
-# 慢性病共治先導計劃有醫生停收新症　彭飛舟指不影響已配對病人
-
-![彭飛舟表示，「慢性疾病共同治理先導計劃」有90名醫生停收新症。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797041_1_20250323201217.jpg&q=85)
-  
-
-基層醫療健康專員彭飛舟表示，慢性疾病共同治理先導計劃有90名醫生停收新症，他解釋可能是出於季節性的原因，又強調已配對的病人，服務不受影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797041-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797041-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797041-20250323.htm)
 
 ---

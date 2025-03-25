@@ -1,3 +1,51 @@
+# 港股跌幅擴大至逾400點　汽車及手機設備股沽壓大
+
+![港股跌幅擴大，恒生指數較早時報23446點，跌459點，跌幅1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797267_1_20250325103521.jpg&q=75)
+  
+
+港股低開262點後跌幅持續擴大，恒生指數較早時報23446點，跌459點，跌幅1.9%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm)
+
+---
+
+# 日股半日升逾0.7%
+
+![日經指數半日升273點，報37881點，升幅0.73%。 （日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797266_1_20250325103413.jpg&q=75)
+  
+
+東京股市上升，於38000點得而復失。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797266-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797266-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797266-20250325.htm)
+
+---
+
 # 蔡崇信：民營企業座談會後內地企業家信心增強
 
 ![蔡崇信表示，自今年1月國家主席習近平會見民營企業以來，企業家信心明顯增強。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797262_1_20250325100958.jpg&q=75)
@@ -1386,54 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm)
-
----
-
-# 南方東英9隻個股槓反產品掛牌　證監會：標誌上市產品多元發展
-
-![丁晨（中）認為，有關ETF上市，令區內投資者可以在亞洲時區，通過港交所投資全球知名企業。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797105_1_20250324104034.jpg&q=90)
-![蔡鳳儀表示，證監會已加強相關監管框架，提供額外保障和措施，平衡投資者的潛在收益與風險。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797105_2_20250324104034.jpg&q=90)
-  
-
-證監會今年初發布出新通函，擴大大可售予香港公眾的上市結構性基金的範圍，增加個股槓桿及反向產品、界定收益上市結構性基金。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797105-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797105-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797105-20250324.htm)
-
----
-
-# 黃碧如：修訂公屋富戶政策相信可至少釋放數百個公屋單位
-
-![黃碧如形容新政策是「組合拳」，既提高額外租金，亦提供措施鼓勵「富戶」向上流。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797102_1_20250324105409.jpg&q=90)
-  
-
-房委會資助房屋小組委員會通過修訂公屋「富戶」政策，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。小組委員會主席黃碧如在一個電台節目形容新政策是「組合拳」，既提高額外租金，亦提供措施鼓勵「富戶」向上流。被問到有無預計新措施釋放到多少公屋單位，黃碧如說未有目標數字，但相信最起碼會有數百間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm)
 
 ---

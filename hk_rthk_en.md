@@ -1,3 +1,27 @@
+# Boeing 'wants to bail out of 737 MAX guilty plea deal'
+
+![Two 737 MAX crashes that killed 346 people have fuelled deep concern over Boeing's quality and manufacturing processes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797265_1_20250325103519.jpg&q=60)
+  
+
+Boeing is seeking to withdraw an agreement to plead guilty in a criminal case that blamed the company for deceiving regulators before two deadly crashes of 737 MAX jets, the Wall Street Journal reported on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm)
+
+---
+
 # UN cuts headcount in Gaza after worker dies
 
 ![A foreign worker wounded in an airstrike at UN headquarters on March 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797253_1_20250325090322.jpg&q=85)
@@ -1413,29 +1437,5 @@ Pope Francis, who has been battling pneumonia for more than five weeks, will be 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796991-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796991-20250323.htm)
-
----
-
-# Oscar Piastri on pole for Chinese Grand Prix
-
-![Now in his third season in Formula One, the Australian already has two wins to his name and starts as favourite. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796987_1_20250323065602.jpg&q=90)
-  
-
-A pumped Oscar Piastri seized his first Formula One pole position at the Chinese Grand Prix on Saturday and said he had done the hairpin of his life to smash the Shanghai circuit record.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm)
 
 ---

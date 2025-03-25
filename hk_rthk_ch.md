@@ -1,3 +1,74 @@
+# 港股跌幅擴大至逾400點　汽車及手機設備股沽壓大
+
+![港股跌幅擴大，恒生指數較早時報23446點，跌459點，跌幅1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797267_1_20250325103521.jpg&q=75)
+  
+
+港股低開262點後跌幅持續擴大，恒生指數較早時報23446點，跌459點，跌幅1.9%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm)
+
+---
+
+# 日股半日升逾0.7%
+
+![日經指數半日升273點，報37881點，升幅0.73%。 （日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797266_1_20250325103413.jpg&q=75)
+  
+
+東京股市上升，於38000點得而復失。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797266-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797266-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797266-20250325.htm)
+
+---
+
+# 新西蘭里弗頓海岸地震　美國地質勘探局指強度為7級
+
+  
+
+新西蘭里弗頓海岸發生地震，美國地質勘探局指強度為黎克特制7級，震源深度為10公里。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797264-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797264-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797264-20250325.htm)
+
+---
+
 # 湖南當局指丰水流域污染源已受控　處置工作有序進行
 
   
@@ -1359,77 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797195-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797195-20250324.htm)
-
----
-
-# 李強簽國務院令　 公布修訂後的《保障中小企業款項支付條例》
-
-![李強簽署國務院令，公布修訂後的《保障中小企業款項支付條例》。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797194_1_20250324192142.jpg&q=90)
-  
-
-國務院總理李強簽署國務院令，公布修訂後的《保障中小企業款項支付條例》，今年6月1日起施行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797194-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797194-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797194-20250324.htm)
-
----
-
-# 75歲陳金妹離開葵盛東邨盛喜樓後失蹤　警方呼籲市民提供消息
-
-![75歲陳金妹今早約7時48分離開位於葵盛東邨盛喜樓住所後失蹤。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797193_1_20250324202106.jpg&q=90)
-  
-
-75歲陳金妹今早約7時48分離開位於葵盛東邨盛喜樓住所後失蹤，家人報案，警方呼籲市民提供消息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797193-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797193-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797193-20250324.htm)
-
----
-
-# 人行：本月起MLF操作採固定數量、利率招標、多重價位中標開展
-
-![人行明日將開展4500億元人民幣MLF操作，本月起採用固定數量、利率招標、多重價位中標方式開展。（人行網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797185_2_20250324193652.jpg&q=90)
-  
-
-人民銀行公布，明日將開展4500億元人民幣中期借貸便利（MLF）操作，為期1年，以保持銀行體系流動性充裕。今次MLF續做規模超過本月到期的3870億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm)
 
 ---

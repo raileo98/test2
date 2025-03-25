@@ -1,3 +1,27 @@
+# Boeing 'wants to bail out of 737 MAX guilty plea deal'
+
+![Two 737 MAX crashes that killed 346 people have fuelled deep concern over Boeing's quality and manufacturing processes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797265_1_20250325103519.jpg&q=60)
+  
+
+Boeing is seeking to withdraw an agreement to plead guilty in a criminal case that blamed the company for deceiving regulators before two deadly crashes of 737 MAX jets, the Wall Street Journal reported on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm)
+
+---
+
 # UN cuts headcount in Gaza after worker dies
 
 ![A foreign worker wounded in an airstrike at UN headquarters on March 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797253_1_20250325090322.jpg&q=85)
@@ -1412,29 +1436,5 @@ US President Donald Trump hailed a "very good" call with Ukraine's Volodymyr Zel
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796505-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796505-20250320.htm)
-
----
-
-# Malaysia agrees terms for resumption of MH370 search
-
-![Very little of the doomed Malaysian Airlines plane has ever been found. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796487_1_20250319224244.jpg&q=90)
-  
-
-Malaysia has agreed to the terms and conditions of an agreement with exploration firm Ocean Infinity to resume the search for the wreckage of the missing Malaysia Airlines flight MH370, its transport minister said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm)
 
 ---

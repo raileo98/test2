@@ -1,3 +1,26 @@
+# 新西蘭里弗頓海岸地震　美國地質勘探局指強度為7級
+
+  
+
+新西蘭里弗頓海岸發生地震，美國地質勘探局指強度為黎克特制7級，震源深度為10公里。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797264-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797264-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797264-20250325.htm)
+
+---
+
 # 委內瑞拉面對美方涉能源關稅　中國是委内瑞拉石油最大買家
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm)
-
----
-
-# 日本三重縣有巴士撞向路邊防風林1死21傷
-
-![日本三重縣有巴士撞向路邊防風林1死21傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797011_1_20250323122453.jpg&q=90)
-  
-
-日本三重縣南部一條高速公路發生巴士撞向路邊防風林的意外，造成1人死亡，21人受傷。中國駐名古屋總領事館向新華社確認，目前並無中國籍人員傷亡報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm)
 
 ---
