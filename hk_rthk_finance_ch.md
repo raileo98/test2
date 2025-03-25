@@ -1,3 +1,51 @@
+# 中電信去年多賺逾8%　全年派息升逾11%
+
+![中電信公布，去年盈利330.1億元人民幣，按年升8.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797337_1_20250325174545.jpg&q=85)
+  
+
+中電信去年盈利330.1億元人民幣，按年升8.4%。末期息每股9.27分，全年派息25.98分，按年升逾11%，派息比率72%。公司指，3年內派息比率將逐步提升至75%以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm)
+
+---
+
+# 萬洲國際去年多賺逾1倍　末期息多派60%
+
+![萬洲國際去年盈利14.7億美元，按年急升約1.43倍。派末期息每股0.4美元，按年升60%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797331_1_20250325171459.jpg&q=90)
+  
+
+萬洲國際公布，去年盈利14.7億美元，按年急升約1.43倍。撇除生物公允值變動，盈利16.1億美元，升1.56倍。派末期息每股0.4美元，按年升60%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm)
+
+---
+
 # 藥明生物去年少賺逾1%
 
 ![藥明生物去年盈利約33.6億元人民幣，按年跌1.3%。不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797327_1_20250325170239.jpg&q=90)
@@ -1384,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797211-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797211-20250324.htm)
-
----
-
-# 韓正冀英國太古集團參與大灣區建設　瑞士諾華抓緊機遇拓展合作
-
-![韓正分別會見英國太古集團行政總裁施銘倫及瑞士諾華公司首席執行官萬思瀚。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797206_1_20250324212520.jpg&q=90)
-  
-
-國家副主席韓正在北京分別會見來華參加中國發展高層論壇2025年年會的英國太古集團行政總裁施銘倫及瑞士諾華公司首席執行官萬思瀚。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm)
-
----
-
-# 羅淑佩稱精英體育發展需考慮個別項目獨特性及彈性處理
-
-![羅淑佩說，新機制可以提供彈性，亦讓網球運動員有努力的目標。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797200_1_20250324201837.jpg&q=90)
-  
-
-政府宣布，桌球及網球未來兩年，將繼續保留為體育學院「A級」精英項目。另外，所有精英運動員的直接資助額，將會上調8.3%，今年4月1日起生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm)
 
 ---

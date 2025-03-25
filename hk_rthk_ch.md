@@ -1,3 +1,51 @@
+# 中電信去年多賺逾8%　全年派息升逾11%
+
+![中電信公布，去年盈利330.1億元人民幣，按年升8.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797337_1_20250325174545.jpg&q=85)
+  
+
+中電信去年盈利330.1億元人民幣，按年升8.4%。末期息每股9.27分，全年派息25.98分，按年升逾11%，派息比率72%。公司指，3年內派息比率將逐步提升至75%以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm)
+
+---
+
+# 萬洲國際去年多賺逾1倍　末期息多派60%
+
+![萬洲國際去年盈利14.7億美元，按年急升約1.43倍。派末期息每股0.4美元，按年升60%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797331_1_20250325171459.jpg&q=90)
+  
+
+萬洲國際公布，去年盈利14.7億美元，按年急升約1.43倍。撇除生物公允值變動，盈利16.1億美元，升1.56倍。派末期息每股0.4美元，按年升60%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm)
+
+---
+
 # 公營醫療每人每年一萬元收費上限　放寬減免申請資額及範圍
 
   
@@ -68,11 +116,11 @@
 
 ---
 
-# 林定國明啓程往北京展開三日訪問　向港澳辦匯報主要政策措施進展
+# 林定國明啓程往北京訪問　向港澳辦匯報主要政策措施進展
 
   
 
-律政司司長林定國明日上午啓程前往北京，展開為期三日的訪問，將拜訪國務院港澳辦，匯報律政司主要政策措施的進展。
+律政司司長林定國明日上午啓程前往北京，展開為期四日的訪問，將拜訪國務院港澳辦，匯報律政司主要政策措施的進展。
 
   
 
