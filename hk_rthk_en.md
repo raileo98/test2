@@ -147,7 +147,7 @@ The Palestinian co-director of the Oscar-winning documentary "No Other Land", Ha
 
 # Giant sinkhole swallows motorcyclist in Seoul
 
-![The body of the motorcyclist was found buried 90 centimetres in the sinkhole. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797301_1_20250325135606.jpg&q=70)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797301_1_20250325135606.jpg&q=70)
   
 
 One person has been killed after a massive sinkhole opened up in Seoul, the fire department said on Tuesday, with harrowing video footage showing the moment his vehicle was swallowed by the hole.
