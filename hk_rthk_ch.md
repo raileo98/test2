@@ -1,6 +1,53 @@
+# 急症室收費400元　住院急症病床每日300元
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797289-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797289-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797289-20250325.htm)
+
+---
+
+# 恒安國際去年盈利跌約18%
+
+![恒安國際去年收入跌4.6%。市場競爭越趨激烈，行業平均售價下降，整體市場銷售負增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797288_1_20250325122906.jpg&q=90)
+  
+
+恒安國際去年盈利近23億元人民幣，按年跌17.9%。末期息每股70分，全年派息1.4元，兩者按年持平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797288-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797288-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797288-20250325.htm)
+
+---
+
 # 盧寵茂公布公營醫療服務收費改革　稱共付比率屬可負擔水平
 
   
+
+政府公布公營醫療服務收費改革詳情，醫務衞生局局長盧寵茂表示，香港一直有高效、高質量的醫療系統，發揮全民安全網角色，但系統面臨很大挑戰，人口老化令醫療需求不斷上升，醫學進步、診治能力提升及先進新藥械和治療方法，亦令醫療成本上升，本港奉行簡單低稅制，沒有全民醫保，市民以3%的超低共付率使用公營醫療服務，政府資助達97.6%。
+
   
 
 
@@ -1380,53 +1427,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm)
-
----
-
-# 美國3月製造業PMI初值跌至49.8　跌幅大過預期
-
-![美國3月製造業採購經理指數（PMI）初值降至49.8，跌至50以下的收縮區間，低過市場預期的51.7。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797212_1_20250324215640.jpg&q=80)
-  
-
-標普全球公布，美國3月製造業採購經理指數（PMI）初值降至49.8，跌至50以下的收縮區間，低過市場預期的51.7，亦低於2月的52.7。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797212-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797212-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797212-20250324.htm)
-
----
-
-# 荃灣港安醫院手術燈墜落　院方檢查同型號四組燈確認安全運作
-
-![院方表示，事故發生後，已即時通知承辦商到場處理並展開調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797213_1_20250325094143.jpg&q=90)
-  
-
-荃灣港安醫院急診中心星期日晚發生一宗手術燈墜落事故，兩名醫護人員受輕傷，經檢查後暫無大礙 。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797213-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797213-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797213-20250324.htm)
 
 ---

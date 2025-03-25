@@ -1,3 +1,27 @@
+# 恒安國際去年盈利跌約18%
+
+![恒安國際去年收入跌4.6%。市場競爭越趨激烈，行業平均售價下降，整體市場銷售負增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797288_1_20250325122906.jpg&q=90)
+  
+
+恒安國際去年盈利近23億元人民幣，按年跌17.9%。末期息每股70分，全年派息1.4元，兩者按年持平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797288-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797288-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797288-20250325.htm)
+
+---
+
 # 港股半日跌517點　舜宇及比亞迪電子績後急挫
 
 ![恒生指數中午收市報23387點，跌517點，跌幅2.2%，半日主板成交額約1845億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797285_1_20250325120719.jpg&q=65)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797144-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797144-20250324.htm)
-
----
-
-# 台股低收約0.5%
-
-![台灣加權指數朝早曾升171點，收市報22106點，跌102點，跌幅0.46%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797140_1_20250324140700.jpg&q=90)
-  
-
-台灣股市先升後跌，加權指數朝早曾升171點，隨後轉跌，收市報22106點，跌102點，跌幅0.46%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797140-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797140-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797140-20250324.htm)
 
 ---

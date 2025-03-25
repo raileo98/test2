@@ -24,7 +24,7 @@ The Hang Seng Index lost 262.24 points, or 1.1 percent, to open at 23,643.32 on 
 
 # Hyundai to invest US$21 billion in US manufacturing
 
-![Hyundai Motor Group Executive Chair Euisun Chung told a White House gathering that the new plant in Louisiana would create 1,300 American jobs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797250_1_20250325084822.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797250_1_20250325084822.jpg&q=90)
   
 
 South Korean auto giant Hyundai on Monday announced a multi-billion-dollar investment in the United States, including a new US$5.8 billion steel plant.

@@ -1,6 +1,29 @@
+# 急症室收費400元　住院急症病床每日300元
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797289-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797289-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797289-20250325.htm)
+
+---
+
 # 盧寵茂公布公營醫療服務收費改革　稱共付比率屬可負擔水平
 
   
+
+政府公布公營醫療服務收費改革詳情，醫務衞生局局長盧寵茂表示，香港一直有高效、高質量的醫療系統，發揮全民安全網角色，但系統面臨很大挑戰，人口老化令醫療需求不斷上升，醫學進步、診治能力提升及先進新藥械和治療方法，亦令醫療成本上升，本港奉行簡單低稅制，沒有全民醫保，市民以3%的超低共付率使用公營醫療服務，政府資助達97.6%。
+
   
 
 
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm)
-
----
-
-# 警方在利源西街樓上單位搗破懷疑無牌酒吧拘捕32人
-
-![警方帶走被捕人士。（警方圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797067_1_20250324025417.jpg&q=80)
-  
-
-中區警區人員在利源西街一個樓上單位，搗破一間懷疑無牌酒吧，拘捕32人，檢獲103支酒等證物。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797067-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797067-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797067-20250324.htm)
 
 ---

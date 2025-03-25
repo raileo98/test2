@@ -1,3 +1,27 @@
+# Cats and dogs allowed on light rail from May
+
+![The two-month pilot scheme will require owners to board the light rail with pets in bags that comply with luggage restrictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797287_1_20250325122816.jpg&q=85)
+  
+
+Cat and dog owners will soon be able to bring pets on board the light rail on weekends and public holidays once the MTR Corporation rolls out a HK$99 monthly pet pass from May as part of a trial scheme.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm)
+
+---
+
 # AI installation showcases HK reel heritage
 
 ![The animation features AI-generated characters performing scenes inspired by cinema icons. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797269_1_20250325104802.jpg&q=90)
@@ -1419,29 +1443,5 @@ An employment survey has found that about 30 percent of Hong Kong companies are 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796421-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796421-20250319.htm)
-
----
-
-# Snooker tournament slips spur Rugby Sevens resolve
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796411_1_20250319143132.jpg&q=70)
-  
-
-Sports chief Rosanna Law said on Wednesday that parties involved in the Hong Kong Rugby Sevens tournament to be held later this month have to liaise and communicate closely for the Kai Tak event to be considered a success.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm)
 
 ---

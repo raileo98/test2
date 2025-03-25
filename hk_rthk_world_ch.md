@@ -1,3 +1,26 @@
+# 新西蘭南島外海地震　當局正評估海嘯威脅
+
+  
+
+新西蘭南島發生地震，當局說強度為黎克特制6.7級，正評估會否構成海嘯威脅，呼籲南地大區及峽灣地區的居民，遠離海灘及一帶海域，慎防異常強烈水流帶來危險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797290-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797290-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797290-20250325.htm)
+
+---
+
 # 以色列政府指法院無權司法干預解除國安總局局長職務決定
 
 ![內塔尼亞胡政府的文件指任免國家安全總局負責人，屬於國家安全政策範疇，法院歷來不干涉有關領域。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797273_1_20250325111310.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797023-20250323.htm)
-
----
-
-# 回應有否用過DeepSeek　蘋果庫克稱「當然，感覺很好」
-
-![庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他形容感覺很好。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797019_2_20250323160553.jpg&q=90)
-  
-
-中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他回應「當然，感覺很好」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm)
 
 ---

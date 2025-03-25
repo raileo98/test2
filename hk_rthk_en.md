@@ -1,3 +1,27 @@
+# Cats and dogs allowed on light rail from May
+
+![The two-month pilot scheme will require owners to board the light rail with pets in bags that comply with luggage restrictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797287_1_20250325122816.jpg&q=85)
+  
+
+Cat and dog owners will soon be able to bring pets on board the light rail on weekends and public holidays once the MTR Corporation rolls out a HK$99 monthly pet pass from May as part of a trial scheme.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm)
+
+---
+
 # Tariffs crunch looms for buyers of Venezuelan oil
 
 ![Buyers of Venezuelan oil and gas exports such as China are likely to switch to Russian supplies as a result of Donald Trump's latest executive order. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797281_1_20250325114524.jpg&q=80)
@@ -170,7 +194,7 @@ The Hang Seng Index lost 262.24 points, or 1.1 percent, to open at 23,643.32 on 
 
 # Hyundai to invest US$21 billion in US manufacturing
 
-![Hyundai Motor Group Executive Chair Euisun Chung told a White House gathering that the new plant in Louisiana would create 1,300 American jobs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797250_1_20250325084822.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797250_1_20250325084822.jpg&q=90)
   
 
 South Korean auto giant Hyundai on Monday announced a multi-billion-dollar investment in the United States, including a new US$5.8 billion steel plant.
@@ -1415,29 +1439,5 @@ Financial Secretary Paul Chan pledged his support for Hong Kong's cultural and c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm)
-
----
-
-# Turn research into real-world applications: tech exec
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797006_1_20250323111456.jpg&q=85)
-  
-
-The head of the Science Park called for a balanced approach in technological development, saying while research and development is important, the results must also be applied in practical and real-world settings.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797006-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797006-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797006-20250323.htm)
 
 ---
