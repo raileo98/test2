@@ -1,3 +1,75 @@
+# 亞洲盃外圍賽港隊作客0:0賽和新加坡
+
+  
+
+亞洲盃外圍賽第三圈首場賽事，港隊作客0:0賽和新加坡，各得一分。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797377-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797377-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797377-20250325.htm)
+
+---
+
+# 小欖精神病治療中心有還押人士涉襲社署職員　兩人均無受傷
+
+![懲教署表示，事發早上約11時許，已交由警方調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797376_1_20250325221918.jpg&q=90)
+  
+
+小欖精神病治療中心有一名男性還押在囚人士，涉嫌襲擊社署職員，在場懲教人員即時制止，這名社署職員及施襲者均無受傷，事件已轉交警方調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797376-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797376-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797376-20250325.htm)
+
+---
+
+# 去年31名學生涉嚴重毒品案被捕　蕭澤頤稱須教育傳承禁毒文化
+
+![蕭澤頤說，加強執法的同時，必須透過教育傳承禁毒文化。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797375_1_20250325221408.jpg&q=85)
+![蕭澤頤說，同學在劇場中互動參與，體現禁毒文化的傳承。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797375_2_20250325221408.jpg&q=35)
+  
+
+警務處處長蕭澤頤說，去年31名學生涉及嚴重毒品案被捕，涉及太空油毒品被捕的最年輕僅12歲，雖然被捕人數是2021年來最少，但形容，青少年毒品案「一宗都嫌多」，在加強執法的同時，必須透過教育傳承禁毒文化，貫徹「由小做、持續做、一齊做」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797375-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797375-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797375-20250325.htm)
+
+---
+
 # 政府「裕澤香江」高峰晚宴　逾130位家辦決策人和家族成員出席
 
 ![政府今晚舉辦「裕澤香江」高峰晚宴。陳國基表示，香港是一個「超級聯繫人」，是一個讓家族辦公室和家族蓬勃發展的活力之都。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797373_1_20250325220033.jpg&q=90)
