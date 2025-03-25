@@ -1,3 +1,27 @@
+# Vietnam death row tycoon begins appeal
+
+![Vietnamese property tycoon Truong My Lan (Centre) looks on at a court in Ho Chi Minh City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797356_1_20250325193707.jpg&q=90)
+  
+
+The appeal of a Vietnamese property tycoon convicted of money laundering began on Tuesday, three months after she lost a challenge against the death penalty in a separate case.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm)
+
+---
+
 # AI a game-changer for climate transition: FS
 
 ![Paul Chan says AI will act as a catalyst in helping Hong Kong become a more sustainable society. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797342_1_20250325181504.jpg&q=80)
@@ -1417,29 +1441,5 @@ New Canadian Prime Minister Mark Carney on Sunday called a snap election for Apr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm)
-
----
-
-# Cavs snap four-game losing skid, sink Jazz in Utah
-
-![The victory snapped the Cavs' longest losing streak of the season at four games. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797085_1_20250324080912.jpg&q=85)
-  
-
-NBA Eastern Conference leader Cleveland snapped a four-game losing streak with a balanced scoring performance in a 120-91 victory at Utah.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm)
 
 ---

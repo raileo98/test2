@@ -1,3 +1,27 @@
+# Vietnam death row tycoon begins appeal
+
+![Vietnamese property tycoon Truong My Lan (Centre) looks on at a court in Ho Chi Minh City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797356_1_20250325193707.jpg&q=90)
+  
+
+The appeal of a Vietnamese property tycoon convicted of money laundering began on Tuesday, three months after she lost a challenge against the death penalty in a separate case.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm)
+
+---
+
 # Microplastics fear for those who chew gum
 
 ![Researchers say a gram of gum releases an average of 100 microplastic fragments and that some shed more than 600. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797333_1_20250325172205.jpg&q=90)
@@ -1412,29 +1436,5 @@ Chinese tariffs on Canadian products including rapeseed oil and pork come into e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796564-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796564-20250320.htm)
-
----
-
-# Trump urges Fed to cut rates as tariffs take effect
-
-![Donald Trump says "the Fed would be much better off cutting rates". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796555_1_20250320110749.jpg&q=90)
-  
-
-President Donald Trump urged the US Federal Reserve on Wednesday to cut interest rates to help offset effects of his tariffs, renewing his vocal disagreement with the central bank's decision-making.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm)
 
 ---
