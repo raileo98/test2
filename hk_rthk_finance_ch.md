@@ -1,3 +1,27 @@
+# 滬股半日跌約0.2%　深證成指及創業板指數跌逾0.6%
+
+![上證指數半日收報3364點，跌5點，跌幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797280_1_20250325113831.jpg&q=85)
+  
+
+內地股市反覆向下，金屬新材料、航空、煤炭股造好；算力租賃、通信服務、人工智能眼鏡概念股下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797280-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797280-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797280-20250325.htm)
+
+---
+
 # 博鰲亞洲論壇年會旗艦報告倡推動綠色轉型
 
   
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm)
-
----
-
-# 港股半日跌27點　中石化及國藥績後偏軟
-
-![恒生指數中午收市報23662點，跌27點，跌幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797125_1_20250324120954.jpg&q=10)
-  
-
-港股反覆偏軟，恒生指數中午收市報23662點，跌27點，跌幅0.12%，半日主板成交額約1275億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm)
 
 ---

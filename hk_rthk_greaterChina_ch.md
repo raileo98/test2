@@ -23,6 +23,7 @@
 
 # 博鰲亞洲論壇展開　料60多個國家和地區約2000名代表參加
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797276_1_20250325114930.jpg&q=90)
   
 
 博鰲亞洲論壇2025年年會今日至本周五海南博鰲舉行。

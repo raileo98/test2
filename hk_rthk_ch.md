@@ -1,3 +1,51 @@
+# 滬股半日跌約0.2%　深證成指及創業板指數跌逾0.6%
+
+![上證指數半日收報3364點，跌5點，跌幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797280_1_20250325113831.jpg&q=85)
+  
+
+內地股市反覆向下，金屬新材料、航空、煤炭股造好；算力租賃、通信服務、人工智能眼鏡概念股下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797280-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797280-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797280-20250325.htm)
+
+---
+
+# 5.1起可帶貓或狗乘輕鐵　須放袋或背包長闊高有限制
+
+![乘客須於輕鐵車廂的最後一道門上落，並須逗留於車廂的車尾位置，貓狗要放入寵物專用袋或背包內。（黃凱宜攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797279_1_20250325114731.jpg&q=85)
+  
+
+港鐵宣布在輕鐵推出為期兩個月的「貓狗同行」試行計劃，由5月1日起，容許寵物主人於周六日及公眾假期攜同貓、狗乘搭輕鐵，每人只可帶同一隻貓或狗上車。港鐵會密切監察試行情況，有需要時可能延長計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797279-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797279-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797279-20250325.htm)
+
+---
+
 # 博鰲亞洲論壇年會旗艦報告倡推動綠色轉型
 
   
@@ -47,6 +95,7 @@
 
 # 博鰲亞洲論壇展開　料60多個國家和地區約2000名代表參加
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797276_1_20250325114930.jpg&q=90)
   
 
 博鰲亞洲論壇2025年年會今日至本周五海南博鰲舉行。
@@ -164,7 +213,7 @@
 
 # 鄭泳舜：精英運動員資助增至1萬元屬起步　桌球總會：並非無壓力
 
-![鄭泳舜（左）認為，精英運動員增至1萬元資助只是起步。羅永聰（右）表示，運動員及教練可以暫時鬆一口氣，但並非沒有壓力。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797268_1_20250325105728.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797268_1_20250325105728.jpg&q=90)
   
 
 政府公布由下月起，所有精英運動員直接資助額增加8.3%，成年隊資助由每月7千多元加至1萬元。
@@ -1382,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797207-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797207-20250324.htm)
-
----
-
-# 韓正冀英國太古集團參與大灣區建設　瑞士諾華抓緊機遇拓展合作
-
-![韓正分別會見英國太古集團行政總裁施銘倫及瑞士諾華公司首席執行官萬思瀚。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797206_1_20250324212520.jpg&q=90)
-  
-
-國家副主席韓正在北京分別會見來華參加中國發展高層論壇2025年年會的英國太古集團行政總裁施銘倫及瑞士諾華公司首席執行官萬思瀚。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm)
-
----
-
-# 彭鴻昌憂住院門診新收費加重某些病人負擔　陳沛良稱助減醫護壓力
-
-![消息指，將設訂的住院門診收費上限，很大機會定於每人每年1萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797205_1_20250324221918.jpg&q=75)
-  
-
-政府明日公布公營醫療服務收費改革詳情。消息指，將會增設住院門診收費上限，好大機會定於每人每年1萬元。據了解，急症服務只有一個收費，增至不多於400元，危殆及危急病人可獲豁免。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797205-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797205-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797205-20250324.htm)
 
 ---

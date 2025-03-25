@@ -1,3 +1,27 @@
+# 5.1起可帶貓或狗乘輕鐵　須放袋或背包長闊高有限制
+
+![乘客須於輕鐵車廂的最後一道門上落，並須逗留於車廂的車尾位置，貓狗要放入寵物專用袋或背包內。（黃凱宜攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797279_1_20250325114731.jpg&q=85)
+  
+
+港鐵宣布在輕鐵推出為期兩個月的「貓狗同行」試行計劃，由5月1日起，容許寵物主人於周六日及公眾假期攜同貓、狗乘搭輕鐵，每人只可帶同一隻貓或狗上車。港鐵會密切監察試行情況，有需要時可能延長計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797279-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797279-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797279-20250325.htm)
+
+---
+
 # 陳國基：香港經濟展現韌性　超級聯繫人角色比以往更為重要
 
 ![陳國基表示，香港作為「超級聯繫人」的角色比以往更為重要，將繼續增強離岸人民幣流動性。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797277_1_20250325112821.jpg&q=75)
@@ -48,7 +72,7 @@
 
 # 鄭泳舜：精英運動員資助增至1萬元屬起步　桌球總會：並非無壓力
 
-![鄭泳舜（左）認為，精英運動員增至1萬元資助只是起步。羅永聰（右）表示，運動員及教練可以暫時鬆一口氣，但並非沒有壓力。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797268_1_20250325105728.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797268_1_20250325105728.jpg&q=90)
   
 
 政府公布由下月起，所有精英運動員直接資助額增加8.3%，成年隊資助由每月7千多元加至1萬元。
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797052-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797052-20250323.htm)
-
----
-
-# 羅傑承中學21師生往肇慶交流出現腸胃炎徵狀　8人染諾如病毒
-
-![21名師生參加肇慶交流團期間出現與諾如病毒感染吻合的病徵。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797049_1_20250323201458.jpg&q=85)
-  
-
-保良局羅傑承（一九八三）中學21名師生參加肇慶交流團期間出現與諾如病毒感染吻合的病徵，當中18人曾在當地求醫，全部情況穩定並已出院，其中8人對諾如病毒呈陽性反應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797049-20250323.htm)
 
 ---
