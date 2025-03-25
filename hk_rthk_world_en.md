@@ -1,3 +1,27 @@
+# New Trump Venezuelan oil tariff could hit China
+
+![An oil tanker near the Venezuelan port of La Salina. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797246_1_20250325082707.jpg&q=90)
+  
+
+US President Donald Trump announced on Monday steep tariffs on imports from countries buying Venezuelan oil and gas, a punitive measure that could hit China and India, among others, and sow fresh global trade uncertainty.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm)
+
+---
+
 # Journalist included in Houthi strike messaging group
 
 ![Hours before those attacks started, US defence secretary Pete Hegseth posted operational details about the plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797229_1_20250325050810.jpg&q=90)
@@ -1412,29 +1436,5 @@ Turkey's lira fell 12.7 percent and touched a new all-time low of 42 to the doll
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm)
-
----
-
-# Ukraine peace talks planned for Sunday in Saudi: US
-
-![US officials say talks aimed at a ceasefire in Ukraine would be held in the Saudi Arabian city of Jeddah on Sunday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796380_1_20250319110641.jpg&q=90)
-  
-
-Talks on a ceasefire in Russia's conflict with Ukraine will continue on Sunday in the Saudi Arabian city of Jeddah, US President Donald Trump's special envoy Steve Witkoff said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796380-20250319.htm)
 
 ---

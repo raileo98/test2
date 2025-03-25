@@ -1,3 +1,74 @@
+# 現代汽車擬在美國投資210億美元　興建鋼鐵廠及提高汽車產能
+
+![現代汽車計劃在美國投資210億美元，包括在路易斯安那州新建一座斥資58億美元的鋼鐵廠。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797243_1_20250325080328.jpg&q=90)
+  
+
+南韓現代汽車宣布，計劃在美國投資210億美元，包括在路易斯安那州新建一座斥資58億美元的鋼鐵廠，每年將生產超過270萬噸鋼材，創造1400多個職位，這個鋼鐵廠預計將為阿拉巴馬州及喬治亞州的車廠供應鋼材。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm)
+
+---
+
+# 美眾議長稱特朗普政府確認記者無意中被加入高官群組屬錯誤
+
+  
+
+美國國會眾議院議長、共和黨籍的約翰遜表示，在記者無意中被加入高官通訊群組的事件上，總統特朗普政府確認是一個錯誤，但他認為確實見到白宮高層官員正在履行職責，而且做得很好。約翰遜又說政府正應對及追查事件，確保不再發生同類情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797248-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797248-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797248-20250325.htm)
+
+---
+
+# 特朗普敦促聯儲局減息　博斯蒂克料今年只會減息1次
+
+![博斯蒂克預計，未來數月通脹進展將放緩，因此預料今年聯儲局只會減息1次。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797242_1_20250325073112.jpg&q=85)
+  
+
+美國總統特朗普較早時再次敦促聯儲局減息，他在白宮與內閣會面時表示，希望見到聯儲局降低利率。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm)
+
+---
+
 # 《環看天下》：希斯路機場一度關閉　基建後備設施不足惹質疑
 
 ![希斯路機場附近一個變電站日前發生火警，影響機場供電。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797241_1_20250325071115.jpg&q=90)
@@ -1363,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm)
-
----
-
-# 謝鋒：「以台制華」徒勞及危險　把關稅武器化終將反噬自身
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797005_1_20250323105301.jpg&q=90)
-  
-
-中國駐美大使謝鋒表示，中美兩個大國難免有分歧矛盾，關鍵是尊重彼此核心利益，不能挑戰紅線底線，強調支持「台獨」就是干涉中國內政，縱容「台獨」就是破壞台海穩定，「以台制華」不僅徒勞而且危險，一個中國原則和中美三個聯合公報是中美關係的政治基礎，任何時候都不得違反。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797005-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797005-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797005-20250323.htm)
-
----
-
-# 烏克蘭和俄羅斯分別遭無人機襲擊造成死傷
-
-![烏克蘭表示，首都基輔星期日遭到俄羅斯無人機襲擊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797001_1_20250323103313.jpg&q=90)
-  
-
-烏克蘭和俄羅斯分別指責對方發動無人機襲擊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797001-20250323.htm)
-
----
-
-# 據報以軍炸死一名哈馬斯政治領導人
-
-![據報以軍在空襲中炸死一名哈馬斯政治領導人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796994_1_20250323085352.jpg&q=90)
-  
-
-巴勒斯坦傳媒報道，以色列在加沙南部汗尤尼斯發動的空襲，炸死了巴勒斯坦武裝組織哈馬斯政治領導人巴達維爾和他的妻子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796994-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796994-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796994-20250323.htm)
 
 ---

@@ -1,3 +1,27 @@
+# New Trump Venezuelan oil tariff could hit China
+
+![An oil tanker near the Venezuelan port of La Salina. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797246_1_20250325082707.jpg&q=90)
+  
+
+US President Donald Trump announced on Monday steep tariffs on imports from countries buying Venezuelan oil and gas, a punitive measure that could hit China and India, among others, and sow fresh global trade uncertainty.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm)
+
+---
+
 # US stocks rally on tariff optimism
 
 ![The three main US indices rose on hopes that US President Donald Trump may dial down upcoming tariffs. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797239_1_20250325062931.jpg&q=90)
@@ -1414,29 +1438,5 @@ Two people including a girl were killed in an Israeli attack on a southern Leban
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm)
-
----
-
-# Pope to make first public appearance since illness
-
-![The pontiff was admitted to Rome's Gemelli Hospital on February 14 with breathing difficulties. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796947_1_20250322191242.jpg&q=85)
-  
-
-Pope Francis will make his first public appearance on Sunday with a blessing and a wave from a window at Rome's Gemelli Hospital where he was admitted on February 14.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm)
 
 ---

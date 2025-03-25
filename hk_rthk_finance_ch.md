@@ -1,3 +1,123 @@
+# 融創服務去年虧損擴大約4%　核心盈利基本持平
+
+![融創服務去年虧損4.5億元人民幣，虧損按年擴大約4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797247_1_20250325081626.jpg&q=80)
+  
+
+融創服務去年虧損4.5億元人民幣，虧損按年擴大約4%。錄得虧損，因為出於謹慎考量，對關聯方貿易及其他應收款項計提減值撥備。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797247-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797247-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797247-20250325.htm)
+
+---
+
+# 現代汽車擬在美國投資210億美元　興建鋼鐵廠及提高汽車產能
+
+![現代汽車計劃在美國投資210億美元，包括在路易斯安那州新建一座斥資58億美元的鋼鐵廠。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797243_1_20250325080328.jpg&q=90)
+  
+
+南韓現代汽車宣布，計劃在美國投資210億美元，包括在路易斯安那州新建一座斥資58億美元的鋼鐵廠，每年將生產超過270萬噸鋼材，創造1400多個職位，這個鋼鐵廠預計將為阿拉巴馬州及喬治亞州的車廠供應鋼材。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm)
+
+---
+
+# 韓股初段升0.5%
+
+![首爾綜合指數較早時報2645點，升13點，升幅0.51%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797245_1_20250325080609.jpg&q=85)
+  
+
+南韓股市早段靠穩，首爾綜合指數較早時報2645點，升13點，升幅0.51%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797245-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797245-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797245-20250325.htm)
+
+---
+
+# 日股初段升逾1%　重上38000點
+
+![日經指數重上38000點水平，較早時報38069點，升461點，升幅1.23%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797244_1_20250325080516.jpg&q=75)
+  
+
+日股初段跟隨隔夜美股造好，重上38000點水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797244-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797244-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797244-20250325.htm)
+
+---
+
+# 特朗普敦促聯儲局減息　博斯蒂克料今年只會減息1次
+
+![博斯蒂克預計，未來數月通脹進展將放緩，因此預料今年聯儲局只會減息1次。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797242_1_20250325073112.jpg&q=85)
+  
+
+美國總統特朗普較早時再次敦促聯儲局減息，他在白宮與內閣會面時表示，希望見到聯儲局降低利率。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm)
+
+---
+
 # 小米折讓近7%配股集資426億元
 
 ![小米計劃以先舊後新形式配股集資426億元，每股配售價53.25元，較昨日收市價折讓約6.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797240_1_20250325070145.jpg&q=90)
@@ -1317,125 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797078-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797078-20250324.htm)
-
----
-
-# 中石化去年盈利跌16%　創4年新低
-
-![按國際財務報告準則，中石化去年盈利489.4億元人民幣，按年跌16%，創4年新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797076_1_20250324055906.jpg&q=90)
-  
-
-中石化公布，按國際財務報告準則，去年盈利489.4億元人民幣，按年跌16%，創4年新低。期內，營業收入約3.075萬億元，按年跌逾4%，是3年來最少收入，由於成品油等產品價格及銷量下降。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797076-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797076-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797076-20250324.htm)
-
----
-
-# 美股本周焦點於PCE物價指數及經濟增長數據
-
-![美股本周焦點在於美國去年第4季經濟增長、PCE物價指數等數據。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797073_1_20250324054235.jpg&q=90)
-  
-
-美股3大指數上星期累計都止跌回升，升幅介乎近0.2%至1.2%，道指升幅最大，創兩個月以來最大單星期升幅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797073-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797073-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797073-20250324.htm)
-
----
-
-# 李強：沒哪個國家的繁榮靠加關稅實現　只能靠開放靠合作
-
-![李強會見美國國會參議員戴安斯及部分美國企業界人士。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797068_1_20250324031706.jpg&q=80)
-  
-
-國務院總理李強昨日在北京人民大會堂，會見來華出席中國發展高層論壇年會的美國國會參議員戴安斯，以及部分美國企業界人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm)
-
----
-
-# 渣打集團：中國相關業務迎來更廣闊機遇
-
-![溫拓思說中國經濟發展態勢向好、科技實力顯著提升、企業出海步伐提速。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797057_1_20250323225756.jpg&q=40)
-  
-
-渣打集團行政總裁溫拓思說，中國經濟發展態勢向好、科技實力顯著提升、企業出海步伐提速，渣打集團中國相關業務迎來更廣闊機遇，將持續深耕中國市場，拓展投資和運營。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm)
-
----
-
-# 滙豐艾橋智：供應鏈和產業鏈是促進中國及全球貿易增長基石
-
-![艾橋智提到，供應鏈和產業鏈發展是促進中國乃至全球貿易持續增長的基石。（滙豐資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797043_1_20250323201330.jpg&q=90)
-  
-
-滙豐行政總裁艾橋智出席在北京舉辦的中國發展高層論壇2025年年會。他表示，中國正進行的經濟轉型，創造了大量新的發展機遇，電動汽車、可再生能源、生物科技等領域的新動能表現亮眼，不單為經濟發展增值，也為出口提供了新的增長點，相信中國在今年及未來5年將繼續為世界經濟增長提供動力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797043-20250323.htm)
 
 ---

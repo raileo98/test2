@@ -1,3 +1,146 @@
+# 融創服務去年虧損擴大約4%　核心盈利基本持平
+
+![融創服務去年虧損4.5億元人民幣，虧損按年擴大約4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797247_1_20250325081626.jpg&q=80)
+  
+
+融創服務去年虧損4.5億元人民幣，虧損按年擴大約4%。錄得虧損，因為出於謹慎考量，對關聯方貿易及其他應收款項計提減值撥備。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797247-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797247-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797247-20250325.htm)
+
+---
+
+# 現代汽車擬在美國投資210億美元　興建鋼鐵廠及提高汽車產能
+
+![現代汽車計劃在美國投資210億美元，包括在路易斯安那州新建一座斥資58億美元的鋼鐵廠。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797243_1_20250325080328.jpg&q=90)
+  
+
+南韓現代汽車宣布，計劃在美國投資210億美元，包括在路易斯安那州新建一座斥資58億美元的鋼鐵廠，每年將生產超過270萬噸鋼材，創造1400多個職位，這個鋼鐵廠預計將為阿拉巴馬州及喬治亞州的車廠供應鋼材。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm)
+
+---
+
+# 韓股初段升0.5%
+
+![首爾綜合指數較早時報2645點，升13點，升幅0.51%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797245_1_20250325080609.jpg&q=85)
+  
+
+南韓股市早段靠穩，首爾綜合指數較早時報2645點，升13點，升幅0.51%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797245-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797245-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797245-20250325.htm)
+
+---
+
+# 日股初段升逾1%　重上38000點
+
+![日經指數重上38000點水平，較早時報38069點，升461點，升幅1.23%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797244_1_20250325080516.jpg&q=75)
+  
+
+日股初段跟隨隔夜美股造好，重上38000點水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797244-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797244-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797244-20250325.htm)
+
+---
+
+# 美眾議長稱特朗普政府確認記者無意中被加入高官群組屬錯誤
+
+  
+
+美國國會眾議院議長、共和黨籍的約翰遜表示，在記者無意中被加入高官通訊群組的事件上，總統特朗普政府確認是一個錯誤，但他認為確實見到白宮高層官員正在履行職責，而且做得很好。約翰遜又說政府正應對及追查事件，確保不再發生同類情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797248-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797248-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797248-20250325.htm)
+
+---
+
+# 特朗普敦促聯儲局減息　博斯蒂克料今年只會減息1次
+
+![博斯蒂克預計，未來數月通脹進展將放緩，因此預料今年聯儲局只會減息1次。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797242_1_20250325073112.jpg&q=85)
+  
+
+美國總統特朗普較早時再次敦促聯儲局減息，他在白宮與內閣會面時表示，希望見到聯儲局降低利率。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm)
+
+---
+
 # 小米折讓近7%配股集資426億元
 
 ![小米計劃以先舊後新形式配股集資426億元，每股配售價53.25元，較昨日收市價折讓約6.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797240_1_20250325070145.jpg&q=90)
@@ -1290,149 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm)
-
----
-
-# 在岸人民幣低收31點子　創2個星期新低
-
-![在岸人民幣收市創2個星期新低，收報7.252兌1美元，較上周五跌31點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797170_1_20250324170551.jpg&q=80)
-  
-
-在岸人民幣收市創2個星期新低，報7.252兌1美元，較上周五跌31點子。中間價報7.178兌1美元，跌20點子，創逾2個月低位，與市場預測偏離擴大至逾700點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797170-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797170-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797170-20250324.htm)
-
----
-
-# 英國首次發現有羊感染H5N1禽流感
-
-![英國首次發現有羊感染H5N1禽流感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797171_1_20250324171449.jpg&q=90)
-  
-
-英國首次發現有羊感染H5N1禽流感。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797171-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797171-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797171-20250324.htm)
-
----
-
-# 63歲有長期病患男子感染退伍軍人病　潛伏期曾乘郵輪
-
-![衞生防護中心正展開流行病學調查，以找出可能的感染源頭、高風險接觸因素和是否出現群組個案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797175_1_20250324173302.jpg&q=80)
-  
-
-衞生防護中心公布，本月16至22日期間錄得1宗輸入退伍軍人病個案，涉及63歲男病人，有長期病患，於潛伏期內曾乘搭郵輪及到印度尼西亞、菲律賓及台灣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797175-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797175-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797175-20250324.htm)
-
----
-
-# 美俄代表團在沙特舉行會談　料討論黑海海上停火
-
-![美國白宮國家安全顧問華爾茲較早時說，美方將會討論黑海海上停火。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797172_1_20250324170849.jpg&q=90)
-  
-
-美國與俄羅斯的代表團在沙特阿拉伯首都利雅得舉行會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797172-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797172-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797172-20250324.htm)
-
----
-
-# 中石化：今年保持高強度投資　「增儲上產」力度不減
-
-![趙東稱現時俄羅斯原油價格與其他地方相若。向俄羅斯採購原油時將確保規範運作。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797173_1_20250324171111.jpg&q=90)
-  
-
-中石化去年盈利489.4億元人民幣，按年跌16%，創4年新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797173-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797173-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797173-20250324.htm)
-
----
-
-# 康師傅去年多賺近20%　末期息及特別息多派近20%
-
-![康師傅去年盈利37.3億元人民幣，按年升近20%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797168_1_20250324163733.jpg&q=85)
-  
-
-康師傅公布，去年盈利37.3億元人民幣，按年升近20%。派末期息每股0.3314元人民幣，另派特別息每股0.3314元人民幣，兩者按年都升近20%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797168-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797168-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797168-20250324.htm)
 
 ---
