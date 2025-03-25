@@ -1,3 +1,51 @@
+# 農夫山泉去年盈利微升0.4%　毛利率收窄1.4個百分點
+
+![農夫山泉去年盈利121.2億元人民幣，按年微升0.4%。派末期息每股0.76元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797354_1_20250325192146.jpg&q=80)
+  
+
+農夫山泉公布，去年盈利121.2億元人民幣，按年微升0.4%。派末期息每股0.76元人民幣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797354-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797354-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797354-20250325.htm)
+
+---
+
+# 信德集團去年虧損擴大近22%
+
+![信德集團去年虧損8.24億元，按年擴大近22%。不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797352_1_20250325190842.jpg&q=90)
+  
+
+信德集團公布，去年虧損8.24億元，按年擴大近22%。不派末期息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797352-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797352-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797352-20250325.htm)
+
+---
+
 # 招商銀行去年多賺1.2%　末期息每股2元人民幣
 
 ![招商銀行去年盈利1483.9億元人民幣，按年增長1.22%。派末期息每股2元人民幣，按年增加1.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797350_1_20250325185817.jpg&q=90)
