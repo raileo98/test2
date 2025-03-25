@@ -1,3 +1,74 @@
+# 人民幣兌美元中間價跌8點子　再創逾兩個月新低
+
+![人民幣中間價報7.1788兌1美元，較昨日收市價跌8點子，再創逾兩個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797255_1_20250325092029.jpg&q=85)
+  
+
+人民幣中間價報7.1788兌1美元，較昨日收市價跌8點子，再創逾兩個月新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797255-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797255-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797255-20250325.htm)
+
+---
+
+# 委內瑞拉面對美方涉能源關稅　中國是委内瑞拉石油最大買家
+
+  
+
+美國總統特朗普表示，汽車關稅即將來臨，但並非所有他打算要徵收的關稅，都要在4月2日實施，部分國家可獲減免，但他未有提供細節。市場認為特朗普對關稅措施展現靈活性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm)
+
+---
+
+# 台股初段升逾1%
+
+![加權指數較早時報22365點，升258點，升幅1.17%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797252_1_20250325090210.jpg&q=90)
+  
+
+台股初段升逾1%，加權指數較早時報22365點，升258點，升幅1.17%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797252-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797252-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797252-20250325.htm)
+
+---
+
 # 融創服務去年虧損擴大約4%　核心盈利基本持平
 
 ![融創服務去年虧損4.5億元人民幣，虧損按年擴大約4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797247_1_20250325081626.jpg&q=80)
@@ -1361,77 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm)
-
----
-
-# 桌球網球未來兩年續為A級精英項目　精英運動員資助增8.3%
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797182_1_20250324174300.jpg&q=90)
-  
-
-政府宣布，桌球及網球未來兩年，將繼續保留為體育學院「A級」精英項目；另外，所有精英運動員的直接資助，會上調8.3%，今年4月1日起生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797182-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797182-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797182-20250324.htm)
-
----
-
-# 消息：公院醫療費擬設收費上限按年計算　超出上限可申請減免
-
-![據了解，改革急症室收費後，預料較集中處理重症個案，急症室成本將增加。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797179_1_20250324173222.jpg&q=80)
-  
-
-政府明日公布公營醫療服務收費改革詳情。消息人士指，新收費最快明年1月起分3階段實施，期望5年時間可以完成改革，每兩年檢討一次。據悉，其中急症室只有一個收費，有關收費會比現時高，危殆及危急病人可獲豁免，希望藉此減少接收輕症個案，將更多資源投放治療危急重症。據了解，改革急症室收費後，預料較集中處理重症個案，急症室成本將增加。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797179-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797179-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797179-20250324.htm)
-
----
-
-# 分析料內地四大行去年盈利按年持平　上季表現按季表現較好
-
-![分析預計內銀今年盈利表現要視乎LPR走勢，估計仍有向下空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797177_1_20250324172340.jpg&q=85)
-  
-
-內地四大國有銀行本周陸續公布去年業績。富瑞中國經濟學家、中國金融地產行業首席分析師陳姝瑾估計，四大行去年盈利按年持平，單計去年第4季的表現略好過第3季度，受到債券投資收益帶動。她相信，季內淨息差按年跌幅不大，但按季就相對明顯，主要受到存量房貸利率及貸款市場報價利率（LPR）下行影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797177-20250324.htm)
 
 ---

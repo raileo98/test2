@@ -1,3 +1,27 @@
+# 'Trump's fees on Chinese ships will backfire'
+
+![A container ship sails beneath the Golden Gate Bridge as it makes its way into port in San Francisco. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797249_1_20250325083906.jpg&q=90)
+  
+
+President Donald Trump's plan to revitalise the US shipbuilding industry is likely to backfire because it relies on proposed fees on China-linked vessels that will hurt domestic ship operators, seaports, exporters and jobs, industry executives said at US Trade Representative hearings on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm)
+
+---
+
 # US stocks rally on tariff optimism
 
 ![The three main US indices rose on hopes that US President Donald Trump may dial down upcoming tariffs. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797239_1_20250325062931.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong's stock market ended lower on Friday with the benchmark Hang Seng Inde
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794768-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794768-20250307.htm)
-
----
-
-# China export growth slows, imports fall
-
-![Chinese exports climb 2.3 percent in the first two months of the year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794761_1_20250307171431.jpg&q=90)
-  
-
-China's export growth grew slower than expected in the first two months of this year while imports fell sharply, amid escalating trade tensions between the world's two biggest economies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm](https://news.rthk.hk/rthk/en/component/k2/1794761-20250307.htm)
 
 ---

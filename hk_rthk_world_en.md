@@ -1,3 +1,51 @@
+# 'Trump's fees on Chinese ships will backfire'
+
+![A container ship sails beneath the Golden Gate Bridge as it makes its way into port in San Francisco. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797249_1_20250325083906.jpg&q=90)
+  
+
+President Donald Trump's plan to revitalise the US shipbuilding industry is likely to backfire because it relies on proposed fees on China-linked vessels that will hurt domestic ship operators, seaports, exporters and jobs, industry executives said at US Trade Representative hearings on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm)
+
+---
+
+# Procedural matters cloud first day of Depardieu trial
+
+![French actor Gerard Depardieu (centre) leaves the courtroom with his daughter Roxane Depardieu. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797251_1_20250325085514.jpg&q=90)
+  
+
+The tense first day of the trial of French actor Gerard Depardieu over sexual assault allegations ended on Monday (March 24) with both sides trading jabs on their approach to the legal procedure.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm)
+
+---
+
 # New Trump Venezuelan oil tariff could hit China
 
 ![An oil tanker near the Venezuelan port of La Salina. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797246_1_20250325082707.jpg&q=90)
@@ -1388,53 +1436,5 @@ Israel's resumption of strikes on the Gaza Strip is a major step in the wrong di
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796484-20250319.htm)
-
----
-
-# UK teen who planned school massacre gets 49 years
-
-![Nicholas Prosper "wanted to be known posthumously as the world's most famous school shooter." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796483_1_20250319221939.jpg&q=90)
-  
-
-A UK teenager who killed three family members and planned to outdo notorious US massacres to become "the world's most famous school shooter of the 21st century" was on Wednesday jailed for a minimum of 49 years.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796483-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796483-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796483-20250319.htm)
-
----
-
-# Turkish markets hit by arrest of Erdogan's rival
-
-![Supporters and municipality workers hold a rally in Istanbul in support of mayor Ekrem Imamoglu following his arrest. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796448_1_20250319175032.jpg&q=90)
-  
-
-Turkey's lira fell 12.7 percent and touched a new all-time low of 42 to the dollar on Wednesday, with bonds and stocks also tumbling sharply, after authorities detained President Tayyip Erdogan's main political rival.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796448-20250319.htm)
 
 ---

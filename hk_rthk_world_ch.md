@@ -1,3 +1,26 @@
+# 委內瑞拉面對美方涉能源關稅　中國是委内瑞拉石油最大買家
+
+  
+
+美國總統特朗普表示，汽車關稅即將來臨，但並非所有他打算要徵收的關稅，都要在4月2日實施，部分國家可獲減免，但他未有提供細節。市場認為特朗普對關稅措施展現靈活性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm)
+
+---
+
 # 現代汽車擬在美國投資210億美元　興建鋼鐵廠及提高汽車產能
 
 ![現代汽車計劃在美國投資210億美元，包括在路易斯安那州新建一座斥資58億美元的鋼鐵廠。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797243_1_20250325080328.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797011-20250323.htm)
-
----
-
-# 南韓多地接連發生大規模山火　造成4死6傷　逾千人疏散
-
-![南韓多地的山火持續蔓延，當局出動直升機協助滅火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797010_1_20250323115116.jpg&q=90)
-  
-
-南韓多地接連發生大規模山火，至今造成4人死亡，6人受傷，其中5人傷勢嚴重，另外大約1500人疏散。山林廳上調針對忠清南道、全羅道、慶尚道的國家森林火災危機預警至最高的嚴重級別，政府宣布慶尚南道、慶尚北道、蔚山市進入災難狀態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797010-20250323.htm)
 
 ---

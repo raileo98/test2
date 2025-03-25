@@ -1,3 +1,74 @@
+# 人民幣兌美元中間價跌8點子　再創逾兩個月新低
+
+![人民幣中間價報7.1788兌1美元，較昨日收市價跌8點子，再創逾兩個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797255_1_20250325092029.jpg&q=85)
+  
+
+人民幣中間價報7.1788兌1美元，較昨日收市價跌8點子，再創逾兩個月新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797255-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797255-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797255-20250325.htm)
+
+---
+
+# 委內瑞拉面對美方涉能源關稅　中國是委内瑞拉石油最大買家
+
+  
+
+美國總統特朗普表示，汽車關稅即將來臨，但並非所有他打算要徵收的關稅，都要在4月2日實施，部分國家可獲減免，但他未有提供細節。市場認為特朗普對關稅措施展現靈活性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm)
+
+---
+
+# 台股初段升逾1%
+
+![加權指數較早時報22365點，升258點，升幅1.17%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797252_1_20250325090210.jpg&q=90)
+  
+
+台股初段升逾1%，加權指數較早時報22365點，升258點，升幅1.17%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797252-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797252-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797252-20250325.htm)
+
+---
+
 # 融創服務去年虧損擴大約4%　核心盈利基本持平
 
 ![融創服務去年虧損4.5億元人民幣，虧損按年擴大約4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797247_1_20250325081626.jpg&q=80)
@@ -139,6 +210,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797240-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797240-20250325.htm)
+
+---
+
+# 《環看天下》：希斯路機場一度關閉　基建後備設施不足惹質疑
+
+![希斯路機場附近一個變電站日前發生火警，影響機場供電。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797241_1_20250325071115.jpg&q=90)
+  
+
+英國倫敦希斯路機場上星期五因附近一個變電站發生大火導致停電，一度暫停運作10多小時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm)
 
 ---
 
@@ -286,6 +381,102 @@
 
 ---
 
+# 特朗普：或向多國提供關稅優惠　但需要實現對等
+
+![特朗普說，未來數日將會宣布涉及汽車、木材、晶片等產品的關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797233_1_20250325055421.jpg&q=85)
+  
+
+美國總統特朗普表示，隨著4月2日對等關稅生效日期臨近，他可能會向很多國家提供關稅優惠，但需要實現對等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm)
+
+---
+
+# 特朗普料美烏很快簽署礦產協議　雙方討論美企擁有烏國發電站可能
+
+![特朗普說，有些人認為美國具有專業知識，應該擁有烏克蘭的發電站。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797226_1_20250325034304.jpg&q=90)
+  
+
+美國總統特朗普預計，美國與烏克蘭很快會簽署關於分享當地關鍵礦產收入的協議，雙方亦正討論由美國企業擁有烏克蘭發電站的可能性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm)
+
+---
+
+# 國泰稱將完全遵從外置充電器更新指引　會向顧客清晰傳達要求
+
+![國泰航空表示，認同民航處就航班上攜帶鋰電池外置充電器的最新指引。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797222_1_20250325012347.jpg&q=90)
+  
+
+民航處宣布，下月7日起，乘客不得在航班上使用外置充電器，為其他便攜式電子裝置或外置充電器充電，以及不得把外置充電器放置於行李架上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm)
+
+---
+
+# 特朗普宣布將對購買委內瑞拉油氣的國家徵收25%關稅
+
+![特朗普經常指責拉美國家向美國輸送犯罪分子。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797220_1_20250325003813.jpg&q=90)
+  
+
+美國總統特朗普宣布，將會對購買委內瑞拉石油和天然氣的國家徵收25%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm)
+
+---
+
 # 王文濤晤蘋果行政總裁　支持外企產品公平參與以舊換新擴消費政策
 
 ![商務部部長王文濤會見美國蘋果公司行政總裁庫克。（商務部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797219_1_20250325001521.jpg&q=90)
@@ -307,6 +498,54 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm)
+
+---
+
+# 大熊貓福寶周二於卧龍神樹坪基地與公眾見面
+
+![福寶將於星期二在卧龍神樹坪基地幼兒園2號館與公眾見面。（研究中心影片截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797217_1_20250324231243.jpg&q=90)
+  
+
+中國大熊貓保護研究中心宣布，經過100多日靜養，大熊貓福寶將於星期二在卧龍神樹坪基地幼兒園2號館與公眾見面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm)
+
+---
+
+# 霍啟剛歡迎當局彈性處理調整精英體育資助制度
+
+![霍啟剛表示，歡迎當局今次彈性處理，調整精英體育資助制度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797215_1_20250324225435.jpg&q=80)
+  
+
+港協暨奧委會副會長霍啟剛表示，近年香港運動員在桌球和網球國際賽事的成績非常好，歡迎當局今次彈性處理，調整精英體育資助制度，讓這兩個項目在未來兩年繼續成為體育學院的「A級」精英項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm)
 
 ---
 
@@ -1196,246 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797094-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797094-20250324.htm)
-
----
-
-# 人民幣兌美元中間價創逾兩個月新低
-
-![人民幣中間價報7.178兌1美元，較上星期五收市價跌20點子，創逾兩個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797091_1_20250324091847.jpg&q=80)
-  
-
-人民幣中間價報7.178兌1美元，較上星期五收市價跌20點子，創逾兩個月新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797091-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797091-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797091-20250324.htm)
-
----
-
-# 林奮強指政府醫療開支大達臨界點　醫生組織冀當局多作解說免爭拗
-
-![龍振邦亦認為，有需要調整收費，否則服務難以維持。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797092_2_20250324092545.jpg&q=80)
-![消息指，政府目標本月內公布公營醫療收費調整方案細節。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797092_3_20250324092545.jpg&q=80)
-  
-
-政府目標本月內公布公營醫療收費調整方案細節。醫管局管治及架構改革委員會成員林奮強指出，現時政府補貼佔整個醫管局支出超過97%，重申改革收費目的為盡量精準利用有限資源，提高對重症危疾的保障。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm)
-
----
-
-# 綠城中國開市前停牌
-
-![綠城中國今早9時起停牌，股份上周五收市報12.08元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797090_1_20250324090837.jpg&q=90)
-  
-
-綠城中國今早9時起停牌，股份上周五收市報12.08元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797090-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797090-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797090-20250324.htm)
-
----
-
-# 台股初段升逾百點
-
-![加權指數較早時報22366點，升156點，升幅0.71%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797089_1_20250324090454.jpg&q=90)
-  
-
-台股初段造好，加權指數較早時報22366點，升156點，升幅0.71%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797089-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797089-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797089-20250324.htm)
-
----
-
-# 韓股初段跌約0.2%
-
-![首爾綜合指數較早時報2638點，跌4點，跌幅0.16%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797088_1_20250324083329.jpg&q=90)
-  
-
-南韓股市初段偏軟，首爾綜合指數較早時報2638點，跌4點，跌幅0.16%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797088-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797088-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797088-20250324.htm)
-
----
-
-# 日股倒跌　回吐早段逾160點升幅
-
-![日經指數開市後曾升至37841點，升逾160點，較早時倒跌25點，報37651點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797087_1_20250324083245.jpg&q=85)
-  
-
-日股先升後回，日經指數開市後曾升至37841點，升逾160點，較早時倒跌25點，報37651點，跌幅0.07%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797087-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797087-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797087-20250324.htm)
-
----
-
-# 中原周末十大屋苑二手成交減至8宗　美聯增至12宗
-
-![中原及美聯周末十大屋苑二手成交個別發展，中原減至8宗，美聯則增至12宗，創4個周末新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797084_1_20250324075913.jpg&q=85)
-  
-
-在剛過去周末，本港兩大地產代理十大屋苑二手成交個別發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797084-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797084-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797084-20250324.htm)
-
----
-
-# 招金礦業折讓近6%配股集資近20億元
-
-![招金礦業擬折讓約5.9%，配股集資逾19.8億元，用於補充營運資金及償還銀行貸款。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797083_1_20250324075039.jpg&q=85)
-  
-
-招金礦業擬配售最多1.4億股新H股，佔經擴大後已發行股份約3.95%，佔經擴大後已發行H股4.86%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797083-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797083-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797083-20250324.htm)
-
----
-
-# 國藥控股去年盈利跌22%　收入減少2%
-
-![國藥控股去年盈利70.5億元人民幣，按年跌22%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797080_1_20250324073303.jpg&q=80)
-  
-
-國藥控股去年盈利70.5億元人民幣，按年跌22%。派末期息每股0.68元，按年減少21.8%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797080-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797080-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797080-20250324.htm)
-
----
-
-# 紫金礦業去年多賺約52%　營業收入升3.5%
-
-![紫金礦業去年盈利320.5億元人民幣，按年升約52%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797078_1_20250324070315.jpg&q=90)
-  
-
-紫金礦業去年盈利320.5億元人民幣，按年升約52%。每10股派現金股息2.8元，派息比率31.5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797078-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797078-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797078-20250324.htm)
 
 ---

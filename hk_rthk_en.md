@@ -1,3 +1,51 @@
+# 'Trump's fees on Chinese ships will backfire'
+
+![A container ship sails beneath the Golden Gate Bridge as it makes its way into port in San Francisco. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797249_1_20250325083906.jpg&q=90)
+  
+
+President Donald Trump's plan to revitalise the US shipbuilding industry is likely to backfire because it relies on proposed fees on China-linked vessels that will hurt domestic ship operators, seaports, exporters and jobs, industry executives said at US Trade Representative hearings on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm)
+
+---
+
+# Procedural matters cloud first day of Depardieu trial
+
+![French actor Gerard Depardieu (centre) leaves the courtroom with his daughter Roxane Depardieu. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797251_1_20250325085514.jpg&q=90)
+  
+
+The tense first day of the trial of French actor Gerard Depardieu over sexual assault allegations ended on Monday (March 24) with both sides trading jabs on their approach to the legal procedure.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm)
+
+---
+
 # New Trump Venezuelan oil tariff could hit China
 
 ![An oil tanker near the Venezuelan port of La Salina. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797246_1_20250325082707.jpg&q=90)
@@ -1390,53 +1438,5 @@ Palestinian president Mahmoud Abbas's Fatah movement called on its Islamist riva
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796966-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796966-20250322.htm)
-
----
-
-# Four killed in South Korea wildfire
-
-![Helicopters battle the wildfire that broke out in the southeastern county of Sancheong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796964_1_20250322212803.jpg&q=90)
-  
-
-At least three firefighters and a public servant have been killed in a wildfire in South Korea, prompting the government to declare a state of emergency in southeastern regions, authorities said on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm)
-
----
-
-# Girl among two killed in Israel strikes on Lebanon
-
-![Smoke rises after an Israeli strike on the southern Lebanese village of Touline. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796954_1_20250322202858.jpg&q=90)
-  
-
-Two people including a girl were killed in an Israeli attack on a southern Lebanese town on Saturday, state media reported, after Israel launched air strikes in response to cross-border rocket fire.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm)
 
 ---
