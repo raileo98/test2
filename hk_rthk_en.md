@@ -48,7 +48,7 @@ Chewing gum releases hundreds of tiny plastic pieces straight into people's mout
 
 # Boao forum offers upbeat forecast on Asia growth
 
-![Zhang Jun, secretary general of the Boao Forum for Asia, says Asia will continue to see robust economic growth for this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797323_1_20250325164614.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797323_1_20250325164614.jpg&q=80)
   
 
 Asia's economy is likely to continue its robust growth this year despite challenges, according to a report by the Boao Forum for Asia.
