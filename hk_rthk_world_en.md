@@ -1,3 +1,51 @@
+# Oscar-winning Palestinian filmmaker arrested by IDF
+
+![According to Jewish American activists who witnessed the attack, Hamdan Ballal was surrounded and attacked by settlers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797302_2_20250325135917.jpg&q=90)
+  
+
+The Palestinian co-director of the Oscar-winning documentary "No Other Land", Hamdan Ballal, was attacked by settlers and arrested by the Israeli army on Monday in the occupied West Bank, according to his co-director Yuval Abraham.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797302-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797302-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797302-20250325.htm)
+
+---
+
+# Giant sinkhole swallows motorcyclist in Seoul
+
+![The body of the motorcyclist was found buried 90 centimetres in the sinkhole. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797301_1_20250325135606.jpg&q=70)
+  
+
+One person has been killed after a massive sinkhole opened up in Seoul, the fire department said on Tuesday, with harrowing video footage showing the moment his vehicle was swallowed by the hole.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797301-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797301-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797301-20250325.htm)
+
+---
+
 # Tesla sales fall off a cliff in Europe
 
 ![A woman encourages people outside the Tesla Centre Park Royal in London to boycott the electric vehicle giant. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797297_1_20250325132757.jpg&q=90)
@@ -19,30 +67,6 @@ European sales of Tesla electric cars dropped 49 percent in January and February
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm)
-
----
-
-# Tariffs crunch looms for buyers of Venezuelan oil
-
-![Buyers of Venezuelan oil and gas exports such as China are likely to switch to Russian supplies as a result of Donald Trump's latest executive order. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797281_1_20250325114524.jpg&q=80)
-  
-
-US President Donald Trump has issued an executive order declaring that any country buying oil or gas from Venezuela will pay a 25 percent tariff on trades with the United States, while his administration extended a deadline for US producer Chevron to wind down operations in the South American country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797281-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797281-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797281-20250325.htm)
 
 ---
 
@@ -1412,29 +1436,5 @@ US President Donald Trump is expected to sign an order on Thursday aiming to dis
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796539-20250320.htm)
-
----
-
-# Chile reviews Chinese observatory plans
-
-![Chile is home to the world's darkest skies and numerous other observatories. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796533_1_20250320084807.jpg&q=90)
-  
-
-Chile said on Wednesday it was reviewing an agreement for the construction of a Chinese astronomical observatory on its soil, a project that has drawn criticism from Washington as it jostles with Beijing for influence in Latin America.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm)
 
 ---

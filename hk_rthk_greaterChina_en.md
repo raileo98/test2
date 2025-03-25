@@ -1,27 +1,3 @@
-# Tariffs crunch looms for buyers of Venezuelan oil
-
-![Buyers of Venezuelan oil and gas exports such as China are likely to switch to Russian supplies as a result of Donald Trump's latest executive order. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797281_1_20250325114524.jpg&q=80)
-  
-
-US President Donald Trump has issued an executive order declaring that any country buying oil or gas from Venezuela will pay a 25 percent tariff on trades with the United States, while his administration extended a deadline for US producer Chevron to wind down operations in the South American country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797281-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797281-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797281-20250325.htm)
-
----
-
 # Chinese staff of US due diligence firm freed
 
 ![Mintz Group's office in Beijing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797274_1_20250325111046.jpg&q=90)
@@ -1435,5 +1411,29 @@ Each Legislative Council election should be better than the previous one, accord
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm)
+
+---
+
+# 'Capitalise on One Country, Two Systems'
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794963_2_20250309115720.jpg&q=75)
+  
+
+Hong Kong and Macau delegates to the country's top political advisory body said the two SARs should make good use of their advantages under the One Country, Two Systems principle.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm)
 
 ---
