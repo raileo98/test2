@@ -214,12 +214,12 @@ The tense first day of the trial of French actor Gerard Depardieu over sexual as
 
 ---
 
-# New Trump Venezuelan oil tariff could hit China
+# Venezuelan oil tariffs condemned as 'illegal'
 
 ![An oil tanker near the Venezuelan port of La Salina. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797246_1_20250325082707.jpg&q=90)
   
 
-US President Donald Trump announced on Monday steep tariffs on imports from countries buying Venezuelan oil and gas, a punitive measure that could hit China and India, among others, and sow fresh global trade uncertainty.
+The Foreign Ministry in Beijing on Tuesday called on the United States to stop interfering in Venezuela's internal affairs and abolish the "illegal" unilateral sanctions on the South American country.
 
   
 

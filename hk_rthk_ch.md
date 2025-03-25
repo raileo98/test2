@@ -1,3 +1,27 @@
+# 滙控預計將加倍投資在亞洲和中東投資銀行業務
+
+![艾橋智形容滙控充滿動力，預計將重新分配15億美元資金到富有增長及優勢的領域。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797310_1_20250325152101.jpg&q=90)
+  
+
+滙豐控股行政總裁艾橋智表示，退出歐洲和美國的關鍵業務後，預計將加倍投資在亞洲和中東的投資銀行業務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797310-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797310-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797310-20250325.htm)
+
+---
+
 # 內地股市收市偏軟
 
 ![內地股市收市偏軟。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797309_1_20250325151147.jpg&q=90)

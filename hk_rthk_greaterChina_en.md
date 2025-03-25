@@ -1,3 +1,27 @@
+# Beijing looking to boost ties with Lisbon: Wang Yi
+
+![Wang Yi says China is willing to work with Portugal to promote China and Europe to become strategic partners with mutual trust. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797311_1_20250325152545.jpg&q=90)
+  
+
+Beijing is willing to work with Portugal to build a more stable, fruitful and dynamic relationship, Foreign Minister Wang Yi told his Portuguese counterpart in Beijing on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797311-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797311-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797311-20250325.htm)
+
+---
+
 # Chinese staff of US due diligence firm freed
 
 ![Mintz Group's office in Beijing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797274_1_20250325111046.jpg&q=90)
@@ -46,12 +70,12 @@ President Donald Trump's plan to revitalise the US shipbuilding industry is like
 
 ---
 
-# New Trump Venezuelan oil tariff could hit China
+# Venezuelan oil tariffs condemned as 'illegal'
 
 ![An oil tanker near the Venezuelan port of La Salina. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797246_1_20250325082707.jpg&q=90)
   
 
-US President Donald Trump announced on Monday steep tariffs on imports from countries buying Venezuelan oil and gas, a punitive measure that could hit China and India, among others, and sow fresh global trade uncertainty.
+The Foreign Ministry in Beijing on Tuesday called on the United States to stop interfering in Venezuela's internal affairs and abolish the "illegal" unilateral sanctions on the South American country.
 
   
 
@@ -1411,29 +1435,5 @@ Each Legislative Council election should be better than the previous one, accord
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm)
-
----
-
-# 'Capitalise on One Country, Two Systems'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794963_2_20250309115720.jpg&q=75)
-  
-
-Hong Kong and Macau delegates to the country's top political advisory body said the two SARs should make good use of their advantages under the One Country, Two Systems principle.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm)
 
 ---
