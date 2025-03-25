@@ -1,3 +1,26 @@
+# 社協憂公營醫療收費調整不利基層及夾心階層長期病患者
+
+  
+
+社區組織協會回應政府公布公營醫療服務收費改革，表示擔心收費調整不利基層市民及夾心階層的長期病患者，認為必須透過更全面的醫療收費減免制度，保障他們不因經濟困難而得不到適切治療。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797319-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797319-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797319-20250325.htm)
+
+---
+
 # 港股低收561點　比亞迪電子及舜宇挫近10%或以上
 
 ![恒生指數最多跌逾580點，收市報23344點，跌561點，跌幅2.35%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797317_1_20250325161756.jpg&q=90)
