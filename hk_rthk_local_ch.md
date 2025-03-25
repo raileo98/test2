@@ -1,5 +1,29 @@
+# 42歲男子上周六離開荃灣曹公街住所後失蹤
+
+  
+
+42歲男子李展文上星期六凌晨離開位於荃灣曹公街的住所後失蹤，家人昨日報案，警方呼籲市民提供消息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797313-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797313-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797313-20250325.htm)
+
+---
+
 # 公營醫療資助率將由97%降至90%　盧寵茂冀能者及輕症共付
 
+![盧寵茂重申改革是希望做到能者共付及輕症共付，以幫助更多貧急重危疾的病人。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797312_1_20250325154124.jpg&q=80)
   
 
 政府公布公營醫療服務收費改革方案，資助率預料由大約97%下降至5年後的90%。醫務衞生局局長盧寵茂表示，政府的承擔並無改變，相關收入同樣會投放到醫療範疇，重申改革是希望做到能者共付及輕症共付，以幫助更多貧急重危疾的病人。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797122-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797122-20250324.htm)
-
----
-
-# 公開展示商業夥伴個人資料　73歲男子涉違反私隱條例被捕
-
-![男子涉嫌在未經資料當事人的同意下，披露個人資料，違反《個人資料（私隱）條例》的規定。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797120_1_20250324120040.jpg&q=80)
-  
-
-個人資料私隱專員公署在港島區拘捕一名73歲中國籍男子，涉嫌在未經資料當事人的同意下，披露個人資料，違反《個人資料（私隱）條例》的規定，被捕人士獲准保釋。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797120-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797120-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797120-20250324.htm)
 
 ---
