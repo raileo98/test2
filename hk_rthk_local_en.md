@@ -1,4 +1,4 @@
-# 'Healthcare overhaul prioritises overall health'
+# 'Fee revamp prioritises patients' overall health'
 
 ![Experts say family doctors should educate patients about whether a visit to the accident and emergency unit is necessary. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797359_1_20250325203807.jpg&q=90)
   

@@ -1,3 +1,27 @@
+# 王毅：世界只能向前走　不能倒退回弱肉強食的叢林法則
+
+![王毅同葡萄牙國務部長兼外長蘭熱爾舉行中葡第二次外長級戰略對話。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797361_1_20250325204636.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅，同葡萄牙國務部長兼外長蘭熱爾舉行中葡第二次外長級戰略對話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm)
+
+---
+
 # 李家超在海南表示希望香港盡快加入區域全面經濟夥伴協定
 
 ![博鰲亞洲論壇2025年年會主題是「在世界變局中共創亞洲未來」。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797349_1_20250325185133.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796965-20250322.htm)
-
----
-
-# 王文濤晤寶馬董事長　指妥善解決歐盟電動車反補貼案具重要意義
-
-![王文濤說關稅戰、貿易戰只會雙輸；齊普策說歐洲綠色轉型離不開與中國合作。（商務部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796962_1_20250322211928.jpg&q=90)
-  
-
-商務部部長王文濤說，當前國際形勢複雜嚴峻，個別國家的單邊主義、保護主義做法，為全球經濟帶來較大不確定因素。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796962-20250322.htm)
 
 ---

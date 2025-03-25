@@ -1,3 +1,27 @@
+# 王毅：世界只能向前走　不能倒退回弱肉強食的叢林法則
+
+![王毅同葡萄牙國務部長兼外長蘭熱爾舉行中葡第二次外長級戰略對話。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797361_1_20250325204636.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅，同葡萄牙國務部長兼外長蘭熱爾舉行中葡第二次外長級戰略對話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm)
+
+---
+
 # 南韓首爾路陷造成一死一傷
 
 ![南韓首爾路陷造成一死一傷。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797358_1_20250325202247.jpg&q=60)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm)
-
----
-
-# 方濟各啟程返回梵蒂岡　出院前透過醫院病房窗口向信眾揮手致意
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797047_1_20250323193650.jpg&q=90)
-  
-
-因肺炎留醫羅馬傑梅利醫院的教宗方濟各，在醫院病房透過窗口，向信眾揮手致意，並送上祝福，是他入院5個多星期以來，首次公開露面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm)
 
 ---
