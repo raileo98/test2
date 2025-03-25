@@ -1,3 +1,27 @@
+# Deals reached on Ukraine maritime and energy truce
+
+![Ukrainian Defence Minister Rustem Umerov talks to reporters after US-Russia talks on a Ukraine ceasefire. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797401_1_20250326063126.jpg&q=90)
+  
+
+The United States reached deals on Tuesday with Ukraine and Russia to pause attacks at sea and against energy targets, with Washington agreeing to push to lift some sanctions against Moscow in its latest step towards endorsing Russia's positions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm)
+
+---
+
 # Depardieu denies 'groping' in sex abuse trial
 
 ![Gerard Depardieu, 76, has been accused of improper behaviour by around 20 women but this is the first case to come to trial. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797392_1_20250326035129.jpg&q=90)
@@ -1412,29 +1436,5 @@ Ex-Formula 1 team owner and media personality Eddie Jordan has died, according t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm)
-
----
-
-# Malaysia gives green light for new MH370 search
-
-![Relatives of passengers on board the missing MH370 leave after taking part in a demonstration outside the Malaysian embassy in Beijing on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796601_1_20250320142559.jpg&q=75)
-  
-
-Malaysia’s government has given final approval for a Texas-based marine robotics company to renew the search for Malaysia Airlines flight 370, which is believed to have crashed in the southern Indian Ocean more than a decade ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm)
 
 ---

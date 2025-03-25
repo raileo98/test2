@@ -1,3 +1,27 @@
+# 特朗普稱華爾茲不需為記者加入通訊群組道歉　民主黨人促官員辭職
+
+![特朗普認為華爾茲不需要道歉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797403_1_20250326063715.jpg&q=90)
+  
+
+美國一名記者無意中被加入華府高層討論打擊也門胡塞武裝行動的通訊群組的事件，引發外界對政府洩密的憂慮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797403-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797403-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797403-20250326.htm)
+
+---
+
 # 道指全日升4點　納指升約0.5%　關注關稅政策發展
 
 ![美股3大指數連升3日，創近3星期新高，但全日升幅有限。道瓊斯指數收市報42587點，升4點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797394_1_20250326054015.jpg&q=90)
@@ -1410,28 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm)
-
----
-
-# 陳翊庭：互聯互通助力內地耐心資本多元化配置
-
-  
-
-港交所行政總裁陳翊庭表示，自互聯互通機制推出後，內地投資者的耐心資本除了可投資於A股市場，亦可多元化配置到香港掛牌的股票，或交易所買賣基金（ETF）等資產。她提到，北水南下佔日均成交量的比重越來越大，由以往約12%至15%，去年升至近20%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797320-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797320-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797320-20250325.htm)
 
 ---

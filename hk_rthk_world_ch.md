@@ -1,3 +1,27 @@
+# 特朗普稱華爾茲不需為記者加入通訊群組道歉　民主黨人促官員辭職
+
+![特朗普認為華爾茲不需要道歉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797403_1_20250326063715.jpg&q=90)
+  
+
+美國一名記者無意中被加入華府高層討論打擊也門胡塞武裝行動的通訊群組的事件，引發外界對政府洩密的憂慮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797403-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797403-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797403-20250326.htm)
+
+---
+
 # 澤連斯基：莫斯科已試圖扭曲黑海航運及能源設施停火協議
 
 ![澤連斯基表示，莫斯科已試圖扭曲協議，實際上欺騙了烏俄的中間人和整個世界。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797393_1_20250326042026.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797075-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797075-20250324.htm)
-
----
-
-# 烏方形容與美方會談富有成效　澤連斯基籲向俄羅斯施壓
-
-![烏梅羅夫形容，會談富有成效。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797072_1_20250324051353.jpg&q=90)
-  
-
-美國與烏克蘭的代表團在沙特阿拉伯首都利雅得會談。烏克蘭國防部長烏梅羅夫會後在社交平台形容，會談富有成效，雙方討論到包括能源在內的關鍵問題，強調總統澤連斯基的目標，是確保烏克蘭及整個歐洲的公正和持久和平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797072-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797072-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797072-20250324.htm)
 
 ---

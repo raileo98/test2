@@ -1,3 +1,27 @@
+# Deals reached on Ukraine maritime and energy truce
+
+![Ukrainian Defence Minister Rustem Umerov talks to reporters after US-Russia talks on a Ukraine ceasefire. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797401_1_20250326063126.jpg&q=90)
+  
+
+The United States reached deals on Tuesday with Ukraine and Russia to pause attacks at sea and against energy targets, with Washington agreeing to push to lift some sanctions against Moscow in its latest step towards endorsing Russia's positions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm)
+
+---
+
 # US stocks make minor gains on tariff hopes
 
 ![Tuesday's market gains came despite US consumer confidence falling for a fourth straight month in March. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797399_1_20250326062321.jpg&q=90)
@@ -1417,29 +1441,5 @@ A lawmaker suggested on Monday that the ticketing platform Cityline deal with ex
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm)
-
----
-
-# Local art space takes Art Basel on vampire adventure
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797128_1_20250324121452.jpg&q=80)
-  
-
-Want to see vampires travelling through time and space? Local art space Para Site is turning Art Basel's film section into a sci-fi wonderland.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm)
 
 ---
