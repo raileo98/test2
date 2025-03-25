@@ -1,3 +1,26 @@
+# 公營醫療資助率將由97%降至90%　盧寵茂冀能者及輕症共付
+
+  
+
+政府公布公營醫療服務收費改革方案，資助率預料由大約97%下降至5年後的90%。醫務衞生局局長盧寵茂表示，政府的承擔並無改變，相關收入同樣會投放到醫療範疇，重申改革是希望做到能者共付及輕症共付，以幫助更多貧急重危疾的病人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm)
+
+---
+
 # 滙控預計將加倍投資在亞洲和中東投資銀行業務
 
 ![艾橋智形容滙控充滿動力，預計將重新分配15億美元資金到富有增長及優勢的領域。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797310_1_20250325152101.jpg&q=90)

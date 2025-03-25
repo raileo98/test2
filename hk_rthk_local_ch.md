@@ -1,3 +1,26 @@
+# 公營醫療資助率將由97%降至90%　盧寵茂冀能者及輕症共付
+
+  
+
+政府公布公營醫療服務收費改革方案，資助率預料由大約97%下降至5年後的90%。醫務衞生局局長盧寵茂表示，政府的承擔並無改變，相關收入同樣會投放到醫療範疇，重申改革是希望做到能者共付及輕症共付，以幫助更多貧急重危疾的病人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm)
+
+---
+
 # 入境處於黃大仙美食展覽會拘捕14名懷疑當黑工內地訪客
 
 ![14名懷疑非法勞工在行動中被捕。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797300_1_20250325144013.jpg&q=85)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797120-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797120-20250324.htm)
-
----
-
-# 衞生署推1+藥物審批機制後接逾110間包括內地及海外藥企查詢
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797119_1_20250324115954.jpg&q=90)
-  
-
-醫管局總藥劑師崔俊明表示，「1+」藥物審批機制生效以來，共5款新藥按機制獲批准註冊，並被列入藥物名冊，包括治療轉移性大腸癌、屬罕見病的陣發性夜間血紅素尿症，經成本評估小組談判後，這兩款藥物價格分別下降3成至3成半，每年節省1500萬元至2400萬元不等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797119-20250324.htm)
 
 ---
