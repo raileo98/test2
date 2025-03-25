@@ -72,7 +72,7 @@
 
 # 蔡崇信：要消費者重拾消費意欲需要重建商業信心
 
-![蔡崇信表示，內地推出刺激消費措施時間不長，暫未見到重大復蘇跡象。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797275_1_20250325115830.jpg&q=70)
+![蔡崇信（右）表示，內地推出刺激消費措施時間不長，暫未見到重大復蘇跡象。（滙豐圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797275_2_20250325131816.jpg&q=90)
   
 
 阿里巴巴主席蔡崇信表示，內地推出刺激消費措施時間不長，暫未見到重大復蘇跡象。他認為，要消費者重拾消費意欲，需要重建商業信心。
