@@ -1,3 +1,27 @@
+# HK open Asian Cup final round qualifier with draw
+
+![Hong Kong is held to a 0-0 draw against Singapore. Image courtesy of Hong Kong Football Association](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797379_1_20250325224218.jpg&q=90)
+  
+
+The Hong Kong, China football team had a disappointing start in the final round of their AFC Asian Cup qualifying campaign, as they ended up in a goalless draw against Singapore on Tuesday night.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm)
+
+---
+
 # China's World Cup qualifying hopes take a big hit
 
 ![The national team stayed at the bottom of the group of six, seven points behind second place Australia with two matches remaining. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797366_1_20250325213048.jpg&q=80)
@@ -1417,29 +1441,5 @@ The Hang Seng Index climbed 59.86 points, or 0.25 percent, to open at 23,749.58 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm)
-
----
-
-# Andreeva streak ends in loss to Anisimova
-
-![Mirra Andreeva receives treatment from a WTA physiotherapist during an injury timeout in her Miami Open match against Amanda Anisimova at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797104_1_20250324103923.jpg&q=90)
-  
-
-Russian 17-year-old Mirra Andreeva, coming off back-to-back WTA 1000 wins in Dubai and Indian Wells, exited in the third round, her 13-match winning streak ending with a three-sets loss to American Amanda Anisimova.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797104-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797104-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797104-20250324.htm)
 
 ---

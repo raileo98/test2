@@ -1,3 +1,27 @@
+# HK open Asian Cup final round qualifier with draw
+
+![Hong Kong is held to a 0-0 draw against Singapore. Image courtesy of Hong Kong Football Association](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797379_1_20250325224218.jpg&q=90)
+  
+
+The Hong Kong, China football team had a disappointing start in the final round of their AFC Asian Cup qualifying campaign, as they ended up in a goalless draw against Singapore on Tuesday night.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm)
+
+---
+
 # 'Coleman Wong's magical run inspires next generation'
 
 ![The SAR's tennis chief Michael Cheng says he is impressed with Coleman Wong's achievements at the Miami Open. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797357_2_20250325210437.jpg&q=90)
@@ -1422,29 +1446,5 @@ Hongkongers who are travelling and living in mainland China can now apply for a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm)
-
----
-
-# 'Accommodate workers while changing eHealth system'
-
-![The government says medical practitioners could be fined if they don't upload key data to the eHealth system. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796558_1_20250320111257.jpg&q=90)
-  
-
-Medical sector lawmaker David Lam on Thursday welcomed the government's plans to amend the law to boost the development of its “eHealth” platform, but hoped authorities would be flexible when implementing any changes.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796558-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796558-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796558-20250320.htm)
 
 ---

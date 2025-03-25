@@ -1,3 +1,26 @@
+# 丹麥首相：美國副總統夫人率團訪格陵蘭是不可接受的施壓
+
+  
+
+丹麥首相弗雷澤里克森說，美國副總統夫人及多位官員即將對格陵蘭島進行的訪問是一種不可接受的施壓，丹麥政府將堅決抵制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797381-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797381-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797381-20250325.htm)
+
+---
+
 # 記者被加入高層通訊群組　特朗普：新政府兩個月來唯一小問題
 
 ![特朗普說，這是新政府兩個月來唯一的小問題，而且結果並不嚴重，沃爾茲吸取了教訓。(法新社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797378_1_20250325224330.jpg&q=90)
@@ -50,7 +73,7 @@
 
 # 孫東稱推出多個加強數字能力建構政策　促進香港成為國際化人才庫
 
-![孫東說，本港首個人工智能大模型「HKGAI V1」，去年中已經開始在政府內部使用。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797369_1_20250325215249.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797369_1_20250325215249.jpg&q=90)
   
 
 創新科技及工業局局長孫東說，今年博鰲科技論壇將於6月在香港舉行，明日會舉行相關新聞發佈會。
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797063-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797063-20250324.htm)
-
----
-
-# 美烏代表團在沙特會談　美特使期待取得真正進展
-
-![威特科夫表示，期待會談取得真正進展。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797062_1_20250324004325.jpg&q=90)
-  
-
-烏克蘭國防部長烏梅羅夫表示，烏克蘭代表團與美國代表團在沙特阿拉伯首都利雅得的會談已經開始。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797062-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797062-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797062-20250324.htm)
 
 ---

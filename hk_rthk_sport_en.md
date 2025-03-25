@@ -1,3 +1,27 @@
+# HK open Asian Cup final round qualifier with draw
+
+![Hong Kong is held to a 0-0 draw against Singapore. Image courtesy of Hong Kong Football Association](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797379_1_20250325224218.jpg&q=90)
+  
+
+The Hong Kong, China football team had a disappointing start in the final round of their AFC Asian Cup qualifying campaign, as they ended up in a goalless draw against Singapore on Tuesday night.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm)
+
+---
+
 # China's World Cup qualifying hopes take a big hit
 
 ![The national team stayed at the bottom of the group of six, seven points behind second place Australia with two matches remaining. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797366_1_20250325213048.jpg&q=80)
@@ -1414,29 +1438,5 @@ The local official who heads the National Games Coordination Office on Sunday sa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm)
-
----
-
-# France beat Scotland to claim Six Nations
-
-![France's scrum-half Antoine Dupont (centre) holds the trophy while celebrating. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795897_1_20250316063919.jpg&q=85)
-  
-
-France claimed their seventh Six Nations trophy in a record-strewn 35-16 victory Scotland on Saturday, shaking off their beautiful runners-up tag on a crisp evening at the Stade de France.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795897-20250316.htm)
 
 ---

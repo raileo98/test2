@@ -120,7 +120,7 @@
 
 # 孫東稱推出多個加強數字能力建構政策　促進香港成為國際化人才庫
 
-![孫東說，本港首個人工智能大模型「HKGAI V1」，去年中已經開始在政府內部使用。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797369_1_20250325215249.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797369_1_20250325215249.jpg&q=90)
   
 
 創新科技及工業局局長孫東說，今年博鰲科技論壇將於6月在香港舉行，明日會舉行相關新聞發佈會。

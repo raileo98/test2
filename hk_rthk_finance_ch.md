@@ -1,3 +1,51 @@
+# 美國2月新屋銷售按月增加1.8%
+
+![美國2月新屋銷售按月增加1.8%，以年率計有67.6萬間，略低過市場預期。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797374_1_20250325221232.jpg&q=25)
+  
+
+美國2月新屋銷售按月增加1.8%，以年率計有67.6萬間，略低過市場預期的67.9萬間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797374-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797374-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797374-20250325.htm)
+
+---
+
+# 美國3月消費者信心指數連跌4個月　預期指數跌至12年以來最低
+
+![美國3月消費者信心指數跌至92.9，連跌4個月。 預期指數跌至12年以來最低水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797380_1_20250325225019.jpg&q=90)
+  
+
+世界大型企業研究會公布，美國3月消費者信心指數跌至92.9，低過市場預期的94，連跌4個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797380-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797380-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797380-20250325.htm)
+
+---
+
 # 政府「裕澤香江」高峰晚宴　逾130位家辦決策人和家族成員出席
 
 ![政府今晚舉辦「裕澤香江」高峰晚宴。陳國基表示，香港是一個「超級聯繫人」，是一個讓家族辦公室和家族蓬勃發展的活力之都。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797373_1_20250325220033.jpg&q=90)
@@ -98,7 +146,7 @@
 
 # 孫東稱推出多個加強數字能力建構政策　促進香港成為國際化人才庫
 
-![孫東說，本港首個人工智能大模型「HKGAI V1」，去年中已經開始在政府內部使用。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797369_1_20250325215249.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797369_1_20250325215249.jpg&q=90)
   
 
 創新科技及工業局局長孫東說，今年博鰲科技論壇將於6月在香港舉行，明日會舉行相關新聞發佈會。
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797238-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797238-20250325.htm)
-
----
-
-# 現貨金下試3000美元
-
-![現貨金跌至每盎司近3000美元水平，低見3002.09美元，跌0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797235_1_20250325060636.jpg&q=90)
-  
-
-美元上升，拖累金價下跌，投資者關注美國總統特朗普的關稅立場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797235-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797235-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797235-20250325.htm)
-
----
-
-# 油價高收1.2%　連升4日
-
-![國際油價連升4個交易日，英美期油同樣升1.2%收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797234_1_20250325060322.jpg&q=90)
-  
-
-國際油價連升4個交易日，英美期油同樣升1.2%收市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797234-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797234-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797234-20250325.htm)
 
 ---
