@@ -1,27 +1,3 @@
-# 克宮稱俄美同意確保落實黑海倡議　將於撤銷部分對俄制裁後生效
-
-![克里姆林宮表示，俄美雙方同意確保黑海航行安全、不使用武力、防止把商船用於軍事目的。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797389_1_20250326032145.jpg&q=85)
-  
-
-美國白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全，並禁止俄烏兩國互相攻擊對方的能源設施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797389-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797389-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797389-20250326.htm)
-
----
-
 # 德國新一屆聯邦議院召開首次全體會議　基民盟的克勒克納當選議長
 
 ![總統施泰因邁爾（右）解散現任政府，總理朔爾茨（左）將繼續履職，直至新一屆聯邦政府成立。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797388_1_20250326023615.jpg&q=90)
@@ -1433,5 +1409,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm)
+
+---
+
+# 北京：加國執意對部分中國進口商品採取歧視性限制措施違世貿規則
+
+![郭嘉昆說，加拿大執意對部分中國進口商品採取歧視性限制措施，嚴重違反世貿組織規則。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797318_1_20250325162306.jpg&q=90)
+  
+
+對於有報道指，加拿大已在世界貿易組織提出申訴，反對中國對加拿大農產品和漁業產品加徵關稅，在北京，外交部發言人郭嘉昆回應， 加拿大方面不顧中方多次規勸，執意對部分中國進口商品採取歧視性限制措施，嚴重違反世貿組織規則，干擾正常的貿易秩序，嚴重損害了中方的合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm)
 
 ---

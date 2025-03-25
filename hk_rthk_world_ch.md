@@ -1,27 +1,3 @@
-# 克宮稱俄美同意確保落實黑海倡議　將於撤銷部分對俄制裁後生效
-
-![克里姆林宮表示，俄美雙方同意確保黑海航行安全、不使用武力、防止把商船用於軍事目的。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797389_1_20250326032145.jpg&q=85)
-  
-
-美國白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全，並禁止俄烏兩國互相攻擊對方的能源設施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797389-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797389-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797389-20250326.htm)
-
----
-
 # 德國新一屆聯邦議院召開首次全體會議　基民盟的克勒克納當選議長
 
 ![總統施泰因邁爾（右）解散現任政府，總理朔爾茨（左）將繼續履職，直至新一屆聯邦政府成立。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797388_1_20250326023615.jpg&q=90)
@@ -1434,5 +1410,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797071-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797071-20250324.htm)
+
+---
+
+# 以軍空襲加沙南部醫院擊斃哈馬斯政治局成員　戰事至今逾5萬人死
+
+![納賽爾醫院遭空襲後冒出火光。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797070_1_20250324042810.jpg&q=90)
+  
+
+以色列軍方星期日晚空襲加沙南部城市汗尤尼斯的納賽爾醫院，巴勒斯坦醫護人員說，至少5人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797070-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797070-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797070-20250324.htm)
 
 ---
