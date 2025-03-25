@@ -1,3 +1,27 @@
+# 美國宣布制裁3名伊朗情報官員　涉與前聯邦調查局特工失蹤有關
+
+![美國財長貝森特表示，萊文森所受的對待，是伊朗本已惡劣侵犯人權紀錄上的污點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797387_1_20250326021821.jpg&q=90)
+  
+
+美國財政部及國務院宣布，對3名伊朗情報及安全部官員實施制裁，指他們涉嫌與前聯邦調查局特工萊文森失蹤有關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797387-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797387-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797387-20250326.htm)
+
+---
+
 # 中印舉行邊境事務磋商和協調工作機制會議
 
 ![中國與印度在北京舉行邊境事務磋商和協調工作機制會議。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797386_1_20250326013338.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm)
-
----
-
-# 外交部籲美方停止干涉委內瑞拉內政　廢除對委國的非法單邊制裁
-
-![郭嘉昆表示，中方堅決反對美國長期濫用非法單邊制裁和所謂「長臂管轄」，粗暴干涉其他國家內政。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797314_1_20250325162332.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，中方堅決反對美國長期濫用非法單邊制裁和所謂「長臂管轄」，粗暴干涉其他國家內政。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm)
 
 ---
