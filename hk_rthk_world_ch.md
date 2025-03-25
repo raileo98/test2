@@ -1,3 +1,26 @@
+# 記者被加入高層通訊群組　特朗普：新政府兩個月來唯一小問題
+
+  
+
+美國一名記者無意中被加入華府高層討論打擊也門胡塞武裝行動的通訊群組，成員包括副總統萬斯、國家安全顧問沃爾茲、防長赫格塞思等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797378-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797378-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797378-20250325.htm)
+
+---
+
 # 海南省加緊推進自由貿易港核心政策　確保今年底如期落實相關運作
 
 ![劉小明說，海南自由貿易港與世界各地貿易投資自由便利程度將進一步提升。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_1_20250325214113.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797062-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797062-20250324.htm)
-
----
-
-# 佩斯科夫稱俄美總統商定必要時接觸　斥歐洲沒消除烏克蘭衝突根源
-
-![佩斯科夫表示，總統普京和美國總統特朗普商定在必要時繼續接觸。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797061_1_20250324002812.jpg&q=90)
-  
-
-俄羅斯克里姆林宮發言人佩斯科夫表示，總統普京和美國總統特朗普商定在必要時繼續接觸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797061-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797061-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797061-20250324.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 記者被加入高層通訊群組　特朗普：新政府兩個月來唯一小問題
+
+  
+
+美國一名記者無意中被加入華府高層討論打擊也門胡塞武裝行動的通訊群組，成員包括副總統萬斯、國家安全顧問沃爾茲、防長赫格塞思等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797378-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797378-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797378-20250325.htm)
+
+---
+
 # 亞洲盃外圍賽港隊作客0:0賽和新加坡
 
   
