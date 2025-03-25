@@ -1,3 +1,49 @@
+# 公營醫療每人每年一萬元收費上限　放寬減免申請資額及範圍
+
+  
+
+政府提出以三個方向加大對市民的公營醫療保障，包括為全港市民增設每人每年一萬元的收費上限，又會放寬合資格申領費用減免人士的申請資格及範圍，預料受惠人士會由現時約30萬增至140萬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm)
+
+---
+
+# 公營醫療收費改革出爐　急症收費增至400元設豁免
+
+  
+
+政府交代公營醫療收費改革方案，建議將公立醫院急症室收費由現時180元，增加至400元，危殆及危急類病人可獲豁免；住院病床及門診收費亦會增加，電腦掃描及磁力共振等非緊急檢查項目，最高每次收500元，新收費於明年1月1日起實施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm)
+
+---
+
 # 林定國明啓程往北京展開三日訪問　向港澳辦匯報主要政策措施進展
 
   
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm)
-
----
-
-# 駐港國安公署座談會　學習貫徹習近平講話回顧展望國安條例實施
-
-![駐港國家安全公署表示，昨日舉辦《維護國家安全條例》刊憲實施一周年座談會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797149_1_20250324151248.jpg&q=80)
-  
-
-駐港國家安全公署表示，昨日舉辦《維護國家安全條例》刊憲實施一周年座談會，深入學習貫徹國家主席習近平關於港澳工作的重要講話精神和中央決策部署，回顧展望國安條例實施，強調堅持以香港高水平安全保障高質量發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm)
-
----
-
-# 廣東省政府力爭2027年全省年接待旅客突破9.5億人次
-
-![廣東省政府表示，力爭到2027年，全省年接待旅客突破9.5億人次。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797142_1_20250324155823.jpg&q=85)
-  
-
-廣東省政府表示，力爭到2027年，全省年接待旅客突破9.5億人次，旅遊總收入突破1.3萬億元人民幣。到2030年，各項主要指標位居全國前列，建成高水平旅遊強省。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797142-20250324.htm)
 
 ---

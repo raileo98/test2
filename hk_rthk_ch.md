@@ -1,3 +1,49 @@
+# 公營醫療每人每年一萬元收費上限　放寬減免申請資額及範圍
+
+  
+
+政府提出以三個方向加大對市民的公營醫療保障，包括為全港市民增設每人每年一萬元的收費上限，又會放寬合資格申領費用減免人士的申請資格及範圍，預料受惠人士會由現時約30萬增至140萬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm)
+
+---
+
+# 公營醫療收費改革出爐　急症收費增至400元設豁免
+
+  
+
+政府交代公營醫療收費改革方案，建議將公立醫院急症室收費由現時180元，增加至400元，危殆及危急類病人可獲豁免；住院病床及門診收費亦會增加，電腦掃描及磁力共振等非緊急檢查項目，最高每次收500元，新收費於明年1月1日起實施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm)
+
+---
+
 # 藥明生物去年少賺逾1%
 
 ![藥明生物去年盈利約33.6億元人民幣，按年跌1.3%。不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797327_1_20250325170239.jpg&q=90)
