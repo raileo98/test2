@@ -1,3 +1,27 @@
+# Argentina qualify for 2026 World Cup
+
+![Reigning champions Argentina are the first South American nation to qualify for the 2026 Fifa World Cup. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797405_1_20250326070511.jpg&q=90)
+  
+
+Argentina became the first team from South America to book their place at the 2026 World Cup after Bolivia could only draw their crucial qualifier against Uruguay.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm)
+
+---
+
 # World Athletics approves swab test to determine gender
 
 ![The president of the international track and field federation said the female category had to be protected. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797391_1_20250326033236.jpg&q=80)
@@ -1413,30 +1437,5 @@ Newcastle ended their 56-year trophy drought in stunning style as Dan Burn and A
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm)
-
----
-
-# Arsenal edge out Chelsea; Man Utd beat Leicester
-
-![Arsenal and Chelsea players clashed during the match at the Emirates Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795974_1_20250317053437.jpg&q=90)
-![Manchester United midfielder Bruno Fernandes celebrates his side's third goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795974_2_20250317053437.jpg&q=90)
-  
-
-Chelsea's challenge for a place in next season's Champions League faltered in a toothless 1-0 defeat at Arsenal, as Manchester United continued their upward trend with a 3-0 win at Leicester.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795974-20250317.htm)
 
 ---

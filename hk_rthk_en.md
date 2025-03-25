@@ -1,3 +1,27 @@
+# Argentina qualify for 2026 World Cup
+
+![Reigning champions Argentina are the first South American nation to qualify for the 2026 Fifa World Cup. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797405_1_20250326070511.jpg&q=90)
+  
+
+Argentina became the first team from South America to book their place at the 2026 World Cup after Bolivia could only draw their crucial qualifier against Uruguay.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm)
+
+---
+
 # Deals reached on Ukraine maritime and energy truce
 
 ![Ukrainian Defence Minister Rustem Umerov talks to reporters after US-Russia talks on a Ukraine ceasefire. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797401_1_20250326063126.jpg&q=90)
@@ -1417,29 +1441,5 @@ The Housing Authority on Monday said well-off public housing tenants will be giv
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm)
-
----
-
-# Coldplay ticket fixes 'could be dealt with by post'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797121_1_20250324115705.jpg&q=90)
-  
-
-A lawmaker suggested on Monday that the ticketing platform Cityline deal with exchanges necessitated by printing errors on some Coldplay concert tickets by post.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm)
 
 ---
