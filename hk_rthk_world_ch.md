@@ -1,3 +1,27 @@
+# 白宮：分別與俄烏達成協議確保黑海航行安全　並禁止攻擊能源設施
+
+![白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797385_1_20250326004847.jpg&q=85)
+  
+
+美國白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全，並禁止俄烏兩國互相攻擊對方的能源設施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797385-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797385-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797385-20250326.htm)
+
+---
+
 # 彭清華主持召開中俄議會合作委員會聯合工作組會議
 
 ![彭清華主持召開中俄議會合作委員會聯合工作組會議](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797384_1_20250326001907.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797066-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797066-20250324.htm)
-
----
-
-# 埃及重申須維持加沙停火　歐盟外交代表將晤以色列及巴勒斯坦官員
-
-![埃及外長阿卜杜勒阿提與到訪的歐盟外交與安全政策高級代表卡拉斯會晤。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797065_1_20250324021934.jpg&q=85)
-  
-
-埃及總理馬德布利與到訪的巴勒斯坦總理兼外長穆斯塔法會談時強調，必須維持加沙停火，制止流血衝突，並盡快啟動加沙重建進程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797065-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797065-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797065-20250324.htm)
 
 ---

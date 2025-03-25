@@ -1,3 +1,27 @@
+# 白宮：分別與俄烏達成協議確保黑海航行安全　並禁止攻擊能源設施
+
+![白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797385_1_20250326004847.jpg&q=85)
+  
+
+美國白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全，並禁止俄烏兩國互相攻擊對方的能源設施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797385-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797385-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797385-20250326.htm)
+
+---
+
 # 彭清華主持召開中俄議會合作委員會聯合工作組會議
 
 ![彭清華主持召開中俄議會合作委員會聯合工作組會議](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797384_1_20250326001907.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797313-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797313-20250325.htm)
-
----
-
-# 公營醫療資助率將由97%降至90%　盧寵茂冀能者及輕症共付
-
-![盧寵茂重申改革是希望做到能者共付及輕症共付，以幫助更多貧急重危疾的病人。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797312_1_20250325154124.jpg&q=80)
-  
-
-政府公布公營醫療服務收費改革方案，資助率預料由大約97%下降至5年後的90%。醫務衞生局局長盧寵茂表示，政府的承擔並無改變，相關收入同樣會投放到醫療範疇，重申改革是希望做到能者共付及輕症共付，以幫助更多貧急重危疾的病人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm)
 
 ---
