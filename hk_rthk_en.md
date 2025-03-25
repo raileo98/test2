@@ -1,3 +1,27 @@
+# US stocks make minor gains on tariff hopes
+
+![Tuesday's market gains came despite US consumer confidence falling for a fourth straight month in March. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797399_1_20250326062321.jpg&q=90)
+  
+
+Wall Street stocks mostly closed higher on Tuesday, building on earlier gains amid hopes that US President Donald Trump might take a narrower approach to upcoming tariffs than originally expected.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm)
+
+---
+
 # Depardieu denies 'groping' in sex abuse trial
 
 ![Gerard Depardieu, 76, has been accused of improper behaviour by around 20 women but this is the first case to come to trial. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797392_1_20250326035129.jpg&q=90)
@@ -1417,29 +1441,5 @@ Want to see vampires travelling through time and space? Local art space Para Sit
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm)
-
----
-
-# HK strives to attain carbon neutrality: Tse Chin-wan
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797124_1_20250324120907.jpg&q=80)
-  
-
-Environment minister Tse Chin-wan said on Monday that Hong Kong will continue to strive for carbon neutrality by 2050, highlighting the SAR’s multi-pronged plan to achieve this goal.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm)
 
 ---

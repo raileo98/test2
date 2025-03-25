@@ -1,3 +1,27 @@
+# US stocks make minor gains on tariff hopes
+
+![Tuesday's market gains came despite US consumer confidence falling for a fourth straight month in March. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797399_1_20250326062321.jpg&q=90)
+  
+
+Wall Street stocks mostly closed higher on Tuesday, building on earlier gains amid hopes that US President Donald Trump might take a narrower approach to upcoming tariffs than originally expected.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm)
+
+---
+
 # Boao forum offers upbeat forecast on Asia growth
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797323_1_20250325164614.jpg&q=80)
@@ -1413,29 +1437,5 @@ Wall Street stocks fell sharply on Monday as investors fretted that uncertainty 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm)
-
----
-
-# Hang Seng Index closes down 1.85pc
-
-![The Hang Seng Index has closed lower, ending the day at 23,783. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795139_1_20250310175233.jpg&q=80)
-  
-
-Local shares sank on Monday on a mixed day for equity markets, amid escalating global trade tensions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm)
 
 ---
