@@ -1,3 +1,29 @@
+# 海南省加緊推進自由貿易港核心政策　確保今年底如期落實相關運作
+
+![劉小明說，海南自由貿易港與世界各地貿易投資自由便利程度將進一步提升。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_1_20250325214113.jpg&q=90)
+![周小川說，海南可以利用獨特優勢，大力發展高端服務業。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_2_20250325214113.jpg&q=90)
+![潘基文指出，自由貿易港有力證明貿易和開放將如何增進增長及可持續。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_3_20250325214113.jpg&q=90)
+  
+
+海南省省長劉小明說，正加緊落實封關運作方案，加緊推進自由貿易港核心政策落地，做好各項準備工作，確保今年底如期順利實現封關運作。封關運作後，海南自由貿易港與世界各地貿易投資自由便利程度將進一步提升，與中國內地超大規模市場的聯繫也將更加緊密。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm)
+
+---
+
 # 美股初段靠穩
 
 ![美股初段靠穩。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797370_1_20250325213404.jpg&q=75)
@@ -1408,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797236-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797236-20250325.htm)
-
----
-
-# 英法德股市偏軟　創逾1星期新低
-
-![歐洲股市反覆向下，創逾1星期新低，德國DAX指數收報22852點，跌約0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797232_1_20250325055132.jpg&q=90)
-  
-
-歐洲股市反覆向下，創逾1星期新低，市場關注美國關稅措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797232-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797232-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797232-20250325.htm)
 
 ---
