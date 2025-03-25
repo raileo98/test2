@@ -1,3 +1,27 @@
+# 中印舉行邊境事務磋商和協調工作機制會議
+
+![中國與印度在北京舉行邊境事務磋商和協調工作機制會議。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797386_1_20250326013338.jpg&q=90)
+  
+
+中國與印度在北京舉行邊境事務磋商和協調工作機制會議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797386-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797386-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797386-20250326.htm)
+
+---
+
 # 白宮：分別與俄烏達成協議確保黑海航行安全　並禁止攻擊能源設施
 
 ![白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797385_1_20250326004847.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm)
-
----
-
-# 被驅逐的南非駐美大使回國　強調不會因外部壓力改變立場
-
-![拉蘇爾在開普敦機場發表講話，指回國並非自己的選擇，但無怨無悔。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797066_1_20250324023734.jpg&q=90)
-  
-
-被美國驅逐的南非駐美大使拉蘇爾返抵南非，強調南非不會因為外部壓力而改變立場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797066-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797066-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797066-20250324.htm)
 
 ---

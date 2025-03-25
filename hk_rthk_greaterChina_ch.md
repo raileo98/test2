@@ -1,3 +1,27 @@
+# 中印舉行邊境事務磋商和協調工作機制會議
+
+![中國與印度在北京舉行邊境事務磋商和協調工作機制會議。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797386_1_20250326013338.jpg&q=90)
+  
+
+中國與印度在北京舉行邊境事務磋商和協調工作機制會議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797386-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797386-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797386-20250326.htm)
+
+---
+
 # 張國清：平台經濟要發揮擴消費、穩就業等引領帶動作用
 
 ![張國清表示，平台經濟要發揮在促創新、擴消費、穩就業等方面的引領帶動作用，要堅決整治低質低價「內卷式」競爭等問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797383_1_20250325231910.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796999-20250323.htm)
-
----
-
-# 李強：制定出台民營經濟促進法　讓企業家放心幹事創業
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796998_2_20250323114059.jpg&q=90)
-  
-
-中國發展高層論壇2025年年會早上在北京開幕，國務院總理李強發表主旨演講時表示，今年經濟增長目標設定為5%左右，既是源於對中國經濟基礎條件的深刻把握，也源於對自身治理能力和未來發展潛力的堅定信心，將注重加大政策力度，結合激發市場力量，努力實現預期目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm)
 
 ---
