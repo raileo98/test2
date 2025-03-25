@@ -1,3 +1,27 @@
+# 張國清：平台經濟要發揮擴消費、穩就業等引領帶動作用
+
+![張國清表示，平台經濟要發揮在促創新、擴消費、穩就業等方面的引領帶動作用，要堅決整治低質低價「內卷式」競爭等問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797383_1_20250325231910.jpg&q=90)
+  
+
+新華社報道，國務院副總理張國清近日先後到外賣送餐、網絡零售、直播電商、交通出行等平台企業調研，詳細了解企業商業模式、技術創新、合規經營等情況，促進平台經濟健康發展和市場監管等工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm)
+
+---
+
 # 美國2月新屋銷售按月增加1.8%
 
 ![美國2月新屋銷售按月增加1.8%，以年率計有67.6萬間，略低過市場預期。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797374_1_20250325221232.jpg&q=25)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm)
-
----
-
-# 美元指數創近3星期新高　美元兌日圓升穿150
-
-![美元指數升至近3星期新高，高見104.44，升約0.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797238_1_20250325062622.jpg&q=85)
-  
-
-美元兌主要貨幣造好，數據顯示美國3月企業活動回升，投資者亦憧憬美國關稅措施取態轉向溫和。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797238-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797238-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797238-20250325.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 張國清：平台經濟要發揮擴消費、穩就業等引領帶動作用
+
+![張國清表示，平台經濟要發揮在促創新、擴消費、穩就業等方面的引領帶動作用，要堅決整治低質低價「內卷式」競爭等問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797383_1_20250325231910.jpg&q=90)
+  
+
+新華社報道，國務院副總理張國清近日先後到外賣送餐、網絡零售、直播電商、交通出行等平台企業調研，詳細了解企業商業模式、技術創新、合規經營等情況，促進平台經濟健康發展和市場監管等工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm)
+
+---
+
 # 海南省加緊推進自由貿易港核心政策　確保今年底如期落實相關運作
 
 ![劉小明說，海南自由貿易港與世界各地貿易投資自由便利程度將進一步提升。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_1_20250325214113.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796998-20250323.htm)
-
----
-
-# 總理李強在中國發展高層論壇發表主旨演講
-
-![李強出席中國發展高層論壇年會開幕式發表主旨演講。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796995_2_20250323180106.jpg&q=90)
-  
-
-中國發展高層論壇2025年年會早上在北京舉行開幕式，國務院總理李強發表主旨演講。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796995-20250323.htm)
 
 ---

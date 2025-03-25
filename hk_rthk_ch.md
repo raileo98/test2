@@ -1,3 +1,27 @@
+# 張國清：平台經濟要發揮擴消費、穩就業等引領帶動作用
+
+![張國清表示，平台經濟要發揮在促創新、擴消費、穩就業等方面的引領帶動作用，要堅決整治低質低價「內卷式」競爭等問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797383_1_20250325231910.jpg&q=90)
+  
+
+新華社報道，國務院副總理張國清近日先後到外賣送餐、網絡零售、直播電商、交通出行等平台企業調研，詳細了解企業商業模式、技術創新、合規經營等情況，促進平台經濟健康發展和市場監管等工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm)
+
+---
+
 # 醫管局停用200支與港安醫院手術燈墮下事故相同型號檢查燈
 
 ![涉事的同一型號檢查燈。（Draeger Hong Kong Limited網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797382_1_20250325230852.jpg&q=90)
