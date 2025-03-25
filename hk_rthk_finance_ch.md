@@ -1,3 +1,50 @@
+# 李家超抵達海南海口準備出席博鰲論壇　下午致辭分享香港發展機遇
+
+  
+
+行政長官李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm)
+
+---
+
+# 杜嘉祺：本港資本市場復蘇將成為全球最大財富管理中心
+
+![杜嘉祺稱內地人工智能大模型DeepSeek正好展示內地民營經濟及創新能力。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797293_1_20250325125655.jpg&q=80)
+  
+
+滙控主席杜嘉祺表示，隨著內地市場持續開放，香港作為內地、亞洲和全球其他地區之間的超級連繫人，將扮演非常重要角色；受惠於資本市場復蘇，香港有望在2027至2028年超越瑞士，成為全球最大財富管理中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm)
+
+---
+
 # 恒安國際去年盈利跌約18%
 
 ![恒安國際去年收入跌4.6%。市場競爭越趨激烈，行業平均售價下降，整體市場銷售負增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797288_1_20250325122906.jpg&q=90)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797150-20250324.htm)
-
----
-
-# 韓股偏軟收市　結束5連升
-
-![首爾綜合指數收報2632點，跌11點，跌幅0.42%，結束5連升。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797147_1_20250324145054.jpg&q=90)
-  
-
-南韓股市收市偏軟，結束5連升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797147-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797147-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797147-20250324.htm)
-
----
-
-# 日股收市偏軟
-
-![日經指數收市報37608點，跌68點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797144_1_20250324143651.jpg&q=70)
-  
-
-東京股市偏軟。日經指數收市報37608點，跌68點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797144-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797144-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797144-20250324.htm)
 
 ---

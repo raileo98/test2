@@ -1,3 +1,50 @@
+# 李家超抵達海南海口準備出席博鰲論壇　下午致辭分享香港發展機遇
+
+  
+
+行政長官李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm)
+
+---
+
+# 杜嘉祺：本港資本市場復蘇將成為全球最大財富管理中心
+
+![杜嘉祺稱內地人工智能大模型DeepSeek正好展示內地民營經濟及創新能力。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797293_1_20250325125655.jpg&q=80)
+  
+
+滙控主席杜嘉祺表示，隨著內地市場持續開放，香港作為內地、亞洲和全球其他地區之間的超級連繫人，將扮演非常重要角色；受惠於資本市場復蘇，香港有望在2027至2028年超越瑞士，成為全球最大財富管理中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm)
+
+---
+
 # 公營醫療收費每人每年1萬元上限　料7萬名重症病人受惠
 
   
@@ -1384,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797218-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797218-20250324.htm)
-
----
-
-# 大熊貓福寶周二於卧龍神樹坪基地與公眾見面
-
-![福寶將於星期二在卧龍神樹坪基地幼兒園2號館與公眾見面。（研究中心影片截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797217_1_20250324231243.jpg&q=90)
-  
-
-中國大熊貓保護研究中心宣布，經過100多日靜養，大熊貓福寶將於星期二在卧龍神樹坪基地幼兒園2號館與公眾見面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm)
-
----
-
-# 一艘漁船涉走私懷疑受管制乾魚翅及電子產品　4名船員被捕
-
-![關員在船上一個暗格內檢獲部分懷疑走私電子產品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797216_1_20250324225402.jpg&q=90)
-  
-
-一艘出境漁船涉嫌走私懷疑受管制的乾魚翅、電子產品及雪茄等，約值2500萬元，海關拘捕4名涉案船員，並扣查有關漁船。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm)
 
 ---

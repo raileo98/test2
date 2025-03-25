@@ -1,3 +1,50 @@
+# 李家超抵達海南海口準備出席博鰲論壇　下午致辭分享香港發展機遇
+
+  
+
+行政長官李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm)
+
+---
+
+# 杜嘉祺：本港資本市場復蘇將成為全球最大財富管理中心
+
+![杜嘉祺稱內地人工智能大模型DeepSeek正好展示內地民營經濟及創新能力。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797293_1_20250325125655.jpg&q=80)
+  
+
+滙控主席杜嘉祺表示，隨著內地市場持續開放，香港作為內地、亞洲和全球其他地區之間的超級連繫人，將扮演非常重要角色；受惠於資本市場復蘇，香港有望在2027至2028年超越瑞士，成為全球最大財富管理中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm)
+
+---
+
 # 公營醫療收費每人每年1萬元上限　料7萬名重症病人受惠
 
   
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm)
-
----
-
-# 黃碧如：修訂公屋富戶政策相信可至少釋放數百個公屋單位
-
-![黃碧如形容新政策是「組合拳」，既提高額外租金，亦提供措施鼓勵「富戶」向上流。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797102_1_20250324105409.jpg&q=90)
-  
-
-房委會資助房屋小組委員會通過修訂公屋「富戶」政策，除了提高「富戶」需要繳交的額外租金，亦調整須遷出單位的入息限額水平。小組委員會主席黃碧如在一個電台節目形容新政策是「組合拳」，既提高額外租金，亦提供措施鼓勵「富戶」向上流。被問到有無預計新措施釋放到多少公屋單位，黃碧如說未有目標數字，但相信最起碼會有數百間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797102-20250324.htm)
-
----
-
-# 李家超明日赴海南出席博鰲亞洲論壇年會　將於論壇致辭
-
-![李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797100_1_20250324103437.jpg&q=90)
-  
-
-行政長官李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm)
 
 ---

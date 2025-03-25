@@ -1,3 +1,26 @@
+# 李家超抵達海南海口準備出席博鰲論壇　下午致辭分享香港發展機遇
+
+  
+
+行政長官李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm)
+
+---
+
 # 博鰲亞洲論壇年會旗艦報告倡推動綠色轉型
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796889-20250322.htm)
-
----
-
-# 特朗普否認馬斯克訪五角大樓聽取涉中國的機密簡報
-
-![特朗普和赫格塞斯都表示，馬斯克訪問國防部主要討論創新和削減成本。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796890_1_20250322082025.jpg&q=90)
-  
-
-美國總統特朗普明確表示，不會讓領導政府效率部的富商馬斯克，聽取涉及中國的機密匯報，指他在中國有商業利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796890-20250322.htm)
 
 ---

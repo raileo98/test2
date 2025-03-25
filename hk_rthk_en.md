@@ -1,3 +1,27 @@
+# Relief as billiards keeps Tier A status
+
+![Vincent Law says the decision allows billiard players and coaches to focus on training. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797283_1_20250325120446.jpg&q=90)
+  
+
+The chairman of the Billiard Sports Council of Hong Kong welcomes the government's decision to retain the sport's Tier A status, saying the impact would have been devastating had the sport been downgraded.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm)
+
+---
+
 # Cats and dogs allowed on light rail from May
 
 ![The two-month pilot scheme will require owners to board the light rail with pets in bags that comply with luggage restrictions. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797287_1_20250325122816.jpg&q=85)
@@ -1415,29 +1439,5 @@ The Secretary for Health Lo Chung-mau has urged more individuals to register as 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797013-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797013-20250323.htm)
-
----
-
-# HK the place to be for creative firms, FS says
-
-![Financial Secretary Paul Chan said Hong Kong will continue to help mainland companies enter international markets. Photo courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797020_1_20250323141446.jpg&q=85)
-  
-
-Financial Secretary Paul Chan pledged his support for Hong Kong's cultural and creative industries, saying they will thrive under the city's unique east-meets-west and inclusive environment.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm)
 
 ---
