@@ -1,6 +1,32 @@
+# 新西蘭南島外海地震　當局正評估海嘯威脅
+
+  
+
+新西蘭南島發生地震，當局說強度為黎克特制6.7級，正評估會否構成海嘯威脅，呼籲南地大區及峽灣地區的居民，遠離海灘及一帶海域，慎防異常強烈水流帶來危險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797290-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797290-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797290-20250325.htm)
+
+---
+
 # 急症室收費400元　住院急症病床每日300元
 
   
+
+政府公布公營醫療服務收費改革方案，涉及的服務範圍涵蓋住院、日間程序、急症室、專科門診、病理檢驗、非緊急放射造影、家庭醫學門診等。
+
   
 
 
@@ -1403,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm)
-
----
-
-# 佳兆業料去年虧損擴大至不多於300億人民幣
-
-![佳兆業發預期去年將錄得不多於300億元人民幣虧損，按年增加最多51%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797214_1_20250324224622.jpg&q=90)
-  
-
-佳兆業發盈警，預期去年將錄得不多於300億元人民幣虧損，按年增加最多51%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797214-20250324.htm)
 
 ---
