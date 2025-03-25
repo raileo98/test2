@@ -1,3 +1,27 @@
+# 南韓首爾路陷造成一死一傷
+
+![南韓首爾路陷造成一死一傷。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797358_1_20250325202247.jpg&q=60)
+  
+
+南韓首爾江東區昨日發生的道路塌陷造成1人死亡、1人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797358-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797358-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797358-20250325.htm)
+
+---
+
 # 農夫山泉去年盈利微升0.4%　毛利率收窄1.4個百分點
 
 ![農夫山泉去年盈利121.2億元人民幣，按年微升0.4%。派末期息每股0.76元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797354_1_20250325192146.jpg&q=80)
@@ -72,6 +96,7 @@
 
 # 孫玉菡：「多元共融藝術巡禮」展示本港多元共融成績
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797355_1_20250325202953.jpg&q=90)
   
 
 勞工及福利局局長孫玉菡說，香港正值「盛匯超級三月」，有欖球、Art Basel Hong Kong及Art Central等活動，另一盛事就是「多元共融藝術巡禮」的活動，希望藉此向全社會及國際展示本港在推廣多元共融方面的成績，殘疾藝術家的作品及才華，若能被賞識就更理想。

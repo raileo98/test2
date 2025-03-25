@@ -1,3 +1,27 @@
+# 'Healthcare overhaul prioritises overall health'
+
+![Experts say family doctors should educate patients about whether a visit to the accident and emergency unit is necessary. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797359_1_20250325203807.jpg&q=90)
+  
+
+A family physician said on Tuesday that the government's overhaul of healthcare charges could motivate people to prioritise their overall health instead of only focusing on treating a disease.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797359-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797359-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797359-20250325.htm)
+
+---
+
 # AI a game-changer for climate transition: FS
 
 ![Paul Chan says AI will act as a catalyst in helping Hong Kong become a more sustainable society. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797342_1_20250325181504.jpg&q=80)
@@ -1422,29 +1446,5 @@ The Hospital Authority said it hopes an increase in the Accident and Emergency (
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796525-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796525-20250320.htm)
-
----
-
-# 'King's Park site will still be used for healthcare'
-
-![The government says the King's Park site, currently home to Queen Elizabeth Hospital, will be retained for healthcare purposes. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796481_1_20250319221730.jpg&q=80)
-  
-
-The government on Wednesday said the King's Park site, currently home to Queen Elizabeth Hospital, will be retained for healthcare purposes despite a relocation plan.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796481-20250319.htm)
 
 ---

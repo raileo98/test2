@@ -1,3 +1,27 @@
+# 南韓首爾路陷造成一死一傷
+
+![南韓首爾路陷造成一死一傷。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797358_1_20250325202247.jpg&q=60)
+  
+
+南韓首爾江東區昨日發生的道路塌陷造成1人死亡、1人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797358-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797358-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797358-20250325.htm)
+
+---
+
 # 外交部：報告揭示美方多年來慣於在供應鏈安全問題「賊喊捉賊」
 
   
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797047-20250323.htm)
-
----
-
-# 伊斯坦布爾市長稱不會低頭　團隊稱會就法庭羈押裁決提出上訴
-
-![伊馬姆奧盧形容事件是國家民主的污點，他誓不低頭。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797044_1_20250323201701.jpg&q=90)
-  
-
-土耳其伊斯坦布爾刑事法庭就貪污指控，將市長伊馬姆奧盧羈押候訊。法庭說雖然伊馬姆奧盧有重大嫌疑，協助持械恐怖組織，但現階段並無必要為此拘捕他，不過他涉嫌干犯的金融罪行，足以令法庭頒令拘捕他。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm)
 
 ---

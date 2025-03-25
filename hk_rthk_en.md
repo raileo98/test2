@@ -1,3 +1,27 @@
+# 'Healthcare overhaul prioritises overall health'
+
+![Experts say family doctors should educate patients about whether a visit to the accident and emergency unit is necessary. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797359_1_20250325203807.jpg&q=90)
+  
+
+A family physician said on Tuesday that the government's overhaul of healthcare charges could motivate people to prioritise their overall health instead of only focusing on treating a disease.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797359-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797359-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797359-20250325.htm)
+
+---
+
 # Vietnam death row tycoon begins appeal
 
 ![Vietnamese property tycoon Truong My Lan (Centre) looks on at a court in Ho Chi Minh City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797356_1_20250325193707.jpg&q=90)
@@ -1417,29 +1441,5 @@ Police on late Sunday arrested 32 people following a raid on a suspected unlicen
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797097-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797097-20250324.htm)
-
----
-
-# Mark Carney calls snap Canadian election
-
-![Canadian Prime Minister Mark Carney announced the move at a news conference in Ottawa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797074_1_20250324055036.jpg&q=90)
-  
-
-New Canadian Prime Minister Mark Carney on Sunday called a snap election for April 28, saying he needed a strong mandate to deal with the threat posed by US President Donald Trump, who "wants to break us so America can own us."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm)
 
 ---
