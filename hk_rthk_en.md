@@ -1,3 +1,75 @@
+# Microplastics fear for those who chew gum
+
+![Researchers say a gram of gum releases an average of 100 microplastic fragments and that some shed more than 600. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797333_1_20250325172205.jpg&q=90)
+  
+
+Chewing gum releases hundreds of tiny plastic pieces straight into people's mouths, researchers said on Tuesday, also warning of the pollution created by the rubber-based sweet.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797333-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797333-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797333-20250325.htm)
+
+---
+
+# Boao forum offers upbeat forecast on Asia growth
+
+![Zhang Jun, secretary general of the Boao Forum for Asia, says Asia will continue to see robust economic growth for this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797323_1_20250325164614.jpg&q=80)
+  
+
+Asia's economy is likely to continue its robust growth this year despite challenges, according to a report by the Boao Forum for Asia.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm)
+
+---
+
+# Hang Seng Index closes down 2.3 percent
+
+![The Hang Seng Index falls to 23,344 on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797329_1_20250325170851.jpg&q=75)
+  
+
+Equities diverged on Tuesday, as investors struggled to extend Wall Street's rally despite easing fears over US president Donald Trump's planned tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797329-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797329-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797329-20250325.htm)
+
+---
+
 # Art Central returns to Central Harbourfront
 
 ![Art Central runs from Wednesday to Sunday at the Central Harbourfront. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797322_1_20250325164605.jpg&q=90)
@@ -219,7 +291,7 @@ Non-urgent patients seeking help at the city's public accident and emergency war
 
 # Relief as billiards keep Tier A status
 
-![Vincent Law says the decision allows billiard players and coaches to focus on training. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797283_1_20250325120446.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797283_1_20250325120446.jpg&q=90)
   
 
 The chairman of the Billiard Sports Council of Hong Kong China welcomes the government's decision to retain the sport's Tier A status, saying the impact would have been devastating had the sport been downgraded.
@@ -1370,77 +1442,5 @@ Fifth-seeded American Madison Keys, the Australian Open champion, crashed out of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm)
-
----
-
-# Hamas official killed as Gaza death toll passes 50,000
-
-![Palestinians attend the funeral of Hamas political leader Salah al-Bardaweel. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797059_1_20250323233123.jpg&q=80)
-  
-
-An Israeli airstrike in southern Gaza killed a Hamas political leader, Salah al-Bardaweel, on Sunday, the militant group said, as Palestinian officials put the death toll from nearly 18 months of conflict at over 50,000.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm)
-
----
-
-# Norway's Jakob Ingebrigtsen wins 1,500m in Nanjing
-
-![Norway’s Jakob Ingebrigtsen celebrates after winning the men’s 1500m final during the Indoor World Athletics Championships in Nanjing, Jiangsu province. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797058_1_20250323214422.jpg&q=90)
-  
-
-Norway's Jakob Ingebrigtsen won the 1,500m in Nanjing on Sunday to claim not only a first global gold in his favoured distance, but also a rare world indoor track distance double.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm)
-
----
-
-# Pope calls for 'immediate' end to Israeli strikes
-
-![Pope Francis waving to the crowd from a window of the Gemelli hospital in Rome before being discharged following a five weeks hospitalization for pneumonia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797050_1_20250323194641.jpg&q=85)
-  
-
-Pope Francis called on Sunday for an "immediate" end to Israeli strikes on the Gaza Strip, and for the resumption of dialogue for the release of hostages and a "definitive ceasefire".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm)
 
 ---

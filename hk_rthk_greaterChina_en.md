@@ -1,3 +1,27 @@
+# Boao forum offers upbeat forecast on Asia growth
+
+![Zhang Jun, secretary general of the Boao Forum for Asia, says Asia will continue to see robust economic growth for this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797323_1_20250325164614.jpg&q=80)
+  
+
+Asia's economy is likely to continue its robust growth this year despite challenges, according to a report by the Boao Forum for Asia.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm)
+
+---
+
 # Beijing looking to boost ties with Lisbon: Wang Yi
 
 ![Wang Yi says China is willing to work with Portugal to promote China and Europe to become strategic partners with mutual trust. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797311_1_20250325152545.jpg&q=90)
@@ -1411,29 +1435,5 @@ Financial Secretary Paul Chan said on Sunday that Hong Kong must closely link it
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794969-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794969-20250309.htm)
-
----
-
-# 'Each Legco election should be better than the last’
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794968_1_20250309114238.jpg&q=75)
-  
-
-Each Legislative Council election should be better than the previous one, according to a senior Beijing official overseeing Hong Kong affairs, who also stressed the SAR needs “capable, responsible and accomplished” individuals to serve the city.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794968-20250309.htm)
 
 ---

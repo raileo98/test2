@@ -1,5 +1,76 @@
+# 本港首2個月出口按年升6.5%　上月出口升15.4%
+
+![本港首2個月整體出口貨值按年升6.5%，進口貨值升5.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797325_1_20250325164835.jpg&q=80)
+  
+
+政府統計處公布，本港首2個月整體出口貨值按年升6.5%，進口貨值升5.7%。首兩個月錄得有形貿易逆差346億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm)
+
+---
+
+# 政府消息：公營醫療收費上限每人每年一萬元　讓中產不會因病致貧
+
+  
+
+政府公布公營醫療服務收費改革詳情，政府消息人士表示，香港公營醫療系統非常好，但資助如「仙女散花」般，所有人的共付額都是2.4%，長遠不可能維持。如果不改革，系統會倒閉，強調改革有加有減，對於急、困、貧、重、危的病人，資助有所增加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797330-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797330-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797330-20250325.htm)
+
+---
+
+# 醫務衞生局：普通科門診非急症室替代品　日後主要照顧弱勢基層
+
+  
+
+政府公布公營醫療服務收費改革方案。醫務衞生局發言人表示，預計明年實施改動後，政府資助率將由現時大約97%降至94%，預計2028年和2030年再檢討成效，探討是否需要再作調整，目標2030年再降至90%；又指相信新收費將改變市民使用服務的模式，但難以預計對使用人次的具體影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797328-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797328-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797328-20250325.htm)
+
+---
+
 # 雙層巴士大埔行駛途中車尾起火冒濃煙　消防救熄無人受傷
 
+![事發在下午約2時半，涉事的雙層巴士沿完善路往吐露港公路方向行駛，駛至完善公園附近時，車尾起火並冒出濃煙。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797324_1_20250325171222.jpg&q=70)
   
 
 一部雙層巴士在大埔行駛途中，車尾起火，消防員到場灌救，將火撲熄，事件中沒有人受傷。
@@ -1364,78 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797133-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797133-20250324.htm)
-
----
-
-# 延續有時首席勞工事務主任職位　孫玉菡稱因維護國安有長期需要
-
-![孫玉菡表示，延續這個有時限的首席勞工事務主任職位，最大工作就是做職工會登記。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797132_2_20250324125530.jpg&q=90)
-  
-
-勞工及福利局提出保留勞工處一個首席勞工事務主任有時限編外職位，為期3年，領導勞工處轄下的職工會登記局及勞資協商促進科。立法會人力事務委員會開會後，提交財委會人事編制小組委員會再作討論。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797132-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797132-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797132-20250324.htm)
-
----
-
-# 羅淑佩主持體育委員會會議後下午5時半見傳媒
-
-![羅淑佩今日主持體育委員會會議後，將在下午5時30分在政府總部會見傳媒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797130_1_20250324125109.jpg&q=80)
-  
-
-文化體育及旅遊局局長羅淑佩今日主持體育委員會會議後，將在下午5時30分在政府總部會見傳媒。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797130-20250324.htm)
-
----
-
-# 林奮強：倘不改革公營醫療收費　難以持續應付人口老化
-
-![林奮強說，政府醫療開支及需求已達「臨界點」，如果不改革，難以持續回應人口老化等需要。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797129_1_20250324125032.jpg&q=75)
-![龍振邦亦認為，有需要調整收費，否則服務難以維持。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797129_2_20250324125032.jpg&q=80)
-  
-
-醫管局管治及架構改革委員會成員林奮強表示，本港公營醫療開支及需求都很大，已達「臨界點」，政府的醫療補貼比率亦比其他地方高，如果不改革公營醫療收費，難以持續應付人口老化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797129-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797129-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797129-20250324.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 外交部：報告揭示美方多年來慣於在供應鏈安全問題「賊喊捉賊」
+
+  
+
+中國網絡安全產業聯盟發佈報告，披露美國針對全球移動智能終端機、移動產供鏈、運營商等開展網絡攻擊和監聽竊密活動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm)
+
+---
+
 # 外交部：中方從未也沒有興趣干涉加拿大內政
 
 ![郭嘉昆表示，中方一貫堅持不干涉別國內政的原則，從未也沒有興趣干涉加拿大的內政。(路透社資料圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797321_1_20250325164026.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797044-20250323.htm)
-
----
-
-# 土耳其伊斯坦布爾市長正式被捕　羈押候審
-
-![土耳其伊斯坦布爾市長伊馬姆奧盧正式被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797039_1_20250323175438.jpg&q=90)
-  
-
-土耳其伊斯坦布爾刑事法庭以涉嫌貪污等罪名，正式拘捕伊斯坦布爾市長伊馬姆奧盧，將他羈押候審。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797039-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797039-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797039-20250323.htm)
 
 ---

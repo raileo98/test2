@@ -1,3 +1,27 @@
+# 本港首2個月出口按年升6.5%　上月出口升15.4%
+
+![本港首2個月整體出口貨值按年升6.5%，進口貨值升5.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797325_1_20250325164835.jpg&q=80)
+  
+
+政府統計處公布，本港首2個月整體出口貨值按年升6.5%，進口貨值升5.7%。首兩個月錄得有形貿易逆差346億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm)
+
+---
+
 # 陳翊庭：互聯互通助力內地耐心資本多元化配置
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797186-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797186-20250324.htm)
-
----
-
-# 財政部：今年財政政策要更加積極　具體提高財政赤字率
-
-![財政部發布報告指，今年財政政策要更加積極，包括具體提高財政赤字率、加大支出強度、加速支出進度等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797183_1_20250324174156.jpg&q=75)
-  
-
-在北京，財政部發布《中國財政政策執行情況報告》，表示今年財政政策要更加積極、持續用力、更加給力，包括具體提高財政赤字率、加大支出強度、加速支出進度；安排更大規模政府債券，為穩增長、調結構提供更多支撐；大力優化支出結構、加強精準投放，更加注重惠民生、促消費、增後勁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm)
 
 ---

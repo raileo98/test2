@@ -1,6 +1,6 @@
 # Relief as billiards keep Tier A status
 
-![Vincent Law says the decision allows billiard players and coaches to focus on training. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797283_1_20250325120446.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797283_1_20250325120446.jpg&q=90)
   
 
 The chairman of the Billiard Sports Council of Hong Kong China welcomes the government's decision to retain the sport's Tier A status, saying the impact would have been devastating had the sport been downgraded.

@@ -1,3 +1,51 @@
+# Boao forum offers upbeat forecast on Asia growth
+
+![Zhang Jun, secretary general of the Boao Forum for Asia, says Asia will continue to see robust economic growth for this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797323_1_20250325164614.jpg&q=80)
+  
+
+Asia's economy is likely to continue its robust growth this year despite challenges, according to a report by the Boao Forum for Asia.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm)
+
+---
+
+# Hang Seng Index closes down 2.3 percent
+
+![The Hang Seng Index falls to 23,344 on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797329_1_20250325170851.jpg&q=75)
+  
+
+Equities diverged on Tuesday, as investors struggled to extend Wall Street's rally despite easing fears over US president Donald Trump's planned tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797329-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797329-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797329-20250325.htm)
+
+---
+
 # HK capital market 'needs blueprint for further growth'
 
 ![Qi Bin, deputy director of the central government's liaison office, has called on Hong Kong to seize the momentum offered by the strong return of foreign capital. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_1_20250325140507.jpg&q=80)
@@ -1389,53 +1437,5 @@ Local shares sank on Monday on a mixed day for equity markets, amid escalating g
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795139-20250310.htm)
-
----
-
-# Hong Kong stocks open lower on growth concerns
-
-![In a Fox News interview on Sunday, US President Donald Trump declined to predict whether his tariffs would result in a US recession.Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795061_1_20250310102543.jpg&q=90)
-  
-
-The Hang Seng Index lost 115.32 points, or 0.48 percent, to open at 24,115.98 points on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795061-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795061-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795061-20250310.htm)
-
----
-
-# 7-Eleven explores sell-offs with Couche-Tard
-
-![Seven & i operates some 85,000 convenience stores worldwide. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795045_1_20250310090227.jpg&q=90)
-  
-
-The Japanese owner of 7-Eleven said on Monday it had agreed to jointly explore store sell-offs with Alimentation Couche-Tard (ACT) to address antitrust concerns ahead of a potential merger.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm)
 
 ---
