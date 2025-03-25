@@ -1,3 +1,27 @@
+# 世界盃外圍賽　埃及主場1:0小勝塞拉利昂
+
+![埃及主場1:0小勝塞拉利昂。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797406_1_20250326071907.jpg&q=90)
+  
+
+世界盃外圍賽非洲區A組，埃及主場1:0小勝塞拉利昂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797406-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797406-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797406-20250326.htm)
+
+---
+
 # 亞洲盃外圍賽港隊作客0:0賽和新加坡
 
 ![亞洲盃外圍賽港隊作客0:0賽和新加坡。（中國香港足球總會社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797377_1_20250325230346.jpg&q=90)
@@ -1426,30 +1450,5 @@ LIV Golf 香港站賽事結束，個人賽冠軍由加西亞奪得，他並與�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794867-20250308.htm)
-
----
-
-# 因傷接受手術　荷蘭兩名後衛尼敦艾基及博文將休戰多個星期
-
-![尼敦艾基因傷接受手術，要養傷至少10個星期。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794842_1_20250308071112.jpg&q=90)
-![博文受傷患困擾，今季上陣次數不多。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794842_2_20250308071112.jpg&q=90)
-  
-
-英超曼城後衛尼敦艾基因為左腳骨折，已接受手術，至少要養傷10個星期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1794842-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1794842-20250308.htm](https://news.rthk.hk/rthk/ch/component/k2/1794842-20250308.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 世界盃外圍賽　埃及主場1:0小勝塞拉利昂
+
+![埃及主場1:0小勝塞拉利昂。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797406_1_20250326071907.jpg&q=90)
+  
+
+世界盃外圍賽非洲區A組，埃及主場1:0小勝塞拉利昂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797406-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797406-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797406-20250326.htm)
+
+---
+
 # 金價曾升約0.8%　受避險資金支撐
 
 ![現貨金高見每盎司3035.71美元，升約0.8%，較早時徘徊3020美元附近。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797397_1_20250326055910.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm)
-
----
-
-# 政府消息：公營醫療收費上限每人每年一萬元　讓中產不會因病致貧
-
-![政府消息人士表示，如果不改革，系統會倒閉，強調改革有加有減。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797330_1_20250325173206.jpg&q=80)
-  
-
-政府公布公營醫療服務收費改革詳情，政府消息人士表示，香港公營醫療系統非常好，但資助如「仙女散花」般，所有人的共付額都是2.4%，長遠不可能維持。如果不改革，系統會倒閉，強調改革有加有減，對於急、困、貧、重、危的病人，資助有所增加。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797330-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797330-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797330-20250325.htm)
 
 ---
