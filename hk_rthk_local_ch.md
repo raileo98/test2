@@ -1,5 +1,29 @@
+# 雙層巴士大埔行駛途中車尾起火冒濃煙　消防救熄無人受傷
+
+  
+
+一部雙層巴士在大埔行駛途中，車尾起火，消防員到場灌救，將火撲熄，事件中沒有人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797324-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797324-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797324-20250325.htm)
+
+---
+
 # 社協憂公營醫療收費調整不利基層及夾心階層長期病患者
 
+![社區組織協會認為，相對於「封頂」的更好做法，是病人在無需另行申請的情況下，醫管局財務系統可自動豁免費用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797319_1_20250325164912.jpg&q=80)
   
 
 社區組織協會回應政府公布公營醫療服務收費改革，表示擔心收費調整不利基層市民及夾心階層的長期病患者，認為必須透過更全面的醫療收費減免制度，保障他們不因經濟困難而得不到適切治療。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797129-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797129-20250324.htm)
-
----
-
-# 港股半日跌27點　中石化及國藥績後偏軟
-
-![恒生指數中午收市報23662點，跌27點，跌幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797125_1_20250324120954.jpg&q=10)
-  
-
-港股反覆偏軟，恒生指數中午收市報23662點，跌27點，跌幅0.12%，半日主板成交額約1275億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797125-20250324.htm)
 
 ---
