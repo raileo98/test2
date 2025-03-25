@@ -1,3 +1,73 @@
+# 博鰲亞洲論壇展開　料60多個國家和地區約2000名代表參加
+
+  
+
+博鰲亞洲論壇2025年年會今日至本周五海南博鰲舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797276-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797276-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797276-20250325.htm)
+
+---
+
+# 蔡崇信：要消費者重拾消費意欲需要重建商業信心
+
+  
+
+阿里巴巴主席蔡崇信表示，內地推出刺激消費措施時間不長，暫未見到重大復蘇跡象。他認為，要消費者重拾消費意欲，需要重建商業信心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797275-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797275-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797275-20250325.htm)
+
+---
+
+# 以色列政府指法院無權司法干預解除國安總局局長職務決定
+
+![內塔尼亞胡政府的文件指任免國家安全總局負責人，屬於國家安全政策範疇，法院歷來不干涉有關領域。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797273_1_20250325111310.jpg&q=90)
+  
+
+以色列總理內塔尼亞胡政府向高等法院提交文件，內容是法院無權對政府解除國家安全總局局長巴爾職務的決定，作出司法干預。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797273-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797273-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797273-20250325.htm)
+
+---
+
 # 祁斌：香港資本市場復蘇　應進一步改革確保持續健康發展
 
 ![祁斌建議進一步改革和發展香港資本市場，鞏固目前的正面勢頭，並確保市場持續健康發展。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797272_1_20250325105800.jpg&q=90)
@@ -166,10 +236,10 @@
 
 # 蔡崇信：民營企業座談會後內地企業家信心增強
 
-![蔡崇信表示，自今年1月國家主席習近平會見民營企業以來，企業家信心明顯增強。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797262_1_20250325100958.jpg&q=75)
+![蔡崇信表示，自今年2月國家主席習近平會見民營企業以來，企業家信心明顯增強。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797262_1_20250325100958.jpg&q=75)
   
 
-阿里巴巴主席蔡崇信表示，自今年1月國家主席習近平會見民營企業以來，企業家信心明顯增強。
+阿里巴巴主席蔡崇信表示，自今年2月國家主席習近平會見民營企業以來，企業家信心明顯增強。
 
   
 
@@ -1361,77 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797202-20250324.htm)
-
----
-
-# 李強晤亞行行長　稱中方將擔起大國責任為世界發展注入更多穩定性
-
-![李強在北京人民大會堂會見亞洲開發銀行行長神田真人。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797201_1_20250324201943.jpg&q=90)
-  
-
-國務院總理李強在北京人民大會堂會見亞洲開發銀行行長神田真人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm)
-
----
-
-# 羅淑佩稱精英體育發展需考慮個別項目獨特性及彈性處理
-
-![羅淑佩說，新機制可以提供彈性，亦讓網球運動員有努力的目標。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797200_1_20250324201837.jpg&q=90)
-  
-
-政府宣布，桌球及網球未來兩年，將繼續保留為體育學院「A級」精英項目。另外，所有精英運動員的直接資助額，將會上調8.3%，今年4月1日起生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm)
-
----
-
-# 比亞迪電子去年盈利升近6%　收入升逾36%
-
-![比亞迪電子去年盈利42.7億元人民幣，按年升約5.6%。派末期息每股0.568元，按年增加近6%。（港交所截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797198_1_20250324195419.jpg&q=90)
-  
-
-比亞迪電子公布，去年盈利42.7億元人民幣，按年升約5.6%。派末期息每股0.568元，按年增加近6%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797198-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797198-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797198-20250324.htm)
 
 ---

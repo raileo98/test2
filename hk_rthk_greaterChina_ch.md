@@ -1,3 +1,49 @@
+# 博鰲亞洲論壇展開　料60多個國家和地區約2000名代表參加
+
+  
+
+博鰲亞洲論壇2025年年會今日至本周五海南博鰲舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797276-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797276-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797276-20250325.htm)
+
+---
+
+# 蔡崇信：要消費者重拾消費意欲需要重建商業信心
+
+  
+
+阿里巴巴主席蔡崇信表示，內地推出刺激消費措施時間不長，暫未見到重大復蘇跡象。他認為，要消費者重拾消費意欲，需要重建商業信心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797275-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797275-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797275-20250325.htm)
+
+---
+
 # 湖南當局指丰水流域污染源已受控　處置工作有序進行
 
   
@@ -1389,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796864-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796864-20250322.htm)
-
----
-
-# 王毅談中日韓合作　強調遠親不如近鄰
-
-![王毅在東京出席日本首相石破茂集體會見中日韓外長。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796859_1_20250322002419.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅談到中日韓合作時說，遠親不如近鄰。面對不穩定、不確定明顯上升的世界，這句充滿東方智慧的格言更加凸顯三方合作的重要現實意義。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796859-20250322.htm)
-
----
-
-# 王毅晤石破茂　促日方切實履行在歷史和台灣問題上政治承諾
-
-![王毅在東京與日本首相石破茂會面。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796858_1_20250321235157.jpg&q=90)
-  
-
-訪問日本的中共中央政治局委員、外長王毅在東京與日本首相石破茂會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796858-20250321.htm)
 
 ---

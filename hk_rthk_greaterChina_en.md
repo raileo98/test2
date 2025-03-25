@@ -1,3 +1,27 @@
+# Chinese staff of US due diligence firm freed
+
+![Mintz Group's office in Beijing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797274_1_20250325111046.jpg&q=90)
+  
+
+Chinese authorities have released all employees of a US corporate due diligence firm detained in Beijing two years ago in an apparent move to reassure foreign firms operating in China amid sliding foreign investment in the world's No 2 economy.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm)
+
+---
+
 # 'Trump's fees on Chinese ships will backfire'
 
 ![A container ship sails beneath the Golden Gate Bridge as it makes its way into port in San Francisco. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797249_1_20250325083906.jpg&q=90)
@@ -19,6 +43,30 @@ President Donald Trump's plan to revitalise the US shipbuilding industry is like
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm)
+
+---
+
+# New Trump Venezuelan oil tariff could hit China
+
+![An oil tanker near the Venezuelan port of La Salina. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797246_1_20250325082707.jpg&q=90)
+  
+
+US President Donald Trump announced on Monday steep tariffs on imports from countries buying Venezuelan oil and gas, a punitive measure that could hit China and India, among others, and sow fresh global trade uncertainty.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm)
 
 ---
 
@@ -1387,53 +1435,5 @@ Hong Kong and Macau delegates to the country's top political advisory body said 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794963-20250309.htm)
-
----
-
-# Mainland sees year-on-year drop in inflation
-
-![Customers buy vegetables at a supermarket in Handan in Hebei province. China's consumer price index is down 0.7 percent year on year in February. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794959_1_20250309102433.jpg&q=75)
-  
-
-China's consumer inflation in February fell at the quickest pace since January 2024, while producer price deflation persisted, as seasonal demand faded while households are still cautious about spending.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794959-20250309.htm)
-
----
-
-# 'HK should take One Country, Two Systems to new level'
-
-![Zheng Yanxiong says Hong Kong should speed up the process of advancing to prosperity. Photo courtesy of the liaison office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794932_1_20250308214630.jpg&q=90)
-  
-
-The director of the central government's liaison office, Zheng Yanxiong, on Saturday said Hong Kong should take the “One Country, Two Systems” principle to a new level, and strive for better development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm](https://news.rthk.hk/rthk/en/component/k2/1794932-20250308.htm)
 
 ---

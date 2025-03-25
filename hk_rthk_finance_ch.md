@@ -1,3 +1,26 @@
+# 蔡崇信：要消費者重拾消費意欲需要重建商業信心
+
+  
+
+阿里巴巴主席蔡崇信表示，內地推出刺激消費措施時間不長，暫未見到重大復蘇跡象。他認為，要消費者重拾消費意欲，需要重建商業信心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797275-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797275-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797275-20250325.htm)
+
+---
+
 # 祁斌：香港資本市場復蘇　應進一步改革確保持續健康發展
 
 ![祁斌建議進一步改革和發展香港資本市場，鞏固目前的正面勢頭，並確保市場持續健康發展。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797272_1_20250325105800.jpg&q=90)
@@ -95,10 +118,10 @@
 
 # 蔡崇信：民營企業座談會後內地企業家信心增強
 
-![蔡崇信表示，自今年1月國家主席習近平會見民營企業以來，企業家信心明顯增強。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797262_1_20250325100958.jpg&q=75)
+![蔡崇信表示，自今年2月國家主席習近平會見民營企業以來，企業家信心明顯增強。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797262_1_20250325100958.jpg&q=75)
   
 
-阿里巴巴主席蔡崇信表示，自今年1月國家主席習近平會見民營企業以來，企業家信心明顯增強。
+阿里巴巴主席蔡崇信表示，自今年2月國家主席習近平會見民營企業以來，企業家信心明顯增強。
 
   
 
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797112-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797112-20250324.htm)
-
----
-
-# 港交所：個股槓桿及反向產品上市加強香港區內領先ETP市場地位
-
-![港交所稱亞洲首批個股槓桿及反向產品上市將加強香港區內領先ETP市場地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797108_1_20250324105109.jpg&q=90)
-  
-
-港交所歡迎亞洲首批個股槓桿及反向產品上市，指進一步豐富香港產品生態圈，加強香港作為區內領先的交易所買賣產品（ETP）市場地位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm)
 
 ---

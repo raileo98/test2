@@ -1,3 +1,53 @@
+# Chinese staff of US due diligence firm freed
+
+![Mintz Group's office in Beijing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797274_1_20250325111046.jpg&q=90)
+  
+
+Chinese authorities have released all employees of a US corporate due diligence firm detained in Beijing two years ago in an apparent move to reassure foreign firms operating in China amid sliding foreign investment in the world's No 2 economy.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm)
+
+---
+
+# AI installation showcases HK reel heritage
+
+![The animation features AI-generated characters performing scenes inspired by cinema icons. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797269_1_20250325104802.jpg&q=90)
+![Singaporean artist Ho Tzu-nyen says the project is a homage to Hong Kong's cinema heritage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797269_2_20250325104802.jpg&q=90)
+![M+ moving image curator Silke Schmickl says the project shows the expansion of art into public spaces. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797269_3_20250325104802.jpg&q=90)
+  
+
+In a first, M+ Museum is using artificial intelligence to transform its facade into a canvas celebrating Hong Kong's golden age of film during Art Basel.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm)
+
+---
+
 # De Minaur finds way through Fonseca fervor in Miami
 
 ![Alex de Minaur goes for an overhead drive in his Miami Open match against Joao Fonseca at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797270_1_20250325105235.jpg&q=90)
@@ -216,7 +266,7 @@ US stocks closed higher on Monday as traders welcomed news that the administrati
 
 # Journalist included in Houthi strike messaging group
 
-![Hours before those attacks started, US defence secretary Pete Hegseth posted operational details about the plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797229_1_20250325050810.jpg&q=90)
+![Hours before those attacks started, US Defence Secretary Pete Hegseth posted operational details about the plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797229_1_20250325050810.jpg&q=90)
   
 
 Top Trump administration officials, including US Vice President JD Vance and Secretary of Defence Pete Hegseth, mistakenly included a journalist in a messaging group discussing strikes against Yemen's Iran-aligned Houthis, according to a firsthand account by The Atlantic magazine.
@@ -1389,53 +1439,5 @@ Hong Kong tennis star Coleman Wong pulled off the biggest triumph of his career 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797004-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797004-20250323.htm)
-
----
-
-# Protests continue in Turkey after mayor arrested
-
-![A protester in Istanbul waves Turkey's national flag. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796993_1_20250323083846.jpg&q=90)
-  
-
-Huge crowds gathered outside Istanbul City Hall late on Saturday for a fourth night of protests over the arrest of Mayor Ekrem Imamoglu, who has blasted official allegations against him as "immoral and baseless".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm)
-
----
-
-# UK to announce more cuts in budget update
-
-![Finance minister Rachel Reeves is expected to reduce the administration budgets for the civil service by 10 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796992_1_20250323073004.jpg&q=90)
-  
-
-British finance minister Rachel Reeves is eyeing spending cuts for government officials who work in departments to the value of around 1.5 billion pounds (US$1.94 billion) a year by 2028-29, The Times newspaper reported on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm)
 
 ---

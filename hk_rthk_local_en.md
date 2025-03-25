@@ -1,3 +1,29 @@
+# AI installation showcases HK reel heritage
+
+![The animation features AI-generated characters performing scenes inspired by cinema icons. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797269_1_20250325104802.jpg&q=90)
+![Singaporean artist Ho Tzu-nyen says the project is a homage to Hong Kong's cinema heritage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797269_2_20250325104802.jpg&q=90)
+![M+ moving image curator Silke Schmickl says the project shows the expansion of art into public spaces. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797269_3_20250325104802.jpg&q=90)
+  
+
+In a first, M+ Museum is using artificial intelligence to transform its facade into a canvas celebrating Hong Kong's golden age of film during Art Basel.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm)
+
+---
+
 # Local airlines to ban in-flight charger use
 
 ![Using or recharging portable chargers during flights will be banned from April 7. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797203_1_20250324210630.jpg&q=90)
@@ -1417,29 +1443,5 @@ Sports chief Rosanna Law said on Wednesday that parties involved in the Hong Kon
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm)
-
----
-
-# PolyU 'to shoulder cost of third medical school'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796404_1_20250319133406.jpg&q=75)
-  
-
-Polytechnic University (PolyU) on Wednesday said it will shoulder the cost of developing Hong Kong's third medical school when necessary.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796404-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796404-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796404-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 以色列政府指法院無權司法干預解除國安總局局長職務決定
+
+![內塔尼亞胡政府的文件指任免國家安全總局負責人，屬於國家安全政策範疇，法院歷來不干涉有關領域。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797273_1_20250325111310.jpg&q=90)
+  
+
+以色列總理內塔尼亞胡政府向高等法院提交文件，內容是法院無權對政府解除國家安全總局局長巴爾職務的決定，作出司法干預。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797273-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797273-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797273-20250325.htm)
+
+---
+
 # 新西蘭里弗頓海岸地震　美國地質勘探局指強度為7級
 
 ![新西蘭里弗頓海岸地震　美國地質勘探局指強度為7級](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797264_1_20250325104709.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm)
-
----
-
-# 莫斯科市郊音樂廳恐襲案一周年　民眾到紀念碑前悼念死者
-
-![莫斯科市郊音樂廳恐襲案一周年，民眾到紀念碑前悼念死難者。 （法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797017_1_20250323133401.jpg&q=90)
-  
-
-俄羅斯莫斯科市郊音樂廳恐襲案發生一周年，現場豎立新建成的紀念碑，數百名民眾到場擺放鮮花和照片，悼念145名死難者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797017-20250323.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Chinese staff of US due diligence firm freed
+
+![Mintz Group's office in Beijing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797274_1_20250325111046.jpg&q=90)
+  
+
+Chinese authorities have released all employees of a US corporate due diligence firm detained in Beijing two years ago in an apparent move to reassure foreign firms operating in China amid sliding foreign investment in the world's No 2 economy.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm)
+
+---
+
 # Boeing 'wants to bail out of 737 MAX guilty plea deal'
 
 ![Two 737 MAX crashes that killed 346 people have fuelled deep concern over Boeing's quality and manufacturing processes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797265_1_20250325103519.jpg&q=60)
@@ -120,7 +144,7 @@ US President Donald Trump announced on Monday steep tariffs on imports from coun
 
 # Journalist included in Houthi strike messaging group
 
-![Hours before those attacks started, US defence secretary Pete Hegseth posted operational details about the plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797229_1_20250325050810.jpg&q=90)
+![Hours before those attacks started, US Defence Secretary Pete Hegseth posted operational details about the plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797229_1_20250325050810.jpg&q=90)
   
 
 Top Trump administration officials, including US Vice President JD Vance and Secretary of Defence Pete Hegseth, mistakenly included a journalist in a messaging group discussing strikes against Yemen's Iran-aligned Houthis, according to a firsthand account by The Atlantic magazine.
@@ -1412,29 +1436,5 @@ Britain's foreign minister David Lammy on Wednesday called for a transparent inv
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796520-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796520-20250320.htm)
-
----
-
-# Trump suggests US takeover of Ukraine's power plants
-
-![The White House said that during the call Trump (Left) had floated US "ownership" of Ukrainian power plants as it would be the "best protection" for them. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796505_1_20250320032202.jpg&q=90)
-  
-
-US President Donald Trump hailed a "very good" call with Ukraine's Volodymyr Zelensky on Wednesday, a day after Russia's Vladimir Putin agreed to temporarily halt attacks on Kyiv's power plants.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796505-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796505-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796505-20250320.htm)
 
 ---
