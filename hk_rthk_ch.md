@@ -1,3 +1,26 @@
+# 公營醫療收費每人每年1萬元上限　料7萬名重症病人受惠
+
+  
+
+政府公布公營醫療服務收費改革方案，當局強調，今次改革是從系統角度改革資助架構，按不同公營醫療服務𨤳定政府資助水平和共付比例，理順住院和急症室等服務的相對需求。政府強調會循序漸進，分階段5年內達致目標，第一階段調整將於明年推行，每兩年檢討一次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797292-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797292-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797292-20250325.htm)
+
+---
+
 # 新西蘭南島外海地震　當局正評估海嘯威脅
 
   
@@ -23,7 +46,6 @@
 
 # 急症室收費400元　住院急症病床每日300元
 
-![急症室收費將由現時180元增至400元，第一類危殆及第二類危急病人可獲豁免。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797289_1_20250325123845.jpg&q=90)
   
 
 政府公布公營醫療服務收費改革方案，涉及的服務範圍涵蓋住院、日間程序、急症室、專科門診、病理檢驗、非緊急放射造影、家庭醫學門診等。
@@ -119,6 +141,7 @@
 
 # 海關破香港往新加坡經遠洋船走私貨物　估計市值約一千萬元
 
+![海關檢獲的懷疑走私貨物。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797284_1_20250325124434.jpg&q=80)
   
 
 海關偵破涉嫌利用遠洋船走私的案件，檢獲一批懷疑走私貨物，估計市值約1000萬元。
@@ -477,6 +500,7 @@
 
 # 湖南當局指丰水流域污染源已受控　處置工作有序進行
 
+![湖南當局指丰水流域污染源已受控　處置工作有序進行](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797263_1_20250325124754.jpg&q=90)
   
 
 湖南湘江最大支流丰水流域，近日部分河段水質異常，引起關注。
@@ -1407,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm)
-
----
-
-# 霍啟剛歡迎當局彈性處理調整精英體育資助制度
-
-![霍啟剛表示，歡迎當局今次彈性處理，調整精英體育資助制度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797215_1_20250324225435.jpg&q=80)
-  
-
-港協暨奧委會副會長霍啟剛表示，近年香港運動員在桌球和網球國際賽事的成績非常好，歡迎當局今次彈性處理，調整精英體育資助制度，讓這兩個項目在未來兩年繼續成為體育學院的「A級」精英項目。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm)
 
 ---

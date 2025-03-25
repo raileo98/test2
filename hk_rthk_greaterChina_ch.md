@@ -71,6 +71,7 @@
 
 # 湖南當局指丰水流域污染源已受控　處置工作有序進行
 
+![湖南當局指丰水流域污染源已受控　處置工作有序進行](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797263_1_20250325124754.jpg&q=90)
   
 
 湖南湘江最大支流丰水流域，近日部分河段水質異常，引起關注。

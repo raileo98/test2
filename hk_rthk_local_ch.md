@@ -1,6 +1,28 @@
+# 公營醫療收費每人每年1萬元上限　料7萬名重症病人受惠
+
+  
+
+政府公布公營醫療服務收費改革方案，當局強調，今次改革是從系統角度改革資助架構，按不同公營醫療服務𨤳定政府資助水平和共付比例，理順住院和急症室等服務的相對需求。政府強調會循序漸進，分階段5年內達致目標，第一階段調整將於明年推行，每兩年檢討一次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797292-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797292-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797292-20250325.htm)
+
+---
+
 # 急症室收費400元　住院急症病床每日300元
 
-![急症室收費將由現時180元增至400元，第一類危殆及第二類危急病人可獲豁免。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797289_1_20250325123845.jpg&q=90)
   
 
 政府公布公營醫療服務收費改革方案，涉及的服務範圍涵蓋住院、日間程序、急症室、專科門診、病理檢驗、非緊急放射造影、家庭醫學門診等。
@@ -72,6 +94,7 @@
 
 # 海關破香港往新加坡經遠洋船走私貨物　估計市值約一千萬元
 
+![海關檢獲的懷疑走私貨物。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797284_1_20250325124434.jpg&q=80)
   
 
 海關偵破涉嫌利用遠洋船走私的案件，檢獲一批懷疑走私貨物，估計市值約1000萬元。
@@ -1412,30 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm)
-
----
-
-# 林奮強指政府醫療開支大達臨界點　醫生組織冀當局多作解說免爭拗
-
-![龍振邦亦認為，有需要調整收費，否則服務難以維持。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797092_2_20250324092545.jpg&q=80)
-![消息指，政府目標本月內公布公營醫療收費調整方案細節。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797092_3_20250324092545.jpg&q=80)
-  
-
-政府目標本月內公布公營醫療收費調整方案細節。醫管局管治及架構改革委員會成員林奮強指出，現時政府補貼佔整個醫管局支出超過97%，重申改革收費目的為盡量精準利用有限資源，提高對重症危疾的保障。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797092-20250324.htm)
 
 ---
