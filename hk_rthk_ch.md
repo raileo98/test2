@@ -1,3 +1,27 @@
+# 急症室收費將增至4百　危急病人豁免　普通科門診加至150元
+
+![急症室收費將增至4百　危急病人豁免　普通科門診加至150元](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797345_1_20250325183446.jpg&q=90)
+  
+
+政府公布公營醫療服務收費改革方案，當中急症室收費由現時180元上調至400元，第一類危殆及第二類危急病人豁免收費。急症住院病床收費由每日120元增至300元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797345-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797345-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797345-20250325.htm)
+
+---
+
 # 有市民贊成急症室增收費防濫用　有人擔心私家診所亦加價
 
 ![有市民贊成急症室加價，認為可達至分流效果，更好分配資源；有反對的市民說，收費400元太貴，擔心私家診所收費亦會加價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797344_1_20250325182516.jpg&q=80)

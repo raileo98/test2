@@ -1,3 +1,50 @@
+# 每名病人每年最多支付1萬元料7萬人受惠　並放寬費用減免資格
+
+  
+
+公營醫療體系改革方案增設每人每年1萬元收費上限，適用於除了自費藥械外的所有收費項目，預料7萬人受惠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797346-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797346-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797346-20250325.htm)
+
+---
+
+# 急症室收費將增至4百　危急病人豁免　普通科門診加至150元
+
+![急症室收費將增至4百　危急病人豁免　普通科門診加至150元](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797345_1_20250325183446.jpg&q=90)
+  
+
+政府公布公營醫療服務收費改革方案，當中急症室收費由現時180元上調至400元，第一類危殆及第二類危急病人豁免收費。急症住院病床收費由每日120元增至300元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797345-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797345-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797345-20250325.htm)
+
+---
+
 # 有市民贊成急症室增收費防濫用　有人擔心私家診所亦加價
 
 ![有市民贊成急症室加價，認為可達至分流效果，更好分配資源；有反對的市民說，收費400元太貴，擔心私家診所收費亦會加價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797344_1_20250325182516.jpg&q=80)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm)
-
----
-
-# 陳茂波：將推出創新政策　促進港深人員資金數據及生物樣本流動
-
-![陳茂波指政府將推出試驗性質的創新政策，促進香港與深圳的人員、資金、貨物、數據，甚至生物樣本的流動。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797166_1_20250324171436.jpg&q=90)
-  
-
-財政司司長陳茂波表示，北部都會區與深圳接壤，將成為粵港兩地合作的橋頭堡，佔地300公頃的創新科技園區，涵蓋「河套合作區」，政府將推出試驗性質的創新政策，促進香港與深圳的人員、資金、貨物、數據，甚至生物樣本的流動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm)
-
----
-
-# 七欖期間有酒店安排免費穿梭巴士　的士業稱啟德設專區接送乘客
-
-![香港國際七人欖球賽本周五起，一連三日在啟德體育園主場館舉行。（旅發局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797160_1_20250324171356.jpg&q=90)
-  
-
-香港國際七人欖球賽本周五起，一連三日在啟德體育園主場館舉行，有的士業界透露，上周與運輸署開會，商討交通安排，包括屆時將會透過的士台或打電話，呼籲的士司機到體育園接載乘客。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797160-20250324.htm)
 
 ---

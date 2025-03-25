@@ -405,7 +405,7 @@
 
 # 李強晤亞行行長　稱中方將擔起大國責任為世界發展注入更多穩定性
 
-![李強在北京人民大會堂會見亞洲開發銀行行長神田真人。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797201_1_20250324201943.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797201_1_20250324201943.jpg&q=90)
   
 
 國務院總理李強在北京人民大會堂會見亞洲開發銀行行長神田真人。
