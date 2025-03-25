@@ -1,5 +1,30 @@
+# 祁斌：香港資本市場復蘇　應進一步改革確保持續健康發展
+
+![祁斌建議進一步改革和發展香港資本市場，鞏固目前的正面勢頭，並確保市場持續健康發展。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797272_1_20250325105800.jpg&q=90)
+  
+
+中聯辦副主任祁斌表示，港股今年以來跑贏英美日等主要市場，形容香港資本市場迎來春天並充滿新的活力，眾多科技股股價創新高，日均成交額顯著改善，新股市場亦見回暖。他又說，本港就業和消費表現正面，樓市信心有所回升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm)
+
+---
+
 # 鄭泳舜：精英運動員資助增至1萬元屬起步　桌球總會：並非無壓力
 
+![鄭泳舜（左）認為，精英運動員增至1萬元資助只是起步。羅永聰（右）表示，運動員及教練可以暫時鬆一口氣，但並非沒有壓力。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797268_1_20250325105728.jpg&q=90)
   
 
 政府公布由下月起，所有精英運動員直接資助額增加8.3%，成年隊資助由每月7千多元加至1萬元。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797048-20250323.htm)
-
----
-
-# 回應英國《衞報》評論文章　鄧炳強：特區政府反對誹謗法院
-
-![鄧炳強強調，特區政府堅定維護市民依法享有的權利和自由。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797046_1_20250323193741.jpg&q=80)
-  
-
-英國《衞報》日前刊登評論文章，認為黎智英被阻撓選擇代表律師，而有關決定不受法律挑戰，等同賦予維護國家安全委員會所謂「警察國家」的權力。保安局局長鄧炳強去信《衞報》表達強烈反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797046-20250323.htm)
 
 ---

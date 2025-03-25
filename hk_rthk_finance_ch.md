@@ -1,3 +1,50 @@
+# 祁斌：香港資本市場復蘇　應進一步改革確保持續健康發展
+
+![祁斌建議進一步改革和發展香港資本市場，鞏固目前的正面勢頭，並確保市場持續健康發展。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797272_1_20250325105800.jpg&q=90)
+  
+
+中聯辦副主任祁斌表示，港股今年以來跑贏英美日等主要市場，形容香港資本市場迎來春天並充滿新的活力，眾多科技股股價創新高，日均成交額顯著改善，新股市場亦見回暖。他又說，本港就業和消費表現正面，樓市信心有所回升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm)
+
+---
+
+# 布雷納德：聯儲局觀望取態是正確策略
+
+  
+
+聯儲局前副主席兼白宮國家經濟委員會前主任布雷納德（Lael Brainard）表示，經濟面臨不確定性，包括特朗普政府提出的關稅、移民和減稅政策，認為聯儲局觀望的取態是正確策略。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797271-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797271-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797271-20250325.htm)
+
+---
+
 # 港股跌幅擴大至逾400點　汽車及手機設備股沽壓大
 
 ![港股跌幅擴大，恒生指數較早時報23446點，跌459點，跌幅1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797267_1_20250325103521.jpg&q=75)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797108-20250324.htm)
-
----
-
-# 日股半日近乎持平
-
-![日經指數半日報37676點，跌不足1點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797107_1_20250324104300.jpg&q=90)
-  
-
-日股開市初段曾升逾160點，觸及37841點，其後反覆向下，日經指數半日報37676點，跌不足1點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797107-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797107-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797107-20250324.htm)
-
----
-
-# 許正宇：年底前可望引入逾200間家辦來港　料超額達標
-
-![許正宇稱逾160間已落戶香港的家辦，約四分之一與過去兩屆「裕澤香江」高峰論壇直接有關。（財庫局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797106_2_20250324104432.jpg&q=90)
-  
-
-財經事務及庫務局局長許正宇相信，今年底前可望引入逾200間家族辦公室來港，超額完成2022年施政報告提出的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797106-20250324.htm)
 
 ---

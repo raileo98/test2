@@ -1,5 +1,53 @@
+# 祁斌：香港資本市場復蘇　應進一步改革確保持續健康發展
+
+![祁斌建議進一步改革和發展香港資本市場，鞏固目前的正面勢頭，並確保市場持續健康發展。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797272_1_20250325105800.jpg&q=90)
+  
+
+中聯辦副主任祁斌表示，港股今年以來跑贏英美日等主要市場，形容香港資本市場迎來春天並充滿新的活力，眾多科技股股價創新高，日均成交額顯著改善，新股市場亦見回暖。他又說，本港就業和消費表現正面，樓市信心有所回升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm)
+
+---
+
+# 布雷納德：聯儲局觀望取態是正確策略
+
+  
+
+聯儲局前副主席兼白宮國家經濟委員會前主任布雷納德（Lael Brainard）表示，經濟面臨不確定性，包括特朗普政府提出的關稅、移民和減稅政策，認為聯儲局觀望的取態是正確策略。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797271-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797271-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797271-20250325.htm)
+
+---
+
 # 鄭泳舜：精英運動員資助增至1萬元屬起步　桌球總會：並非無壓力
 
+![鄭泳舜（左）認為，精英運動員增至1萬元資助只是起步。羅永聰（右）表示，運動員及教練可以暫時鬆一口氣，但並非沒有壓力。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797268_1_20250325105728.jpg&q=90)
   
 
 政府公布由下月起，所有精英運動員直接資助額增加8.3%，成年隊資助由每月7千多元加至1萬元。
@@ -1385,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797198-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797198-20250324.htm)
-
----
-
-# 李強簽國務院令　 公布實施《反外國制裁法》規定
-
-![李強簽署國務院令，公布實施《反外國制裁法》的規定。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797199_1_20250324195956.jpg&q=90)
-  
-
-國務院總理李強簽署國務院令，公布實施《中華人民共和國反外國制裁法》的規定，即日起施行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797199-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797199-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797199-20250324.htm)
-
----
-
-# 舜宇光學去年多賺1.46倍　末期息每股派0.532港元
-
-![舜宇光學去年盈利約27億元人民幣，按年急升約1.46倍。派末期息每股0.532港元，按年增加1.43倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797196_1_20250324193245.jpg&q=90)
-  
-
-舜宇光學公布，去年盈利約27億元人民幣，按年急升約1.46倍。派末期息每股0.532港元，按年增加1.43倍。派息比率約20%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797196-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797196-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797196-20250324.htm)
 
 ---
