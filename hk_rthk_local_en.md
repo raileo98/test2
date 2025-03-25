@@ -1,3 +1,29 @@
+# HK capital market 'needs blueprint for further growth'
+
+![Qi Bin, deputy director of the central government's liaison office, has called on Hong Kong to seize the momentum offered by the strong return of foreign capital. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_1_20250325140507.jpg&q=80)
+![Acting Chief Executive Eric Chan says that there are signs that global capital is returning to Hong Kong, as the city's total deposit rose by 7.1 percent last year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_2_20250325140507.jpg&q=80)
+![Alibaba chairman Joe Tsai warned about a potential "bubble" from the over-construction of data centres in the world, following the rapid growth of artificial intelligence technology. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_3_20250325140507.jpg&q=90)
+  
+
+A deputy at Beijing's top office on Hong Kong affairs has called on the SAR to roll out a blueprint to further drive its capital market development, seizing on opportunities brought about by the revitalisation of the city's stock market this year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm)
+
+---
+
 # Non-urgent A&E visits to cost more in fee revamp
 
 ![Health minister Lo Chung-mau (middle) says the fee reform is aimed at directing public resources to patients most in need. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797291_1_20250325131640.jpg&q=90)
@@ -1419,29 +1445,5 @@ Lawmakers on Wednesday passed a bill that aims to protect the cybersecurity of c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796453-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796453-20250319.htm)
-
----
-
-# Shau Kei Wan community living room opens
-
-![Eric Chan says he hopes families will visit the Shau Kei Wan community living room regularly. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796434_1_20250319165113.jpg&q=80)
-  
-
-Authorities on Wednesday launched its first community living room on Hong Kong Island, with the Shau Kei Wan facility expected to serve households from more than 300 subdivided flats.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796434-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796434-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796434-20250319.htm)
 
 ---

@@ -1,3 +1,29 @@
+# HK capital market 'needs blueprint for further growth'
+
+![Qi Bin, deputy director of the central government's liaison office, has called on Hong Kong to seize the momentum offered by the strong return of foreign capital. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_1_20250325140507.jpg&q=80)
+![Acting Chief Executive Eric Chan says that there are signs that global capital is returning to Hong Kong, as the city's total deposit rose by 7.1 percent last year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_2_20250325140507.jpg&q=80)
+![Alibaba chairman Joe Tsai warned about a potential "bubble" from the over-construction of data centres in the world, following the rapid growth of artificial intelligence technology. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_3_20250325140507.jpg&q=90)
+  
+
+A deputy at Beijing's top office on Hong Kong affairs has called on the SAR to roll out a blueprint to further drive its capital market development, seizing on opportunities brought about by the revitalisation of the city's stock market this year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm)
+
+---
+
 # Oscar-winning Palestinian filmmaker arrested by IDF
 
 ![According to Jewish American activists who witnessed the attack, Hamdan Ballal was surrounded and attacked by settlers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797302_2_20250325135917.jpg&q=90)
@@ -1415,29 +1441,5 @@ Oscar Piastri led from pole to win the Chinese Grand Prix on Sunday as McLaren u
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm)
-
----
-
-# Istanbul court formally arrests mayor amid protests
-
-![Turkish people take to the streets to protest the arrest of Ekrem Imamoglu, Istanbul mayor and CHP's presidential race candidate, in Kayseri, Turkey. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797031_1_20250323164214.jpg&q=75)
-  
-
-A Turkish court formally placed Istanbul Mayor Ekrem Imamoglu under arrest as part of a graft investigation on Sunday, after a fourth night of mass protests sparked heavy clashes with riot police.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm)
 
 ---

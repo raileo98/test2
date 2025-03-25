@@ -1,3 +1,51 @@
+# 韓股低收0.62%
+
+![首爾綜合指數收報2615點，跌16點，跌幅0.62%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797306_1_20250325143716.jpg&q=90)
+  
+
+南韓股市連跌2日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797306-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797306-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797306-20250325.htm)
+
+---
+
+# 日股高收172點
+
+![日經指數一度升逾500點，收市報37780點，升172點，升幅0.46%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797305_1_20250325143525.jpg&q=90)
+  
+
+日股高收近0.5%，但未能企穩38000點收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797305-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797305-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797305-20250325.htm)
+
+---
+
 # 台股收市升近1%
 
 ![台灣加權指數收市報22273點，升166點，升幅0.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797304_1_20250325141855.jpg&q=90)
@@ -24,6 +72,7 @@
 
 # 入境處於黃大仙美食展覽會拘捕14名懷疑當黑工內地訪客
 
+![14名懷疑非法勞工在行動中被捕。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797300_1_20250325144013.jpg&q=85)
   
 
 入境處昨日在黃大仙一個展覽會展開反非法勞工行動，拘捕14名懷疑從事非法工作的內地訪客。

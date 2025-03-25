@@ -1,3 +1,27 @@
+# 韓股低收0.62%
+
+![首爾綜合指數收報2615點，跌16點，跌幅0.62%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797306_1_20250325143716.jpg&q=90)
+  
+
+南韓股市連跌2日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797306-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797306-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797306-20250325.htm)
+
+---
+
 # 日股高收172點
 
 ![日經指數一度升逾500點，收市報37780點，升172點，升幅0.46%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797305_1_20250325143525.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797168-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797168-20250324.htm)
-
----
-
-# 港股高收215點　科指升逾1.7%
-
-![恒生指數下午跟隨內地股市倒升，收市報23905點，升215點，升幅0.91%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797164_1_20250324162351.jpg&q=65)
-  
-
-港股下午抽升，恒生指數初段曾跌近160點，其後表現反覆，下午跟隨內地股市轉強，曾升近280點，收市報23905點，升215點，升幅0.91%。主板總成交金額約2331億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797164-20250324.htm)
 
 ---

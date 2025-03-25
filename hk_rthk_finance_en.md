@@ -1,3 +1,29 @@
+# HK capital market 'needs blueprint for further growth'
+
+![Qi Bin, deputy director of the central government's liaison office, has called on Hong Kong to seize the momentum offered by the strong return of foreign capital. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_1_20250325140507.jpg&q=80)
+![Acting Chief Executive Eric Chan says that there are signs that global capital is returning to Hong Kong, as the city's total deposit rose by 7.1 percent last year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_2_20250325140507.jpg&q=80)
+![Alibaba chairman Joe Tsai warned about a potential "bubble" from the over-construction of data centres in the world, following the rapid growth of artificial intelligence technology. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_3_20250325140507.jpg&q=90)
+  
+
+A deputy at Beijing's top office on Hong Kong affairs has called on the SAR to roll out a blueprint to further drive its capital market development, seizing on opportunities brought about by the revitalisation of the city's stock market this year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm)
+
+---
+
 # Tesla sales fall off a cliff in Europe
 
 ![A woman encourages people outside the Tesla Centre Park Royal in London to boycott the electric vehicle giant. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797297_1_20250325132757.jpg&q=90)
@@ -1411,29 +1437,5 @@ The Japanese owner of 7-Eleven said on Monday it had agreed to jointly explore s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795045-20250310.htm)
-
----
-
-# Trump declines to rule out 2025 US recession
-
-![President Trump told reporters aboard Air Force One "Who knows?", when asked on Sunday to clarify whether there could be a recession. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795044_1_20250310084801.jpg&q=90)
-  
-
-US President Donald Trump declined on Sunday to rule out the possibility that the United States might enter a recession this year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795044-20250310.htm)
 
 ---
