@@ -1,3 +1,27 @@
+# 台股收市升近1%
+
+![台灣加權指數收市報22273點，升166點，升幅0.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797304_1_20250325141855.jpg&q=90)
+  
+
+台灣股市上升。加權指數收市報22273點，升166點，升幅0.75%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797304-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797304-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797304-20250325.htm)
+
+---
+
 # 港股下午初段跌逾500點
 
 ![恒生指數較早時報23378點，跌526點，跌幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797295_1_20250325130524.jpg&q=15)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797166-20250324.htm)
-
----
-
-# 內地股市回穩收市
-
-![上證指數最多曾跌逾0.7%，尾段轉升收市，報3370點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797151_1_20250324151120.jpg&q=85)
-  
-
-內地股市回穩收市。旅遊酒店、銀行、保險股造好，腦機接口、軍工、算力租賃等股份下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797151-20250324.htm)
 
 ---
