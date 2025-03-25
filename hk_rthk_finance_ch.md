@@ -1,3 +1,27 @@
+# 藥明生物去年少賺逾1%
+
+![藥明生物去年盈利約33.6億元人民幣，按年跌1.3%。不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797327_1_20250325170239.jpg&q=90)
+  
+
+藥明生物去年盈利約33.6億元人民幣，按年跌1.3%。不派末期息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797327-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797327-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797327-20250325.htm)
+
+---
+
 # 發改委前副主任彭森：中國經濟步入穩定健康可持續發展軌道
 
   
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797200-20250324.htm)
-
----
-
-# 比亞迪電子去年盈利升近6%　收入升逾36%
-
-![比亞迪電子去年盈利42.7億元人民幣，按年升約5.6%。派末期息每股0.568元，按年增加近6%。（港交所截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797198_1_20250324195419.jpg&q=90)
-  
-
-比亞迪電子公布，去年盈利42.7億元人民幣，按年升約5.6%。派末期息每股0.568元，按年增加近6%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797198-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797198-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797198-20250324.htm)
 
 ---
