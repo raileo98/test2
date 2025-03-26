@@ -1,3 +1,26 @@
+# 盧寵茂盼普通科門診多照顧弱勢社群　高拔陞指新方案免不必要爭拗
+
+  
+
+政府公布公營醫療服務收費改革方案，醫務衞生局局長盧寵茂表示，增加急症室收費及夜診需要兩方面同步推動，又說一直有提升公營夜診服務，希望普通科門診多照顧低收入人士及弱勢社群。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797462-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797462-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797462-20250326.htm)
+
+---
+
 # 何永賢指業主以簡樸房賺租金收入　政府應收回行政成本
 
   
@@ -117,6 +140,7 @@
 
 # 余偉文：香港於內地貿易和投資角色重要　建立貿易走廊有貢獻
 
+![余偉文指出人民幣於貿易走廊中使用越來越廣泛。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797451_1_20250326124735.jpg&q=75)
   
 
 金管局總裁余偉文表示，香港在內地貿易和投資中均扮演重要角色，目前約三分之二的貿易和投資都是通過香港進行，香港在投入建立貿易走廊上亦有貢獻。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797292-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797292-20250325.htm)
-
----
-
-# 急症室收費增至400元　住院急症病床每日300元
-
-![急症室收費將由現時的180元增至400元，第一類危殆及第二類危急病人可獲豁免。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797289_2_20250325131711.jpg&q=80)
-  
-
-政府公布公營醫療服務收費改革方案，涉及的服務範圍涵蓋住院、日間程序、急症室、專科門診、病理檢驗、非緊急放射造影、家庭醫學門診等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797289-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797289-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797289-20250325.htm)
 
 ---
