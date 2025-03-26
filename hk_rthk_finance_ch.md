@@ -1,3 +1,27 @@
+# 蒙牛去年盈利倒退98%　仍派末期息每股0.509元人民幣
+
+![蒙牛去年盈利倒退98%，受子公司商譽及無形資產減值虧損，以及現代牧業商譽減值影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797580_1_20250326225414.jpg&q=90)
+  
+
+蒙牛去年盈利約1億元人民幣，按年大幅倒退98%，主要受子公司貝拉米商譽及無形資產減值虧損，以及現代牧業商譽減值等影響。公司撇除相關影響的利潤作為分紅基礎，派末期息每股0.509元人民幣，派息比率升至45%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797580-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797580-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797580-20250326.htm)
+
+---
+
 # 祁斌稱中央全力支持瓊港兩地自由港平台與超級聯繫人雙向聯動
 
 ![祁斌指出，海南自貿區零關稅低稅率政策，與香港自由港制度可以形成疊加效應。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797578_1_20250326225528.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797425-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797425-20250326.htm)
-
----
-
-# 何永賢專訪：政府收取「簡樸房」認證費　業主愈遲認證費用愈高
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797424_1_20250326092928.jpg&q=80)
-  
-
-規管「簡樸房」制度新方案建議登記期為12個月，寬限期為登記期完結後的36個月，即業主有4年時間適應新制度。「簡樸房」認證申請人亦須向政府繳交認證費用。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm)
 
 ---

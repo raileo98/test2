@@ -1,3 +1,27 @@
+# 涉訛稱被陌生男子尾隨及襲擊　26歲女子涉誤導警員被扣查
+
+![涉誤導警員女子被捕。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797582_1_20250326230847.jpg&q=85)
+  
+
+一名女子聲稱日前遭一名男子尾隨及推入單位，之後被男子用鎅刀襲擊後逃去。警方調查後發現，女子所作的報案與事實不符，懷疑她蓄意向警方提供虛假資料及誤導調查人員，女子涉嫌「誤導警務人員」被捕，正被扣留調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797582-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797582-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797582-20250326.htm)
+
+---
+
 # 涉虐待12歲男童　已停職49歲輔警被控明早提堂
 
 ![49歲男子被控以「對所看管兒童或少年人虐待或忽略」罪。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797581_1_20250326225440.jpg&q=60)
