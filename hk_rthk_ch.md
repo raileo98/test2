@@ -1,3 +1,27 @@
+# 新奧股份擬私有化新奧能源後在港上市　響應中證監對港合作措施
+
+![根據私有化計劃，每股新奧能源可換2.9427股新奧股份H股及24.5元現金。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797553_1_20250326194804.jpg&q=80)
+  
+
+新奧股份計劃私有化新奧能源，新奧股份將發行H股，每股新奧能源計劃股份理論總價值約80元，可換取2.9427股新奧股份H股及24.5元現金，註銷代價相當於新奧能源停牌前59.45元溢價約34.57%。連同註銷計劃股份及新奧能源購股權要約，私有化交易總作價約184億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797553-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797553-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797553-20250326.htm)
+
+---
+
 # 醫管局料醫療費用減免優化申請流程　受惠人數將增至140萬
 
   
