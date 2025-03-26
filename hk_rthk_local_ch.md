@@ -1,5 +1,52 @@
+# 麥美娟：市民本月31起可向各區民政處申請查閱區議員工作報告
+
+  
+
+民政及青年事務局局長麥美娟說，新一屆區議會引入履職監察制度，區議員需要遵守有關指引各項要求，包括每年要提交工作報告，470名議員已經如期提交報告，市民在本月31日可向各區民政處登記申請查閲報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797510-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797510-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797510-20250326.htm)
+
+---
+
+# 麥美娟：恆常化關愛隊　調整合約安排18區看齊
+
+  
+
+民政及青年事務局局長麥美娟說，行政長官在去年《施政報告》宣布恆常化關愛隊配置，因應有關安排，將調整關愛隊合約安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797508-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797508-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797508-20250326.htm)
+
+---
+
 # 海關拘一名男子涉以新型數碼技術把付費電視頻道內容轉播他人
 
+![海關早前接獲版權擁有人舉報，指有網上用戶自設網站，涉嫌未獲授權下，向公眾傳播多個收費電視頻道節目。（海關直播截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797507_1_20250326161933.jpg&q=90)
   
 
 海關打擊非法串流發放電視頻道及侵權動畫影片，拘捕一名男子，檢獲約值4萬元的電視解碼器、電視訊號接收設備、懷疑用作非法串流的伺服器及手機等。
@@ -23,6 +70,7 @@
 
 # 立法會首二讀相關草案　賦權立法會功能界別選舉用點票機點票
 
+![曾國衞說，相關修訂均體現特區政府在完善選舉制度後，希望不斷以穩中求進的態度，致力完善選舉的相關安排。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797503_1_20250326161850.jpg&q=90)
   
 
 立法會首讀及二讀修訂選舉法例的條例草案，包括建議賦權選管會在立法會功能界別選舉中，可使用點票機點票、並整合有關界別的選票結算表，進一步優化點票流程和提升效率等。
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797343-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797343-20250325.htm)
-
----
-
-# 公營醫療每人每年一萬元收費上限　放寬減免申請資額及範圍
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797340_1_20250325182706.jpg&q=85)
-  
-
-政府提出以三個方向加大對市民的公營醫療保障，包括為全港市民增設每人每年一萬元的收費上限，又會放寬合資格申領費用減免人士的申請資格及範圍，預料受惠人士會由現時約30萬增至140萬。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm)
-
----
-
-# 公營醫療收費改革出爐　急症收費增至400元設豁免
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797339_1_20250325182519.jpg&q=90)
-  
-
-政府交代公營醫療收費改革方案，建議將公立醫院急症室收費由現時180元，增加至400元，危殆及危急類病人可獲豁免；住院病床及門診收費亦會增加，電腦掃描及磁力共振等非緊急檢查項目，最高每次收500元，新收費於明年1月1日起實施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm)
 
 ---

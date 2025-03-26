@@ -1,3 +1,27 @@
+# HK, Hainan to cooperate in promoting trade ties
+
+![Chief Executive John Lee says collaboration between Hong Kong and Hainan will contribute to a high-level opening-up of the country. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797500_1_20250326153447.jpg&q=85)
+  
+
+Chief Executive John Lee said on Wednesday a cooperation deal between Hong Kong and Hainan will contribute to the nation further opening up on the back of the free-trade advantages from the two regions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm)
+
+---
+
 # Two subsidised flat projects go on sale from April 1
 
 ![The "Hemma Emerald" project on Anderson Road offers 960 flats. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797502_1_20250326153430.jpg&q=90)
@@ -1417,29 +1441,5 @@ Hong Kong's rising tennis star Coleman Wong on Monday fell short of a third roun
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797228-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797228-20250325.htm)
-
----
-
-# Local airlines to ban in-flight charger use
-
-![Using or recharging portable chargers during flights will be banned from April 7. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797203_1_20250324210630.jpg&q=90)
-  
-
-The Civil Aviation Department on Monday announced that local airlines will no longer let passengers use or recharge their portable chargers during flights, while storing power banks in the overhead compartments is also banned.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm)
 
 ---
