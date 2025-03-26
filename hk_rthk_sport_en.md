@@ -1,3 +1,27 @@
+# Coleman Wong ready to climb up world tennis ranking
+
+![Coleman Wong said he's glad to prove that a player from the SAR can beat a top-20 player in the world. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797605_1_20250327063121.jpg&q=90)
+  
+
+The SAR's tennis star, Coleman Wong, said late Wednesday that he's more confident about cracking the top 100 in the men's singles world rankings, following his historic success at the Miami Open.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm)
+
+---
+
 # World Club Cup winner to score up to US$125 million
 
 ![This year's Club World Cup will take place from June 14 to July 13 in the United States. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797561_1_20250326204658.jpg&q=90)
@@ -1412,29 +1436,5 @@ International Olympic Committee (IOC) chief Thomas Bach has announced that boxin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm)
-
----
-
-# McIlroy wins second Players Championship title
-
-![The win was McIlroy's second in his career at the annual PGA Tour competiton. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796153_1_20250318053122.jpg&q=90)
-  
-
-Northern Ireland's Rory McIlroy cruised to a St. Patrick's Day victory at the Players Championship after defeating J.J. Spaun in a playoff at TPC Sawgrass in Florida.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Coleman Wong ready to climb up world tennis ranking
+
+![Coleman Wong said he's glad to prove that a player from the SAR can beat a top-20 player in the world. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797605_1_20250327063121.jpg&q=90)
+  
+
+The SAR's tennis star, Coleman Wong, said late Wednesday that he's more confident about cracking the top 100 in the men's singles world rankings, following his historic success at the Miami Open.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm)
+
+---
+
 # US stocks close lower on tariff concerns
 
 ![US automakers fell on the news, with Tesla closing down 5.6 percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797600_1_20250327061131.jpg&q=90)
@@ -1415,31 +1439,5 @@ Chinese authorities have released all employees of a US corporate due diligence 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm)
-
----
-
-# AI installation showcases HK reel heritage
-
-![The animation features AI-generated characters performing scenes inspired by cinema icons. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797269_1_20250325104802.jpg&q=90)
-![Singaporean artist Ho Tzu-nyen says the project is a homage to Hong Kong's cinema heritage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797269_2_20250325104802.jpg&q=90)
-![M+ moving image curator Silke Schmickl says the project shows the expansion of art into public spaces. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797269_3_20250325104802.jpg&q=90)
-  
-
-In a first, M+ Museum is using artificial intelligence to transform its facade into a canvas celebrating Hong Kong's golden age of film during Art Basel.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm)
 
 ---
