@@ -1,3 +1,51 @@
+# 植田和男：若經濟及物價發展符合預測　日本將繼續加息
+
+![日本央行總裁植田和男表示，如果經濟及物價發展符合央行預測，央行將繼續加息。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797432_1_20250326100623.jpg&q=90)
+  
+
+日本央行總裁植田和男在國會發表貨幣政策半年度報告時表示，日本經濟正在溫和復蘇，但仍存在一些問題及不確定，物價仍居高不下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797432-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797432-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797432-20250326.htm)
+
+---
+
+# 艾橋智：電商平台將成為全球貿易引擎
+
+![艾橋智預計，至2030年，亞洲區域貿易額將增長65%，相當於每年增加4000億美元。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797431_1_20250326095557.jpg&q=85)
+  
+
+滙控行政總裁艾橋智相信，電商平台將成為未來全球貿易的引擎，他說，目前全球總銷售額20%來自網上購買，電商徹底改變全球購物方式，亦改變生產、供應和銷售方式，進而改變研發、物流、倉儲、行銷和銷售，而疫情加速相關進程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797431-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797431-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797431-20250326.htm)
+
+---
+
 # 內地股市初段向上　升幅有限
 
 ![內地股市初段上升，上證指數較早時報3373點，升3點，升幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797427_1_20250326093535.jpg&q=90)
@@ -71,7 +119,7 @@
 
 # 何永賢專訪：政府收取「簡樸房」認證費　業主愈遲認證費用愈高
 
-![何永賢透露，考慮到拖至最後階段才認證的分間單位，有可能改裝較為複雜，因此認為預留6個月「倒數期」較為合適。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797424_1_20250326092928.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797424_1_20250326092928.jpg&q=80)
   
 
 規管「簡樸房」制度新方案建議登記期為12個月，寬限期為登記期完結後的36個月，即業主有4年時間適應新制度。「簡樸房」認證申請人亦須向政府繳交認證費用。
@@ -1385,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm)
-
----
-
-# 恒安國際去年盈利跌約18%
-
-![恒安國際去年收入跌4.6%。市場競爭越趨激烈，行業平均售價下降，整體市場銷售負增長。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797288_1_20250325122906.jpg&q=90)
-  
-
-恒安國際去年盈利近23億元人民幣，按年跌17.9%。末期息每股70分，全年派息1.4元，兩者按年持平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797288-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797288-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797288-20250325.htm)
-
----
-
-# 港股半日跌517點　舜宇及比亞迪電子績後急挫
-
-![恒生指數中午收市報23387點，跌517點，跌幅2.2%，半日主板成交額約1845億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797285_1_20250325120719.jpg&q=65)
-  
-
-港股捱沽，恒生指數今早最多跌逾580點，中午收市報23387點，跌517點，跌幅2.2%，半日主板成交額約1845億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797285-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797285-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797285-20250325.htm)
 
 ---

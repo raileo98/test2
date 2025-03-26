@@ -1,3 +1,26 @@
+# 急症室第三類病人收費將不豁免　高拔陞：為免不必要爭拗
+
+  
+
+政府公布公營醫療服務收費改革方案，當中急症室收費由現時180元上調至400元，第一類危殆及第二類危急病人豁免收費。醫管局行政總裁高拔陞在一個電台節目表示，希望能夠體現急症室的真正功能，讓有急症需要的病人能夠盡快得到治療，有經濟困難的人士可獲資助減免，有需要市民亦可透過手機應用程式申請減免。他形容整個改革是環環相扣，令病人得到保障。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797433-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797433-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797433-20250326.htm)
+
+---
+
 # 何永賢專訪：約2千間簡樸房面向四面圍封天井　須做好清潔
 
   
@@ -23,7 +46,7 @@
 
 # 何永賢專訪：政府收取「簡樸房」認證費　業主愈遲認證費用愈高
 
-![何永賢透露，考慮到拖至最後階段才認證的分間單位，有可能改裝較為複雜，因此認為預留6個月「倒數期」較為合適。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797424_1_20250326092928.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797424_1_20250326092928.jpg&q=80)
   
 
 規管「簡樸房」制度新方案建議登記期為12個月，寬限期為登記期完結後的36個月，即業主有4年時間適應新制度。「簡樸房」認證申請人亦須向政府繳交認證費用。
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797223-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797223-20250325.htm)
-
----
-
-# 國泰稱將完全遵從外置充電器更新指引　會向顧客清晰傳達要求
-
-![國泰航空表示，認同民航處就航班上攜帶鋰電池外置充電器的最新指引。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797222_1_20250325012347.jpg&q=90)
-  
-
-民航處宣布，下月7日起，乘客不得在航班上使用外置充電器，為其他便攜式電子裝置或外置充電器充電，以及不得把外置充電器放置於行李架上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm)
 
 ---

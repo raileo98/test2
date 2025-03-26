@@ -1,3 +1,27 @@
+# Djokovic marches into Miami quarters; Ruud exits
+
+![Novak Djokovic breezed past Italy's Lorenzo Musetti to book his spot in the next round in Miami. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797434_1_20250326101120.jpg&q=90)
+  
+
+Novak Djokovic cruised into the quarter-finals of the Miami Open with a 6-2, 6-2 win over Italian Lorenzo Musetti in one hour 22 minutes.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm)
+
+---
+
 # French police arrest four over toddler's death
 
 ![Gendarmes stand outside the house of the grandparents of Emile Soleil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797420_1_20250326091733.jpg&q=80)
@@ -1417,29 +1441,5 @@ There's no way Hong Kong's public healthcare system will be sustainable in the l
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797138-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797138-20250324.htm)
-
----
-
-# Govt to exceed family office target: treasury chief
-
-![Christopher Hui says about one fourth of the new family offices had set up shop in the SAR partly due to the 'Wealth for Good in Hong Kong Summit.' Photo: Courtesy of Financial Services and the Treasury Bureau](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797135_1_20250324130303.jpg&q=90)
-  
-
-The Secretary for Financial Services and the Treasury Christopher Hui said on Monday he is confident that the government will be able to beat the target of bringing in over 200 large family offices by the end of the year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm)
 
 ---

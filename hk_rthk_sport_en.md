@@ -1,3 +1,27 @@
+# Djokovic marches into Miami quarters; Ruud exits
+
+![Novak Djokovic breezed past Italy's Lorenzo Musetti to book his spot in the next round in Miami. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797434_1_20250326101120.jpg&q=90)
+  
+
+Novak Djokovic cruised into the quarter-finals of the Miami Open with a 6-2, 6-2 win over Italian Lorenzo Musetti in one hour 22 minutes.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm)
+
+---
+
 # Argentina qualify for 2026 World Cup
 
 ![Reigning champions Argentina are the first South American nation to qualify for the 2026 Fifa World Cup. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797405_1_20250326070511.jpg&q=90)
@@ -1413,29 +1437,5 @@ Russian 17-year-old Mirra Andreeva toppled world number one Aryna Sabalenka 2-6,
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795977-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795977-20250317.htm)
-
----
-
-# Newcastle win the League Cup, stunning Liverpool
-
-![Newcastle United players celebrate after the final whistle. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795975_1_20250317053653.jpg&q=90)
-  
-
-Newcastle ended their 56-year trophy drought in stunning style as Dan Burn and Alexander Isak sealed a 2-1 win against Liverpool in the League Cup final on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795975-20250317.htm)
 
 ---
