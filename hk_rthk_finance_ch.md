@@ -1,3 +1,26 @@
+# 余偉文：香港於內地貿易和投資扮演重要角色　建立貿易走廊有貢獻
+
+  
+
+金管局總裁余偉文表示，香港在內地貿易和投資中均扮演重要角色，目前約三分之二的貿易和投資都是通過香港進行，香港在投入建立貿易走廊上亦有貢獻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797451-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797451-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797451-20250326.htm)
+
+---
+
 # 滬股半日升約0.2%　深證成指及創業板升近0.4%
 
 ![內地股市反覆靠穩，上證指數半日收報3375點，升5點，升幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797450_1_20250326114354.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797320-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797320-20250325.htm)
-
----
-
-# 港股低收561點　比亞迪電子及舜宇挫近10%或以上
-
-![恒生指數最多跌逾580點，收市報23344點，跌561點，跌幅2.35%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797317_1_20250325161756.jpg&q=90)
-  
-
-港股捱沽，恒生指數今早最多跌逾580點，收市報23344點，跌561點，跌幅2.35%，主板成交額約2853億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm)
 
 ---

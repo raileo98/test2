@@ -1,3 +1,26 @@
+# 余偉文：香港於內地貿易和投資扮演重要角色　建立貿易走廊有貢獻
+
+  
+
+金管局總裁余偉文表示，香港在內地貿易和投資中均扮演重要角色，目前約三分之二的貿易和投資都是通過香港進行，香港在投入建立貿易走廊上亦有貢獻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797451-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797451-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797451-20250326.htm)
+
+---
+
 # 陳茂波呼籲國際投資者不要錯失內地及亞太區機遇
 
 ![陳茂波稱未來3至5年地緣政治起伏，香港維持作為國際投資者及資金探索內地以至亞洲機遇理想地。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797447_1_20250326113924.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797279-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797279-20250325.htm)
-
----
-
-# 陳國基：香港經濟展現韌性　超級聯繫人角色比以往更為重要
-
-![陳國基表示，香港作為「超級聯繫人」的角色比以往更為重要，將繼續增強離岸人民幣流動性。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797277_1_20250325112821.jpg&q=75)
-  
-
-署理行政長官陳國基表示，香港作為亞洲首屈一指的金融樞紐，於《全球金融中心指數》繼續位列全球第三，預計經濟在2026年至2029年間每年增長2.9%，即使面對環球挑戰，香港經濟仍展現韌性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm)
 
 ---
