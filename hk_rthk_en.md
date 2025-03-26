@@ -1,3 +1,51 @@
+# US stocks close lower on tariff concerns
+
+![US automakers fell on the news, with Tesla closing down 5.6 percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797600_1_20250327061131.jpg&q=90)
+  
+
+US stocks veered off course on Wednesday after the White House said President Donald Trump would announce fresh tariffs on the auto sector after markets close.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm)
+
+---
+
+# Trump announces 25 percent tariff on non-US-built cars
+
+![US President Donald Trump announces tariffs on auto imports in the Oval Office of the White House in Washington, DC. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797599_1_20250327060802.jpg&q=90)
+  
+
+US President Donald Trump announced steep tariffs on auto imports Wednesday, in a move set to fuel tensions with trading partners ahead of further promised levies next week.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm)
+
+---
+
 # Magazine publishes US attack plan shared in group chat
 
 ![In the Signal chat, Defence Secretary Pete Hegseth lays out the weather conditions, times of attacks and types of aircraft being used. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797576_1_20250326222631.jpg&q=90)
@@ -1393,53 +1441,5 @@ In a first, M+ Museum is using artificial intelligence to transform its facade i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm)
-
----
-
-# De Minaur finds way through Fonseca fervor in Miami
-
-![Alex de Minaur goes for an overhead drive in his Miami Open match against Joao Fonseca at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797270_1_20250325105235.jpg&q=90)
-  
-
-Australia's Alex de Minaur put an end to Brazilian talent Joao Fonseca's challenge at the Miami Open, outlasting the 18-year-old 5-7, 7-5, 6-3 in an enthralling contest.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797270-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797270-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797270-20250325.htm)
-
----
-
-# Boeing 'wants to bail out of 737 MAX guilty plea deal'
-
-![Two 737 MAX crashes that killed 346 people have fuelled deep concern over Boeing's quality and manufacturing processes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797265_1_20250325103519.jpg&q=60)
-  
-
-Boeing is seeking to withdraw an agreement to plead guilty in a criminal case that blamed the company for deceiving regulators before two deadly crashes of 737 MAX jets, the Wall Street Journal reported on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm)
 
 ---

@@ -1,9 +1,33 @@
+# US stocks close lower on tariff concerns
+
+![US automakers fell on the news, with Tesla closing down 5.6 percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797600_1_20250327061131.jpg&q=90)
+  
+
+US stocks veered off course on Wednesday after the White House said President Donald Trump would announce fresh tariffs on the auto sector after markets close.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm)
+
+---
+
 # Trump announces 25 percent tariff on non-US-built cars
 
 ![US President Donald Trump announces tariffs on auto imports in the Oval Office of the White House in Washington, DC. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797599_1_20250327060802.jpg&q=90)
   
 
-President Donald Trump on Wednesday said 25 percent tariffs on foreign-built cars and light trucks will take effect April 2 and will remain in place as long as he is in office.
+US President Donald Trump announced steep tariffs on auto imports Wednesday, in a move set to fuel tensions with trading partners ahead of further promised levies next week.
 
   
 
@@ -1413,29 +1437,5 @@ The Hang Seng Index rose 77.09 points, or 0.32 percent, to open at 23,859.23 poi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795372-20250312.htm)
-
----
-
-# Australia says US steel tariffs 'entirely unjustified'
-
-![Vapour pours from a steel mill chimney in the industrial town of Port Kembla, about 80 km south of Sydney. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795366_1_20250312092156.jpg&q=90)
-  
-
-Washington's looming tariffs on steel and aluminium are "entirely unjustified", Australian Prime Minister Anthony Albanese said on Wednesday after failing to secure a last-minute exemption.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm)
 
 ---
