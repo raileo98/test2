@@ -1,5 +1,30 @@
+# 不信任動議被否決　泰總理佩通坦感謝各方充分履行人民代表職責
+
+![佩通坦說在今次表決中，不論投票取向，都會成為她與內閣團隊繼續為人民努力工作的動力。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797506_1_20250326155548.jpg&q=90)
+  
+
+泰國國會下議院經表決後，否決針對總理佩通坦的不信任動議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797506-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797506-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797506-20250326.htm)
+
+---
+
 # 李在明涉嫌違反南韓《公職選舉法》案二審獲判無罪
 
+![二審判決推翻一審判決結果，李在明（揮手者）獲判無罪。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797504_1_20250326155748.jpg&q=90)
   
 
 南韓首爾高等法院對最大在野黨共同民主黨黨魁李在明涉嫌違反《公職選舉法》案作出二審判決，推翻一審判決結果，李在明獲判無罪。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm)
-
----
-
-# 尹錫悅涉嫌發動內亂案4月14日首次公審
-
-![尹錫悅涉嫌發動內亂案4月14日首次公審。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797148_1_20250324150229.jpg&q=90)
-  
-
-南韓首爾中央地方法院宣布，將於4月14日對總統尹錫悅涉嫌發動內亂案進行第一次公審。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm)
 
 ---

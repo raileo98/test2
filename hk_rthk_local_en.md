@@ -1,3 +1,27 @@
+# Two subsidised flat projects go on sale from April 1
+
+![The "Hemma Emerald" project on Anderson Road offers 960 flats. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797502_1_20250326153430.jpg&q=90)
+  
+
+The Housing Society on Wednesday announced two subsidised flat projects in Fanling and Kwun Tong, with units to be sold at 70 percent of market value, will go on sale in April.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm)
+
+---
+
 # Certify your subdivided flat early or pay more: govt
 
 ![Winnie Ho says the requirement of a basic housing unit having a window that faces the street or semi-enclosed light well may be relaxed. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797475_1_20250326133032.jpg&q=90)
@@ -1419,29 +1443,5 @@ Hong Kong has seen its winding-up orders hitting the highest level in more than 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm)
-
----
-
-# Top Beijing official praises EuroCham's work in HK
-
-![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing. Photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796677_1_20250320220041.jpg&q=90)
-  
-
-Hong Kong has the full support from the central government in maintaining its unique status and advantages, a senior Beijing official told a visiting business delegation from the SAR on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm)
 
 ---

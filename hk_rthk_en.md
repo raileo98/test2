@@ -1,3 +1,27 @@
+# Two subsidised flat projects go on sale from April 1
+
+![The "Hemma Emerald" project on Anderson Road offers 960 flats. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797502_1_20250326153430.jpg&q=90)
+  
+
+The Housing Society on Wednesday announced two subsidised flat projects in Fanling and Kwun Tong, with units to be sold at 70 percent of market value, will go on sale in April.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm)
+
+---
+
 # Certify your subdivided flat early or pay more: govt
 
 ![Winnie Ho says the requirement of a basic housing unit having a window that faces the street or semi-enclosed light well may be relaxed. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797475_1_20250326133032.jpg&q=90)
@@ -1417,29 +1441,5 @@ The Civil Aviation Department on Monday announced that local airlines will no lo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm)
-
----
-
-# BYD posts record annual revenue, beats Tesla
-
-![The firm's stock price also reached an all-time peak this month, after it unveiled new battery technology. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797208_1_20250324213146.jpg&q=90)
-  
-
-Shenzhen-based carmaker BYD saw a surge in revenue last year, a stock filing showed on Monday, surpassing the US$100 billion mark and beating rival Tesla as the car-giant firm accelerates its overseas expansion.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm)
 
 ---

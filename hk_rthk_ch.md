@@ -1,5 +1,53 @@
+# 海關拘一名男子涉以新型數碼技術把付費電視頻道內容轉播他人
+
+  
+
+海關打擊非法串流發放電視頻道及侵權動畫影片，拘捕一名男子，檢獲約值4萬元的電視解碼器、電視訊號接收設備、懷疑用作非法串流的伺服器及手機等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797507-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797507-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797507-20250326.htm)
+
+---
+
+# 不信任動議被否決　泰總理佩通坦感謝各方充分履行人民代表職責
+
+![佩通坦說在今次表決中，不論投票取向，都會成為她與內閣團隊繼續為人民努力工作的動力。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797506_1_20250326155548.jpg&q=90)
+  
+
+泰國國會下議院經表決後，否決針對總理佩通坦的不信任動議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797506-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797506-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797506-20250326.htm)
+
+---
+
 # 李在明涉嫌違反南韓《公職選舉法》案二審獲判無罪
 
+![二審判決推翻一審判決結果，李在明（揮手者）獲判無罪。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797504_1_20250326155748.jpg&q=90)
   
 
 南韓首爾高等法院對最大在野黨共同民主黨黨魁李在明涉嫌違反《公職選舉法》案作出二審判決，推翻一審判決結果，李在明獲判無罪。

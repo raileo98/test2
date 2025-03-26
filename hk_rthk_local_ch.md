@@ -1,3 +1,26 @@
+# 海關拘一名男子涉以新型數碼技術把付費電視頻道內容轉播他人
+
+  
+
+海關打擊非法串流發放電視頻道及侵權動畫影片，拘捕一名男子，檢獲約值4萬元的電視解碼器、電視訊號接收設備、懷疑用作非法串流的伺服器及手機等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797507-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797507-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797507-20250326.htm)
+
+---
+
 # 立法會首二讀相關草案　賦權立法會功能界別選舉用點票機點票
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797339-20250325.htm)
-
----
-
-# 林定國明啓程往北京訪問　向港澳辦匯報主要政策措施進展
-
-![林定國明日上午啓程前往北京，展開為期四日的訪問。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797338_1_20250326104241.jpg&q=85)
-  
-
-律政司司長林定國明日上午啓程前往北京，展開為期四日的訪問，將拜訪國務院港澳辦，匯報律政司主要政策措施的進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm)
 
 ---
