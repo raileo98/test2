@@ -1,3 +1,27 @@
+# 中美均形容經貿官員通話坦誠　何立峰就美對華徵關稅表達嚴正關切
+
+![何立峰就美方以芬太尼為由對華加徵關稅等問題，向美國貿易代表表達嚴正關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797590_1_20250327032925.jpg&q=90)
+  
+
+中美經貿官員通話。中方牽頭人、國務院副總理何立峰就美方以芬太尼為由對華加徵關稅、有關301調查以及計劃出台「對等」關稅等，向美國貿易代表格里爾表達嚴正關切。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm)
+
+---
+
 # 中印舉行外交部官員磋商　中方形容氣氛坦誠務實、富建設性
 
 ![中國與印度在北京舉行外交部官員磋商。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797587_1_20250327013533.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm)
-
----
-
-# 外交部：所謂台灣有事就是日本有事的謬論不僅大錯特錯且十分危險
-
-![郭嘉昆敦促日方重信守諾，審慎處理台灣問題。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797162_1_20250324161800.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，所謂台灣有事就是日本有事、《中日聯合聲明》不具法律約束力的謬論將嚴重侵蝕中日關係政治基礎，不僅大錯特錯，而且十分危險，敦促日方重信守諾，審慎處理台灣問題，以實際行動維護中日關係改善發展的勢頭。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm)
 
 ---

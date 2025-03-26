@@ -1,3 +1,27 @@
+# 中美均形容經貿官員通話坦誠　何立峰就美對華徵關稅表達嚴正關切
+
+![何立峰就美方以芬太尼為由對華加徵關稅等問題，向美國貿易代表表達嚴正關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797590_1_20250327032925.jpg&q=90)
+  
+
+中美經貿官員通話。中方牽頭人、國務院副總理何立峰就美方以芬太尼為由對華加徵關稅、有關301調查以及計劃出台「對等」關稅等，向美國貿易代表格里爾表達嚴正關切。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm)
+
+---
+
 # 卡尼：中國並不認同加拿大價值觀　加強雙邊貿易關係需非常謹慎
 
 ![卡尼表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面需要非常謹慎。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797589_1_20250327023249.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797225-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797225-20250325.htm)
-
----
-
-# 土耳其總統批評抗議活動變成暴力運動　逾千人被拘留
-
-![伊斯坦布爾連續第六晚有民眾上街。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797224_1_20250325022503.jpg&q=90)
-  
-
-土耳其伊斯坦布爾連續第六晚有民眾上街，抗議當局拘捕市長伊馬姆奧盧。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797224-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797224-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797224-20250325.htm)
 
 ---
