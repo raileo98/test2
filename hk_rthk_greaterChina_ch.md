@@ -1,3 +1,27 @@
+# 湖北省委原書記蔣超良被罷免全國人大代表資格
+
+![湖北省委原書記蔣超良被罷免全國人大代表資格](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797552_1_20250326192308.jpg&q=90)
+  
+
+早前落馬的湖北省委原書記蔣超良，被罷免全國人大代表資格。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797552-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797552-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797552-20250326.htm)
+
+---
+
 # 王偉中：全運會和殘特奧會廣東賽區各項籌備工作進展良好
 
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm)
-
----
-
-# 北京市政府原黨組成員、副市長高朋涉嫌受賄被起訴
-
-![北京市政府原黨組成員、副市長高朋涉嫌受賄被起訴。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797101_1_20250324102257.jpg&q=90)
-  
-
-北京市政府原黨組成員、副市長高朋涉嫌受賄、玩忽職守一案，由國家監察委員會調查終結，經最高人民檢察院指定，由山西省呂梁市人民檢察院審查起訴。近日，呂梁市人民檢察院已向呂梁市中級人民法院提起公訴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797101-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797101-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797101-20250324.htm)
 
 ---

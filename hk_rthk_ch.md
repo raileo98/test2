@@ -1,3 +1,27 @@
+# 湖北省委原書記蔣超良被罷免全國人大代表資格
+
+![湖北省委原書記蔣超良被罷免全國人大代表資格](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797552_1_20250326192308.jpg&q=90)
+  
+
+早前落馬的湖北省委原書記蔣超良，被罷免全國人大代表資格。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797552-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797552-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797552-20250326.htm)
+
+---
+
 # 港澳辦轉載報道引述各界提醒營商不顧國家利益終會自毀基石
 
   
@@ -93,6 +117,7 @@
 
 # 劉兆佳：引入履職監察制度可確保區議員滿足當局要求
 
+![劉兆佳認為，引入履職監察制度可確保區議員滿足當局要求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797546_1_20250326192438.jpg&q=75)
   
 
 民政及青年事務局局長麥美娟說，470名區議員已經如期提交工作報告，認為區議員過去一年很落力履職盡責。
