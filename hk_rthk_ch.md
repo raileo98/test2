@@ -1,3 +1,171 @@
+# 美元指數創近3星期新高
+
+![美元指數升穿104.7，創近3星期新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797604_1_20250327062904.jpg&q=90)
+  
+
+美元指數升穿104.7，創近3星期新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797604-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797604-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797604-20250327.htm)
+
+---
+
+# 港股美國預託證券個別發展　滙控升逾1%　ATMXJ偏軟
+
+![港股美國預託證券個別發展，滙控ADR比本港昨日收市價升逾1%，以港元計折合報90.7元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797603_1_20250327062157.jpg&q=90)
+  
+
+港股美國預託證券(ADR)個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797603-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797603-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797603-20250327.htm)
+
+---
+
+# 金價企穩3000美元　紐約期金低收0.1%
+
+![場持續關注特朗普政府的關稅措施，支持金價仍企穩3000美元以上。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797602_1_20250327061757.jpg&q=90)
+  
+
+美元及美債孳息率上升，不利金價表現，但市場持續關注特朗普政府的關稅措施，支持金價仍企穩3000美元以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797602-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797602-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797602-20250327.htm)
+
+---
+
+# 英美期油升近1%或以上　紐約期油曾升穿70美元
+
+![紐約期油一度升穿70美元關口，觸及70.22美元，是逾3星期高位，收報69.65美元，升幅逾0.9%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797598_1_20250327060225.jpg&q=85)
+  
+
+國際油價造好，數據顯示美國上星期原油及燃料油庫存減少，加上美國威脅對購買委內瑞拉石油及天然氣的國家徵收關稅，市場對全球供應趨緊的擔憂加劇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797598-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797598-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797598-20250327.htm)
+
+---
+
+# 英股靠穩　德法股市跌約1%或以上
+
+![歐洲股市普遍向下，英國股市靠穩，德法股市跌約1%或以上。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797596_1_20250327055337.jpg&q=90)
+  
+
+歐洲股市普遍向下，英國股市靠穩，富時100指數收報8689點，升25點，升幅0.3%，連升兩日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797596-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797596-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797596-20250327.htm)
+
+---
+
+# 改制後世冠盃6至7月舉行　冠軍最高可獲1.25億美元獎金
+
+![國際足協公布改制之後的世界冠軍球會盃獎金詳情。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797608_1_20250327071212.jpg&q=90)
+  
+
+國際足協公布改制之後的世界冠軍球會盃獎金詳情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797608-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797608-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797608-20250327.htm)
+
+---
+
+# 伊雅娜邁阿密網賽延續夢幻之旅　淘汰絲維雅迪克晉級四強
+
+![年僅19歲的伊雅娜在今次賽事延續夢幻之旅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797606_1_20250327070721.jpg&q=90)
+  
+
+邁阿密網球公開賽，持外卡參賽的菲律賓女單球手伊雅娜，淘汰2號種子、波蘭的絲維雅迪克晉級四強。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797606-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797606-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797606-20250327.htm)
+
+---
+
 # 華府高層通訊群組討論軍事行動　資深共和黨參議員要求獨立調查
 
 ![共和黨籍的國會參議院軍事委員會主席威克表示，有關聊天信息非常敏感。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797601_1_20250327063816.jpg&q=90)
@@ -1269,174 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797539-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797539-20250326.htm)
-
----
-
-# 房協推售觀塘及粉嶺項目共1604個單位　下月起兩周接受申請
-
-![房協項目「峻然」的間格。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797538_1_20250326185611.jpg&q=90)
-![房協推售觀塘及粉嶺項目共1604個單位　下月起兩周接受申請](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797538_2_20250326185606.jpg&q=90)
-  
-
-房協推售觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，合共提供1604個單位，售價介乎約230萬至636萬元，約為市價7折，下月1日至14日接受申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797538-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797538-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797538-20250326.htm)
-
----
-
-# 鄭永年稱香港問題是發展問題　香港一定要與大灣區結合
-
-![鄭永年說，不要低估中國的開放政策，對全球貿易體系的重塑能力。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797537_2_20250326205139.jpg&q=80)
-  
-
-正在海南出席博鰲亞洲論壇的香港中文大學(深圳)公共政策學院院長、特首政策組專家組成員鄭永年，被問到香港財政情況時表示，香港的問題是發展問題，香港一定要與大灣區結合，共同發展，因為香港四大產業是服務業，服務對象主要為大灣區居民。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm)
-
----
-
-# 人才服務辦公室小紅書官方平台　提供實用資訊及提醒分辨假消息
-
-![孫玉菡在片段粉墨登場，介紹兩位虛擬代言人物。（社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797536_1_20250326182059.jpg&q=90)
-  
-
-香港人才服務辦公室在小紅書設立官方平台，協助人才融入香港，提醒他們分清虛假消息及謠言，以及向他們提供實用的生活攻略等資訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm)
-
----
-
-# 中國銀行去年多賺近2.6%　淨息差按年收窄19個基點
-
-![中國銀行去年盈利2378.4億元人民幣，按年升近2.6%。末期息每股0.1216元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797533_1_20250326180731.jpg&q=90)
-  
-
-中國銀行去年盈利2378.4億元人民幣，按年升近2.6%。末期息每股0.1216元人民幣，全年派息0.2424元，按年升2.5%，派息率30%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797533-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797533-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797533-20250326.htm)
-
----
-
-# 「七欖」周五舉行　球迷村提早關閉
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797535_1_20250326183239.jpg&q=90)
-  
-
-香港國際七人欖球賽，星期五起，一連三天在啟德體育園舉行，其中球迷村原本稱開放到晚上11時，改為星期五和星期六提早在晚上10時半關閉，星期日晚提早至晚上7時關閉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm)
-
----
-
-# 張舉能率高級法官代表團結束在澳洲訪問　期間出席司法學術研討會
-
-![張舉能率高級法官代表團結束在澳洲訪問　期間出席司法學術研討會](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797534_1_20250326185501.jpg&q=90)
-  
-
-終審法院首席法官張舉能星期一率領高級法官代表團在澳洲坎培拉出席亞太區司法學術研討會，今日結束在澳洲的訪問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797534-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797534-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797534-20250326.htm)
-
----
-
-# 中國科學院自動化研究所高層稱AI不應替代醫生判斷和決策
-
-![中國科學院自動化研究所高層稱AI不應替代醫生判斷和決策](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797531_1_20250326185425.jpg&q=90)
-  
-
-中國科學院自動化研究所、人工智能倫理與治理研究中心主任曾毅表示，人工智能(AI)應用於教育及醫療過程當中，如果全面的替代決策，問題非常多，AI不應替代決策，在教育領域，可以輔助教師。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797531-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797531-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797531-20250326.htm)
 
 ---

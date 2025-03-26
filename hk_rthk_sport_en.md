@@ -1,9 +1,33 @@
-# Coleman Wong ready to climb up world tennis ranking
+# Teenage Filipino Eala stuns Swiatek at Miami Open
+
+![Alexandra Eala is the first player from the Philippines to reach the semi-finals of a WTP 1000 tournament. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797607_1_20250327071056.jpg&q=90)
+  
+
+Alexandra Eala, a 19-year-old wildcard from the Philippines, produced a huge upset at the Miami Open on Wednesday, defeating world number two Iga Swiatek 6-2 7-5 to reach the semi-finals.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm)
+
+---
+
+# Coleman Wong ready to climb up world tennis rankings
 
 ![Coleman Wong said he's glad to prove that a player from the SAR can beat a top-20 player in the world. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797605_1_20250327063121.jpg&q=90)
   
 
-The SAR's tennis star, Coleman Wong, said late Wednesday that he's more confident about cracking the top 100 in the men's singles world rankings, following his historic success at the Miami Open.
+The SAR's tennis star, Coleman Wong, said late Wednesday that he was more confident about cracking the top 100 in the men's singles world rankings, following his historic success at the Miami Open.
 
   
 
@@ -1412,29 +1436,5 @@ Lionel Messi will miss two World Cup qualifiers after he was left out of the Arg
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm)
-
----
-
-# Boxing is here to stay in the 2028 Olympics: IOC
-
-![Germany's Nelvie Tiafack, left, in action against Bakhodir Jalolov of Uzbekistan at the Paris Olympics. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796158_1_20250318055329.jpg&q=90)
-  
-
-International Olympic Committee (IOC) chief Thomas Bach has announced that boxing is set to be among the sports at the 2028 Los Angeles Olympics after a new governing body is selected.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796158-20250318.htm)
 
 ---

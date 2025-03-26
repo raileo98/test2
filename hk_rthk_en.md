@@ -1,3 +1,51 @@
+# Trumps hints at lower tariffs for China over TikTok
+
+![The short-video app is used by nearly half of all Americans. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
+  
+
+US President Donald Trump said on Wednesday he would be willing to reduce tariffs to get a deal done with TikTok's Chinese parent ByteDance to sell the short video app used by 170 million Americans.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm)
+
+---
+
+# Teenage Filipino Eala stuns Swiatek at Miami Open
+
+![Alexandra Eala is the first player from the Philippines to reach the semi-finals of a WTP 1000 tournament. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797607_1_20250327071056.jpg&q=90)
+  
+
+Alexandra Eala, a 19-year-old wildcard from the Philippines, produced a huge upset at the Miami Open on Wednesday, defeating world number two Iga Swiatek 6-2 7-5 to reach the semi-finals.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm)
+
+---
+
 # Denmark welcomes US limiting Greenland visit
 
 ![US Vice President JD Vance announced he would accompany his wife Usha, left, on Friday to the Pituffik Space Base in Greenland. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797564_1_20250326210127.jpg&q=90)
@@ -46,12 +94,12 @@ Israeli Prime Minister Benjamin Netanyahu threatened on Wednesday to seize parts
 
 ---
 
-# Coleman Wong ready to climb up world tennis ranking
+# Coleman Wong ready to climb up world tennis rankings
 
 ![Coleman Wong said he's glad to prove that a player from the SAR can beat a top-20 player in the world. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797605_1_20250327063121.jpg&q=90)
   
 
-The SAR's tennis star, Coleman Wong, said late Wednesday that he's more confident about cracking the top 100 in the men's singles world rankings, following his historic success at the Miami Open.
+The SAR's tennis star, Coleman Wong, said late Wednesday that he was more confident about cracking the top 100 in the men's singles world rankings, following his historic success at the Miami Open.
 
   
 
@@ -1391,53 +1439,5 @@ European sales of Tesla electric cars dropped 49 percent in January and February
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm)
-
----
-
-# Non-urgent A&E visits to cost more in fee revamp
-
-![Health minister Lo Chung-mau (middle) says the fee reform is aimed at directing public resources to patients most in need. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797291_1_20250325131640.jpg&q=90)
-  
-
-Non-urgent patients seeking help at the city's public accident and emergency wards are set to pay more than double the current rate as part of the government's revamp on healthcare charges, with the new fees taking effect over three phases starting on January 1, 2026.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797291-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797291-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797291-20250325.htm)
-
----
-
-# Relief as billiards keep Tier A status
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797283_1_20250325120446.jpg&q=90)
-  
-
-The chairman of the Billiard Sports Council of Hong Kong China welcomes the government's decision to retain the sport's Tier A status, saying the impact would have been devastating had the sport been downgraded.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm)
 
 ---

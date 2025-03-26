@@ -1,3 +1,123 @@
+# 美元指數創近3星期新高
+
+![美元指數升穿104.7，創近3星期新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797604_1_20250327062904.jpg&q=90)
+  
+
+美元指數升穿104.7，創近3星期新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797604-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797604-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797604-20250327.htm)
+
+---
+
+# 港股美國預託證券個別發展　滙控升逾1%　ATMXJ偏軟
+
+![港股美國預託證券個別發展，滙控ADR比本港昨日收市價升逾1%，以港元計折合報90.7元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797603_1_20250327062157.jpg&q=90)
+  
+
+港股美國預託證券(ADR)個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797603-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797603-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797603-20250327.htm)
+
+---
+
+# 金價企穩3000美元　紐約期金低收0.1%
+
+![場持續關注特朗普政府的關稅措施，支持金價仍企穩3000美元以上。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797602_1_20250327061757.jpg&q=90)
+  
+
+美元及美債孳息率上升，不利金價表現，但市場持續關注特朗普政府的關稅措施，支持金價仍企穩3000美元以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797602-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797602-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797602-20250327.htm)
+
+---
+
+# 英美期油升近1%或以上　紐約期油曾升穿70美元
+
+![紐約期油一度升穿70美元關口，觸及70.22美元，是逾3星期高位，收報69.65美元，升幅逾0.9%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797598_1_20250327060225.jpg&q=85)
+  
+
+國際油價造好，數據顯示美國上星期原油及燃料油庫存減少，加上美國威脅對購買委內瑞拉石油及天然氣的國家徵收關稅，市場對全球供應趨緊的擔憂加劇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797598-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797598-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797598-20250327.htm)
+
+---
+
+# 英股靠穩　德法股市跌約1%或以上
+
+![歐洲股市普遍向下，英國股市靠穩，德法股市跌約1%或以上。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797596_1_20250327055337.jpg&q=90)
+  
+
+歐洲股市普遍向下，英國股市靠穩，富時100指數收報8689點，升25點，升幅0.3%，連升兩日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797596-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797596-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797596-20250327.htm)
+
+---
+
 # 特朗普宣布對進口美國汽車徵收25%關稅
 
 ![美國總統特朗普宣布，對所有進口汽車徵收25%關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797597_1_20250327060309.jpg&q=90)
@@ -1316,125 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797437-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797437-20250326.htm)
-
----
-
-# 唐家成：香港橋樑角色在當今經濟發展進程中發揮重要作用
-
-![唐家成稱香港是中國及全球市場之間資金流動主要促進者。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797438_1_20250326113739.jpg&q=90)
-  
-
-港交所主席唐家成表示，香港作為內地與離岸市場的橋樑，在當今時代的經濟發展進程中發揮重要作用，並對全球經濟帶來重大影響。本港過去12個月日均交易額多次刷新記錄，去年首次公開招股（IPO）額度位居全球第4，期望今年排名能夠提升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797438-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797438-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797438-20250326.htm)
-
----
-
-# 丘應樺：地緣政治日益複雜　局方為商界開發其他新經濟體
-
-![丘應樺表示，在港的外地企業數目增加，香港在不同國際排名名列前茅，都是國際認可。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797436_1_20250326104617.jpg&q=80)
-  
-
-下月15日是「全民國家安全教育日」，商務及經濟發展局局長丘應樺接受報章訪問表示，經濟安全與國家安全息息相關，看到外國企業對於落實香港國安法、維護國家安全條例後的營商環境非常有信心。他表示，在港的外地企業數目增加，香港在不同國際排名名列前茅，都是國際認可，局方在知識產權、電訊、商貿等方面做了很多功夫，力求保障經濟發展和國家安全。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797436-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797436-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797436-20250326.htm)
-
----
-
-# 植田和男：若經濟及物價發展符合預測　日本將繼續加息
-
-![日本央行總裁植田和男表示，如果經濟及物價發展符合央行預測，央行將繼續加息。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797432_1_20250326100623.jpg&q=90)
-  
-
-日本央行總裁植田和男在國會發表貨幣政策半年度報告時表示，日本經濟正在溫和復蘇，但仍存在一些問題及不確定，物價仍居高不下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797432-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797432-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797432-20250326.htm)
-
----
-
-# 艾橋智：電商平台將成為全球貿易引擎
-
-![艾橋智預計，至2030年，亞洲區域貿易額將增長65%，相當於每年增加4000億美元。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797431_1_20250326095557.jpg&q=85)
-  
-
-滙控行政總裁艾橋智相信，電商平台將成為未來全球貿易的引擎，他說，目前全球總銷售額20%來自網上購買，電商徹底改變全球購物方式，亦改變生產、供應和銷售方式，進而改變研發、物流、倉儲、行銷和銷售，而疫情加速相關進程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797431-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797431-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797431-20250326.htm)
-
----
-
-# 內地股市初段向上　升幅有限
-
-![內地股市初段上升，上證指數較早時報3373點，升3點，升幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797427_1_20250326093535.jpg&q=90)
-  
-
-內地股市初段上升，上證指數較早時報3373點，升3點，升幅0.12%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797427-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797427-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797427-20250326.htm)
 
 ---
