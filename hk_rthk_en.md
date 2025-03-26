@@ -94,12 +94,12 @@ A months-long investigation into the mysterious death of a French toddler took a
 
 ---
 
-# Argentina qualify for 2026 World Cup
+# Argentina qualify for 2026 World Cup in style
 
-![Reigning champions Argentina are the first South American nation to qualify for the 2026 Fifa World Cup. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797405_1_20250326070511.jpg&q=90)
+![Brazil's midfielder Joao Gomes walks off the pitch downcast as Argentina's players celebrate their win over Brazil at the Mas Monumental stadium in Buenos Aires. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797405_2_20250326110003.jpg&q=90)
   
 
-Argentina became the first team from South America to book their place at the 2026 World Cup after Bolivia could only draw their crucial qualifier against Uruguay.
+Argentina celebrated their 2026 World Cup qualification with a dazzling 4-1 thrashing of arch-rivals Brazil in Buenos Aires.
 
   
 
@@ -214,36 +214,12 @@ World Athletics said on Tuesday it had approved the introduction of a cheek swab
 
 ---
 
-# Trump, intel chiefs dismiss chat breach
-
-![Senators blasted US Director of National Intelligence Tulsi Gabbard (middle) and CIA Director John Ratcliffe (right) over the leak. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797390_1_20250326032257.jpg&q=90)
-  
-
-US President Donald Trump and his top intelligence officials raced on Tuesday to stem a growing scandal after a journalist was accidentally added to a group chat about air strikes on Yemen's Houthi rebels in a security breach.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm)
-
----
-
 # HK open Asian Cup final round qualifier with draw
 
 ![The goalless draw ended the SAR's record seven-match winning run. Image courtesy of Hong Kong Football Association](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797379_2_20250326053556.jpg&q=90)
   
 
-The Hong Kong, China football team had a disappointing start in the final round of their AFC Asian Cup qualifying campaign, as they ended up in a goalless draw against Singapore on Tuesday night.
+Hong Kong, China and hosts Singapore battled to a goalless draw on Tuesday night as they began the final round of their AFC Asian Cup football qualifying campaign.
 
   
 
@@ -336,7 +312,7 @@ A family physician said on Tuesday that the government's overhaul of healthcare 
 
 # Vietnam death row tycoon begins appeal
 
-![Vietnamese property tycoon Truong My Lan (Centre) looks on at a court in Ho Chi Minh City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797356_1_20250325193707.jpg&q=90)
+![Vietnamese property tycoon Truong My Lan (centre) looks on at a court in Ho Chi Minh City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797356_1_20250325193707.jpg&q=90)
   
 
 The appeal of a Vietnamese property tycoon convicted of money laundering began on Tuesday, three months after she lost a challenge against the death penalty in a separate case.
@@ -1441,5 +1417,29 @@ Former Fifa president Sepp Blatter and France football great Michel Platini will
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm)
+
+---
+
+# Venezuelans go home as US deportation flights resume
+
+![An aircraft carrying Venezuelan migrants, who were deported from the United States, lands in Caracas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797145_1_20250324144241.jpg&q=90)
+  
+
+Venezuela on Monday received nearly 200 citizens deported from the United States via Honduras, as US President Donald Trump cracks down on undocumented foreigners.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm)
 
 ---

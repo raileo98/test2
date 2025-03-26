@@ -22,12 +22,12 @@ Novak Djokovic cruised into the quarter-finals of the Miami Open with a 6-2, 6-2
 
 ---
 
-# Argentina qualify for 2026 World Cup
+# Argentina qualify for 2026 World Cup in style
 
-![Reigning champions Argentina are the first South American nation to qualify for the 2026 Fifa World Cup. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797405_1_20250326070511.jpg&q=90)
+![Brazil's midfielder Joao Gomes walks off the pitch downcast as Argentina's players celebrate their win over Brazil at the Mas Monumental stadium in Buenos Aires. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797405_2_20250326110003.jpg&q=90)
   
 
-Argentina became the first team from South America to book their place at the 2026 World Cup after Bolivia could only draw their crucial qualifier against Uruguay.
+Argentina celebrated their 2026 World Cup qualification with a dazzling 4-1 thrashing of arch-rivals Brazil in Buenos Aires.
 
   
 
@@ -75,7 +75,7 @@ World Athletics said on Tuesday it had approved the introduction of a cheek swab
 ![The goalless draw ended the SAR's record seven-match winning run. Image courtesy of Hong Kong Football Association](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797379_2_20250326053556.jpg&q=90)
   
 
-The Hong Kong, China football team had a disappointing start in the final round of their AFC Asian Cup qualifying campaign, as they ended up in a goalless draw against Singapore on Tuesday night.
+Hong Kong, China and hosts Singapore battled to a goalless draw on Tuesday night as they began the final round of their AFC Asian Cup football qualifying campaign.
 
   
 

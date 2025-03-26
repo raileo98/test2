@@ -1,3 +1,50 @@
+# 日股半日升逾百點　再次於38000點得而復失
+
+![日經指數再次於38000點得而復失，半日收報37890點，升109點，升幅0.29%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797437_1_20250326103831.jpg&q=90)
+  
+
+日股造好但未能企穩38000點以上。日經指數半日收報37890點，升109點，升幅0.29%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797437-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797437-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797437-20250326.htm)
+
+---
+
+# 唐家成：香港橋樑角色在當今經濟發展進程中發揮重要作用
+
+  
+
+港交所主席唐家成表示，香港作為內地與離岸市場的橋樑，在當今時代的經濟發展進程中發揮重要作用，並對全球經濟帶來重大影響。本港過去12個月日均交易額多次刷新記錄，去年首次公開招股（IPO）額度位居全球第4，期望今年排名能夠提升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797438-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797438-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797438-20250326.htm)
+
+---
+
 # 丘應樺：地緣政治日益複雜　局方為商界開發其他新經濟體
 
 ![丘應樺表示，在港的外地企業數目增加，香港在不同國際排名名列前茅，都是國際認可。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797436_1_20250326104617.jpg&q=80)
@@ -96,7 +143,7 @@
 
 # 何永賢專訪：約2千間簡樸房面向四面圍封天井　須做好清潔
 
-![何永賢專訪：約2千間簡樸房面向四面圍封天井　須做好清潔](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797426_1_20250326102558.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797426_2_20250326102558.jpg&q=90)
   
 
 房屋局向立法會提交「簡樸房」規管制度最新建議方案中提出，日後「簡樸房」的窗戶，若面向四面圍封的天井，只要天井並非密封，面積符合法定要求，最低層設有進出口，仍可被視為滿足最低標準。房屋局局長何永賢接受本台專訪表示，優化新方案，主要是諮詢期間聽取了持份者意見，當局派人實地到不同舊樓了解後，發現即使是四面圍封的天井亦有不同形式，有些舊式大廈天井的面積可以很大，通風採光並無問題，只要天井底層有門，可以進入清潔，天井亦可以很乾淨。
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797304-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797304-20250325.htm)
-
----
-
-# 港股下午初段跌逾500點
-
-![恒生指數較早時報23378點，跌526點，跌幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797295_1_20250325130524.jpg&q=15)
-  
-
-港股下午初段繼續捱沽，恒生指數較早時報23378點，跌526點，跌幅2.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797295-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797295-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797295-20250325.htm)
-
----
-
-# 李家超抵達海南海口準備出席博鰲論壇　下午致辭分享香港發展機遇
-
-![李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797294_1_20250325131305.jpg&q=90)
-  
-
-行政長官李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm)
 
 ---
