@@ -1,6 +1,6 @@
 # 七欖周五起一連三日啟德體育園舉行　主場館上蓋周五關周六日打開
 
-![啟德體育園表示，為配合賽事，主場館上蓋將於星期五關閉，並於星期六及日打開。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797459_1_20250326125713.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797459_1_20250326125713.jpg&q=90)
   
 
 香港國際七人欖球賽將於星期五起一連三日舉行。啟德體育園表示，為配合賽事，主場館上蓋將於星期五關閉，並於星期六及日打開。
