@@ -1,3 +1,51 @@
+# 華潤萬象生活去年多賺約24%　再度派發特別股息
+
+![華潤萬象生活派末期息每股0.643元人民幣，另派特別股息0.614元，是繼中期業績後再度派特別股息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797412_1_20250326075549.jpg&q=80)
+  
+
+華潤萬象生活去年盈利36.3億元人民幣，按年升約24%。撇除投資物業重估、無形資產相關影響，核心盈利35.1億元，按年升20%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797412-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797412-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797412-20250326.htm)
+
+---
+
+# 華潤置地去年盈利跌約19%　末期息減少約10%
+
+![華潤置地去年盈利255.8億元人民幣，按年跌18.5%。核心盈利254.2億元，按年跌8.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797411_1_20250326074341.jpg&q=90)
+  
+
+華潤置地去年盈利255.8億元人民幣，按年跌18.5%。撇除投資物業重估影響，核心盈利254.2億元，按年跌8.5%，受到行業整體毛利率持續探底影響。當中，經常性業務核心盈利103.4億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797411-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797411-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797411-20250326.htm)
+
+---
+
 # 歐洲央行管委料存款利率夏季末或降至2厘
 
 ![維勒魯瓦德加洛預料，存款利率或於夏季末減至2厘，亦即比現時有0.5厘下調空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797404_1_20250326070353.jpg&q=85)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm)
-
----
-
-# 人民幣兌美元中間價跌8點子　再創逾兩個月新低
-
-![人民幣中間價報7.1788兌1美元，較昨日收市價跌8點子，再創逾兩個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797255_1_20250325092029.jpg&q=85)
-  
-
-人民幣中間價報7.1788兌1美元，較昨日收市價跌8點子，再創逾兩個月新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797255-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797255-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797255-20250325.htm)
-
----
-
-# 委內瑞拉面對美方涉能源關稅　中國是委内瑞拉石油最大買家
-
-![委內瑞拉是石油輸出國組織成員國，石油是主要出口產品。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797254_1_20250325104323.jpg&q=90)
-  
-
-美國總統特朗普表示，汽車關稅即將來臨，但並非所有他打算要徵收的關稅，都要在4月2日實施，部分國家可獲減免，但他未有提供細節。市場認為特朗普對關稅措施展現靈活性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm)
 
 ---

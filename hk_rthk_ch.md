@@ -1,3 +1,51 @@
+# 華潤萬象生活去年多賺約24%　再度派發特別股息
+
+![華潤萬象生活派末期息每股0.643元人民幣，另派特別股息0.614元，是繼中期業績後再度派特別股息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797412_1_20250326075549.jpg&q=80)
+  
+
+華潤萬象生活去年盈利36.3億元人民幣，按年升約24%。撇除投資物業重估、無形資產相關影響，核心盈利35.1億元，按年升20%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797412-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797412-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797412-20250326.htm)
+
+---
+
+# 華潤置地去年盈利跌約19%　末期息減少約10%
+
+![華潤置地去年盈利255.8億元人民幣，按年跌18.5%。核心盈利254.2億元，按年跌8.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797411_1_20250326074341.jpg&q=90)
+  
+
+華潤置地去年盈利255.8億元人民幣，按年跌18.5%。撇除投資物業重估影響，核心盈利254.2億元，按年跌8.5%，受到行業整體毛利率持續探底影響。當中，經常性業務核心盈利103.4億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797411-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797411-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797411-20250326.htm)
+
+---
+
 # 南韓慶尚北道山火持續蔓延　增至15人死亡
 
 ![在南韓安東市，山火持續燃燒，濃煙升至半空。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797410_1_20250326074128.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm)
-
----
-
-# 萬洲國際去年多賺逾1倍　末期息多派60%
-
-![萬洲國際去年盈利14.7億美元，按年急升約1.43倍。派末期息每股0.4美元，按年升60%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797331_1_20250325171459.jpg&q=90)
-  
-
-萬洲國際公布，去年盈利14.7億美元，按年急升約1.43倍。撇除生物公允值變動，盈利16.1億美元，升1.56倍。派末期息每股0.4美元，按年升60%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm)
-
----
-
-# 公營醫療每人每年一萬元收費上限　放寬減免申請資額及範圍
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797340_1_20250325182706.jpg&q=85)
-  
-
-政府提出以三個方向加大對市民的公營醫療保障，包括為全港市民增設每人每年一萬元的收費上限，又會放寬合資格申領費用減免人士的申請資格及範圍，預料受惠人士會由現時約30萬增至140萬。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797340-20250325.htm)
 
 ---
