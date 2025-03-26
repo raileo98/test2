@@ -1,3 +1,27 @@
+# 美股低收　納指挫2%　美國對進口汽車徵收25%關稅
+
+![美國對進口汽車徵收25%關稅，汽車股在美股收市後交易時段持續偏軟。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797595_1_20250327054824.jpg&q=90)
+  
+
+美股轉跌，結束3日升勢，投資者憂慮全球貿易戰升溫，汽車價格及生產受關稅影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797595-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797595-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797595-20250327.htm)
+
+---
+
 # 蒙牛去年盈利倒退98%　仍派末期息每股0.509元人民幣
 
 ![蒙牛去年盈利倒退98%，受子公司商譽及無形資產減值虧損，以及現代牧業商譽減值影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797580_1_20250326225414.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm)
-
----
-
-# 人行開展4554億元人民幣逆回購操作
-
-![人行公開市場開展4554億元人民幣7天期逆回購操作，單日淨投放1595億元，連續兩日淨投放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797425_1_20250326093014.jpg&q=75)
-  
-
-人民銀行公布，公開市場逆回購投標量及中標量都是4554億元人民幣，全屬7天期操作，利率維持1.5厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797425-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797425-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797425-20250326.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 美股低收　納指挫2%　美國對進口汽車徵收25%關稅
+
+![美國對進口汽車徵收25%關稅，汽車股在美股收市後交易時段持續偏軟。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797595_1_20250327054824.jpg&q=90)
+  
+
+美股轉跌，結束3日升勢，投資者憂慮全球貿易戰升溫，汽車價格及生產受關稅影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797595-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797595-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797595-20250327.htm)
+
+---
+
 # 美傳媒人指當局試圖淡化群組信息重要性　公開聊天紀錄更多內容
 
 ![戈德堡批評當局試圖淡化有關群組信息的重要性。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797594_1_20250327054606.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797529-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797529-20250326.htm)
-
----
-
-# 醫管局：費用減免機制最長有效期將由12個月延長至18個月
-
-![醫管局將擴闊65歲以下人士的有限期醫療費用減免涵蓋範圍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797527_1_20250326185220.jpg&q=80)
-  
-
-公營醫療體系改革方案提出放寬費用減免的入息及資產資格。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm)
 
 ---
