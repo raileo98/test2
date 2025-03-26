@@ -1,3 +1,50 @@
+# 中人壽去年盈利升逾1倍
+
+![中人壽按國際財務報告準則計，去年盈利1069.4億元人民幣，創歷年最好，按年急升1.32倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797544_1_20250326184738.jpg&q=90)
+  
+
+中人壽公布，按國際財務報告準則計，去年盈利1069.4億元人民幣，創歷年最好，按年急升1.32倍。末期息每股0.45元人民幣，全年派息0.65元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm)
+
+---
+
+# 消防處指粵港澳聯合演練成功測試大灣區緊急動員及協調機制
+
+  
+
+香港消防處聯同廣東省消防救援總隊及澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練，模擬香港遇到極端天氣，全港多處發生大型緊急事故，本港的救援資源變得緊張，要向粵澳提出支援請求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm)
+
+---
+
 # 啟德體育園提醒參與欖球賽活動者守規則　警方料日均4萬觀眾到場
 
   
@@ -446,6 +493,7 @@
 
 # 虐待女兒致死男子囚終身　法官斥被告施虐位置隱蔽明顯故意隱瞞
 
+![法官判被告終身監禁，被告承認的虐兒罪，則被判入獄6年5個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797521_1_20250326185003.jpg&q=90)
   
 
 一名42歲男子多次虐待3歲女兒，包括猛烈搖晃導致腦出血死亡，早前在高等法院陪審團裁定被告謀殺罪成，法官判被告終身監禁，被告承認的虐兒罪，則被判入獄6年5個月。
