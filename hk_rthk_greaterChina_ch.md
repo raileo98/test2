@@ -1,3 +1,26 @@
+# 消防處指粵港澳聯合演練成功測試大灣區緊急動員及協調機制
+
+  
+
+香港消防處聯同廣東省消防救援總隊及澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練，模擬香港遇到極端天氣，全港多處發生大型緊急事故，本港的救援資源變得緊張，要向粵澳提出支援請求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm)
+
+---
+
 # 鄭永年稱香港問題是發展問題　香港一定要與大灣區結合
 
 ![鄭永年說，不要低估中國的開放政策，對全球貿易體系的重塑能力。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797537_1_20250326183143.jpg&q=80)
@@ -119,6 +142,7 @@
 
 # 湖北省委原書記蔣超良被提請罷免全國人大代表資格
 
+![湖北省委原書記蔣超良被提請罷免全國人大代表資格](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797499_1_20250326184221.jpg&q=90)
   
 
 早前落馬的湖北省委原書記蔣超良，被提請罷免全國人大代表資格。湖北省人大常委會會議昨日在武昌舉行，湖北人大秘書長張愛國説明提請罷免蔣超良全國人大職務的議案。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm)
-
----
-
-# 訪華美參議員戴安斯：北京不制止芬太尼輸美　中美貿易談判難推動
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797099_1_20250324100417.jpg&q=90)
-  
-
-在中國訪問的美國國會參議員戴安斯說，北京必須制止芬太尼毒品流入美國，否則美中之間難以就關稅和非關稅障礙進行任何對話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm)
 
 ---

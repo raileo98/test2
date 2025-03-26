@@ -1,3 +1,26 @@
+# 中人壽去年盈利升逾1倍
+
+  
+
+中人壽公布，按國際財務報告準則計，去年盈利1069.4億元人民幣，創歷年最好，按年急升1.32倍。末期息每股0.45元人民幣，全年派息0.65元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm)
+
+---
+
 # 鄭永年稱香港問題是發展問題　香港一定要與大灣區結合
 
 ![鄭永年說，不要低估中國的開放政策，對全球貿易體系的重塑能力。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797537_1_20250326183143.jpg&q=80)
@@ -216,6 +239,7 @@
 
 # 湖北省委原書記蔣超良被提請罷免全國人大代表資格
 
+![湖北省委原書記蔣超良被提請罷免全國人大代表資格](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797499_1_20250326184221.jpg&q=90)
   
 
 早前落馬的湖北省委原書記蔣超良，被提請罷免全國人大代表資格。湖北省人大常委會會議昨日在武昌舉行，湖北人大秘書長張愛國説明提請罷免蔣超良全國人大職務的議案。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm)
-
----
-
-# 漁護署：本地優質漁農產品將可獲統一Q嘜認證　令市民食得放心
-
-![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_4_20250326131750.jpg&q=70)
-  
-
-漁護署表示，本地優質漁農產品將可獲得統一的「Q嘜」認證，目標是2025/26財政年度內推出相關制度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm)
 
 ---

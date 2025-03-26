@@ -1,3 +1,26 @@
+# 啟德體育園提醒參與欖球賽活動者守規則　警方料日均4萬觀眾到場
+
+  
+
+香港國際七人欖球賽將於本星期五展開，並首次於啟德體育園主場館舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797542-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797542-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797542-20250326.htm)
+
+---
+
 # 盧寵茂：不存在調整公營醫療服務收費後推高私營市場收費
 
   
@@ -446,6 +469,7 @@
 
 # 強風及乾燥天氣增南韓山火撲救及控制火場面積難度
 
+![強風及乾燥天氣增加撲救及控制火場面積的難度。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797517_1_20250326184322.jpg&q=90)
   
 
 南韓山火持續，強風及乾燥天氣增加撲救及控制火場面積的難度。
@@ -781,6 +805,7 @@
 
 # 湖北省委原書記蔣超良被提請罷免全國人大代表資格
 
+![湖北省委原書記蔣超良被提請罷免全國人大代表資格](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797499_1_20250326184221.jpg&q=90)
   
 
 早前落馬的湖北省委原書記蔣超良，被提請罷免全國人大代表資格。湖北省人大常委會會議昨日在武昌舉行，湖北人大秘書長張愛國説明提請罷免蔣超良全國人大職務的議案。

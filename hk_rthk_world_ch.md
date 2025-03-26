@@ -24,6 +24,7 @@
 
 # 強風及乾燥天氣增南韓山火撲救及控制火場面積難度
 
+![強風及乾燥天氣增加撲救及控制火場面積的難度。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797517_1_20250326184322.jpg&q=90)
   
 
 南韓山火持續，強風及乾燥天氣增加撲救及控制火場面積的難度。

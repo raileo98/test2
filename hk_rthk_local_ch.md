@@ -1,3 +1,49 @@
+# 消防處指粵港澳聯合演練成功測試大灣區緊急動員及協調機制
+
+  
+
+香港消防處聯同廣東省消防救援總隊及澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練，模擬香港遇到極端天氣，全港多處發生大型緊急事故，本港的救援資源變得緊張，要向粵澳提出支援請求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm)
+
+---
+
+# 啟德體育園提醒參與欖球賽活動者守規則　警方料日均4萬觀眾到場
+
+  
+
+香港國際七人欖球賽將於本星期五展開，並首次於啟德體育園主場館舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797542-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797542-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797542-20250326.htm)
+
+---
+
 # 盧寵茂：不存在調整公營醫療服務收費後推高私營市場收費
 
   
@@ -1378,53 +1424,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797409-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797409-20250326.htm)
-
----
-
-# 黎堅明：冀三寶樹濕地公園做到保育與旅遊平衡
-
-![漁護署表示，三寶樹濕地保育公園將加入旅遊元素，包括生態旅舍等。（立法會文件截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797408_1_20250326072548.jpg&q=90)
-  
-
-漁護署表示，位於北部都會區的三寶樹濕地保育公園，除了發展現代化塘魚養殖等保育項目，亦會加入旅遊元素，包括推出觀鳥活動、生態旅舍等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm)
-
----
-
-# 漁護署：本地優質漁農產品將可獲統一Q嘜認證　令市民食得放心
-
-![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_4_20250326131750.jpg&q=70)
-  
-
-漁護署表示，本地優質漁農產品將可獲得統一的「Q嘜」認證，目標是2025/26財政年度內推出相關制度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm)
 
 ---
