@@ -1,3 +1,26 @@
+# 何立峰與美國貿易代表格里爾舉行視像通話
+
+  
+
+中美經貿中方牽頭人、國務院副總理何立峰應約與美國貿易代表格里爾舉行視像通話。雙方圍繞落實今年1月17日中美兩國元首通話達成的重要共識，就雙邊經貿領域重要問題坦誠、深入交換意見。中方就美以芬太尼為由對華加徵關稅、有關301調查以及擬出台「對等」關稅等表達嚴正關切。雙方認為保持穩定的中美經貿關係符合兩國利益，同意就彼此關心的問題繼續保持溝通。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm)
+
+---
+
 # 中國駐韓使館：中方黃海深海漁業養殖設施不影響韓方權益
 
 ![使館發言人說，中方做法不違反《中韓漁業協定》，也不影響韓方依據《協定》享有的權益。（中國駐南韓大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797557_1_20250326201302.jpg&q=90)
@@ -1413,28 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797139-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797139-20250324.htm)
-
----
-
-# 商務部國際貿易談判副代表稱將推動互聯網及文化等領域有序開放
-
-  
-
-在北京，商務部國際貿易談判副代表李詠箑表示，目前全國版外資准入負面清單已減少到29項限制措施，將推動互聯網、文化等領域有序開放。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797134-20250324.htm)
 
 ---

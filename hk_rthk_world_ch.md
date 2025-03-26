@@ -1,3 +1,26 @@
+# 何立峰與美國貿易代表格里爾舉行視像通話
+
+  
+
+中美經貿中方牽頭人、國務院副總理何立峰應約與美國貿易代表格里爾舉行視像通話。雙方圍繞落實今年1月17日中美兩國元首通話達成的重要共識，就雙邊經貿領域重要問題坦誠、深入交換意見。中方就美以芬太尼為由對華加徵關稅、有關301調查以及擬出台「對等」關稅等表達嚴正關切。雙方認為保持穩定的中美經貿關係符合兩國利益，同意就彼此關心的問題繼續保持溝通。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm)
+
+---
+
 # 歐盟發布應急戰略應對新興威脅　包括鼓勵公眾儲72小時避難物資
 
 ![馮德萊恩在公告中說，新的現實情況要求歐洲達到新的應急準備水平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797568_1_20250326212752.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm)
-
----
-
-# 李強晤亞行行長　稱中方將擔起大國責任為世界發展注入更多穩定性
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797201_1_20250324201943.jpg&q=90)
-  
-
-國務院總理李強在北京人民大會堂會見亞洲開發銀行行長神田真人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm)
 
 ---
