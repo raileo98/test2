@@ -1,5 +1,52 @@
+# 甯漢豪冀短期有措施便利商業地帶休憩用地　做活動帶動經濟氣氛
+
+  
+
+立法會舉行前廳交流會，由財政司副司長黃偉綸帶領多名官員出席，包括發展局局長甯漢豪和房屋局局長何永賢等，交流會首次以事務委員會為基礎分組進行討論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797445-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797445-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797445-20250326.htm)
+
+---
+
+# 房協安達臣道及粉嶺資助房屋共1604個單位　售價最平230萬
+
+  
+
+房協推售位於觀塘安達臣道及粉嶺馬會道的資助出售項目合共1604個單位，
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797444-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797444-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797444-20250326.htm)
+
+---
+
 # 李家超：瓊港合作備忘錄涵蓋五個領域深度合作　體現兩地優秀疊加
 
+![李家超（左一）見證瓊港簽署合作備忘錄，深化兩地合作。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797442_1_20250326112907.jpg&q=80)
   
 
 行政長官李家超展開在海南的第二日行程，出席瓊港合作備忘錄簽約儀式。
@@ -189,7 +236,7 @@
 
 # 盧寵茂：急症室收費加至400元合理　顧及負擔能力及善用服務
 
-![盧寵茂強調，考慮收費時有顧及病人負擔能力、如何善用服務及分擔成本等因素。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797417_1_20250326102302.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797417_1_20250326102302.jpg&q=80)
   
 
 政府公布公營醫療服務收費改革方案，當中急症室收費由現時180元上調至400元，第一類危殆及第二類危急病人豁免收費。醫務衞生局局長盧寵茂認為400元共付額是合理，他說，環顧全世界的急症室收費亦不只這個數目，外國甚至會收過千元美金，強調考慮收費時有顧及病人負擔能力、如何善用服務及分擔成本等因素。
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm)
-
----
-
-# 鄭泳舜：成年隊精英運動員資助增至1萬元只是起步
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797268_1_20250325105728.jpg&q=90)
-  
-
-政府公布由下月起，所有精英運動員直接資助額增加8.3%，成年隊資助由每月7千多元加至1萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797268-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797268-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797268-20250325.htm)
-
----
-
-# 港股跌幅擴大至逾400點　汽車及手機設備股沽壓大
-
-![港股跌幅擴大，恒生指數較早時報23446點，跌459點，跌幅1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797267_1_20250325103521.jpg&q=75)
-  
-
-港股低開262點後跌幅持續擴大，恒生指數較早時報23446點，跌459點，跌幅1.9%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm)
 
 ---
