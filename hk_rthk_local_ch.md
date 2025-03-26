@@ -1,3 +1,26 @@
+# 虐待3歲女兒謀殺罪成　42歲男子被判終身監禁
+
+  
+
+一名42歲男子多次虐待3歲女兒，包括猛烈搖晃導致腦出血死亡，早前在高等法院陪審團裁定被告謀殺罪成，法官今早判被告終身監禁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797454-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797454-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797454-20250326.htm)
+
+---
+
 # 余偉文：香港於內地貿易和投資扮演重要角色　建立貿易走廊有貢獻
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm)
-
----
-
-# 5.1起可帶貓或狗乘輕鐵　須放袋或背包長闊高有限制
-
-![乘客須於輕鐵車廂的最後一道門上落，並須逗留於車廂的車尾位置，貓狗要放入寵物專用袋或背包內。（黃凱宜攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797279_1_20250325114731.jpg&q=85)
-  
-
-港鐵宣布在輕鐵推出為期兩個月的「貓狗同行」試行計劃，由5月1日起，容許寵物主人於周六日及公眾假期攜同貓、狗乘搭輕鐵，每人只可帶同一隻貓或狗上車。港鐵會密切監察試行情況，有需要時可能延長計劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797279-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797279-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797279-20250325.htm)
 
 ---
