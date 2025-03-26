@@ -1,5 +1,77 @@
+# 國台辦：解放軍在台島附近演習是對台獨和外部勢力干涉的震懾懲戒
+
+![國台辦表示 ，解放軍在台島附近演習是對「台獨」分裂圖謀和外部勢力干涉的震懾懲戒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797494_1_20250326151345.jpg&q=90)
+  
+
+在北京，國台辦發言人陳斌華表示，民進黨當局和「台獨」勢力勾連外部勢力謀獨挑釁，是導致台海局勢緊張的禍根亂源。大陸有堅定的意志、充分的信心、足夠的能力，挫敗任何形式的「台獨」分裂圖謀。解放軍在台島周邊舉行軍事演習，是對「台獨」分裂圖謀和外部勢力干涉的震懾懲戒，是捍衛國家主權和領土完整的必要之舉、正義之舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797494-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797494-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797494-20250326.htm)
+
+---
+
+# 國泰客機周日低飛至啟德上空　呈現昔日飛機穿梭鬧市集體回憶
+
+  
+
+為紀念由啟德起航的香港百年航空歷史，適逢香港國際七人欖球賽首次於啟德體育園舉行，政府支持活動主辦機構周日下午進行一次飛越維多利亞港的飛行演示。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm)
+
+---
+
+# 內地股市反覆偏軟收市
+
+![上證指數收報3368點，微跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797491_1_20250326150355.jpg&q=90)
+  
+
+內地股市反覆偏軟收市。養殖業、機械人、化工等板塊上升，銀行股向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797491-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797491-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797491-20250326.htm)
+
+---
+
 # 王毅指中美應避免誤判並管控分歧　稱中方願對話協商解決各自關切
 
+![王毅在北京會見格林伯格。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797492_1_20250326151114.jpg&q=90)
   
 
 中共中央政治局委員、中央外辦主任王毅，在北京會見美中關係全國委員會董事會執行副主席格林伯格。

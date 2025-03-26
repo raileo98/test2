@@ -1,3 +1,50 @@
+# 國泰客機周日低飛至啟德上空　呈現昔日飛機穿梭鬧市集體回憶
+
+  
+
+為紀念由啟德起航的香港百年航空歷史，適逢香港國際七人欖球賽首次於啟德體育園舉行，政府支持活動主辦機構周日下午進行一次飛越維多利亞港的飛行演示。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm)
+
+---
+
+# 內地股市反覆偏軟收市
+
+![上證指數收報3368點，微跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797491_1_20250326150355.jpg&q=90)
+  
+
+內地股市反覆偏軟收市。養殖業、機械人、化工等板塊上升，銀行股向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797491-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797491-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797491-20250326.htm)
+
+---
+
 # 貿發局將本港今年出口增長預測下調至3%　但出口商信心有改善
 
 ![范婉兒（左）稱最新預測顯示香港出口仍可望錄得增長，反映本港出口業強韌穩健。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797490_1_20250326145813.jpg&q=90)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm)
-
----
-
-# 美股初段靠穩
-
-![美股初段靠穩。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797370_1_20250325213404.jpg&q=75)
-  
-
-美股初段靠穩。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797370-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797370-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797370-20250325.htm)
-
----
-
-# 美國1月樓價按月升0.2%　按年升4.8%
-
-![美國聯邦住房金融局(FHFA)公布，美國1月樓價按月升0.2%，按年升4.8%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797368_1_20250325212127.jpg&q=75)
-  
-
-美國聯邦住房金融局(FHFA)公布，美國1月樓價按月升0.2%，按年升4.8%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797368-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797368-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797368-20250325.htm)
 
 ---

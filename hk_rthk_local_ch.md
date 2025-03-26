@@ -1,3 +1,26 @@
+# 國泰客機周日低飛至啟德上空　呈現昔日飛機穿梭鬧市集體回憶
+
+  
+
+為紀念由啟德起航的香港百年航空歷史，適逢香港國際七人欖球賽首次於啟德體育園舉行，政府支持活動主辦機構周日下午進行一次飛越維多利亞港的飛行演示。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm)
+
+---
+
 # 貿發局將本港今年出口增長預測下調至3%　但出口商信心有改善
 
 ![范婉兒（左）稱最新預測顯示香港出口仍可望錄得增長，反映本港出口業強韌穩健。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797490_1_20250326145813.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797330-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797330-20250325.htm)
-
----
-
-# 醫務衞生局：普通科門診非急症室替代品　日後主要照顧弱勢基層
-
-![當局正進行定位重組，日後普通科門診主要用於照顧弱勢基層，期望並非經濟最困難人士如果只患一般傷風感冒，應在社區網絡或向家庭醫生求診。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797328_1_20250325172903.jpg&q=90)
-  
-
-政府公布公營醫療服務收費改革方案。醫務衞生局發言人表示，預計明年實施改動後，政府資助率將由現時大約97%降至94%，預計2028年和2030年再檢討成效，探討是否需要再作調整，目標2030年再降至90%；又指相信新收費將改變市民使用服務的模式，但難以預計對使用人次的具體影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797328-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797328-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797328-20250325.htm)
 
 ---
