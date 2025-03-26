@@ -1,3 +1,27 @@
+# Thai PM beats no-confidence motion handily
+
+![Paetongtarn Shinawatra with members of the government after surviving the no-confidence vote. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797488_1_20250326144940.jpg&q=90)
+  
+
+Thai Prime Minister Paetongtarn Shinawatra survived a no-confidence vote in parliament on Wednesday, defeating a challenge from opposition parties who accused her of being a puppet of her father, billionaire ex-premier Thaksin Shinawatra.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm)
+
+---
+
 # GBA cities need to maximise tourism synergy: survey
 
 ![The study, led by the Polytechnic University, suggests cities in the Greater Bay Area work together to grow the tourism market together. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797477_1_20250326142939.jpg&q=85)
@@ -1417,29 +1441,5 @@ Thai Prime Minister Paetongtarn Shinawatra on Monday faced a no-confidence motio
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm)
-
----
-
-# Health officials to help pharmas register new drugs
-
-![Assistant Director of Health Frank Chan, centre, hopes the new arrangements can speed up the registration of new drugs in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797180_1_20250324172745.jpg&q=90)
-  
-
-Pharmaceutical firms wishing to register new drugs in Hong Kong will soon be able to consult health officials before filing an actual application, saving both sides time and effort.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm)
 
 ---

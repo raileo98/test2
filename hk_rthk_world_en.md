@@ -1,3 +1,27 @@
+# Thai PM beats no-confidence motion handily
+
+![Paetongtarn Shinawatra with members of the government after surviving the no-confidence vote. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797488_1_20250326144940.jpg&q=90)
+  
+
+Thai Prime Minister Paetongtarn Shinawatra survived a no-confidence vote in parliament on Wednesday, defeating a challenge from opposition parties who accused her of being a puppet of her father, billionaire ex-premier Thaksin Shinawatra.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm)
+
+---
+
 # Toll hits at least 18 in S Korea's worst wildfires
 
 ![Most of the surrounding buildings at the Gounsa Temple complex in Uiseong were burned to the ground. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797453_1_20250326115256.jpg&q=90)
@@ -1412,29 +1436,5 @@ Hamas said it fired rockets at Israeli commercial hub Tel Aviv on Thursday in it
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796687-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796687-20250321.htm)
-
----
-
-# Zelensky, EU leaders discuss support for Ukraine
-
-![Ukrainian President Volodymyr Zelensky was set to address the summit by video link. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796668_1_20250320205411.jpg&q=90)
-  
-
-European Union foreign policy chief Kaja Kallas urged EU leaders on Thursday to pledge 5 billion euros for artillery shells for Ukraine to strengthen its hand in peace talks, amid divergences over how to bolster Kyiv and the EU's own military capabilities.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm)
 
 ---

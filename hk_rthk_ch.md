@@ -1,3 +1,27 @@
+# 韓股高收逾1%
+
+![首爾綜合指數收市報2643點，升28點，升幅1.08%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797487_1_20250326144640.jpg&q=90)
+  
+
+南韓股市造好。首爾綜合指數收市報2643點，升28點，升幅1.08%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797487-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797487-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797487-20250326.htm)
+
+---
+
 # 黃益平：仍有很大宏觀政策空間可以支持中國經濟
 
 ![黃益平指出，收入及信心對提振消費需求至關重要。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797483_1_20250326141202.jpg&q=85)
@@ -48,6 +72,7 @@
 
 # 博鰲亞洲論壇國際科技與創新論壇香港會議今年6月會展舉行
 
+![孫東表示，「香港會議」以「科技引領未來 創新驅動轉型」為主題，聚焦一系列目前最熱門的創科議題。（創新科技及工業局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797485_1_20250326144957.jpg&q=90)
   
 
 由特區政府和博鰲亞洲論壇聯合主辦的「博鰲亞洲論壇國際科技與創新論壇2025香港會議」將於今年6月6日至7日，在香港會議展覽中心舉行。
@@ -476,7 +501,7 @@
 
 ---
 
-# 泡泡馬特去年盈利增長近兩倍
+# 泡泡瑪特去年盈利增長近兩倍
 
 ![泡泡瑪特去年盈利約31.3億元人民幣，增長近兩倍；港澳台及海外業務銷售收入佔整體近40%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797461_1_20250326124221.jpg&q=90)
   
