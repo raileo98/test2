@@ -1,3 +1,27 @@
+# 加拿大央行：關稅帶來不確定　目前不宜提供利率路徑指引
+
+![加拿大央行表示，關稅導致難以確定貨幣政策未來走向，目前不宜為政策利率未來路徑提供指引。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797609_1_20250327071319.jpg&q=30)
+  
+
+加拿大央行會議紀錄顯示，委員對通脹下行風險的關注有所下降，至於央行3月會議減息0.25厘，指標利率降至2.75厘，連續7次減息，以幫助當地應對美國關稅帶來的不確定性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797609-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797609-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797609-20250327.htm)
+
+---
+
 # 網球未來兩年續成精英運動A級項目　黃澤林稱感謝政府及網球總會
 
 ![黃澤林說，感謝團隊背後的一直支持，亦要多謝所有香港支持自己的人。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797611_1_20250327072355.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm)
-
----
-
-# 麥美娟稱關愛隊完成首期協議後將交報告　下月舉行好人好事分享會
-
-![麥美娟認為區議員過去一年很落力履職盡責。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797540_1_20250326185702.jpg&q=80)
-  
-
-民政及青年事務局局長麥美娟說，關愛隊完成第一期協議後，將向當局提交報告並向社會公布，她表示，單從數字看不到服務成果，下月將舉行好人好事分享會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797540-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797540-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797540-20250326.htm)
 
 ---

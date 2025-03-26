@@ -1,3 +1,27 @@
+# 加拿大央行：關稅帶來不確定　目前不宜提供利率路徑指引
+
+![加拿大央行表示，關稅導致難以確定貨幣政策未來走向，目前不宜為政策利率未來路徑提供指引。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797609_1_20250327071319.jpg&q=30)
+  
+
+加拿大央行會議紀錄顯示，委員對通脹下行風險的關注有所下降，至於央行3月會議減息0.25厘，指標利率降至2.75厘，連續7次減息，以幫助當地應對美國關稅帶來的不確定性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797609-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797609-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797609-20250327.htm)
+
+---
+
 # 美元指數創近3星期新高
 
 ![美元指數升穿104.7，創近3星期新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797604_1_20250327062904.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm)
-
----
-
-# 日股半日升逾百點　再次於38000點得而復失
-
-![日經指數再次於38000點得而復失，半日收報37890點，升109點，升幅0.29%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797437_1_20250326103831.jpg&q=90)
-  
-
-日股造好但未能企穩38000點以上。日經指數半日收報37890點，升109點，升幅0.29%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797437-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797437-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797437-20250326.htm)
 
 ---
