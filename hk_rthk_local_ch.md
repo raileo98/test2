@@ -1,3 +1,26 @@
+# 新資本投資者入境計劃接918宗申請　如全數獲批帶來逾270億
+
+  
+
+「新資本投資者入境計劃」自去年3月起接受申請，以進一步豐富人才庫與吸引更多新資金落戶香港。財經事務及庫務局局長許正宇說，截至上月底，新計劃合共接獲918宗申請，並已批出868宗申請的淨資產審查，以及386宗申請的投資規定審查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797484-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797484-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797484-20250326.htm)
+
+---
+
 # 大公報再刊來論告誡長和勿在錯路越走越遠
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797319-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797319-20250325.htm)
-
----
-
-# 港股低收561點　比亞迪電子及舜宇挫近10%或以上
-
-![恒生指數最多跌逾580點，收市報23344點，跌561點，跌幅2.35%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797317_1_20250325161756.jpg&q=90)
-  
-
-港股捱沽，恒生指數今早最多跌逾580點，收市報23344點，跌561點，跌幅2.35%，主板成交額約2853億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 新資本投資者入境計劃接918宗申請　如全數獲批帶來逾270億
+
+  
+
+「新資本投資者入境計劃」自去年3月起接受申請，以進一步豐富人才庫與吸引更多新資金落戶香港。財經事務及庫務局局長許正宇說，截至上月底，新計劃合共接獲918宗申請，並已批出868宗申請的淨資產審查，以及386宗申請的投資規定審查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797484-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797484-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797484-20250326.htm)
+
+---
+
 # 港鐵完成發行30億美元公募票據　超額認購3.47倍
 
 ![港鐵完成發行30億美元公募票據，是公司歷來最大規模公募債券發行，超額認購3.47倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797481_1_20250326135753.jpg&q=80)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797352-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797352-20250325.htm)
-
----
-
-# 招商銀行去年多賺1.2%　末期息每股2元人民幣
-
-![招商銀行去年盈利1483.9億元人民幣，按年增長1.22%。派末期息每股2元人民幣，按年增加1.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797350_1_20250325185817.jpg&q=90)
-  
-
-招商銀行公布，去年盈利1483.9億元人民幣，按年增長1.22%。派末期息每股2元人民幣，按年增加1.4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797350-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797350-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797350-20250325.htm)
 
 ---

@@ -1,3 +1,123 @@
+# 南韓一架滅火直升機墜毀　飛行員喪生
+
+![當局出動多架直升機，連日協助撲滅山火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797480_1_20250326141829.jpg&q=85)
+  
+
+韓聯社報道，一架在南韓慶尚北道義城郡協助撲滅山火的直升機墜毀，一名飛行員喪生，消防部門已派出救援人員，趕往事發地點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797480-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797480-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797480-20250326.htm)
+
+---
+
+# 南韓東南部山火一夜間多人死傷　逾2萬7千居民疏散
+
+![山火至今燒毀超過1.7萬公頃林木。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797440_1_20250326110930.jpg&q=90)
+  
+
+南韓東南部慶尚道地區的山火蔓延，昨日傍晚至今晨造成最少18人死亡，19人受傷，其中6人重傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797440-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797440-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797440-20250326.htm)
+
+---
+
+# 華爾茲︰對建立群組意外洩露美軍計劃承擔全部責任
+
+![華爾茲表示，正調查戈德堡是如何加入群組。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797429_1_20250326095232.jpg&q=90)
+  
+
+美國國家安全顧問華爾茲表示，將對建立通訊群組時意外洩露美軍行動計劃的事件，承擔全部責任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797429-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797429-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797429-20250326.htm)
+
+---
+
+# 美傳媒人指防長有於群組披露軍事行動資料　又形容為巨大國安漏洞
+
+![戈德堡認為自己發現了國家安全系統中一個巨大的安全漏洞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797439_1_20250326123948.jpg&q=90)
+  
+
+美國傳媒人無意中被加入政府高層討論軍事行動的通訊群組，事件主角、《大西洋雜誌》主編戈德堡接受其他傳媒訪問時說，他認為自己發現了國家安全系統中一個巨大的安全漏洞。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797439-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797439-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797439-20250326.htm)
+
+---
+
+# 《環看天下》：葡、法外長本周訪華　分析：歐洲應與華重啟合作
+
+![王毅與蘭熱爾舉行中葡外長級戰略對話。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797430_2_20250326143520.jpg&q=90)
+  
+
+中共中央政治局委員、外交部長王毅昨日在北京，同葡萄牙外長蘭熱爾，舉行中葡第二次外長級戰略對話。王毅表示，中方願意與葡方共同打造更加穩定、更富成果、更具活力的中葡關係，推動中歐成為相互信賴、彼此成就的戰略伙伴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797430-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797430-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797430-20250326.htm)
+
+---
+
 # 萬斯將與夫人訪問格陵蘭　丹麥斥為格陵蘭和丹麥帶來不可接受壓力
 
 ![萬斯（右）表示，將會探望駐紮在格陵蘭島的美軍，並視察當地的安全狀況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797421_1_20250326092232.jpg&q=90)
@@ -409,6 +529,7 @@
 
 # 外交部：報告揭示美方多年來慣於在供應鏈安全問題「賊喊捉賊」
 
+![郭嘉昆指美方多年來慣於在供應鏈安全問題上「賊喊捉賊」，操弄雙重標準的。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797332_1_20250326104343.jpg&q=90)
   
 
 中國網絡安全產業聯盟發佈報告，披露美國針對全球移動智能終端機、移動產供鏈、運營商等開展網絡攻擊和監聽竊密活動。
@@ -1314,125 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797139-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797139-20250324.htm)
-
----
-
-# 韓悳洙恢復南韓代總統職務　強調民眾已對兩極化政治明確說不
-
-![韓悳洙強調，民眾已對兩極化政治明確說不。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797136_1_20250324130726.jpg&q=90)
-  
-
-南韓憲法法院駁回國務總理韓悳洙彈劾案，韓悳洙即時恢復代總統職務。崔相穆同時停止代總統身份。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797136-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797136-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797136-20250324.htm)
-
----
-
-# 以色列批准設新機構推動遷出加沙地帶巴人
-
-![卡茨說，「自願移民事務局」將為有意離開加沙的巴人提供安全監督下的離境通道和手續。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797109_1_20250324105215.jpg&q=90)
-  
-
-以色列國防部表示，以色列安全內閣已批准設立「自願移民事務局」，供自願遷往第三國的巴勒斯坦加沙地帶居民申請辦理手續。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797109-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797109-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797109-20250324.htm)
-
----
-
-# 訪華美參議員戴安斯：北京不制止芬太尼輸美　中美貿易談判難推動
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797099_1_20250324100417.jpg&q=90)
-  
-
-在中國訪問的美國國會參議員戴安斯說，北京必須制止芬太尼毒品流入美國，否則美中之間難以就關稅和非關稅障礙進行任何對話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm)
-
----
-
-# 南韓憲法法院駁回總理韓悳洙彈劾案　韓悳洙即時恢復代總統職位
-
-![韓悳洙彈劾案被駁回，韓聯社報道，他即時恢復代總統職位。(路透社資料圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797096_1_20250324094203.jpg&q=90)
-  
-
-南韓憲法法院駁回國務總理韓悳洙彈劾案，韓聯社報道，韓悳洙即時恢復代總統職位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797096-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797096-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797096-20250324.htm)
-
----
-
-# 石破茂計劃出席大阪世博會下月12日的開幕儀式
-
-![大阪世博會下月開幕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797086_1_20250324081838.jpg&q=90)
-  
-
-共同社報道，首相石破茂計劃出席大阪關西世博會下月12日舉行的開幕儀式。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797086-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797086-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797086-20250324.htm)
 
 ---
