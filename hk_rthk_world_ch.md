@@ -1,3 +1,27 @@
+# 王毅讚賞瑙方堅定奉行一個中國政策　稱願開闢中瑙關係更光明前景
+
+![王毅在北京與瑙魯外長安格明會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797584_1_20250327003043.jpg&q=90)
+  
+
+中共中央政治局委員、外交部長王毅在北京與專程來華出席太平洋島國瑙魯駐華使館開館儀式的瑙魯外長安格明會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm)
+
+---
+
 # 商務部：中方堅決反對美國將多家中國實體列入出口管制實體清單
 
 ![商務部稱，中方敦促美方立即停止錯誤做法，並將採取必要措施，堅決維護中國實體的合法權益。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797579_1_20250326225129.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm)
-
----
-
-# 美俄代表會談尋求達成黑海海上停火　俄方稱會談正有創造力地進行
-
-![美俄會談在利雅得一間酒店閉門進行。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797207_1_20250324212258.jpg&q=80)
-  
-
-美國代表團在沙特阿拉伯首都利雅得與烏克蘭代表團舉行會談後一日，再與俄羅斯代表團會談，尋求達成黑海海上停火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797207-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797207-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797207-20250324.htm)
 
 ---

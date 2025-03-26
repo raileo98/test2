@@ -1,3 +1,27 @@
+# 黃澤林感謝團隊及外界支持給予動力　稱暫時目標打泥地賽提升排名
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797583_1_20250327002027.jpg&q=90)
+  
+
+創下本港網球手在ATP-1000分賽最佳成績的黃澤林昨晚返抵香港。他表示，雖然美國邁阿密網球公開賽很累，但很開心打得不錯。這類賽事每場都要百分百投入，但始終不是參加很多大滿貫或ATP-1000分賽，自己仍未習慣，需要時間適應和學習。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797583-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797583-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797583-20250327.htm)
+
+---
+
 # 涉虛報被陌生男子尾隨及襲擊　涉誤導警員26歲女子被捕
 
 ![涉誤導警員女子被捕。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797582_1_20250326230847.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797460-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797460-20250326.htm)
-
----
-
-# 七欖周五起一連三日啟德體育園舉行　主場館上蓋周五關周六日打開
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797459_1_20250326125713.jpg&q=90)
-  
-
-香港國際七人欖球賽將於星期五起一連三日舉行。啟德體育園表示，為配合賽事，主場館上蓋將於星期五關閉，並於星期六及日打開。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797459-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797459-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797459-20250326.htm)
 
 ---

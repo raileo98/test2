@@ -1,3 +1,27 @@
+# 王毅讚賞瑙方堅定奉行一個中國政策　稱願開闢中瑙關係更光明前景
+
+![王毅在北京與瑙魯外長安格明會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797584_1_20250327003043.jpg&q=90)
+  
+
+中共中央政治局委員、外交部長王毅在北京與專程來華出席太平洋島國瑙魯駐華使館開館儀式的瑙魯外長安格明會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm)
+
+---
+
 # 商務部：中方堅決反對美國將多家中國實體列入出口管制實體清單
 
 ![商務部稱，中方敦促美方立即停止錯誤做法，並將採取必要措施，堅決維護中國實體的合法權益。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797579_1_20250326225129.jpg&q=75)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797156-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797156-20250324.htm)
-
----
-
-# 駐港國安公署座談會　學習貫徹習近平講話回顧展望國安條例實施
-
-![駐港國家安全公署表示，昨日舉辦《維護國家安全條例》刊憲實施一周年座談會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797149_1_20250324151248.jpg&q=80)
-  
-
-駐港國家安全公署表示，昨日舉辦《維護國家安全條例》刊憲實施一周年座談會，深入學習貫徹國家主席習近平關於港澳工作的重要講話精神和中央決策部署，回顧展望國安條例實施，強調堅持以香港高水平安全保障高質量發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm)
 
 ---

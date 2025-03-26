@@ -1,3 +1,51 @@
+# 王毅讚賞瑙方堅定奉行一個中國政策　稱願開闢中瑙關係更光明前景
+
+![王毅在北京與瑙魯外長安格明會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797584_1_20250327003043.jpg&q=90)
+  
+
+中共中央政治局委員、外交部長王毅在北京與專程來華出席太平洋島國瑙魯駐華使館開館儀式的瑙魯外長安格明會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm)
+
+---
+
+# 黃澤林感謝團隊及外界支持給予動力　稱暫時目標打泥地賽提升排名
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797583_1_20250327002027.jpg&q=90)
+  
+
+創下本港網球手在ATP-1000分賽最佳成績的黃澤林昨晚返抵香港。他表示，雖然美國邁阿密網球公開賽很累，但很開心打得不錯。這類賽事每場都要百分百投入，但始終不是參加很多大滿貫或ATP-1000分賽，自己仍未習慣，需要時間適應和學習。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797583-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797583-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797583-20250327.htm)
+
+---
+
 # 涉虛報被陌生男子尾隨及襲擊　涉誤導警員26歲女子被捕
 
 ![涉誤導警員女子被捕。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797582_1_20250326230847.jpg&q=85)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797517-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797517-20250326.htm)
-
----
-
-# 19歲男學生被捕　涉嫌與至少10宗假冒官員電話騙案有關
-
-![警方表示，被捕人涉嫌冒充香港警察，指示案中被騙的事主簽署保密協定，涉案金額超過300萬元。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797515_1_20250326170636.jpg&q=90)
-  
-
-一名19歲男學生被捕，他涉嫌與至少10宗假冒官員電話騙案有關，警方表示，被捕人涉嫌冒充香港警察，指示案中被騙的事主簽署保密協定，涉案金額超過300萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797515-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797515-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797515-20250326.htm)
-
----
-
-# 立法會三讀通過法院遙距聆訊條例草案　簡短法律程序優先採用
-
-![立法會三讀通過《法院遙距聆訊條例草案》。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797514_1_20250326170554.jpg&q=80)
-  
-
-立法會三讀通過《法院遙距聆訊條例草案》。條例提供清晰的法律依據，讓法官和司法人員在考慮所有相關情況，以及司法公開和聆訊公正兩大原則後，在認為合適的情況下，可於各級別法院及審裁處的法律程序命令進行遙距聆訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797514-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797514-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797514-20250326.htm)
 
 ---
