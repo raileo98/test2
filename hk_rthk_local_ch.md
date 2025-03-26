@@ -1,3 +1,49 @@
+# 立法會三讀通過法院遙距聆訊條例草案　簡短法律程序優先採用
+
+  
+
+立法會三讀通過《法院遙距聆訊條例草案》。條例提供清晰的法律依據，讓法官和司法人員在考慮所有相關情況，以及司法公開和聆訊公正兩大原則後，在認為合適的情況下，可於各級別法院及審裁處的法律程序命令進行遙距聆訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797514-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797514-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797514-20250326.htm)
+
+---
+
+# 區議員柯創盛：提交工作報告讓議員有組織詳列工作　檢視有無遺漏
+
+  
+
+第七屆區議會運作超過1年，根據區議員履職監察制度指引，區議員需要每年向區議會主席提交工作報告，闡述該年度的工作重點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797513-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797513-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797513-20250326.htm)
+
+---
+
 # 港股反彈139點收市
 
 ![恒指最多升逾250點，收市報23483點，升139點，升幅0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797509_1_20250326162309.jpg&q=80)
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797346-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797346-20250325.htm)
-
----
-
-# 急症室收費將增至4百　危急病人豁免　普通科門診加至150元
-
-![急症室收費將增至4百　危急病人豁免　普通科門診加至150元](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797345_1_20250325183446.jpg&q=90)
-  
-
-政府公布公營醫療服務收費改革方案，當中急症室收費由現時180元上調至400元，第一類危殆及第二類危急病人豁免收費。急症住院病床收費由每日120元增至300元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797345-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797345-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797345-20250325.htm)
-
----
-
-# 有市民贊成急症室增收費防濫用　有人擔心私家診所亦加價
-
-![有市民贊成急症室加價，認為可達至分流效果，更好分配資源；有反對的市民說，收費400元太貴，擔心私家診所收費亦會加價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797344_1_20250325182516.jpg&q=80)
-  
-
-有市民贊成政府提出公營醫療服務收費改革，認為物價通脹，公營收費提升，額外收入都是用於公營醫療，可讓普通市民得益。有市民形容5年的改革時間適中，可讓市民慢慢習慣，如推展太快，市民難以接受，改革時間太長則會影響政府財政狀況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797344-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797344-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797344-20250325.htm)
 
 ---

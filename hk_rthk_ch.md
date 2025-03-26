@@ -1,3 +1,49 @@
+# 立法會三讀通過法院遙距聆訊條例草案　簡短法律程序優先採用
+
+  
+
+立法會三讀通過《法院遙距聆訊條例草案》。條例提供清晰的法律依據，讓法官和司法人員在考慮所有相關情況，以及司法公開和聆訊公正兩大原則後，在認為合適的情況下，可於各級別法院及審裁處的法律程序命令進行遙距聆訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797514-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797514-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797514-20250326.htm)
+
+---
+
+# 區議員柯創盛：提交工作報告讓議員有組織詳列工作　檢視有無遺漏
+
+  
+
+第七屆區議會運作超過1年，根據區議員履職監察制度指引，區議員需要每年向區議會主席提交工作報告，闡述該年度的工作重點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797513-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797513-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797513-20250326.htm)
+
+---
+
 # 貿發局：關稅政策不確定　料本港出口表現將較反覆
 
 ![范婉兒：受關稅政策的不確定性影響，進出口商目前仍採取觀望態度，相信本港出口表現將較反覆。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797512_1_20250326163058.jpg&q=90)
