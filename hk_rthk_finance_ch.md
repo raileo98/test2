@@ -1,5 +1,54 @@
+# 中遠海運國際去年多賺19%　末期息升約23%
+
+![中遠海運國際去年盈利7.09億港元，按年升19%。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797469_1_20250326130835.jpg&q=90)
+  
+
+中遠海運國際去年盈利7.09億港元，按年升19%，由於收入及應佔一家合營企業盈利上升。末期息每股21.5港仙，全年派息48港仙，按年分別升約23%及20%，派息比率約99%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797469-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797469-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797469-20250326.htm)
+
+---
+
+# 港股下午初段升近百點
+
+![恒生指數較早時報23427點，升82點，升幅0.36%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797470_1_20250326130905.jpg&q=10)
+  
+
+港股下午初段靠穩，恒生指數較早時報23427點，升82點，升幅0.36%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm)
+
+---
+
 # 房協安達臣道及粉嶺資助出售房屋　首引入家有長者或初生優先選樓
 
+![「峻然」的廚廁採用不能拆除的預製組件，並引入新式設計，例如開放式廚房單位。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797468_1_20250326131410.jpg&q=80)
   
 
 房協推售觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，合共提供1604個單位，售價介乎約230萬至636萬元，約為市值7折。綠白表申請配額是四六比，並首次引入「家有長者」及「家有初生」優先選樓安排。房協長沙灣辦事處的兩個示範單位明日起開放。
@@ -47,6 +96,7 @@
 
 # 李家超：瓊港雙方合力開拓面向東盟區域性大市場
 
+![李家超指合作備忘錄涵蓋多個範疇，標誌著香港和海南合作踏上新台階，將有助兩地優勢疊加、深化經貿交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797463_1_20250326131144.jpg&q=90)
   
 
 正在海南的行政長官李家超，出席海南省人民政府與李家超香港特區政府簽署《合作備忘錄》儀式。
@@ -839,7 +889,7 @@
 
 # 漁護署：本地優質漁農產品將可獲統一Q嘜認證　令市民食得放心
 
-![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_3_20250326080309.jpg&q=80)
+![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_4_20250326131750.jpg&q=70)
   
 
 漁護署表示，本地優質漁農產品將可獲得統一的「Q嘜」認證，目標是2025/26財政年度內推出相關制度。
@@ -1388,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797341-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797341-20250325.htm)
-
----
-
-# 中電信去年多賺逾8%　全年派息升逾11%
-
-![中電信公布，去年盈利330.1億元人民幣，按年升8.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797337_1_20250325174545.jpg&q=85)
-  
-
-中電信去年盈利330.1億元人民幣，按年升8.4%。末期息每股9.27分，全年派息25.98分，按年升逾11%，派息比率72%。公司指，3年內派息比率將逐步提升至75%以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm)
-
----
-
-# 萬洲國際去年多賺逾1倍　末期息多派60%
-
-![萬洲國際去年盈利14.7億美元，按年急升約1.43倍。派末期息每股0.4美元，按年升60%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797331_1_20250325171459.jpg&q=90)
-  
-
-萬洲國際公布，去年盈利14.7億美元，按年急升約1.43倍。撇除生物公允值變動，盈利16.1億美元，升1.56倍。派末期息每股0.4美元，按年升60%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm)
 
 ---

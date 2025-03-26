@@ -1,3 +1,27 @@
+# 港股下午初段升近百點
+
+![恒生指數較早時報23427點，升82點，升幅0.36%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797470_1_20250326130905.jpg&q=10)
+  
+
+港股下午初段靠穩，恒生指數較早時報23427點，升82點，升幅0.36%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm)
+
+---
+
 # 工聯會：需向違規「簡樸房」實施阻嚇性罰則
 
   
@@ -23,6 +47,7 @@
 
 # 房協安達臣道及粉嶺資助出售房屋　首引入家有長者或初生優先選樓
 
+![「峻然」的廚廁採用不能拆除的預製組件，並引入新式設計，例如開放式廚房單位。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797468_1_20250326131410.jpg&q=80)
   
 
 房協推售觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，合共提供1604個單位，售價介乎約230萬至636萬元，約為市值7折。綠白表申請配額是四六比，並首次引入「家有長者」及「家有初生」優先選樓安排。房協長沙灣辦事處的兩個示範單位明日起開放。
@@ -46,6 +71,7 @@
 
 # 麥美娟：各項青年交流實習計劃申請人數按年增加一倍
 
+![麥美娟接受本台電視節目《盤點政策》訪問。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797466_1_20250326131240.jpg&q=90)
   
 
 民政及青年事務局局長麥美娟表示，現任470名區議員很快投入到其角色，一些很困難的任務，例如協助法團處理紛爭等，他們亦願意接受挑戰去做，在社區中能作為民政當局的好夥伴，包括協助接觸市民。
@@ -69,6 +95,7 @@
 
 # 蔡若蓮率代表團出席冰島雷克雅未克教學專業國際高峰會
 
+![蔡若蓮（第一排左三）出席在冰島雷克雅未克舉行的2025教學專業國際高峰會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797465_1_20250326131319.jpg&q=85)
   
 
 教育局局長蔡若蓮率領香港校長和教育專家代表團，出席在冰島雷克雅未克舉行的教學專業國際高峰會，與其他地區代表一起探討全球教育發展的新趨勢，並藉此機會推廣香港作為國際專上教育樞紐的優勢。
@@ -92,6 +119,7 @@
 
 # 李家超：瓊港雙方合力開拓面向東盟區域性大市場
 
+![李家超指合作備忘錄涵蓋多個範疇，標誌著香港和海南合作踏上新台階，將有助兩地優勢疊加、深化經貿交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797463_1_20250326131144.jpg&q=90)
   
 
 正在海南的行政長官李家超，出席海南省人民政府與李家超香港特區政府簽署《合作備忘錄》儀式。
@@ -115,6 +143,7 @@
 
 # 盧寵茂盼普通科門診多照顧弱勢社群　高拔陞指新方案免不必要爭拗
 
+![政府公布公營醫療服務收費改革方案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797462_1_20250326131500.jpg&q=90)
   
 
 政府公布公營醫療服務收費改革方案，醫務衞生局局長盧寵茂表示，增加急症室收費及夜診需要兩方面同步推動，又說一直有提升公營夜診服務，希望普通科門診多照顧低收入人士及弱勢社群。
@@ -138,6 +167,7 @@
 
 # 何永賢指業主以簡樸房賺租金收入　政府應收回行政成本
 
+![何永賢接受本台專訪。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797460_1_20250326131631.jpg&q=80)
   
 
 房屋局局長何永賢接受本台專訪表示，規管簡樸房的方案，建議政府日後向業主收取「簡樸房」認證費用，預計每個約為數千元。
@@ -618,7 +648,7 @@
 
 # 漁護署：本地優質漁農產品將可獲統一Q嘜認證　令市民食得放心
 
-![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_3_20250326080309.jpg&q=80)
+![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。(港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_4_20250326131750.jpg&q=70)
   
 
 漁護署表示，本地優質漁農產品將可獲得統一的「Q嘜」認證，目標是2025/26財政年度內推出相關制度。
@@ -1406,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797299-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797299-20250325.htm)
-
----
-
-# 醫管局：放寬收費減免機制　料受惠人數由30萬增至約140萬
-
-![高拔陞表示，相信會有更多中等收入的病人，可獲安全網資助購買自費藥械。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797298_1_20250325143403.jpg&q=80)
-  
-
-政府提出公營醫療收費改革，包括加強醫療保障，期望加固全民安全網。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797298-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797298-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797298-20250325.htm)
 
 ---
