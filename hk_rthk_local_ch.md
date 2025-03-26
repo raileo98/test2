@@ -1,3 +1,26 @@
+# 「七欖」周五舉行　球迷村提早關閉
+
+  
+
+香港國際七人欖球賽，星期五起，一連三天在啟德體育園舉行，其中球迷村原本稱開放到晚上11時，改為星期五和星期六提早在晚上10時半關閉，星期日晚提早至晚上7時關閉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm)
+
+---
+
 # 張舉能率高級法官代表團結束在澳洲訪問　期間出席司法學術研討會
 
   
@@ -1407,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797372-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797372-20250325.htm)
-
----
-
-# 孫東稱推出多個加強數字能力建構政策　促進香港成為國際化人才庫
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797369_1_20250325215249.jpg&q=90)
-  
-
-創新科技及工業局局長孫東說，今年博鰲科技論壇將於6月在香港舉行，明日會舉行相關新聞發佈會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm)
 
 ---

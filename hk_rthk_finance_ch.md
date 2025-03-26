@@ -1,3 +1,27 @@
+# 中國銀行去年多賺近2.6%　淨息差按年收窄19個基點
+
+![中國銀行去年盈利2378.4億元人民幣，按年升近2.6%。末期息每股0.1216元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797533_1_20250326180731.jpg&q=90)
+  
+
+中國銀行去年盈利2378.4億元人民幣，按年升近2.6%。末期息每股0.1216元人民幣，全年派息0.2424元，按年升2.5%，派息率30%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797533-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797533-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797533-20250326.htm)
+
+---
+
 # 中銀香港去年貸款總減值準備升1.4%
 
 ![中銀香港公布，截至去年底，貸款總減值準備149.6億元，按年升1.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797524_1_20250326171643.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797396-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797396-20250326.htm)
-
----
-
-# 歐洲股市造好　德法股市高收逾1%
-
-![英法德股市結束多日跌勢，德法股市單日升逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797395_1_20250326054432.jpg&q=90)
-  
-
-歐洲主要股市造好，英法德股市結束多日跌勢，投資者預期美國總統特朗普會採取更溫和的關稅立場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797395-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797395-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797395-20250326.htm)
 
 ---
