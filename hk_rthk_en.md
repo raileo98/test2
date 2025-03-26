@@ -1,3 +1,27 @@
+# 'All systems go at Kai Tak for rugby showcase'
+
+![Tang King-shing (second left), Bryan Rennie (right), along with police and transport officials, meet the media ahead of the Rugby Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
+  
+
+The Kai Tak Sports Park said it's ready to host the Hong Kong Rugby Sevens tournament later this week.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm)
+
+---
+
 # Malls set to get more room for business
 
 ![Bernadette Linn said officials will soon come up with measures to boost economic activities at shopping malls. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797456_1_20250326120826.jpg&q=80)
@@ -1416,29 +1440,5 @@ Beijing on Monday said it will implement a more proactive fiscal policy this yea
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797174-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797174-20250324.htm)
-
----
-
-# US-Russia talks on Ukraine begin in Saudi Arabia
-
-![Different plans for temporary ceasefires in the Ukraine war have been proposed, but attacks have continued unabated. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797165_1_20250324162833.jpg&q=60)
-  
-
-US and Russian officials opened talks in Saudi Arabia on Monday on a partial ceasefire in the Ukraine war, a day after delegates from Washington and Kyiv had their own discussions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm)
 
 ---

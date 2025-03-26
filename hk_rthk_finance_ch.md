@@ -1,3 +1,26 @@
+# 投資推廣署上月發現一宗涉惡意勒索軟件攻擊部分電腦系統事故
+
+  
+
+創新科技及工業局局長孫東表示，投資推廣署上月22日發現的一宗涉及惡意勒索軟件攻擊部分電腦系統的資訊保安事故，署方在發現事件後已即時採取行動，加強系統的安全措施，防止進一步受到勒索軟件攻擊，並按既定程序向警方報案，以及向數字辦、私隱專員公署和保安局通報事件。根據調查所得，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797474-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797474-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797474-20250326.htm)
+
+---
+
 # 中遠海運國際去年多賺19%　末期息升約23%
 
 ![中遠海運國際去年盈利7.09億港元，按年升19%。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797469_1_20250326130835.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797348-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797348-20250325.htm)
-
----
-
-# 在岸人民幣兌美元低收120點子
-
-![在岸人民幣低收120點子，報7.264兌1美元，創逾2星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797341_1_20250325181501.jpg&q=85)
-  
-
-在岸人民幣低收120點子，報7.264兌1美元，創逾2星期新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797341-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797341-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797341-20250325.htm)
 
 ---

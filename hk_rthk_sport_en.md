@@ -1,3 +1,27 @@
+# 'All systems go at Kai Tak for rugby showcase'
+
+![Tang King-shing (second left), Bryan Rennie (right), along with police and transport officials, meet the media ahead of the Rugby Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
+  
+
+The Kai Tak Sports Park said it's ready to host the Hong Kong Rugby Sevens tournament later this week.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm)
+
+---
+
 # Son homes in on pitches for S Korea's World Cup slips
 
 ![Son Heung-min reacts at the end of the match with Jordan that saw South Korea draw again. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797449_1_20250326114106.jpg&q=90)
@@ -1413,29 +1437,5 @@ Britain's Jack Draper roared past Denmark's Holger Rune 6-2, 6-2 to win his firs
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795988-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795988-20250317.htm)
-
----
-
-# Australia's Gout Gout clocks world-leading 200m time
-
-![Gout Gout poses after winning the men's 200m final during the Queensland State Championships in Brisbane. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795982_1_20250317071956.jpg&q=90)
-  
-
-Australian sprinting prodigy Gout Gout ran the fastest men's 200m in the world this year, with the 17-year-old saying he felt "literally free".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795982-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795982-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795982-20250317.htm)
 
 ---

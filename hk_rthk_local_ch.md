@@ -1,3 +1,26 @@
+# 投資推廣署上月發現一宗涉惡意勒索軟件攻擊部分電腦系統事故
+
+  
+
+創新科技及工業局局長孫東表示，投資推廣署上月22日發現的一宗涉及惡意勒索軟件攻擊部分電腦系統的資訊保安事故，署方在發現事件後已即時採取行動，加強系統的安全措施，防止進一步受到勒索軟件攻擊，並按既定程序向警方報案，以及向數字辦、私隱專員公署和保安局通報事件。根據調查所得，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797474-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797474-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797474-20250326.htm)
+
+---
+
 # 港股下午初段升近百點
 
 ![恒生指數較早時報23427點，升82點，升幅0.36%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797470_1_20250326130905.jpg&q=10)
@@ -24,6 +47,7 @@
 
 # 工聯會：需向違規「簡樸房」實施阻嚇性罰則
 
+![鄧家彪表示，簡樸房方案下星期將於立法會房屋事務委員會討論，期望可以在暑假前通過並刊憲。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797471_1_20250326132955.jpg&q=90)
   
 
 立法會舉行前廳交流會，討論簡樸房規管等。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797300-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797300-20250325.htm)
-
----
-
-# 公營醫療收費改革後政府獲額外收入30億元　將全數投放醫療服務
-
-![陳松青重申改革是希望引導市民改變過往使用公營醫療系統的模式，多善用基層醫療服務，而非濫用高成本服務。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797299_1_20250325143439.jpg&q=80)
-  
-
-政府公布公營醫療收費改革，涉及住院、專科門診、非緊急放射造影檢查等，其中急症室收費將由現時180元增至400元，第一類危殆及第二類危急病人可獲豁免。醫衞局常任秘書長陳松青預料收費改革後，政府所得額外收入約為30億元，會全數用於公營醫療服務，又重申改革是希望引導市民改變過往使用公營醫療系統的模式，多善用基層醫療服務，而非濫用高成本服務，例如急症室及放射造影服務等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797299-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797299-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797299-20250325.htm)
 
 ---

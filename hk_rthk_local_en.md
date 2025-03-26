@@ -1,3 +1,27 @@
+# 'All systems go at Kai Tak for rugby showcase'
+
+![Tang King-shing (second left), Bryan Rennie (right), along with police and transport officials, meet the media ahead of the Rugby Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
+  
+
+The Kai Tak Sports Park said it's ready to host the Hong Kong Rugby Sevens tournament later this week.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm)
+
+---
+
 # Malls set to get more room for business
 
 ![Bernadette Linn said officials will soon come up with measures to boost economic activities at shopping malls. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797456_1_20250326120826.jpg&q=80)
@@ -1422,29 +1446,5 @@ The government should draw up "an appropriate level" of regulations for ride-hai
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm)
-
----
-
-# Local rates to be at high level for some time: HKMA
-
-![The Hong Kong Monetary Authority says that the extent and pace of future rate cuts are subject to considerable uncertainty. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796590_1_20250320130629.jpg&q=85)
-  
-
-The city's de facto central bank has cautioned that local borrowing costs will remain at a relatively high level for some time as it kept its key interest rate unchanged at 4.75 percent.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm)
 
 ---
