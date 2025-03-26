@@ -1,3 +1,27 @@
+# 中國成功發射天鏈二號04星
+
+![中國於西昌衛星發射中心使用長征三號乙運載火箭，成功將天鏈二號04星發射升空。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797586_1_20250327012105.jpg&q=90)
+  
+
+中國在昨晚11時55分於西昌衛星發射中心使用長征三號乙運載火箭，成功將天鏈二號04星發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797586-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797586-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797586-20250327.htm)
+
+---
+
 # 王毅讚賞瑙方堅定奉行一個中國政策　稱願開闢中瑙關係更光明前景
 
 ![王毅在北京與瑙魯外長安格明會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797584_1_20250327003043.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm)
-
----
-
-# 華春瑩到訪澳門　岑浩輝稱加強拓展對外聯繫尤其開拓葡語系等市場
-
-![岑浩輝（右）昨日在政府總部與外交部副部長華春瑩（左）會面。（澳門新聞局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797156_1_20250324211004.jpg&q=85)
-  
-
-澳門行政長官岑浩輝昨日在政府總部與外交部副部長華春瑩會面，雙方就澳門進一步透過加強拓展對外聯繫，落實經濟適度多元發展等議題交流。他歡迎外交部副部長華春瑩一行到訪澳門，並對外交部長期支持澳門特區的對外交往工作表達謝意，同時也感謝駐澳特派員公署在各項涉外工作所給予的支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797156-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797156-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797156-20250324.htm)
 
 ---

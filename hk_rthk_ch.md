@@ -1,3 +1,27 @@
+# 中國成功發射天鏈二號04星
+
+![中國於西昌衛星發射中心使用長征三號乙運載火箭，成功將天鏈二號04星發射升空。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797586_1_20250327012105.jpg&q=90)
+  
+
+中國在昨晚11時55分於西昌衛星發射中心使用長征三號乙運載火箭，成功將天鏈二號04星發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797586-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797586-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797586-20250327.htm)
+
+---
+
 # 陳國基歡迎立法會通過法院遙距聆訊條例草案
 
 ![陳國基表示，歡迎立法會通過《法院遙距聆訊條例草案》。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797585_1_20250327004131.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm)
-
----
-
-# 虐待女兒致死男子囚終身　法官斥被告施虐位置隱蔽明顯故意隱瞞
-
-![法官判被告終身監禁，被告承認的虐兒罪，則被判入獄6年5個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797521_1_20250326185003.jpg&q=90)
-  
-
-一名42歲男子多次虐待3歲女兒，包括猛烈搖晃導致腦出血死亡，早前在高等法院陪審團裁定被告謀殺罪成，法官判被告終身監禁，被告承認的虐兒罪，則被判入獄6年5個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm)
 
 ---
