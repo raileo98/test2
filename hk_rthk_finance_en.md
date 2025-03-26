@@ -1,3 +1,27 @@
+# Trump announces 25 percent tariff on non-US-built cars
+
+![US President Donald Trump announces tariffs on auto imports in the Oval Office of the White House in Washington, DC. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797599_1_20250327060802.jpg&q=90)
+  
+
+President Donald Trump on Wednesday said 25 percent tariffs on foreign-built cars and light trucks will take effect April 2 and will remain in place as long as he is in office.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm)
+
+---
+
 # BYD aims to double overseas sales to 800K in 2025
 
 ![BYD sold 417,204 units overseas in 2024 and expects to see "a substantial rise" in its market share in Britain. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797519_1_20250326165846.jpg&q=50)
@@ -1413,29 +1437,5 @@ Washington's looming tariffs on steel and aluminium are "entirely unjustified", 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795366-20250312.htm)
-
----
-
-# US stocks finish lower after volatile trading day
-
-![Days of back-and-forth on tariff hikes against some of the United States' closest trading partners have worn heavily on markets. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795347_1_20250312061323.jpg&q=90)
-  
-
-Wall Street stocks finished lower on Tuesday on uncertainty surrounding President Donald Trump's tariff threats, just one day after taking a dramatic plunge on the back of recession fears.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm)
 
 ---

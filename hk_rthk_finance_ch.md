@@ -1,3 +1,27 @@
+# 特朗普宣布對美國進口汽車徵收25%關稅
+
+![美國總統特朗普宣布，對所有進口汽車徵收25%關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797597_1_20250327060309.jpg&q=90)
+  
+
+美國總統特朗普宣布，對所有進口汽車徵收25%關稅。如果在美國製造的汽車則毋須繳交關稅，措施4月2日起生效，將是永久性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm)
+
+---
+
 # 美股低收　納指挫2%　美國對進口汽車徵收25%關稅
 
 ![美國對進口汽車徵收25%關稅，汽車股在美股收市後交易時段持續偏軟。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797595_1_20250327054824.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797427-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797427-20250326.htm)
-
----
-
-# 何永賢專訪：約2千間簡樸房面向四面圍封天井　須做好清潔
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797426_2_20250326102558.jpg&q=90)
-  
-
-房屋局向立法會提交「簡樸房」規管制度最新建議方案中提出，日後「簡樸房」的窗戶，若面向四面圍封的天井，只要天井並非密封，面積符合法定要求，最低層設有進出口，仍可被視為滿足最低標準。房屋局局長何永賢接受本台專訪表示，優化新方案，主要是諮詢期間聽取了持份者意見，當局派人實地到不同舊樓了解後，發現即使是四面圍封的天井亦有不同形式，有些舊式大廈天井的面積可以很大，通風採光並無問題，只要天井底層有門，可以進入清潔，天井亦可以很乾淨。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm)
 
 ---
