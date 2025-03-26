@@ -1,3 +1,26 @@
+# 特朗普宣布對美國進口汽車徵收25%關稅
+
+  
+
+美國總統特朗普宣布，對所有進口汽車徵收25%關稅。如果在美國製造的汽車則毋須繳交關稅，措施4月2日起生效，將是永久性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm)
+
+---
+
 # 美股低收　納指挫2%　美國對進口汽車徵收25%關稅
 
 ![美國對進口汽車徵收25%關稅，汽車股在美股收市後交易時段持續偏軟。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797595_1_20250327054824.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797530-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797530-20250326.htm)
-
----
-
-# 廉署接待斯里蘭卡及贊比亞反貪機構高層代表團　分享香港反貪策略
-
-![廉政公署接待一帶一路國家斯里蘭卡及贊比亞的反貪機構高層代表團。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797529_1_20250326185358.jpg&q=90)
-  
-
-廉政公署接待一帶一路國家斯里蘭卡及贊比亞的反貪機構高層代表團，分享香港的成功反貪策略，以及打擊貪污、制度防貪和建立廉潔文化的經驗，加強培訓合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797529-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797529-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797529-20250326.htm)
 
 ---

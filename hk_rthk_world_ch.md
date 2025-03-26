@@ -1,3 +1,26 @@
+# 特朗普宣布對美國進口汽車徵收25%關稅
+
+  
+
+美國總統特朗普宣布，對所有進口汽車徵收25%關稅。如果在美國製造的汽車則毋須繳交關稅，措施4月2日起生效，將是永久性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm)
+
+---
+
 # 美傳媒人指當局試圖淡化群組信息重要性　公開聊天紀錄更多內容
 
 ![戈德堡批評當局試圖淡化有關群組信息的重要性。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797594_1_20250327054606.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797227-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797227-20250325.htm)
-
----
-
-# 特朗普料美烏很快簽署礦產協議　雙方討論美企擁有烏國發電站可能
-
-![特朗普說，有些人認為美國具有專業知識，應該擁有烏克蘭的發電站。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797226_1_20250325034304.jpg&q=90)
-  
-
-美國總統特朗普預計，美國與烏克蘭很快會簽署關於分享當地關鍵礦產收入的協議，雙方亦正討論由美國企業擁有烏克蘭發電站的可能性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797226-20250325.htm)
 
 ---
