@@ -72,7 +72,7 @@ The Housing Society on Wednesday announced two subsidised flat projects in Fanli
 
 # Certify your subdivided flat early or pay more: govt
 
-![Winnie Ho says the requirement of a basic housing unit having a window that faces the street or semi-enclosed light well may be relaxed. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797475_1_20250326133032.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797475_1_20250326133032.jpg&q=90)
   
 
 Discounts will be offered to landlords who get their subdivided homes certified early under a proposed certification system, according to housing minister Winnie Ho.

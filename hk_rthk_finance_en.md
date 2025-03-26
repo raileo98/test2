@@ -1,3 +1,27 @@
+# BYD aims to double overseas sales to 800K in 2025
+
+![BYD sold 417,204 units overseas in 2024 and expects to see "a substantial rise" in its market share in Britain. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797519_1_20250326165846.jpg&q=50)
+  
+
+Electric vehicle giant BYD aims to double its sales outside China to more than 800,000 cars in 2025 and will look to overcome tariffs by assembling cars locally, its chairman has told analysts on an earnings call.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm)
+
+---
+
 # Hang Seng Index up 0.6 percent
 
 ![Hong Kong battled to edge higher on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797516_1_20250326164807.jpg&q=70)
@@ -1413,29 +1437,5 @@ Wall Street stocks finished lower on Tuesday on uncertainty surrounding Presiden
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795347-20250312.htm)
-
----
-
-# HSI flat after Wall Street rout
-
-![Hong Kong stocks close one point lower on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795277_1_20250311172159.jpg&q=65)
-  
-
-Hong Kong stocks ended flat on Tuesday with the benchmark Hang Seng Index down one point to close at 23,782.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795277-20250311.htm)
 
 ---

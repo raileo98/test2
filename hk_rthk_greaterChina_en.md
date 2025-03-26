@@ -1,3 +1,27 @@
+# BYD aims to double overseas sales to 800K in 2025
+
+![BYD sold 417,204 units overseas in 2024 and expects to see "a substantial rise" in its market share in Britain. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797519_1_20250326165846.jpg&q=50)
+  
+
+Electric vehicle giant BYD aims to double its sales outside China to more than 800,000 cars in 2025 and will look to overcome tariffs by assembling cars locally, its chairman has told analysts on an earnings call.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm)
+
+---
+
 # Ta Kung Pao issues fresh criticism of Hutchison deal
 
 ![Ta Kung Pao says the sale by CK Hutchison of ports in Panama and elsewhere to BlackRock undermines China's national interests. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797495_1_20250326151647.jpg&q=80)
@@ -1411,29 +1435,5 @@ Lawmaker and National People's Congress delegate Priscilla Leung on Monday said 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795062-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795062-20250310.htm)
-
----
-
-# Freed scammers still trapped in Myanmar
-
-![China repatriates its citizens freed from scam centres on to a chartered flight at Mae Sot International Airport on February 20, 2025. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795054_1_20250310092617.jpg&q=90)
-  
-
-The first major global effort to crack down on the fast-growing industry of scamming is turning into a growing humanitarian crisis.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795054-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795054-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795054-20250310.htm)
 
 ---

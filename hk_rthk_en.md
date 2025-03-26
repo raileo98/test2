@@ -1,3 +1,27 @@
+# BYD aims to double overseas sales to 800K in 2025
+
+![BYD sold 417,204 units overseas in 2024 and expects to see "a substantial rise" in its market share in Britain. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797519_1_20250326165846.jpg&q=50)
+  
+
+Electric vehicle giant BYD aims to double its sales outside China to more than 800,000 cars in 2025 and will look to overcome tariffs by assembling cars locally, its chairman has told analysts on an earnings call.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm)
+
+---
+
 # Hang Seng Index up 0.6 percent
 
 ![Hong Kong battled to edge higher on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797516_1_20250326164807.jpg&q=70)
@@ -96,7 +120,7 @@ The Housing Society on Wednesday announced two subsidised flat projects in Fanli
 
 # Certify your subdivided flat early or pay more: govt
 
-![Winnie Ho says the requirement of a basic housing unit having a window that faces the street or semi-enclosed light well may be relaxed. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797475_1_20250326133032.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797475_1_20250326133032.jpg&q=90)
   
 
 Discounts will be offered to landlords who get their subdivided homes certified early under a proposed certification system, according to housing minister Winnie Ho.
@@ -1417,29 +1441,5 @@ The Foreign Ministry in Beijing on Tuesday called on the United States to stop i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm)
-
----
-
-# US stocks rally on tariff optimism
-
-![The three main US indices rose on hopes that US President Donald Trump may dial down upcoming tariffs. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797239_1_20250325062931.jpg&q=90)
-  
-
-US stocks closed higher on Monday as traders welcomed news that the administration of President Donald Trump may dial down upcoming tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797239-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797239-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797239-20250325.htm)
 
 ---

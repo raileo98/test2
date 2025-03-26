@@ -1,3 +1,26 @@
+# 虐待女兒致死男子囚終身　法官斥被告施虐位置隱蔽明顯故意隱瞞
+
+  
+
+一名42歲男子多次虐待3歲女兒，包括猛烈搖晃導致腦出血死亡，早前在高等法院陪審團裁定被告謀殺罪成，法官判被告終身監禁，被告承認的虐兒罪，則被判入獄6年5個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm)
+
+---
+
 # 強風及乾燥天氣增南韓山火撲救及控制火場面積難度
 
   

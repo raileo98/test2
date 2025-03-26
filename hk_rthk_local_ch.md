@@ -1,3 +1,26 @@
+# 虐待女兒致死男子囚終身　法官斥被告施虐位置隱蔽明顯故意隱瞞
+
+  
+
+一名42歲男子多次虐待3歲女兒，包括猛烈搖晃導致腦出血死亡，早前在高等法院陪審團裁定被告謀殺罪成，法官判被告終身監禁，被告承認的虐兒罪，則被判入獄6年5個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm)
+
+---
+
 # 19歲男學生被捕　涉嫌與至少10宗假冒官員電話騙案有關
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm)
-
----
-
-# 病人組織指收費改革繁多冀清楚說明　前線醫生憂易惹爭拗
-
-![有前線醫生組織擔心要分類急症室病人，有機會引起爭拗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797347_1_20250325184939.jpg&q=80)
-  
-
-有病人組織認為，公營醫療收費改革涉及的改變繁多，期望當局清楚說明，最重要的原則是市民不會因為經濟條件而得不到妥善醫治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797347-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797347-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797347-20250325.htm)
 
 ---

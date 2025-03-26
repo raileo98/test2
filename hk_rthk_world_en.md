@@ -1,3 +1,27 @@
+# Seoul found responsible for abuse of adoptions process
+
+![Jo Youn-hwan, a South Korean who grew up in an orphanage, set up the country's first-ever orphan rights group in Seoul. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797520_1_20250326170024.jpg&q=90)
+  
+
+A South Korean official enquiry said on Wednesday the government was responsible for abuse in international adoptions of local children, including record fabrication and inadequate consent, and recommended an official state apology.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm)
+
+---
+
 # Seoul court clears opposition leader for top job run
 
 ![Lee Jae-myung appeals for patience outside the court in Seoul. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797498_1_20250326152240.jpg&q=90)
@@ -1412,29 +1436,5 @@ The United States fell to its lowest happiness ranking ever partly due to a rise
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm)
-
----
-
-# White House promises 'big tariffs' on April 2
-
-![White House Press Secretary Karoline Leavitt says America "has been ripped off by every country around the world." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796689_1_20250321011627.jpg&q=90)
-  
-
-The White House on Thursday vowed to impose "big tariffs" on April 2 when US President Donald Trump is to unveil reciprocal levies in a major escalation of his trade war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm)
 
 ---
