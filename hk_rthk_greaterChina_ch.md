@@ -1,3 +1,49 @@
+# 李家超：瓊港合作備忘錄涵蓋五個領域深度合作　體現兩地優秀疊加
+
+  
+
+行政長官李家超展開在海南的第二日行程，出席瓊港合作備忘錄簽約儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm)
+
+---
+
+# 港深西部鐵路目標2035年開通　洪水橋到達前海約15分鐘
+
+  
+
+運輸及物流局提交立法會的最新文件表示，港深西部鐵路「專班」早前審議並通過次階段研究成果，兩地政府目標於2035年同步開通香港段和深圳段。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm)
+
+---
+
 # 河北永清縣凌晨發生4.2級地震　暫沒傷亡和損毀報告
 
 ![河北永清縣凌晨發生4.2級地震　暫沒傷亡和損毀報告](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797413_1_20250326082524.jpg&q=90)
@@ -1392,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm)
-
----
-
-# 港深西部鐵路連接洪水橋至前海　陳美寶冀下半年發邀請意向書
-
-![陳美寶希望與深圳採取創新模式推進項目。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797018_1_20250323143932.jpg&q=80)
-  
-
-運輸及物流局局長陳美寶表示，連接洪水橋至深圳前海的港深西部鐵路項目，目標下半年發出邀請意向書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797018-20250323.htm)
-
----
-
-# 韓文秀稱擴大服務消費　形成高質量發展與高品質生活相互促進
-
-![韓文秀表示，會綜合施策擴大消費，包括增加城鄉居民的收入，優化收入分配結構，讓消費者有錢能消費。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797015_1_20250323175247.jpg&q=90)
-  
-
-在北京，中央財經委員會辦公室常務副主任韓文秀表示，會綜合施策擴大消費，包括增加城鄉居民的收入，優化收入分配結構，讓消費者有錢能消費，同時擴大服務消費，形成高質量發展與高品質生活相互促進，相得益彰的局面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797015-20250323.htm)
 
 ---

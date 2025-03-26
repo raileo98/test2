@@ -1,3 +1,49 @@
+# 李家超：瓊港合作備忘錄涵蓋五個領域深度合作　體現兩地優秀疊加
+
+  
+
+行政長官李家超展開在海南的第二日行程，出席瓊港合作備忘錄簽約儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm)
+
+---
+
+# 港深西部鐵路目標2035年開通　洪水橋到達前海約15分鐘
+
+  
+
+運輸及物流局提交立法會的最新文件表示，港深西部鐵路「專班」早前審議並通過次階段研究成果，兩地政府目標於2035年同步開通香港段和深圳段。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm)
+
+---
+
 # 唐家成：香港橋樑角色在當今經濟發展進程中發揮重要作用
 
   
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm)
-
----
-
-# 精英體育事務委員會修訂A級資助條件　主席稱體育發展更穩定
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797261_1_20250325104643.jpg&q=85)
-  
-
-文化體育及旅遊局昨日公布精英體育項目資助機制檢討，桌球繼續獲保留為A級精英體育項目。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797261-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797261-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797261-20250325.htm)
-
----
-
-# 博鰲亞洲論壇報告料今年亞洲加權實際國內生產總值增長率4.5%
-
-![報告指，雖然世界經濟增長不確定性增大，但亞洲仍將成為世界經濟的主要引擎。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797259_1_20250325100833.jpg&q=90)
-  
-
-博鰲亞洲論壇發表亞洲經濟前景及一體化進程年度報告提及，當前全球經濟保持中低速增長，面臨貿易戰、地緣政治局勢複雜多變、持續通脹及主要經濟體增長放緩等重大風險挑戰。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm)
 
 ---

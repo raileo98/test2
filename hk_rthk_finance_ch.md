@@ -1,3 +1,72 @@
+# 房協安達臣道及粉嶺資助房屋共1604個單位　售價最平230萬
+
+  
+
+房協推售位於觀塘安達臣道及粉嶺馬會道的資助出售項目合共1604個單位，
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797444-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797444-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797444-20250326.htm)
+
+---
+
+# 李家超：瓊港合作備忘錄涵蓋五個領域深度合作　體現兩地優秀疊加
+
+  
+
+行政長官李家超展開在海南的第二日行程，出席瓊港合作備忘錄簽約儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm)
+
+---
+
+# 港深西部鐵路目標2035年開通　洪水橋到達前海約15分鐘
+
+  
+
+運輸及物流局提交立法會的最新文件表示，港深西部鐵路「專班」早前審議並通過次階段研究成果，兩地政府目標於2035年同步開通香港段和深圳段。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm)
+
+---
+
 # 日股半日升逾百點　再次於38000點得而復失
 
 ![日經指數再次於38000點得而復失，半日收報37890點，升109點，升幅0.29%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797437_1_20250326103831.jpg&q=90)
@@ -1363,77 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797309-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797309-20250325.htm)
-
----
-
-# 韓股低收0.62%
-
-![首爾綜合指數收報2615點，跌16點，跌幅0.62%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797306_1_20250325143716.jpg&q=90)
-  
-
-南韓股市連跌2日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797306-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797306-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797306-20250325.htm)
-
----
-
-# 日股高收172點
-
-![日經指數一度升逾500點，收市報37780點，升172點，升幅0.46%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797305_1_20250325143525.jpg&q=90)
-  
-
-日股高收近0.5%，但未能企穩38000點收市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797305-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797305-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797305-20250325.htm)
-
----
-
-# 台股收市升近1%
-
-![台灣加權指數收市報22273點，升166點，升幅0.75%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797304_1_20250325141855.jpg&q=90)
-  
-
-台灣股市上升。加權指數收市報22273點，升166點，升幅0.75%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797304-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797304-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797304-20250325.htm)
 
 ---

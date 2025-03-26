@@ -1,3 +1,27 @@
+# Sabalenka sets up Paolini semis with win over Zheng
+
+![Aryna Sabalenka has a word with Zheng Qinwen after their Miami Open match at the Hard Rock Stadium. Mandatory Credit: Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797443_1_20250326112222.jpg&q=90)
+  
+
+World number one Aryna Sabalenka battled back in the second set to blast her way into the semi-finals of the Miami Open with a 6-2, 7-5 win over China's Zheng Qinwen.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm)
+
+---
+
 # Djokovic marches into Miami quarters; Ruud exits
 
 ![Novak Djokovic breezed past Italy's Lorenzo Musetti to book his spot in the next round in Miami. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797434_1_20250326101120.jpg&q=90)
@@ -1413,29 +1437,5 @@ Paolo Banchero scored 24 points as the Orlando Magic overturned a 13-point defic
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm)
-
----
-
-# Andreeva downs Sabalenka for Indian Wells title
-
-![Russia's Mirra Andreeva celebrates after defeating Aryna Sabalenka at the Indian Wells tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795977_1_20250317054052.jpg&q=90)
-  
-
-Russian 17-year-old Mirra Andreeva toppled world number one Aryna Sabalenka 2-6, 6-4, 6-3 to capture her second WTA 1000 title at Indian Wells.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795977-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795977-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795977-20250317.htm)
 
 ---

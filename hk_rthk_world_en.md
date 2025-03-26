@@ -70,6 +70,30 @@ French star actor Gerard Depardieu, on trial for sexual assault, told the Paris 
 
 ---
 
+# Trump, intel chiefs dismiss chat breach
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797390_1_20250326032257.jpg&q=90)
+  
+
+US President Donald Trump and his top intelligence officials raced on Tuesday to stem a growing scandal after a journalist was accidentally added to a group chat about air strikes on Yemen's Houthi rebels in a security breach.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm)
+
+---
+
 # Vietnam death row tycoon begins appeal
 
 ![Vietnamese property tycoon Truong My Lan (centre) looks on at a court in Ho Chi Minh City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797356_1_20250325193707.jpg&q=90)
@@ -1412,29 +1436,5 @@ China said on Thursday it acted in accordance with the law over the execution of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm)
-
----
-
-# Legendary F1 team owner Eddie Jordan dies
-
-![Eddie Jordan had been undergoing treatment for what he had called 'quite aggressive' cancer of the bladder and prostate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796629_1_20250320172623.jpg&q=85)
-  
-
-Ex-Formula 1 team owner and media personality Eddie Jordan has died, according to his family. He was 76.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm)
 
 ---

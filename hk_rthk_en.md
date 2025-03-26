@@ -1,3 +1,27 @@
+# Sabalenka sets up Paolini semis with win over Zheng
+
+![Aryna Sabalenka has a word with Zheng Qinwen after their Miami Open match at the Hard Rock Stadium. Mandatory Credit: Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797443_1_20250326112222.jpg&q=90)
+  
+
+World number one Aryna Sabalenka battled back in the second set to blast her way into the semi-finals of the Miami Open with a 6-2, 7-5 win over China's Zheng Qinwen.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm)
+
+---
+
 # Lights out for lamp model after hospital mishap
 
 ![The Hospital Authority said it would not resume the use of the light in question until thorough checks are completed. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797428_1_20250326094629.jpg&q=90)
@@ -211,6 +235,30 @@ World Athletics said on Tuesday it had approved the introduction of a cheek swab
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm)
+
+---
+
+# Trump, intel chiefs dismiss chat breach
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797390_1_20250326032257.jpg&q=90)
+  
+
+US President Donald Trump and his top intelligence officials raced on Tuesday to stem a growing scandal after a journalist was accidentally added to a group chat about air strikes on Yemen's Houthi rebels in a security breach.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm)
 
 ---
 
@@ -1393,53 +1441,5 @@ Laos has signed a US$1.45 billion clean energy deal with a Chinese power plant e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm)
-
----
-
-# Appeal crunch time for Blatter and Platini
-
-![Michael Platini, left, with Sepp Blatter in 2014. File Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797152_1_20250324151246.jpg&q=90)
-  
-
-Former Fifa president Sepp Blatter and France football great Michel Platini will appear before a Swiss court on Tuesday to hear whether the case that finished their careers in football will end with their acquittals or convictions for corruption.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm)
-
----
-
-# Venezuelans go home as US deportation flights resume
-
-![An aircraft carrying Venezuelan migrants, who were deported from the United States, lands in Caracas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797145_1_20250324144241.jpg&q=90)
-  
-
-Venezuela on Monday received nearly 200 citizens deported from the United States via Honduras, as US President Donald Trump cracks down on undocumented foreigners.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm)
 
 ---
