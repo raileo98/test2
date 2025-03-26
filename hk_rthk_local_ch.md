@@ -47,7 +47,7 @@
 
 # 麥美娟：恆常化關愛隊　調整合約安排18區看齊
 
-![麥美娟表示，因應延長幾個月協議期，該兩區的關愛隊相應工作，將以當局第一期協議的資源和關鍵績效指標，按比例計算以繼續工作。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797508_1_20250326162452.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797508_1_20250326162452.jpg&q=90)
   
 
 民政及青年事務局局長麥美娟說，行政長官在去年《施政報告》宣布恆常化關愛隊配置，因應有關安排，將調整關愛隊合約安排。
