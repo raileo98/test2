@@ -1,3 +1,26 @@
+# 李家超稱港商樂見香港與海南簽署合作備忘錄帶來新機遇
+
+  
+
+香港與海南省簽署《合作備忘錄》，在經貿投資、金融、數據安全流動、旅遊以及人才交流共五個領域深化合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm)
+
+---
+
 # 「裕澤香江」高峰論壇完成　陳茂波：香港成為家辦落戶理想地
 
 ![陳茂波稱香港正大力推動創科發展，讓香港成為家辦落戶和實踐願景理想地。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797548_1_20250326191440.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797402-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797402-20250326.htm)
-
----
-
-# 美元指數曾於104失而復得
-
-![美元指數曾升至104.46，升約0.2%，其後一度失守104。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797400_1_20250326062305.jpg&q=90)
-  
-
-市場對美國即將實施的關稅政策保持謹慎，美元指數曾升至104.46，升約0.2%，其後一度失守104，低見103.94，尾市徘徊104.2附近。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797400-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797400-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797400-20250326.htm)
 
 ---

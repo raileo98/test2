@@ -1,3 +1,73 @@
+# 醫管局料醫療費用減免優化申請流程　受惠人數將增至140萬
+
+  
+
+政府優化醫療費用減免機制，預計受惠人數由30萬增至140萬。醫管局總行政經理潘綺紅說，日後申請流程將優化，但難以預計未來申請減免的人數，將視乎推行情況，再探討調整人手和安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797558-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797558-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797558-20250326.htm)
+
+---
+
+# 中國駐韓使館：中方黃海深海漁業養殖設施不影響韓方權益
+
+![使館發言人說，中方做法不違反《中韓漁業協定》，也不影響韓方依據《協定》享有的權益。（中國駐南韓大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797557_1_20250326201302.jpg&q=90)
+  
+
+中國駐南韓大使館發言人說，近日南韓個別媒體和有關方面就中方黃海深海漁業養殖設施表達關切，其中很多說法不符合事實。事實是，中方設置的相關設施是深海漁業養殖設施，位於中國近海，是中方對近海海洋資源的合理利用。中方做法符合中國國內法和國際法，不違反《中韓漁業協定》，也不影響韓方依據《協定》享有的權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm)
+
+---
+
+# 李家超稱港商樂見香港與海南簽署合作備忘錄帶來新機遇
+
+  
+
+香港與海南省簽署《合作備忘錄》，在經貿投資、金融、數據安全流動、旅遊以及人才交流共五個領域深化合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm)
+
+---
+
 # 外交部：澳門特區將切實發揮中國與葡語國家「精準聯繫人」作用
 
 ![外交部稱，澳門特區將切實發揮中國與葡語國家「精準聯繫人」的作用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797554_1_20250326195216.jpg&q=80)

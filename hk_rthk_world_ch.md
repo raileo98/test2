@@ -1,3 +1,27 @@
+# 中國駐韓使館：中方黃海深海漁業養殖設施不影響韓方權益
+
+![使館發言人說，中方做法不違反《中韓漁業協定》，也不影響韓方依據《協定》享有的權益。（中國駐南韓大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797557_1_20250326201302.jpg&q=90)
+  
+
+中國駐南韓大使館發言人說，近日南韓個別媒體和有關方面就中方黃海深海漁業養殖設施表達關切，其中很多說法不符合事實。事實是，中方設置的相關設施是深海漁業養殖設施，位於中國近海，是中方對近海海洋資源的合理利用。中方做法符合中國國內法和國際法，不違反《中韓漁業協定》，也不影響韓方依據《協定》享有的權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm)
+
+---
+
 # 外交部：澳門特區將切實發揮中國與葡語國家「精準聯繫人」作用
 
 ![外交部稱，澳門特區將切實發揮中國與葡語國家「精準聯繫人」的作用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797554_1_20250326195216.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797172-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797172-20250324.htm)
-
----
-
-# 外交部：從未收到所謂杜特爾特及家人向中國政府尋求庇護申請
-
-![杜特爾特被指任內打擊毒品犯罪活動時，觸犯危害人類罪，日前在馬尼拉機場被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797167_1_20250324163541.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，中方從未收到所謂菲律賓前總統杜特爾特及家人向中國政府尋求庇護的申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 醫管局料醫療費用減免優化申請流程　受惠人數將增至140萬
+
+  
+
+政府優化醫療費用減免機制，預計受惠人數由30萬增至140萬。醫管局總行政經理潘綺紅說，日後申請流程將優化，但難以預計未來申請減免的人數，將視乎推行情況，再探討調整人手和安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797558-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797558-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797558-20250326.htm)
+
+---
+
+# 李家超稱港商樂見香港與海南簽署合作備忘錄帶來新機遇
+
+  
+
+香港與海南省簽署《合作備忘錄》，在經貿投資、金融、數據安全流動、旅遊以及人才交流共五個領域深化合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm)
+
+---
+
 # 「裕澤香江」高峰論壇完成　陳茂波：香港成為家辦落戶理想地
 
 ![陳茂波稱香港正大力推動創科發展，讓香港成為家辦落戶和實踐願景理想地。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797548_1_20250326191440.jpg&q=90)
@@ -1413,29 +1459,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm)
-
----
-
-# 唐家成：香港橋樑角色在當今經濟發展進程中發揮重要作用
-
-![唐家成稱香港是中國及全球市場之間資金流動主要促進者。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797438_1_20250326113739.jpg&q=90)
-  
-
-港交所主席唐家成表示，香港作為內地與離岸市場的橋樑，在當今時代的經濟發展進程中發揮重要作用，並對全球經濟帶來重大影響。本港過去12個月日均交易額多次刷新記錄，去年首次公開招股（IPO）額度位居全球第4，期望今年排名能夠提升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797438-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797438-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797438-20250326.htm)
 
 ---
