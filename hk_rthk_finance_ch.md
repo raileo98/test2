@@ -1,3 +1,26 @@
+# 祁斌稱中央全力支持瓊港兩地自由港平台與超級聯繫人雙向聯動
+
+  
+
+在海南，瓊港簽署備忘錄，在多方面深化合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm)
+
+---
+
 # 海南省委書記馮飛稱瓊港合作備忘錄必將共創輝煌新篇章
 
 ![馮飛說，兩地合作不斷邁上新台階，打造香港與內地省份合作的典範。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797577_1_20250326222754.jpg&q=80)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm)
-
----
-
-# 港股競價時段升116點
-
-![恒生指數競價時段報23460點，升116點，升幅0.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797423_1_20250326092311.jpg&q=75)
-  
-
-港股回升，恒生指數競價時段報23460點，升116點，升幅0.5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797423-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797423-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797423-20250326.htm)
 
 ---
