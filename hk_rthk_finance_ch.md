@@ -1,3 +1,27 @@
+# 美股初段個別發展
+
+![美股初段個別發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797571_1_20250326213503.jpg&q=90)
+  
+
+美股初段個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797571-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797571-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797571-20250326.htm)
+
+---
+
 # 在岸人民幣微升5點子收市　結束5連跌
 
 ![在岸人民幣收報7.2635兌1美元，較昨日收市微升5點子，結束5連跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797569_1_20250326212925.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797419-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797419-20250326.htm)
-
----
-
-# 前廳交流會由黃偉綸帶領官員出席　討論降低建築成本及簡樸房規管
-
-![立法會舉行前廳交流會，由財政司副司長黃偉綸帶領多名官員出席。（陳樂謙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797418_1_20250326102341.jpg&q=90)
-  
-
-立法會舉行前廳交流會，由財政司副司長黃偉綸帶領多名官員出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm)
 
 ---
