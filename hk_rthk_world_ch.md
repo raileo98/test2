@@ -1,3 +1,27 @@
+# 卡尼：中國並不認同加拿大價值觀　加強雙邊貿易關係需非常謹慎
+
+![卡尼表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面需要非常謹慎。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797589_1_20250327023249.jpg&q=90)
+  
+
+加拿大總理卡尼表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面需要非常謹慎。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797589-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797589-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797589-20250327.htm)
+
+---
+
 # 日本巴西領袖會談　石破茂稱將在外交安保等領域深化兩國關係
 
 ![日本首相石破茂（右）在東京與到訪的巴西總統盧拉舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797588_1_20250327015211.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797224-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797224-20250325.htm)
-
----
-
-# 卡尼：可與特朗普通話　惟會按加拿大作為主權國家條件進行
-
-![卡尼認為特朗普正等待加拿大的大選結果，再與勝出者通話。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797221_1_20250325011313.jpg&q=90)
-  
-
-加拿大總理卡尼表示，他可以與美國總統特朗普通電話，但會按照加拿大作為主權國家的條件進行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797221-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797221-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797221-20250325.htm)
 
 ---
