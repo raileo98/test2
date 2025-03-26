@@ -1,3 +1,26 @@
+# 強風及乾燥天氣增南韓山火撲救及控制火場面積難度
+
+  
+
+南韓山火持續，強風及乾燥天氣增加撲救及控制火場面積的難度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797517-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797517-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797517-20250326.htm)
+
+---
+
 # 中方堅決反對美方濫施非法單邊制裁　予以強烈譴責
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm)
-
----
-
-# 法國外長巴羅本周四起訪華兩日
-
-![巴羅將於本星期四至五訪華。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797158_1_20250324154336.jpg&q=90)
-  
-
-在北京，外交部表示，應中共中央政治局委員、外交部長王毅邀請，法國歐洲及外交部長巴羅將於本星期四至五訪華。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm)
 
 ---

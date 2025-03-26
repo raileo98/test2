@@ -46,7 +46,7 @@
 
 # 區議員柯創盛：提交工作報告讓議員有組織詳列工作　檢視有無遺漏
 
-![柯創盛表示，工作報告是日常工作範疇，包括接觸市民、與政府部門互動、舉辦活動等，形容準備報告時得心應手。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797513_1_20250326164649.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797513_1_20250326164649.jpg&q=90)
   
 
 第七屆區議會運作超過1年，根據區議員履職監察制度指引，區議員需要每年向區議會主席提交工作報告，闡述該年度的工作重點。
