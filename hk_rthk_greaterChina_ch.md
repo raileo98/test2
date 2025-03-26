@@ -1,3 +1,27 @@
+# 外交部：澳門特區將切實發揮中國與葡語國家「精準聯繫人」作用
+
+![外交部稱，澳門特區將切實發揮中國與葡語國家「精準聯繫人」的作用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797554_1_20250326195216.jpg&q=80)
+  
+
+在北京，外交部發言人郭嘉昆說，相信澳門特區將充分發揮「一國兩制」制度優勢，切實發揮作為中國與葡語國家「精準聯繫人」的作用，推動中國同葡語國家在經貿、金融、旅遊、高科技等領域合作取得更多成果。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm)
+
+---
+
 # 湖北省委原書記蔣超良被罷免全國人大代表資格
 
 ![湖北省委原書記蔣超良被罷免全國人大代表資格](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797552_1_20250326192308.jpg&q=90)
@@ -48,7 +72,6 @@
 
 # 消防處指粵港澳聯合演練成功測試大灣區緊急動員及協調機制
 
-![參與今次聯合演練的包括香港跨境救援隊指揮官黃鎮業（右三）、廣東省消防救援總隊副總隊長朱國營、澳門消防局副局長林俊生，其他代表在設於鯉魚門三家村的前線指揮中心內進行策略部署。（消防處提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797543_1_20250326190800.jpg&q=80)
 ![香港消防處聯同廣東省消防救援總隊及澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練，模擬香港遇到極端天氣，全港多處發生大型緊急事故。（消防處提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797543_2_20250326190800.jpg&q=75)
   
 
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797115-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797115-20250324.htm)
-
----
-
-# 國家生態環境部官員稱中國擴大利用再生能源包括太陽能和風力發電
-
-![夏應顯提到，中國政府在造林方面作出很大的努力，減碳工作亦取得成果。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797114_1_20250324115846.jpg&q=80)
-  
-
-環境及生態局與香港大學合辦「香港氣候論壇」，國家生態環境部應對氣候變化司司長夏應顯致辭時表示，外界有指今年全球氣溫會達到上升1.5 度的臨界點，目前還未能確定是否真的去到這臨界點，但氣候變化是真實的，大家必須應對這項挑戰。對中國來說，就是要繼續實現低碳和綠色轉型，他們已提出相關政策。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797114-20250324.htm)
 
 ---
