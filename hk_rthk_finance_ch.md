@@ -1,3 +1,27 @@
+# 港鐵完成發行30億美元公募票據　超額認購3.47倍
+
+![港鐵完成發行30億美元公募票據，是公司歷來最大規模公募債券發行，超額認購3.47倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797481_1_20250326135753.jpg&q=80)
+  
+
+港鐵完成發行30億美元公募票據，是公司歷來最大規模公募債券發行，屬融資策略重要一步，支持未來鐵路網絡拓展及適時更新和提升營運資產的承諾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797481-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797481-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797481-20250326.htm)
+
+---
+
 # 台股收市偏軟
 
 ![台灣加權指數收市報22260點，跌12點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797479_1_20250326135623.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797350-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797350-20250325.htm)
-
----
-
-# 李家超在海南表示希望香港盡快加入區域全面經濟夥伴協定
-
-![博鰲亞洲論壇2025年年會主題是「在世界變局中共創亞洲未來」。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797349_1_20250325185133.jpg&q=80)
-  
-
-行政長官李家超在博鰲亞洲論壇的分論壇致辭時到，亞洲作為全球增長的擎，香港將致力深化國際交流與合作，希望可以盡快加入區域全面經濟夥伴協定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm)
 
 ---

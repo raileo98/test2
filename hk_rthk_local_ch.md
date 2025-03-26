@@ -1,3 +1,50 @@
+# 大公報再刊來論告誡長和勿在錯路越走越遠
+
+  
+
+《大公報》再次刊登評論文章，告誡長和計劃出售港口一事上，勿在錯誤的道路上越走越遠，否則後果十分嚴重。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797482-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797482-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797482-20250326.htm)
+
+---
+
+# 港鐵完成發行30億美元公募票據　超額認購3.47倍
+
+![港鐵完成發行30億美元公募票據，是公司歷來最大規模公募債券發行，超額認購3.47倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797481_1_20250326135753.jpg&q=80)
+  
+
+港鐵完成發行30億美元公募票據，是公司歷來最大規模公募債券發行，屬融資策略重要一步，支持未來鐵路網絡拓展及適時更新和提升營運資產的承諾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797481-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797481-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797481-20250326.htm)
+
+---
+
 # 紀念啟德起航香港百年航空歷史　3月30日維港舉行飛行演示
 
   
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm)
-
----
-
-# 施俊輝：專責小組進一步完善內地考察各項安排
-
-![施俊輝最近參與公民與社會發展科「珠海創新科技內地考察」，與寧波第二中學的師生在北京師範大學珠海分校出席一場以人工智能為主題的講座。（教育局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797315_1_20250325161912.jpg&q=80)
-  
-
-教育局副局長施俊輝說，教育局一直致力推動內地考察活動的發展，近日成立了專責小組，進一步完善內地考察的各項安排，期望未來讓更多學生親身體驗國家的發展成就，提升國民身分認同。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797315-20250325.htm)
-
----
-
-# 42歲男子上周六離開荃灣曹公街住所後失蹤
-
-![李展文身高約1.7米，體重約70公斤，瘦身材，圓面型，黃皮膚及蓄短黑髮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797313_1_20250325155258.jpg&q=90)
-  
-
-42歲男子李展文上星期六凌晨離開位於荃灣曹公街的住所後失蹤，家人昨日報案，警方呼籲市民提供消息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797313-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797313-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797313-20250325.htm)
 
 ---

@@ -1,3 +1,52 @@
+# GBA cities need to maximise tourism synergy: survey
+
+![The study, led by the Polytechnic University, suggests cities in the Greater Bay Area work together to grow the tourism market together. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797477_1_20250326142939.jpg&q=85)
+  
+
+Findings from a study led by the Polytechnic University’s School of Hotel and Tourism Management have indicated there’s great potential for cities within the Greater Bay Area (GBA) to collaborate further in their tourism strategies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm)
+
+---
+
+# Art Basel 'to strengthen HK's cultural hub status'
+
+![Art Basel runs from Friday to Sunday at the Convention and Exhibition Centre in Wan Chai. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797472_1_20250326131100.jpg&q=90)
+![Angelle Siyang-Le, right, says she expects a good turnout particularly from Southeast Asia. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797472_2_20250326131100.jpg&q=90)
+  
+
+The organiser of Art Basel Hong Kong said on Wednesday this year's edition aims to strengthen Hong Kong's position as an arts and cultural hub while connecting creative ecosystems across the globe.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm)
+
+---
+
 # 'Youngsters respond positively to govt youth schemes'
 
 ![Alice Mak says proactive outreach by officials has helped generate a strong response towards government youth programmes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797448_1_20250326113912.jpg&q=75)
@@ -72,7 +121,7 @@ Secretary for Development Bernadette Linn said on Wednesday officials will soon 
 
 # New A&E fee to bring timely treatment in urgent cases
 
-![Lo Chung-mau says the new fee of up to HK$400 for A&E treatments in public hospitals is reasonable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797455_1_20250326115900.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797455_1_20250326115900.jpg&q=80)
   
 
 The Secretary for Health says the new fee for people seeking help at accident and emergency wards in public hospitals can result in quicker treatment for more serious cases.
@@ -1394,57 +1443,5 @@ Hong Kong remains Asia's top financial hub, and third in the world behind New Yo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm)
-
----
-
-# Drone trials to provide diverse services in Hong Kong
-
-![People attend the launch event for the Low-altitude Economy Regulatory Sandbox. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_5_20250320164211.jpg&q=80)
-![CLP Power says engineering staff can operate drones from a safe distance. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_1_20250320153334.jpg&q=75)
-![Alpha AI drones can monitor building conditions during the rainy season and even before and after typhoons. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_2_20250320153334.jpg&q=90)
-![Residents of outlying islands can soon receive deliveries by drone. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_3_20250320153334.jpg&q=90)
-![China Mobile will use drones to transport medical supplies between buildings at Princess Margaret Hospital. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796605_4_20250320153334.jpg&q=90)
-  
-
-Drones will be tasked with carrying out services ranging from power line inspections to emergency medical deliveries in Hong Kong’s first-ever low-altitude economy test run.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796605-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796605-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796605-20250320.htm)
-
----
-
-# HK Airlines flight diverts to Fuzhou after cabin fire
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796611_1_20250320162509.jpg&q=90)
-  
-
-A Hong Kong Airlines flight was forced to make an emergency landing in Fuzhou after a fire broke out in the cabin on Thursday afternoon.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm)
 
 ---

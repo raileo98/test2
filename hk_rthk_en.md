@@ -1,3 +1,52 @@
+# GBA cities need to maximise tourism synergy: survey
+
+![The study, led by the Polytechnic University, suggests cities in the Greater Bay Area work together to grow the tourism market together. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797477_1_20250326142939.jpg&q=85)
+  
+
+Findings from a study led by the Polytechnic University’s School of Hotel and Tourism Management have indicated there’s great potential for cities within the Greater Bay Area (GBA) to collaborate further in their tourism strategies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm)
+
+---
+
+# Art Basel 'to strengthen HK's cultural hub status'
+
+![Art Basel runs from Friday to Sunday at the Convention and Exhibition Centre in Wan Chai. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797472_1_20250326131100.jpg&q=90)
+![Angelle Siyang-Le, right, says she expects a good turnout particularly from Southeast Asia. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797472_2_20250326131100.jpg&q=90)
+  
+
+The organiser of Art Basel Hong Kong said on Wednesday this year's edition aims to strengthen Hong Kong's position as an arts and cultural hub while connecting creative ecosystems across the globe.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm)
+
+---
+
 # 'Youngsters respond positively to govt youth schemes'
 
 ![Alice Mak says proactive outreach by officials has helped generate a strong response towards government youth programmes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797448_1_20250326113912.jpg&q=75)
@@ -72,7 +121,7 @@ Secretary for Development Bernadette Linn said on Wednesday officials will soon 
 
 # New A&E fee to bring timely treatment in urgent cases
 
-![Lo Chung-mau says the new fee of up to HK$400 for A&E treatments in public hospitals is reasonable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797455_1_20250326115900.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797455_1_20250326115900.jpg&q=80)
   
 
 The Secretary for Health says the new fee for people seeking help at accident and emergency wards in public hospitals can result in quicker treatment for more serious cases.
@@ -1392,53 +1441,5 @@ Pharmaceutical firms wishing to register new drugs in Hong Kong will soon be abl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm)
-
----
-
-# Heathrow 'had enough power to stay open on Friday'
-
-![The National Grid's boss, John Pettigrew, says either of the two other substations could have supplied the power to keep Heathrow open on Friday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797178_1_20250324172618.jpg&q=90)
-  
-
-The head of the UK's national grid has said there was "enough power" to keep Heathrow Airport running on Friday, after an electrical substation fire shuttered Europe's busiest air hub.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797178-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797178-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797178-20250324.htm)
-
----
-
-# HK ends up on mixed day for equities
-
-![The benchmark Hang Seng Index was up 0.91 percent to close at 23,905.56. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797176_1_20250324171443.jpg&q=80)
-  
-
-Hong Kong's stock market ended higher on Monday with the benchmark Hang Seng Index up 0.91 percent to close at 23,905.56 on a mixed day for equity markets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm)
 
 ---
