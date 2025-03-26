@@ -1,3 +1,72 @@
+# 湖北省委原書記蔣超良被提請罷免全國人大代表資格
+
+  
+
+早前落馬的湖北省委原書記蔣超良，被提請罷免全國人大代表資格。湖北省人大常委會會議昨日在武昌舉行，湖北人大秘書長張愛國説明提請罷免蔣超良全國人大職務的議案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm)
+
+---
+
+# 消防處清明及重陽期間利用無人機在指定航道偵測火警
+
+  
+
+當局早前公布首批低空經濟「監管沙盒」試點項目，消防處有兩個項目獲批。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797497-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797497-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797497-20250326.htm)
+
+---
+
+# 大灣區救援演練　模擬香港受特大颱風暴雨侵襲向廣東澳門提出要求
+
+  
+
+香港消防處聯同廣東省消防救援總隊及澳門消防局，將一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797496-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797496-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797496-20250326.htm)
+
+---
+
 # 國台辦：解放軍在台島附近演習是對台獨和外部勢力干涉的震懾懲戒
 
 ![國台辦表示 ，解放軍在台島附近演習是對「台獨」分裂圖謀和外部勢力干涉的震懾懲戒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797494_1_20250326151345.jpg&q=90)
@@ -24,6 +93,7 @@
 
 # 國泰客機周日低飛至啟德上空　呈現昔日飛機穿梭鬧市集體回憶
 
+![國泰航空表示，屆時A350客機將會飛越維多利亞港，低飛至啟德主場館鄰近的上空。（國泰社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797493_1_20250326152424.jpg&q=90)
   
 
 為紀念由啟德起航的香港百年航空歷史，適逢香港國際七人欖球賽首次於啟德體育園舉行，政府支持活動主辦機構周日下午進行一次飛越維多利亞港的飛行演示。

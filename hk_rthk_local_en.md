@@ -97,7 +97,7 @@ The Kai Tak Sports Park said it's ready to host the Hong Kong Rugby Sevens tourn
 
 # Malls set to get more room for business
 
-![Bernadette Linn said officials will soon come up with measures to boost economic activities at shopping malls. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797456_1_20250326120826.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797456_1_20250326120826.jpg&q=80)
   
 
 Secretary for Development Bernadette Linn said on Wednesday officials will soon come up with measures to allow shopping malls to host more business activities within their public open spaces.

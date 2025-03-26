@@ -1,3 +1,26 @@
+# 湖北省委原書記蔣超良被提請罷免全國人大代表資格
+
+  
+
+早前落馬的湖北省委原書記蔣超良，被提請罷免全國人大代表資格。湖北省人大常委會會議昨日在武昌舉行，湖北人大秘書長張愛國説明提請罷免蔣超良全國人大職務的議案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm)
+
+---
+
 # 國台辦：解放軍在台島附近演習是對台獨和外部勢力干涉的震懾懲戒
 
 ![國台辦表示 ，解放軍在台島附近演習是對「台獨」分裂圖謀和外部勢力干涉的震懾懲戒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797494_1_20250326151345.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797053-20250323.htm)
-
----
-
-# 内地直播帶貨公司「三隻羊」整改符合要求　具備恢復經營條件
-
-![合肥市政府通報，經全面評估後，認為「三隻羊」公司整改符合要求，具備恢復經營條件。（合肥市政府網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797051_1_20250323201115.jpg&q=90)
-  
-
-内地直播帶貨公司「三隻羊」去年因虛假宣傳，被勒令停業整改。安徽合肥市政府通報，經全面評估後，認為「三隻羊」公司整改符合要求，具備恢復經營條件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797051-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797051-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797051-20250323.htm)
 
 ---

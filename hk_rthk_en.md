@@ -1,3 +1,27 @@
+# Seoul court clears opposition leader for top job run
+
+![Lee Jae-myung appeals for patience outside the court in Seoul. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797498_1_20250326152240.jpg&q=90)
+  
+
+A South Korean appeals court reversed on Wednesday a lower court's ruling and found main opposition leader Lee Jae-myung not guilty of violating the election law, removing a barrier that could have blocked him from running for president.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm)
+
+---
+
 # NBA mulls over creation of a 10-strong European league
 
 ![Elias Harris, left, goes for a shot against Jabari Parker during a match between Barcelona and Bayern Munich in the Spanish city. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797489_1_20250326150704.jpg&q=90)
@@ -145,7 +169,7 @@ The Kai Tak Sports Park said it's ready to host the Hong Kong Rugby Sevens tourn
 
 # Malls set to get more room for business
 
-![Bernadette Linn said officials will soon come up with measures to boost economic activities at shopping malls. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797456_1_20250326120826.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797456_1_20250326120826.jpg&q=80)
   
 
 Secretary for Development Bernadette Linn said on Wednesday officials will soon come up with measures to allow shopping malls to host more business activities within their public open spaces.
@@ -1417,29 +1441,5 @@ The government announced on Monday that tennis and billiards have retained their
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm)
-
----
-
-# Cityline 'must explain Coldplay ticket errors'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797187_1_20250324182435.jpg&q=90)
-  
-
-The secretary for culture, sports and tourism has called on the ticketing platform Cityline to explain misprints on Coldplay concert tickets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm)
 
 ---

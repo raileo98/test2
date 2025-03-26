@@ -1,3 +1,27 @@
+# Seoul court clears opposition leader for top job run
+
+![Lee Jae-myung appeals for patience outside the court in Seoul. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797498_1_20250326152240.jpg&q=90)
+  
+
+A South Korean appeals court reversed on Wednesday a lower court's ruling and found main opposition leader Lee Jae-myung not guilty of violating the election law, removing a barrier that could have blocked him from running for president.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm)
+
+---
+
 # Thai PM beats no-confidence motion handily
 
 ![Paetongtarn Shinawatra with members of the government after surviving the no-confidence vote. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797488_1_20250326144940.jpg&q=90)
@@ -1412,29 +1436,5 @@ The White House on Thursday vowed to impose "big tariffs" on April 2 when US Pre
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm)
-
----
-
-# Hamas fires at Tel Aviv in response to Israeli strikes
-
-![Gaza's civil defence agency says more than 500 Palestinians have been killed by Israeli strikes this week. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796687_1_20250321005439.jpg&q=85)
-  
-
-Hamas said it fired rockets at Israeli commercial hub Tel Aviv on Thursday in its first military response to the growing civilian death toll from Israel's resumption of air and ground operations in Gaza.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796687-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796687-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796687-20250321.htm)
 
 ---

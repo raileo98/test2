@@ -1,5 +1,52 @@
+# 消防處清明及重陽期間利用無人機在指定航道偵測火警
+
+  
+
+當局早前公布首批低空經濟「監管沙盒」試點項目，消防處有兩個項目獲批。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797497-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797497-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797497-20250326.htm)
+
+---
+
+# 大灣區救援演練　模擬香港受特大颱風暴雨侵襲向廣東澳門提出要求
+
+  
+
+香港消防處聯同廣東省消防救援總隊及澳門消防局，將一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797496-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797496-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797496-20250326.htm)
+
+---
+
 # 國泰客機周日低飛至啟德上空　呈現昔日飛機穿梭鬧市集體回憶
 
+![國泰航空表示，屆時A350客機將會飛越維多利亞港，低飛至啟德主場館鄰近的上空。（國泰社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797493_1_20250326152424.jpg&q=90)
   
 
 為紀念由啟德起航的香港百年航空歷史，適逢香港國際七人欖球賽首次於啟德體育園舉行，政府支持活動主辦機構周日下午進行一次飛越維多利亞港的飛行演示。
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm)
-
----
-
-# 本港首2個月出口按年升6.5%　上月出口升15.4%
-
-![本港首2個月整體出口貨值按年升6.5%，進口貨值升5.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797325_1_20250325164835.jpg&q=80)
-  
-
-政府統計處公布，本港首2個月整體出口貨值按年升6.5%，進口貨值升5.7%。首兩個月錄得有形貿易逆差346億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm)
-
----
-
-# 政府消息：公營醫療收費上限每人每年一萬元　讓中產不會因病致貧
-
-![政府消息人士表示，如果不改革，系統會倒閉，強調改革有加有減。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797330_1_20250325173206.jpg&q=80)
-  
-
-政府公布公營醫療服務收費改革詳情，政府消息人士表示，香港公營醫療系統非常好，但資助如「仙女散花」般，所有人的共付額都是2.4%，長遠不可能維持。如果不改革，系統會倒閉，強調改革有加有減，對於急、困、貧、重、危的病人，資助有所增加。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797330-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797330-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797330-20250325.htm)
 
 ---

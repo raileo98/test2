@@ -1,5 +1,29 @@
+# 湖北省委原書記蔣超良被提請罷免全國人大代表資格
+
+  
+
+早前落馬的湖北省委原書記蔣超良，被提請罷免全國人大代表資格。湖北省人大常委會會議昨日在武昌舉行，湖北人大秘書長張愛國説明提請罷免蔣超良全國人大職務的議案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm)
+
+---
+
 # 國泰客機周日低飛至啟德上空　呈現昔日飛機穿梭鬧市集體回憶
 
+![國泰航空表示，屆時A350客機將會飛越維多利亞港，低飛至啟德主場館鄰近的上空。（國泰社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797493_1_20250326152424.jpg&q=90)
   
 
 為紀念由啟德起航的香港百年航空歷史，適逢香港國際七人欖球賽首次於啟德體育園舉行，政府支持活動主辦機構周日下午進行一次飛越維多利亞港的飛行演示。
@@ -1409,31 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797373-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797373-20250325.htm)
-
----
-
-# 海南省加緊推進自由貿易港核心政策　確保今年底如期落實相關運作
-
-![劉小明說，海南自由貿易港與世界各地貿易投資自由便利程度將進一步提升。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_1_20250325214113.jpg&q=90)
-![周小川說，海南可以利用獨特優勢，大力發展高端服務業。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_2_20250325214113.jpg&q=90)
-![潘基文指出，自由貿易港有力證明貿易和開放將如何增進增長及可持續。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_3_20250325214113.jpg&q=90)
-  
-
-海南省省長劉小明說，正加緊落實封關運作方案，加緊推進自由貿易港核心政策落地，做好各項準備工作，確保今年底如期順利實現封關運作。封關運作後，海南自由貿易港與世界各地貿易投資自由便利程度將進一步提升，與中國內地超大規模市場的聯繫也將更加緊密。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm)
 
 ---
