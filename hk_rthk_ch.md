@@ -1,3 +1,27 @@
+# 美傳媒人指當局試圖淡化群組信息重要性　公開聊天紀錄更多內容
+
+![戈德堡批評當局試圖淡化有關群組信息的重要性。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797594_1_20250327054606.jpg&q=90)
+  
+
+美國政府高層官員在通訊群組討論軍事行動的懷疑洩密風波持續發酵，被加入群組的《大西洋雜誌》主編戈德堡批評當局試圖淡化有關群組信息的重要性，發文公開群組聊天紀錄的更多內容。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797594-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797594-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797594-20250327.htm)
+
+---
+
 # 中美均形容經貿官員通話坦誠　何立峰就美對華徵關稅表達嚴正關切
 
 ![何立峰就美方以芬太尼為由對華加徵關稅等問題，向美國貿易代表表達嚴正關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797590_1_20250327032925.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm)
-
----
-
-# 中銀香港去年貸款總減值準備升1.4%
-
-![中銀香港公布，截至去年底，貸款總減值準備149.6億元，按年升1.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797524_1_20250326171643.jpg&q=85)
-  
-
-中銀香港公布，截至去年底，貸款總減值準備149.6億元，按年升1.4%。總減值準備對客戶貸款比率按年升0.02個百分點至0.89%。減值貸款比率持平於1.05%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm)
 
 ---
