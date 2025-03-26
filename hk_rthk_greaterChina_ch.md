@@ -1,3 +1,27 @@
+# 國台辦︰賴清德在島内搞恐怖政治、綠色獨裁　徹底暴露醜惡面
+
+![國台辦形容賴清德是「兩岸和平破壞者」、「台海危機製造者」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797446_1_20250326113208.jpg&q=90)
+  
+
+在北京，國台辦回應賴清德將大陸界定為「境外敵對勢力」，並提出17項因應策略。發言人陳斌華表示，兩岸關係不斷取得突破性進展，成果得來不易，批評賴清德大放厥詞，做法是把兩岸關係等同於敵對關係，形容對方是「兩岸和平破壞者」、「台海危機製造者」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797446-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797446-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797446-20250326.htm)
+
+---
+
 # 李家超：瓊港合作備忘錄涵蓋五個領域深度合作　體現兩地優秀疊加
 
 ![李家超（左一）見證瓊港簽署合作備忘錄，深化兩地合作。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797442_1_20250326112907.jpg&q=80)
@@ -22,7 +46,7 @@
 
 ---
 
-# 港深西部鐵路目標2035年開通　洪水橋到達前海約15分鐘
+# 港深西部鐵路目標2035年開通　料洪水橋到前海約15分鐘
 
   
 
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm)
-
----
-
-# 回應有否用過DeepSeek　蘋果庫克稱「當然，感覺很好」
-
-![庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他形容感覺很好。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797019_2_20250323160553.jpg&q=90)
-  
-
-中國發展高層論壇正在北京召開，逾百名全球跨國公司代表出席。其中蘋果公司首席執行官庫克被記者問到，有否用過中國人工智能模型DeepSeek時，他回應「當然，感覺很好」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797019-20250323.htm)
 
 ---

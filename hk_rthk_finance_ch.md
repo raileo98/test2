@@ -1,3 +1,26 @@
+# 陳茂波呼籲國際投資者不要錯失內地及亞太區機遇
+
+  
+
+財政司司長陳茂波指出，內地及亞太地區在未來10年將保持增長引擎角色，至少佔全球增長30至40%，呼籲國際投資者不要錯失機遇，面對挑戰仍要駕馭複雜性並將機遇最大化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797447-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797447-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797447-20250326.htm)
+
+---
+
 # 房協安達臣道及粉嶺資助房屋共1604個單位　售價最平230萬
 
   
@@ -45,7 +68,7 @@
 
 ---
 
-# 港深西部鐵路目標2035年開通　洪水橋到達前海約15分鐘
+# 港深西部鐵路目標2035年開通　料洪水橋到前海約15分鐘
 
   
 
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797310-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797310-20250325.htm)
-
----
-
-# 內地股市收市偏軟
-
-![內地股市收市偏軟。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797309_1_20250325151147.jpg&q=90)
-  
-
-內地股市反覆偏軟。化工概念、煤炭股造好；算力租賃、通信服務等股份向下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797309-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797309-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797309-20250325.htm)
 
 ---
