@@ -1,3 +1,27 @@
+# 約53萬4千名車主或駕駛執照持有人提交已核實電子聯絡方式
+
+![運輸署呼籲，提供及核實香港流動電話號碼或電郵地址作為電子聯絡方式，以接收警方和署方的電子訊息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797572_1_20250326214210.jpg&q=80)
+  
+
+賦權運輸署署長向相關人士收集電子聯絡方式的修訂條例自去年11月18日生效以來，截至昨日，有約53.4萬名車主或駕駛執照持有人提交已核實的電子聯絡方式，佔總數約兩成，預計有關數字將穩步上升。警方在電子告票實施初期會「雙軌並行」，即同時發出傳統紙本告票，讓市民逐步適應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797572-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797572-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797572-20250326.htm)
+
+---
+
 # 男子涉網上違法銷售含有未標示受管制藥物成分濕疹外用產品
 
 ![衞生署呼籲市民如懷疑已購買上述產品，應立即停止使用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797570_1_20250326213049.jpg&q=80)
@@ -843,7 +867,7 @@
 
 # 大灣區救援演練　模擬香港受特大颱風暴雨侵襲向廣東澳門提出要求
 
-![香港消防處聯同廣東省消防救援總隊及澳門消防局，將一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。（周國安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797496_1_20250326155052.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797496_1_20250326155052.jpg&q=75)
   
 
 香港消防處聯同廣東省消防救援總隊及澳門消防局，將一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。
