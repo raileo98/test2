@@ -1,3 +1,73 @@
+# 港澳辦轉載報道引述各界提醒營商不顧國家利益終會自毀基石
+
+  
+
+中共中央港澳辦公室、國務院港澳辦轉載《大公報》報道指，長和擬出售巴拿馬港口一事繼續熱議，社會各界人士提醒營商不顧國家利益，終究會自毀基石。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797551-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797551-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797551-20250326.htm)
+
+---
+
+# 一名工程分判商時任「工頭」因受賄判囚18星期
+
+![兩名被告在西九龍裁判法院分別被判入獄18星期及社會服務令180小時。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797549_1_20250326191654.jpg&q=90)
+  
+
+廉政公署早前落案起訴一名工程分判商時任「工頭」及一名時任建築工人，他們在疫情期間興建一個大嶼山社區隔離設施時，涉嫌向四名經其介紹入職的釘板工人索取及收受賄款共約98000元。兩名被告今日在西九龍裁判法院分別被判入獄18星期及社會服務令180小時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797549-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797549-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797549-20250326.htm)
+
+---
+
+# 醫療費用減免機制優化　二人家庭資產低於38.7萬可獲減免
+
+  
+
+醫管局優化醫療費用減免機制，放寬收入和資產限額。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797547-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797547-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797547-20250326.htm)
+
+---
+
 # 劉兆佳：引入履職監察制度可確保區議員滿足當局要求
 
   
@@ -1364,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797436-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797436-20250326.htm)
-
----
-
-# 急症室第三類病人收費將不豁免　高拔陞：為免不必要爭拗
-
-![高拔陞指第三類和第四類病人的個案有時未必能清楚分辨，為免不必要爭拗和顧及整體運作，所以作出有關安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797433_1_20250326103150.jpg&q=80)
-  
-
-政府公布公營醫療服務收費改革方案，當中急症室收費由現時180元上調至400元，第一類危殆及第二類危急病人豁免收費。醫管局行政總裁高拔陞在一個電台節目表示，希望能夠體現急症室的真正功能，讓有急症需要的病人能夠盡快得到治療，有經濟困難的人士可獲資助減免，有需要市民亦可透過手機應用程式申請減免。他形容整個改革是環環相扣，令病人得到保障。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797433-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797433-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797433-20250326.htm)
-
----
-
-# 何永賢專訪：約2千間簡樸房面向四面圍封天井　須做好清潔
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797426_2_20250326102558.jpg&q=90)
-  
-
-房屋局向立法會提交「簡樸房」規管制度最新建議方案中提出，日後「簡樸房」的窗戶，若面向四面圍封的天井，只要天井並非密封，面積符合法定要求，最低層設有進出口，仍可被視為滿足最低標準。房屋局局長何永賢接受本台專訪表示，優化新方案，主要是諮詢期間聽取了持份者意見，當局派人實地到不同舊樓了解後，發現即使是四面圍封的天井亦有不同形式，有些舊式大廈天井的面積可以很大，通風採光並無問題，只要天井底層有門，可以進入清潔，天井亦可以很乾淨。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm)
-
----
-
-# 何永賢專訪：政府收取「簡樸房」認證費　業主愈遲認證費用愈高
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797424_1_20250326092928.jpg&q=80)
-  
-
-規管「簡樸房」制度新方案建議登記期為12個月，寬限期為登記期完結後的36個月，即業主有4年時間適應新制度。「簡樸房」認證申請人亦須向政府繳交認證費用。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm)
 
 ---

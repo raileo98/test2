@@ -1,3 +1,96 @@
+# 港澳辦轉載報道引述各界提醒營商不顧國家利益終會自毀基石
+
+  
+
+中共中央港澳辦公室、國務院港澳辦轉載《大公報》報道指，長和擬出售巴拿馬港口一事繼續熱議，社會各界人士提醒營商不顧國家利益，終究會自毀基石。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797551-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797551-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797551-20250326.htm)
+
+---
+
+# 王偉中：全運會和殘特奧會廣東賽區各項籌備工作進展良好
+
+  
+
+廣東省省長王偉中表示，第十五屆全運會和殘特奧會在各方面的努力下，廣東賽區各項籌備工作扎實推進，進展良好，值得充分肯定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797550-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797550-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797550-20250326.htm)
+
+---
+
+# 一名工程分判商時任「工頭」因受賄判囚18星期
+
+![兩名被告在西九龍裁判法院分別被判入獄18星期及社會服務令180小時。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797549_1_20250326191654.jpg&q=90)
+  
+
+廉政公署早前落案起訴一名工程分判商時任「工頭」及一名時任建築工人，他們在疫情期間興建一個大嶼山社區隔離設施時，涉嫌向四名經其介紹入職的釘板工人索取及收受賄款共約98000元。兩名被告今日在西九龍裁判法院分別被判入獄18星期及社會服務令180小時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797549-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797549-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797549-20250326.htm)
+
+---
+
+# 醫療費用減免機制優化　二人家庭資產低於38.7萬可獲減免
+
+  
+
+醫管局優化醫療費用減免機制，放寬收入和資產限額。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797547-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797547-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797547-20250326.htm)
+
+---
+
 # 劉兆佳：引入履職監察制度可確保區議員滿足當局要求
 
   

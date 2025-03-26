@@ -1,3 +1,26 @@
+# 王偉中：全運會和殘特奧會廣東賽區各項籌備工作進展良好
+
+  
+
+廣東省省長王偉中表示，第十五屆全運會和殘特奧會在各方面的努力下，廣東賽區各項籌備工作扎實推進，進展良好，值得充分肯定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797550-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797550-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797550-20250326.htm)
+
+---
+
 # 消防處指粵港澳聯合演練成功測試大灣區緊急動員及協調機制
 
 ![參與今次聯合演練的包括香港跨境救援隊指揮官黃鎮業（右三）、廣東省消防救援總隊副總隊長朱國營、澳門消防局副局長林俊生，其他代表在設於鯉魚門三家村的前線指揮中心內進行策略部署。（消防處提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797543_1_20250326190800.jpg&q=80)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797101-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797101-20250324.htm)
-
----
-
-# 李家超明日赴海南出席博鰲亞洲論壇年會　將於論壇致辭
-
-![李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797100_1_20250324103437.jpg&q=90)
-  
-
-行政長官李家超明日前赴海南，出席博鰲亞洲論壇2025年年會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797100-20250324.htm)
 
 ---
