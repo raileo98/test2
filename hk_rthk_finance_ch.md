@@ -1,3 +1,27 @@
+# 中信銀行去年多賺2.3%
+
+![中信銀行去年盈利約685.8億元人民幣，按年升2.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797555_1_20250326200434.jpg&q=90)
+  
+
+中信銀行公布，去年盈利約685.8億元人民幣，按年升2.3%。派末期息每股0.1722元人民幣，全年派息0.3547元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797555-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797555-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797555-20250326.htm)
+
+---
+
 # 新奧股份擬私有化新奧能源後在港上市　響應中證監對港合作措施
 
 ![根據私有化計劃，每股新奧能源可換2.9427股新奧股份H股及24.5元現金。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797553_1_20250326194804.jpg&q=80)
@@ -121,7 +145,7 @@
 
 # 鄭永年稱香港問題是發展問題　香港一定要與大灣區結合
 
-![鄭永年說，不要低估中國的開放政策，對全球貿易體系的重塑能力。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797537_1_20250326183143.jpg&q=80)
+![鄭永年說，不要低估中國的開放政策，對全球貿易體系的重塑能力。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797537_2_20250326205139.jpg&q=80)
   
 
 正在海南出席博鰲亞洲論壇的香港中文大學(深圳)公共政策學院院長、特首政策組專家組成員鄭永年，被問到香港財政情況時表示，香港的問題是發展問題，香港一定要與大灣區結合，共同發展，因為香港四大產業是服務業，服務對象主要為大灣區居民。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797411-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797411-20250326.htm)
-
----
-
-# 歐洲央行管委料存款利率夏季末或降至2厘
-
-![維勒魯瓦德加洛預料，存款利率或於夏季末減至2厘，亦即比現時有0.5厘下調空間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797404_1_20250326070353.jpg&q=85)
-  
-
-歐洲央行管委、法國央行總裁維勒魯瓦德加洛表示，歐洲央行仍有進一步減息空間，預料存款利率或於夏季末減至2厘，亦即比現時有0.5厘下調空間。但他指，進一步放鬆政策的步伐及程度仍有待確定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797404-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797404-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797404-20250326.htm)
 
 ---

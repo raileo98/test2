@@ -1,3 +1,50 @@
+# 以色列議會批准2025年度國家預算　其中國防預算創新高
+
+  
+
+以色列議會批准2025年度國家預算，避免議會自動解散並觸發提前選舉，其中國防預算創新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797563-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797563-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797563-20250326.htm)
+
+---
+
+# 日本護衛艦「能代」號停靠菲律賓蘇比克海軍基地交流
+
+![菲律賓海軍歡迎日本海上自衛隊護衛艦「能代」號停靠蘇比克海軍基地。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797559_1_20250326203930.jpg&q=90)
+  
+
+日本海上自衛隊最先進護衛艦「能代」號停靠菲律賓呂宋島蘇比克海軍基地，並向傳媒公開展示。共同社報道，蘇比克海軍基地靠近南海爭議海域，今次是海上自衛隊艦艇首次停靠，彰顯防衛合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797559-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797559-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797559-20250326.htm)
+
+---
+
 # 中國駐韓使館：中方黃海深海漁業養殖設施不影響韓方權益
 
 ![使館發言人說，中方做法不違反《中韓漁業協定》，也不影響韓方依據《協定》享有的權益。（中國駐南韓大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797557_1_20250326201302.jpg&q=90)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm)
-
----
-
-# 英國首次發現有羊感染H5N1禽流感
-
-![英國首次發現有羊感染H5N1禽流感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797171_1_20250324171449.jpg&q=90)
-  
-
-英國首次發現有羊感染H5N1禽流感。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797171-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797171-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797171-20250324.htm)
-
----
-
-# 美俄代表團在沙特舉行會談　料討論黑海海上停火
-
-![美國白宮國家安全顧問華爾茲較早時說，美方將會討論黑海海上停火。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797172_1_20250324170849.jpg&q=90)
-  
-
-美國與俄羅斯的代表團在沙特阿拉伯首都利雅得舉行會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797172-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797172-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797172-20250324.htm)
 
 ---

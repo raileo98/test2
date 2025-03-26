@@ -1,3 +1,27 @@
+# World Club Cup winner to score up to US$125 million
+
+![This year's Club World Cup will take place from June 14 to July 13 in the United States. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797561_1_20250326204658.jpg&q=90)
+  
+
+The winner of this year's expanded Club World Cup in the United States will receive up to US$125 million in prize money, Fifa announced on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm)
+
+---
+
 # Online applications set for healthcare bills waivers
 
 ![The Hospital Authority’s chief manager of allied health, Priscilla Poon, says there are ways to ensure the expanded fee waiver mechanism will not overwhelm medical social workers. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797528_1_20250326180228.jpg&q=90)
@@ -1417,29 +1441,5 @@ The Hang Seng Index lost 262.24 points, or 1.1 percent, to open at 23,643.32 on 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm)
-
----
-
-# Hyundai to invest US$21 billion in US manufacturing
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797250_1_20250325084822.jpg&q=90)
-  
-
-South Korean auto giant Hyundai on Monday announced a multi-billion-dollar investment in the United States, including a new US$5.8 billion steel plant.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm)
 
 ---

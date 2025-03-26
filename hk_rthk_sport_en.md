@@ -1,3 +1,27 @@
+# World Club Cup winner to score up to US$125 million
+
+![This year's Club World Cup will take place from June 14 to July 13 in the United States. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797561_1_20250326204658.jpg&q=90)
+  
+
+The winner of this year's expanded Club World Cup in the United States will receive up to US$125 million in prize money, Fifa announced on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm)
+
+---
+
 # New Zealand aim for HK Sevens three-peat
 
 ![The Melrose Claymores, a tournament featuring Asian teams that runs alongside the Sevens, will be back this weekend. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797526_4_20250326175525.jpg&q=80)
@@ -1412,29 +1436,5 @@ Northern Ireland's Rory McIlroy cruised to a St. Patrick's Day victory at the Pl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796153-20250318.htm)
-
----
-
-# HK triathletes race for a spot in National Games
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796101_1_20250317182204.jpg&q=85)
-  
-
-Triathletes from the SAR will try to book a spot in this year's National Games by competing in a selection race next month along Victoria Harbour.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm)
 
 ---
