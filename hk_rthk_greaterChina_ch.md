@@ -1,6 +1,30 @@
+# 國台辦︰台積電已成為砧板上任人宰割的肥肉
+
+![陳斌華表示，在民進黨當局極力逢迎、拱手相送下，台積電已成為砧板上任人宰割的肥肉。(盧紫菁攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797452_1_20250326115329.jpg&q=90)
+  
+
+美國總統特朗普早前表示，晶片製造商台積電將在美國再投資至少1000億美元，興建5所尖端晶片製造設施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797452-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797452-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797452-20250326.htm)
+
+---
+
 # 國台辦︰賴清德在島内搞恐怖政治、綠色獨裁　徹底暴露醜惡面
 
-![國台辦形容賴清德是「兩岸和平破壞者」、「台海危機製造者」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797446_1_20250326113208.jpg&q=90)
+![陳斌華形容賴清德是「兩岸和平破壞者」、「台海危機製造者」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797446_2_20250326115402.jpg&q=75)
   
 
 在北京，國台辦回應賴清德將大陸界定為「境外敵對勢力」，並提出17項因應策略。發言人陳斌華表示，兩岸關係不斷取得突破性進展，成果得來不易，批評賴清德大放厥詞，做法是把兩岸關係等同於敵對關係，形容對方是「兩岸和平破壞者」、「台海危機製造者」。
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm)
-
----
-
-# 積金局舉辦全國兩會精神分享會　梁振英冀更積極主動發揮作用
-
-![梁振英獲邀出席分享兩會主要內容，積金局及積金易公司逾600名員工實體和透過線上參與。（積金局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797022_1_20250323155726.jpg&q=90)
-  
-
-積金局日前舉辦「全國兩會精神」分享會，全國政協副主席梁振英獲邀出席分享兩會主要內容，積金局及積金易公司超過600名員工實體和透過線上參與。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797022-20250323.htm)
 
 ---

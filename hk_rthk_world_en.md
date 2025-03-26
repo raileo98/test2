@@ -1,3 +1,27 @@
+# Toll hits at least 18 in S Korea's worst wildfires
+
+![Most of the surrounding buildings at the Gounsa Temple complex in Uiseong were burned to the ground. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797453_1_20250326115256.jpg&q=90)
+  
+
+At least 18 people have been killed in one of South Korea's worst wildfire outbreaks, with multiple blazes burning and causing "unprecedented damage," acting president Han Duck-soo said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797453-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797453-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797453-20250326.htm)
+
+---
+
 # French police arrest four over toddler's death
 
 ![Authorities stand outside the house of the grandparents of Emile Soleil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797420_1_20250326091733.jpg&q=80)
@@ -1412,29 +1436,5 @@ European Union foreign policy chief Kaja Kallas urged EU leaders on Thursday to 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796668-20250320.htm)
-
----
-
-# Four Canadians 'executed in line with the law'
-
-![Mao Ning says China handles cases in strict accordance with the law. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796617_1_20250320165302.jpg&q=90)
-  
-
-China said on Thursday it acted in accordance with the law over the execution of four Canadian citizens in recent weeks.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm)
 
 ---

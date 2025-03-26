@@ -1,3 +1,27 @@
+# Toll hits at least 18 in S Korea's worst wildfires
+
+![Most of the surrounding buildings at the Gounsa Temple complex in Uiseong were burned to the ground. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797453_1_20250326115256.jpg&q=90)
+  
+
+At least 18 people have been killed in one of South Korea's worst wildfire outbreaks, with multiple blazes burning and causing "unprecedented damage," acting president Han Duck-soo said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797453-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797453-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797453-20250326.htm)
+
+---
+
 # Son homes in on pitches for S Korea's World Cup slips
 
 ![Son Heung-min reacts at the end of the match with Jordan that saw South Korea draw again. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797449_1_20250326114106.jpg&q=90)
@@ -1417,29 +1441,5 @@ China has not received any application for asylum from Philippines' former Presi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm)
-
----
-
-# Two injured in western Japan wildfires
-
-![A wildfire is seen in the hills above Imabari City in Ehime prefecture. Photo: Yomiuri Shimbun/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797157_1_20250324153925.jpg&q=85)
-  
-
-Wildfires have hit several regions in western Japan, injuring at least two people, forcing dozens of residents to evacuate and damaging a number of homes as hundreds of firefighters battled the widening blazes in the mountainous areas.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm)
 
 ---
