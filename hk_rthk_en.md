@@ -1,3 +1,27 @@
+# French police arrest four over toddler's death
+
+![Gendarmes stand outside the house of the grandparents of Emile Soleil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797420_1_20250326091733.jpg&q=80)
+  
+
+A months-long investigation into the mysterious death of a French toddler took a surprise turn on Tuesday when police arrested four people including the boy's grandparents on suspicion of murder and concealment of a body.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm)
+
+---
+
 # Argentina qualify for 2026 World Cup
 
 ![Reigning champions Argentina are the first South American nation to qualify for the 2026 Fifa World Cup. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797405_1_20250326070511.jpg&q=90)
@@ -1417,29 +1441,5 @@ The Secretary for Financial Services and the Treasury Christopher Hui said on Mo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm)
-
----
-
-# 'Public flat tenants will have ample time to move out'
-
-![The Housing Authority's Cleresa Wong expects at least a few hundred flats could be released after rules are tightened. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797127_1_20250324121128.jpg&q=80)
-  
-
-The Housing Authority on Monday said well-off public housing tenants will be given sufficient time to move out of their flats once rules are tightened.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 萬斯將與夫人訪問格陵蘭　丹麥斥為格陵蘭和丹麥帶來不可接受壓力
+
+![萬斯（右）表示，將會探望駐紮在格陵蘭島的美軍，並視察當地的安全狀況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797421_1_20250326092232.jpg&q=90)
+  
+
+美國副總統萬斯表示，他將和夫人烏莎一起在本周稍後訪問丹麥自治領土格陵蘭島，屆時將會探望駐紮在格陵蘭島的美軍，視察當地的安全狀況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797421-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797421-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797421-20250326.htm)
+
+---
+
 # 南韓慶尚北道山火持續蔓延　增至16人死亡
 
 ![在南韓安東市，山火持續燃燒，濃煙升至半空。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797410_1_20250326074128.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797086-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797086-20250324.htm)
-
----
-
-# 北韓譴責美韓「自由護盾」聯合軍演
-
-![美韓本月10日至20日進行大規模聯合軍演。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797082_1_20250324074744.jpg&q=65)
-  
-
-北韓外務省裁軍和平研究所發表聲明，譴責美韓「自由護盾」聯合軍演。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797082-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797082-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797082-20250324.htm)
 
 ---

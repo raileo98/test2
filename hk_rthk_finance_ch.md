@@ -1,3 +1,265 @@
+# 內地股市初段向上　升幅有限
+
+![內地股市初段上升，上證指數較早時報3373點，升3點，升幅0.12%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797427_1_20250326093535.jpg&q=90)
+  
+
+內地股市初段上升，上證指數較早時報3373點，升3點，升幅0.12%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797427-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797427-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797427-20250326.htm)
+
+---
+
+# 何永賢專訪：約2千間簡樸房面向四面圍封天井　須做好清潔
+
+  
+
+房屋局向立法會提交「簡樸房」規管制度最新建議方案中提出，日後「簡樸房」的窗戶，若面向四面圍封的天井，只要天井並非密封，面積符合法定要求，最低層設有進出口，仍可被視為滿足最低標準。房屋局局長何永賢接受本台專訪表示，優化新方案，主要是諮詢期間聽取了持份者意見，當局派人實地到不同舊樓了解後，發現即使是四面圍封的天井亦有不同形式，有些舊式大廈天井的面積可以很大，通風採光並無問題，只要天井底層有門，可以進入清潔，天井亦可以很乾淨。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm)
+
+---
+
+# 人行開展4554億元人民幣逆回購操作
+
+![人行公開市場開展4554億元人民幣7天期逆回購操作，單日淨投放1595億元，連續兩日淨投放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797425_1_20250326093014.jpg&q=75)
+  
+
+人民銀行公布，公開市場逆回購投標量及中標量都是4554億元人民幣，全屬7天期操作，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797425-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797425-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797425-20250326.htm)
+
+---
+
+# 何永賢專訪：政府收取「簡樸房」認證費　業主愈遲認證費用愈高
+
+![何永賢透露，考慮到拖至最後階段才認證的分間單位，有可能改裝較為複雜，因此認為預留6個月「倒數期」較為合適。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797424_1_20250326092928.jpg&q=80)
+  
+
+規管「簡樸房」制度新方案建議登記期為12個月，寬限期為登記期完結後的36個月，即業主有4年時間適應新制度。「簡樸房」認證申請人亦須向政府繳交認證費用。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm)
+
+---
+
+# 港股競價時段升116點
+
+![恒生指數競價時段報23460點，升116點，升幅0.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797423_1_20250326092311.jpg&q=75)
+  
+
+港股回升，恒生指數競價時段報23460點，升116點，升幅0.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797423-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797423-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797423-20250326.htm)
+
+---
+
+# 人民幣兌美元中間價升34點子　創近1星期新高
+
+![人民幣中間價報7.1754兌1美元，較昨日中間價升34點子，創近1星期新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797422_1_20250326091921.jpg&q=80)
+  
+
+人民幣中間價報7.1754兌1美元，較昨日中間價升34點子，創近1星期新高，與市場預測偏離800點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797422-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797422-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797422-20250326.htm)
+
+---
+
+# 寧德時代在港上市已獲中證監備案
+
+![寧德時代計劃發行H股並在香港聯交所主板上市，已獲中國證監會備案。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797419_1_20250326091253.jpg&q=90)
+  
+
+寧德時代計劃發行H股並在香港聯交所主板上市，已獲中國證監會備案，擬發行不多於約2.2億股H股。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797419-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797419-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797419-20250326.htm)
+
+---
+
+# 前廳交流會由黃偉綸帶領官員出席　討論降低建築成本及簡樸房規管
+
+  
+
+立法會舉行前廳交流會，由財政司副司長黃偉綸帶領多名官員出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm)
+
+---
+
+# 台股初段升逾百點
+
+![加權指數較早時報22381點，升108點，升幅0.49%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797416_1_20250326090347.jpg&q=90)
+  
+
+台股初段靠穩，加權指數較早時報22381點，升108點，升幅0.49%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797416-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797416-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797416-20250326.htm)
+
+---
+
+# 韓股初段約0.3%
+
+![首爾綜合指數較早時報2623點，升7點，升幅0.28%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797415_1_20250326083917.jpg&q=90)
+  
+
+南韓股市初段上升，首爾綜合指數較早時報2623點，升7點，升幅0.28%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797415-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797415-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797415-20250326.htm)
+
+---
+
+# 日股初段升逾200點　重上38000點
+
+![日經指數重上38000點水平，較早時報38029點，升248點，升幅0.66%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797414_1_20250326083608.jpg&q=75)
+  
+
+日股初段造好，重上38000點水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797414-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797414-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797414-20250326.htm)
+
+---
+
 # 華潤萬象生活去年多賺約24%　再度派發特別股息
 
 ![華潤萬象生活派末期息每股0.643元人民幣，另派特別股息0.614元，是繼中期業績後再度派特別股息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797412_1_20250326075549.jpg&q=80)
@@ -142,6 +404,54 @@
 
 ---
 
+# 黎堅明：冀三寶樹濕地公園做到保育與旅遊平衡
+
+![漁護署表示，三寶樹濕地保育公園將加入旅遊元素，包括生態旅舍等。（立法會文件截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797408_1_20250326072548.jpg&q=90)
+  
+
+漁護署表示，位於北部都會區的三寶樹濕地保育公園，除了發展現代化塘魚養殖等保育項目，亦會加入旅遊元素，包括推出觀鳥活動、生態旅舍等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm)
+
+---
+
+# 漁護署：本地優質漁農產品將可獲統一Q嘜認證　令市民食得放心
+
+![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_3_20250326080309.jpg&q=80)
+  
+
+漁護署表示，本地優質漁農產品將可獲得統一的「Q嘜」認證，目標是2025/26財政年度內推出相關制度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm)
+
+---
+
 # 金價曾升約0.8%　受避險資金支撐
 
 ![現貨金高見每盎司3035.71美元，升約0.8%，較早時徘徊3020美元附近。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797397_1_20250326055910.jpg&q=90)
@@ -235,6 +545,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797394-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797394-20250326.htm)
+
+---
+
+# 澤連斯基：莫斯科已試圖扭曲黑海航運及能源設施停火協議
+
+![澤連斯基表示，莫斯科已試圖扭曲協議，實際上欺騙了烏俄的中間人和整個世界。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797393_1_20250326042026.jpg&q=90)
+  
+
+美國白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全，並禁止俄烏兩國互相攻擊對方的能源設施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm)
 
 ---
 
@@ -1099,341 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797285-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797285-20250325.htm)
-
----
-
-# 陳茂波：香港作為國際金融中心擅長將優質綠色專案與資金配對
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797282_1_20250325120618.jpg&q=80)
-  
-
-財政司司長陳茂波表示，香港致力於在2050年實現碳中和，而氣候目標同時為企業創造新的機遇。他又認為人工智能與綠色發展的關係應該有更廣闊視野，形容人工智能在綠色領域的應用機會無所不在。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm)
-
----
-
-# 滬股半日跌約0.2%　深證成指及創業板指數跌逾0.6%
-
-![上證指數半日收報3364點，跌5點，跌幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797280_1_20250325113831.jpg&q=85)
-  
-
-內地股市反覆向下，金屬新材料、航空、煤炭股造好；算力租賃、通信服務、人工智能眼鏡概念股下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797280-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797280-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797280-20250325.htm)
-
----
-
-# 博鰲亞洲論壇年會旗艦報告倡推動綠色轉型
-
-![張軍表示，亞洲經濟前景及一體化進程報告反映面對諸多挑戰。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797278_1_20250325131407.jpg&q=80)
-  
-
-博鰲亞洲論壇年會發表旗艦報告，包括亞洲經濟前景及一體化進程、應對氣候變化兩份報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm)
-
----
-
-# 陳國基：香港經濟展現韌性　超級聯繫人角色比以往更為重要
-
-![陳國基表示，香港作為「超級聯繫人」的角色比以往更為重要，將繼續增強離岸人民幣流動性。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797277_1_20250325112821.jpg&q=75)
-  
-
-署理行政長官陳國基表示，香港作為亞洲首屈一指的金融樞紐，於《全球金融中心指數》繼續位列全球第三，預計經濟在2026年至2029年間每年增長2.9%，即使面對環球挑戰，香港經濟仍展現韌性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797277-20250325.htm)
-
----
-
-# 蔡崇信：要消費者重拾消費意欲需要重建商業信心
-
-![蔡崇信（右）表示，內地推出刺激消費措施時間不長，暫未見到重大復蘇跡象。（滙豐圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797275_2_20250325131816.jpg&q=90)
-  
-
-阿里巴巴主席蔡崇信表示，內地推出刺激消費措施時間不長，暫未見到重大復蘇跡象。他認為，要消費者重拾消費意欲，需要重建商業信心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797275-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797275-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797275-20250325.htm)
-
----
-
-# 祁斌：香港資本市場復蘇　應進一步改革確保持續健康發展
-
-![祁斌建議進一步改革和發展香港資本市場，鞏固目前的正面勢頭，並確保市場持續健康發展。（滙豐圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797272_3_20250325131616.jpg&q=90)
-  
-
-中聯辦副主任祁斌表示，港股今年以來跑贏英美日等主要市場，形容香港資本市場迎來春天並充滿新的活力，眾多科技股股價創新高，日均成交額顯著改善，新股市場亦見回暖。他又說，本港就業和消費表現正面，樓市信心有所回升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797272-20250325.htm)
-
----
-
-# 布雷納德：聯儲局觀望取態是正確策略
-
-![布雷納德（右）稱經濟面臨不確定，聯儲局觀望取態屬正確策略。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797271_1_20250325121501.jpg&q=90)
-  
-
-聯儲局前副主席兼白宮國家經濟委員會前主任布雷納德（Lael Brainard）表示，經濟面臨不確定性，包括特朗普政府提出的關稅、移民和減稅政策，認為聯儲局觀望的取態是正確策略。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797271-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797271-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797271-20250325.htm)
-
----
-
-# 港股跌幅擴大至逾400點　汽車及手機設備股沽壓大
-
-![港股跌幅擴大，恒生指數較早時報23446點，跌459點，跌幅1.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797267_1_20250325103521.jpg&q=75)
-  
-
-港股低開262點後跌幅持續擴大，恒生指數較早時報23446點，跌459點，跌幅1.9%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797267-20250325.htm)
-
----
-
-# 日股半日升逾0.7%
-
-![日經指數半日升273點，報37881點，升幅0.73%。 （日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797266_1_20250325103413.jpg&q=75)
-  
-
-東京股市上升，於38000點得而復失。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797266-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797266-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797266-20250325.htm)
-
----
-
-# 蔡崇信稱民營企業座談會後內地企業家信心增強
-
-![蔡崇信表示，自今年2月國家主席習近平會見民營企業以來，企業家信心明顯增強。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797262_1_20250325100958.jpg&q=75)
-  
-
-阿里巴巴主席蔡崇信表示，自今年2月國家主席習近平會見民營企業以來，企業家信心明顯增強。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797262-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797262-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797262-20250325.htm)
-
----
-
-# 博鰲亞洲論壇報告料今年亞洲加權實際國內生產總值增長率4.5%
-
-![報告指，雖然世界經濟增長不確定性增大，但亞洲仍將成為世界經濟的主要引擎。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797259_1_20250325100833.jpg&q=90)
-  
-
-博鰲亞洲論壇發表亞洲經濟前景及一體化進程年度報告提及，當前全球經濟保持中低速增長，面臨貿易戰、地緣政治局勢複雜多變、持續通脹及主要經濟體增長放緩等重大風險挑戰。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm)
-
----
-
-# 內地股市初段窄幅上落
-
-![內地股市初段窄幅上落。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797258_1_20250325093319.jpg&q=90)
-  
-
-內地股市初段窄幅上落。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797258-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797258-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797258-20250325.htm)
-
----
-
-# 人行逆回購操作3779億元人民幣
-
-![人行公開市場開展3779億元人民幣7天期逆回購操作，單日淨投放1046億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797257_1_20250325092905.jpg&q=80)
-  
-
-人民銀行公開市場開展3779億元人民幣7天期逆回購操作，利率維持1.5厘。對沖到期量後，單日淨投放1046億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797257-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797257-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797257-20250325.htm)
-
----
-
-# 港股競價時段跌262點　小米低開5.5%
-
-![小米低開5.5%，集團今早宣布計劃折讓約6.6%配股集資426億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797256_1_20250325092443.jpg&q=90)
-  
-
-港股回軟，恒生指數競價時段報23643點，跌262點，跌幅1.1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797256-20250325.htm)
 
 ---

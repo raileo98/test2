@@ -1,3 +1,96 @@
+# 何永賢專訪：約2千間簡樸房面向四面圍封天井　須做好清潔
+
+  
+
+房屋局向立法會提交「簡樸房」規管制度最新建議方案中提出，日後「簡樸房」的窗戶，若面向四面圍封的天井，只要天井並非密封，面積符合法定要求，最低層設有進出口，仍可被視為滿足最低標準。房屋局局長何永賢接受本台專訪表示，優化新方案，主要是諮詢期間聽取了持份者意見，當局派人實地到不同舊樓了解後，發現即使是四面圍封的天井亦有不同形式，有些舊式大廈天井的面積可以很大，通風採光並無問題，只要天井底層有門，可以進入清潔，天井亦可以很乾淨。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797426-20250326.htm)
+
+---
+
+# 何永賢專訪：政府收取「簡樸房」認證費　業主愈遲認證費用愈高
+
+![何永賢透露，考慮到拖至最後階段才認證的分間單位，有可能改裝較為複雜，因此認為預留6個月「倒數期」較為合適。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797424_1_20250326092928.jpg&q=80)
+  
+
+規管「簡樸房」制度新方案建議登記期為12個月，寬限期為登記期完結後的36個月，即業主有4年時間適應新制度。「簡樸房」認證申請人亦須向政府繳交認證費用。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm)
+
+---
+
+# 前廳交流會由黃偉綸帶領官員出席　討論降低建築成本及簡樸房規管
+
+  
+
+立法會舉行前廳交流會，由財政司副司長黃偉綸帶領多名官員出席。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm)
+
+---
+
+# 盧寵茂：急症室收費加至400元合理　顧及負擔能力及善用服務
+
+  
+
+政府公布公營醫療服務收費改革方案，當中急症室收費由現時180元上調至400元，第一類危殆及第二類危急病人豁免收費。醫務衞生局局長盧寵茂認為400元共付額是合理，他說，環顧全世界的急症室收費亦不只這個數目，外國甚至會收過千元美金，強調考慮收費時有顧及病人負擔能力、如何善用服務及分擔成本等因素。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797417-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797417-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797417-20250326.htm)
+
+---
+
 # 漁護署：正在金山郊野公園試行人工智能閉路電視監察野豬出沒情況
 
 ![漁護署表示，本港現時野豬問題黑點只剩10多個。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797409_1_20250326072909.jpg&q=80)
@@ -1340,101 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797222-20250325.htm)
-
----
-
-# 劉永松稱財政資助對運動員只屬輔助　冀透過運動產業化提供支撐
-
-![劉永松表示，歡迎當局調整精英體育資助制度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797218_1_20250324234351.jpg&q=90)
-  
-
-香港浸會大學運動及健康科學系教授劉永松表示，歡迎當局調整精英體育資助制度，讓桌球和網球可以繼續成為體育學院的「A級」精英項目。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797218-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797218-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797218-20250324.htm)
-
----
-
-# 一艘漁船涉走私懷疑受管制乾魚翅及電子產品　4名船員被捕
-
-![關員在船上一個暗格內檢獲部分懷疑走私電子產品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797216_1_20250324225402.jpg&q=90)
-  
-
-一艘出境漁船涉嫌走私懷疑受管制的乾魚翅、電子產品及雪茄等，約值2500萬元，海關拘捕4名涉案船員，並扣查有關漁船。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797216-20250324.htm)
-
----
-
-# 霍啟剛歡迎當局彈性處理調整精英體育資助制度
-
-![霍啟剛表示，歡迎當局今次彈性處理，調整精英體育資助制度。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797215_1_20250324225435.jpg&q=80)
-  
-
-港協暨奧委會副會長霍啟剛表示，近年香港運動員在桌球和網球國際賽事的成績非常好，歡迎當局今次彈性處理，調整精英體育資助制度，讓這兩個項目在未來兩年繼續成為體育學院的「A級」精英項目。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797215-20250324.htm)
-
----
-
-# 荃灣港安醫院手術燈墜落　院方檢查同型號四組燈確認安全運作
-
-![院方表示，事故發生後，已即時通知承辦商到場處理並展開調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797213_1_20250325094143.jpg&q=90)
-  
-
-荃灣港安醫院急診中心星期日晚發生一宗手術燈墜落事故，兩名醫護人員受輕傷，經檢查後暫無大礙 。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797213-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797213-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797213-20250324.htm)
 
 ---

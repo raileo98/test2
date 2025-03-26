@@ -1,3 +1,27 @@
+# French police arrest four over toddler's death
+
+![Gendarmes stand outside the house of the grandparents of Emile Soleil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797420_1_20250326091733.jpg&q=80)
+  
+
+A months-long investigation into the mysterious death of a French toddler took a surprise turn on Tuesday when police arrested four people including the boy's grandparents on suspicion of murder and concealment of a body.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm)
+
+---
+
 # Deals reached on Ukraine maritime and energy truce
 
 ![Ukrainian Defence Minister Rustem Umerov talks to reporters after US-Russia talks on a Ukraine ceasefire. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797401_1_20250326063126.jpg&q=90)
@@ -1412,29 +1436,5 @@ China said on Thursday it acted in accordance with the law over the execution of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm)
-
----
-
-# Legendary F1 team owner Eddie Jordan dies
-
-![Eddie Jordan had been undergoing treatment for what he had called 'quite aggressive' cancer of the bladder and prostate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796629_1_20250320172623.jpg&q=85)
-  
-
-Ex-Formula 1 team owner and media personality Eddie Jordan has died, according to his family. He was 76.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm)
 
 ---
