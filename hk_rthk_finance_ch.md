@@ -94,6 +94,8 @@
 
 # 房協安達臣道及粉嶺資助房屋共1604個單位　售價最平230萬
 
+![安達臣道「峻然」提供960個單位，實用面積介乎302呎至664呎。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797444_1_20250326121252.jpg&q=90)
+![粉嶺「聚然」提供644個單位，實用面積介乎302至616呎。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797444_2_20250326121252.jpg&q=90)
   
 
 房協推售位於觀塘安達臣道及粉嶺馬會道的資助出售房屋項目合共1604個單位。
@@ -117,7 +119,7 @@
 
 # 李家超：瓊港合作備忘錄涵蓋五個領域深度合作　體現兩地優秀疊加
 
-![李家超（左一）見證瓊港簽署合作備忘錄，深化兩地合作。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797442_1_20250326112907.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797442_1_20250326112907.jpg&q=80)
   
 
 行政長官李家超展開在海南的第二日行程，出席瓊港合作備忘錄簽約儀式。
