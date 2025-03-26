@@ -73,6 +73,7 @@
 
 # 醫療費用減免機制優化　二人家庭資產低於38.7萬可獲減免
 
+![醫管局優化醫療費用減免機制，放寬收入和資產限額。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797547_1_20250326194156.jpg&q=80)
   
 
 醫管局優化醫療費用減免機制，放寬收入和資產限額。
