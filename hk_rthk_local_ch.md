@@ -1,3 +1,49 @@
+# 紀念啟德起航香港百年航空歷史　3月30日維港舉行飛行演示
+
+  
+
+為紀念由啟德起航的香港百年航空歷史，適逢香港國際七人欖球賽首次於啟德體育園舉行，特區政府支持活動主辦機構於本月30日下午進行一次飛越維多利亞港的飛行演示，象徵香港航空史的百年傳承，並讓市民見證別具意義的歷史時刻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797478-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797478-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797478-20250326.htm)
+
+---
+
+# 盧寵茂：公私營醫療收費差距遠　不存在調整公營收費後推高私營
+
+  
+
+政府昨日公布公營醫療收費改革方案，醫務衞生局局長盧寵茂強調，調整收費並非為收回成本，又說政府沒有準確數字，在急症室調整收費後會有多少病人流向私營市場，但根據上次於2017年調整收費的經驗，有關數字約為5%，他期望今次調整收費後，急症室分流的人數會更多。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797476-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797476-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797476-20250326.htm)
+
+---
+
 # 投資推廣署上月發現一宗涉惡意勒索軟件攻擊部分電腦系統事故
 
   
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797313-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797313-20250325.htm)
-
----
-
-# 公營醫療資助率將由97%降至90%　盧寵茂冀能者及輕症共付
-
-![盧寵茂重申改革是希望做到能者共付及輕症共付，以幫助更多貧急重危疾的病人。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797312_1_20250325154124.jpg&q=80)
-  
-
-政府公布公營醫療服務收費改革方案，資助率預料由大約97%下降至5年後的90%。醫務衞生局局長盧寵茂表示，政府的承擔並無改變，相關收入同樣會投放到醫療範疇，重申改革是希望做到能者共付及輕症共付，以幫助更多貧急重危疾的病人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797312-20250325.htm)
-
----
-
-# 入境處於黃大仙美食展覽會拘捕14名懷疑當黑工內地訪客
-
-![14名懷疑非法勞工在行動中被捕。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797300_1_20250325144013.jpg&q=85)
-  
-
-入境處昨日在黃大仙一個展覽會展開反非法勞工行動，拘捕14名懷疑從事非法工作的內地訪客。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797300-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797300-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797300-20250325.htm)
 
 ---
