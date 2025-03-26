@@ -1,3 +1,27 @@
+# 鄭永年稱香港問題是發展問題　香港一定要與大灣區結合
+
+![鄭永年說，不要低估中國的開放政策，對全球貿易體系的重塑能力。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797537_1_20250326183143.jpg&q=80)
+  
+
+正在海南出席博鰲亞洲論壇的香港中文大學(深圳)公共政策學院院長、特首政策組專家組成員鄭永年，被問到香港財政情況時表示，香港的問題是發展問題，香港一定要與大灣區結合，共同發展，因為香港四大產業是服務業，服務對象主要為大灣區居民。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm)
+
+---
+
 # 人才服務辦公室小紅書官方平台　提供實用資訊及提醒分辨假消息
 
 ![孫玉菡在片段粉墨登場，介紹兩位虛擬代言人物。（社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797536_1_20250326182059.jpg&q=90)
@@ -551,7 +575,7 @@
 
 # 房協安達臣道及粉嶺資助出售房屋　首引入家有長者或初生優先選樓
 
-![「峻然」的廚廁採用不能拆除的預製組件，並引入新式設計，例如開放式廚房單位。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797468_1_20250326131410.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797468_1_20250326131410.jpg&q=80)
   
 
 房協推售觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，合共提供1604個單位，售價介乎約230萬至636萬元，約為市值7折。綠白表申請配額是四六比，並首次引入「家有長者」及「家有初生」優先選樓安排。房協長沙灣辦事處的兩個示範單位明日起開放。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm)
-
----
-
-# 金價曾升約0.8%　受避險資金支撐
-
-![現貨金高見每盎司3035.71美元，升約0.8%，較早時徘徊3020美元附近。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797397_1_20250326055910.jpg&q=90)
-  
-
-金價造好，受避險資金支撐，市場觀望美國總統特朗普下星期宣布的關稅措施，憂慮或會拖累經濟增長，進一步令貿易緊張局勢加劇，並推高通脹。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797397-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797397-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797397-20250326.htm)
 
 ---

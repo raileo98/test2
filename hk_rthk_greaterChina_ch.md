@@ -1,3 +1,27 @@
+# 鄭永年稱香港問題是發展問題　香港一定要與大灣區結合
+
+![鄭永年說，不要低估中國的開放政策，對全球貿易體系的重塑能力。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797537_1_20250326183143.jpg&q=80)
+  
+
+正在海南出席博鰲亞洲論壇的香港中文大學(深圳)公共政策學院院長、特首政策組專家組成員鄭永年，被問到香港財政情況時表示，香港的問題是發展問題，香港一定要與大灣區結合，共同發展，因為香港四大產業是服務業，服務對象主要為大灣區居民。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm)
+
+---
+
 # 人才服務辦公室小紅書官方平台　提供實用資訊及提醒分辨假消息
 
 ![孫玉菡在片段粉墨登場，介紹兩位虛擬代言人物。（社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797536_1_20250326182059.jpg&q=90)
@@ -1410,32 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797099-20250324.htm)
-
----
-
-# 內地從重從快處理「一殺多」案　政法官員稱公正司法保障被告權益
-
-![全國政協社會和法制委員會副主任、最高人民法院前副院長楊萬明說，打擊犯罪有助維護社會穩定。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797093_3_20250324093312.jpg&q=75)
-![政協委員、公安部副部長孫茂利說，老百姓之間總有不同的想法，重點是更多、更好減少糾紛。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797093_1_20250324093312.jpg&q=75)
-![全國人大代表、廣東省高級人民法院院長張海波說，要提升處理「一殺多」案的效率。（鄭詠䕒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797093_2_20250324093312.jpg&q=80)
-![全國政協委員、公安部副部長陳思源認為，「楓橋經驗」有助防範刑事案件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797093_4_20250324093312.jpg&q=75)
-  
-
-在全國兩會上，最高人民檢察院和最高人民法院的工作報告，均點名提到去年底在珠海和無錫發生的「一殺多」案件被告，指依法從重從快處理，形容震懾犯罪。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797093-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797093-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797093-20250324.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 房協推售觀塘及粉嶺項目共1604個單位　下月起兩周接受申請
+
+  
+
+房協推售觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，合共提供1604個單位，售價介乎約230萬至636萬元，約為市價7折，下月1日至14日接受申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797538-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797538-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797538-20250326.htm)
+
+---
+
+# 鄭永年稱香港問題是發展問題　香港一定要與大灣區結合
+
+![鄭永年說，不要低估中國的開放政策，對全球貿易體系的重塑能力。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797537_1_20250326183143.jpg&q=80)
+  
+
+正在海南出席博鰲亞洲論壇的香港中文大學(深圳)公共政策學院院長、特首政策組專家組成員鄭永年，被問到香港財政情況時表示，香港的問題是發展問題，香港一定要與大灣區結合，共同發展，因為香港四大產業是服務業，服務對象主要為大灣區居民。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm)
+
+---
+
 # 人才服務辦公室小紅書官方平台　提供實用資訊及提醒分辨假消息
 
 ![孫玉菡在片段粉墨登場，介紹兩位虛擬代言人物。（社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797536_1_20250326182059.jpg&q=90)
@@ -24,6 +71,7 @@
 
 # 「七欖」周五舉行　球迷村提早關閉
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797535_1_20250326183239.jpg&q=90)
   
 
 香港國際七人欖球賽，星期五起，一連三天在啟德體育園舉行，其中球迷村原本稱開放到晚上11時，改為星期五和星期六提早在晚上10時半關閉，星期日晚提早至晚上7時關閉。
@@ -116,6 +164,7 @@
 
 # 大灣區救援演練模擬鯉魚門500名居民被洪水圍困　三地人員救援
 
+![演練模擬出現水浸，村內有500名居民被洪水圍困，要緊急撤離。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797523_1_20250326183503.jpg&q=75)
   
 
 本港消防處聯同廣東省消防救援總隊和澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。下午的演練，模擬鯉魚門沿海低窪地區因風災而出現水浸，並正值超級天文大潮，村內有500名居民被洪水圍困，要緊急撤離。
@@ -689,7 +738,7 @@
 
 # 房協安達臣道及粉嶺資助出售房屋　首引入家有長者或初生優先選樓
 
-![「峻然」的廚廁採用不能拆除的預製組件，並引入新式設計，例如開放式廚房單位。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797468_1_20250326131410.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797468_1_20250326131410.jpg&q=80)
   
 
 房協推售觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，合共提供1604個單位，售價介乎約230萬至636萬元，約為市值7折。綠白表申請配額是四六比，並首次引入「家有長者」及「家有初生」優先選樓安排。房協長沙灣辦事處的兩個示範單位明日起開放。
@@ -1380,54 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797376-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797376-20250325.htm)
-
----
-
-# 去年31名學生涉嚴重毒品案被捕　蕭澤頤稱須教育傳承禁毒文化
-
-![蕭澤頤說，加強執法的同時，必須透過教育傳承禁毒文化。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797375_1_20250325221408.jpg&q=85)
-![蕭澤頤說，同學在劇場中互動參與，體現禁毒文化的傳承。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797375_2_20250325221408.jpg&q=35)
-  
-
-警務處處長蕭澤頤說，去年31名學生涉及嚴重毒品案被捕，涉及太空油毒品被捕的最年輕僅12歲，雖然被捕人數是2021年來最少，但形容，青少年毒品案「一宗都嫌多」，在加強執法的同時，必須透過教育傳承禁毒文化，貫徹「由小做、持續做、一齊做」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797375-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797375-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797375-20250325.htm)
-
----
-
-# 政府「裕澤香江」高峰晚宴　逾130位家辦決策人和家族成員出席
-
-![政府今晚舉辦「裕澤香江」高峰晚宴。陳國基表示，香港是一個「超級聯繫人」，是一個讓家族辦公室和家族蓬勃發展的活力之都。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797373_1_20250325220033.jpg&q=90)
-  
-
-第三屆「裕澤香江」高峰論壇明日舉行，政府晚上舉辦高峰晚宴，逾130位來自內地、亞洲、歐洲、美洲、中東的家族辦公室決策人和家族成員到港出席。當局指，高峰晚宴再次印證香港作為全球頂級家族辦公室樞紐的地位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797373-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797373-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797373-20250325.htm)
 
 ---
