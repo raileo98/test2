@@ -1,3 +1,50 @@
+# 房協安達臣道及粉嶺資助出售房屋　首引入家有長者或初生優先選樓
+
+  
+
+房協推售觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，合共提供1604個單位，售價介乎約230萬至636萬元，約為市值7折。綠白表申請配額是四六比，並首次引入「家有長者」及「家有初生」優先選樓安排。房協長沙灣辦事處的兩個示範單位明日起開放。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797468-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797468-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797468-20250326.htm)
+
+---
+
+# 佐丹奴去年盈利按年跌逾37%
+
+![佐丹奴去年盈利跌37.4%，受非經常開支、應佔南韓合營公司溢利大幅減少及大中華表現欠佳影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797467_1_20250326130231.jpg&q=90)
+  
+
+佐丹奴去年盈利2.16億元，按年跌37.4%，主要受非經常開支、應佔南韓合營公司溢利大幅減少及大中華表現欠佳影響；公司5年轉型計劃相關經營費用亦增加。末期息每股6仙，連中期息全年派14仙，按年分別跌55.6%和54.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797467-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797467-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797467-20250326.htm)
+
+---
+
 # 李家超：瓊港雙方合力開拓面向東盟區域性大市場
 
   
@@ -71,6 +118,7 @@
 
 # 丘應樺下午啓程赴北京訪問　將拜訪商務部及外交部
 
+![丘應樺下午啓程前往北京訪問。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797457_1_20250326131102.jpg&q=90)
   
 
 商務及經濟發展局局長丘應樺下午啓程前往北京訪問。
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797331-20250325.htm)
-
----
-
-# 藥明生物去年少賺逾1%
-
-![藥明生物去年盈利約33.6億元人民幣，按年跌1.3%。不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797327_1_20250325170239.jpg&q=90)
-  
-
-藥明生物去年盈利約33.6億元人民幣，按年跌1.3%。不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797327-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797327-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797327-20250325.htm)
-
----
-
-# 發改委前副主任彭森：中國經濟步入穩定健康可持續發展軌道
-
-![彭森指改革開放仍然是確定中國前途命運的關鍵一招，也是高質量發展最重要的推動力量。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797336_1_20250326104417.jpg&q=80)
-  
-
-中國經濟體制改革研究會會長、國家發改委前副主任彭森說，隨著政策落實，中國經濟運行出現穩中有進的局面 ，去年中國經濟實現5%增長 ，今年首兩個月經濟平穩開局，兩會一系列利好政策推出，再加上去年7月二十屆三中全會的一系列改革政策的加持，中國經濟目前已經重新步入穩定健康，可持續發展軌道，中國經濟穩定回升態勢已經確立。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm)
 
 ---

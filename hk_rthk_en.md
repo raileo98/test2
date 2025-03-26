@@ -1,3 +1,27 @@
+# Malls set to get more room for business
+
+![Bernadette Linn said officials will soon come up with measures to boost economic activities at shopping malls. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797456_1_20250326120826.jpg&q=80)
+  
+
+Secretary for Development Bernadette Linn said on Wednesday officials will soon come up with measures to allow shopping malls to host more business activities within their public open spaces.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm)
+
+---
+
 # New A&E fee to bring timely treatment in urgent cases
 
 ![Lo Chung-mau says the new fee of up to HK$400 for A&E treatments in public hospitals is reasonable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797455_1_20250326115900.jpg&q=80)
@@ -1416,30 +1440,5 @@ US and Russian officials opened talks in Saudi Arabia on Monday on a partial cea
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm)
-
----
-
-# S Korea deploys choppers in force to fight bushfires
-
-![Unramsa temple in Uiseong, Gyeongbuk, is one of the buildings destroyed by a wildfire on Sunday.
-Photo: Yonhap/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797163_1_20250324162214.jpg&q=85)
-  
-
-South Korean authorities said on Monday they would deploy dozens of helicopters and thousands of firefighters and soldiers as they struggle to control multiple wildfires in the southeast, which have been burning for days.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm)
 
 ---

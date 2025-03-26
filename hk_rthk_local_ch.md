@@ -1,3 +1,72 @@
+# 工聯會：需向違規「簡樸房」實施阻嚇性罰則
+
+  
+
+立法會舉行前廳交流會，討論簡樸房規管等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797471-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797471-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797471-20250326.htm)
+
+---
+
+# 房協安達臣道及粉嶺資助出售房屋　首引入家有長者或初生優先選樓
+
+  
+
+房協推售觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，合共提供1604個單位，售價介乎約230萬至636萬元，約為市值7折。綠白表申請配額是四六比，並首次引入「家有長者」及「家有初生」優先選樓安排。房協長沙灣辦事處的兩個示範單位明日起開放。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797468-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797468-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797468-20250326.htm)
+
+---
+
+# 麥美娟：各項青年交流實習計劃申請人數按年增加一倍
+
+  
+
+民政及青年事務局局長麥美娟表示，現任470名區議員很快投入到其角色，一些很困難的任務，例如協助法團處理紛爭等，他們亦願意接受挑戰去做，在社區中能作為民政當局的好夥伴，包括協助接觸市民。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797466-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797466-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797466-20250326.htm)
+
+---
+
 # 蔡若蓮率代表團出席冰島雷克雅未克教學專業國際高峰會
 
   
@@ -140,6 +209,7 @@
 
 # 丘應樺下午啓程赴北京訪問　將拜訪商務部及外交部
 
+![丘應樺下午啓程前往北京訪問。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797457_1_20250326131102.jpg&q=90)
   
 
 商務及經濟發展局局長丘應樺下午啓程前往北京訪問。
@@ -1360,77 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797298-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797298-20250325.htm)
-
----
-
-# 盧寵茂：不應將急症室當普通科門診　非跟隨通脹調整而是改革
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797296_1_20250325132054.jpg&q=80)
-  
-
-政府公布公營醫療服務收費改革方案，急症室收費將由現時180元增至400元，第一類危殆及第二類危急病人可獲豁免。被問到急症室收費與私家醫生看齊，會否造成私家醫生加價。醫管局行政總裁高拔陞預料急症室加費後，第四、五類非危急病人一定會減少，讓急症服務更有能力照顧必須的病人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797296-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797296-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797296-20250325.htm)
-
----
-
-# 港股下午初段跌逾500點
-
-![恒生指數較早時報23378點，跌526點，跌幅2.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797295_1_20250325130524.jpg&q=15)
-  
-
-港股下午初段繼續捱沽，恒生指數較早時報23378點，跌526點，跌幅2.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797295-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797295-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797295-20250325.htm)
-
----
-
-# 李家超抵達海南海口準備出席博鰲論壇　下午致辭分享香港發展機遇
-
-![李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797294_1_20250325131305.jpg&q=90)
-  
-
-行政長官李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Malls set to get more room for business
+
+![Bernadette Linn said officials will soon come up with measures to boost economic activities at shopping malls. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797456_1_20250326120826.jpg&q=80)
+  
+
+Secretary for Development Bernadette Linn said on Wednesday officials will soon come up with measures to allow shopping malls to host more business activities within their public open spaces.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm)
+
+---
+
 # New A&E fee to bring timely treatment in urgent cases
 
 ![Lo Chung-mau says the new fee of up to HK$400 for A&E treatments in public hospitals is reasonable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797455_1_20250326115900.jpg&q=80)
@@ -1422,29 +1446,5 @@ The city's de facto central bank has cautioned that local borrowing costs will r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796590-20250320.htm)
-
----
-
-# Complete eHealth database 'key for treating patients'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796581_1_20250320122653.jpg&q=80)
-  
-
-Healthcare officials said on Thursday that patients should not get to pick the medical record to be stored on a government-run electronic platform.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796581-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796581-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796581-20250320.htm)
 
 ---
