@@ -1,3 +1,26 @@
+# 劉兆佳：引入履職監察制度可確保區議員滿足當局要求
+
+  
+
+民政及青年事務局局長麥美娟說，470名區議員已經如期提交工作報告，認為區議員過去一年很落力履職盡責。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797546-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797546-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797546-20250326.htm)
+
+---
+
 # 瓊港簽備忘錄深化合作　有當地工作港人認為可帶來新機遇
 
 ![李家超下午與在當地工作的香港青年暢談，他們都認為備忘錄帶來不同的新機遇。（社交專頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797545_1_20250326185907.jpg&q=90)
@@ -49,6 +72,8 @@
 
 # 消防處指粵港澳聯合演練成功測試大灣區緊急動員及協調機制
 
+![參與今次聯合演練的包括香港跨境救援隊指揮官黃鎮業（右三）、廣東省消防救援總隊副總隊長朱國營、澳門消防局副局長林俊生，其他代表在設於鯉魚門三家村的前線指揮中心內進行策略部署。（消防處提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797543_1_20250326190800.jpg&q=80)
+![香港消防處聯同廣東省消防救援總隊及澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練，模擬香港遇到極端天氣，全港多處發生大型緊急事故。（消防處提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797543_2_20250326190800.jpg&q=75)
   
 
 香港消防處聯同廣東省消防救援總隊及澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練，模擬香港遇到極端天氣，全港多處發生大型緊急事故，本港的救援資源變得緊張，要向粵澳提出支援請求。
@@ -168,7 +193,7 @@
 
 # 房協推售觀塘及粉嶺項目共1604個單位　下月起兩周接受申請
 
-![房協項目「峻然」的間格。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797538_1_20250326185611.jpg&q=1)
+![房協項目「峻然」的間格。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797538_1_20250326185611.jpg&q=90)
 ![房協推售觀塘及粉嶺項目共1604個單位　下月起兩周接受申請](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797538_2_20250326185606.jpg&q=90)
   
 
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797424-20250326.htm)
-
----
-
-# 前廳交流會由黃偉綸帶領官員出席　討論降低建築成本及簡樸房規管
-
-![立法會舉行前廳交流會，由財政司副司長黃偉綸帶領多名官員出席。（陳樂謙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797418_1_20250326102341.jpg&q=90)
-  
-
-立法會舉行前廳交流會，由財政司副司長黃偉綸帶領多名官員出席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm)
 
 ---
