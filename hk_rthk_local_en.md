@@ -1,3 +1,27 @@
+# Lights out for lamp model after hospital mishap
+
+![The Hospital Authority said it would not resume the use of the light in question until thorough checks are completed. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797428_1_20250326094629.jpg&q=90)
+  
+
+The Hospital Authority has suspended the use of about 200 examination lights of the same model as that involved in a recent incident that saw a surgical lamp fall at Hong Kong Adventist Hospital in Tsuen Wan.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm)
+
+---
+
 # HK open Asian Cup final round qualifier with draw
 
 ![The goalless draw ended the SAR's record seven-match winning run. Image courtesy of Hong Kong Football Association](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797379_2_20250326053556.jpg&q=90)
@@ -1422,29 +1446,5 @@ Chief Executive John Lee on Thursday said the low-altitude economy will be a new
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm)
-
----
-
-# Temporary e-permit to assist HKers on the mainland
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796562_1_20250320122843.jpg&q=90)
-  
-
-Hongkongers who are travelling and living in mainland China can now apply for a temporary digital permit to travel by air and train within mainland cities if they lose, damage, or forget their permit.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm)
 
 ---

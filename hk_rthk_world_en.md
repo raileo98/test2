@@ -1,6 +1,6 @@
 # French police arrest four over toddler's death
 
-![Gendarmes stand outside the house of the grandparents of Emile Soleil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797420_1_20250326091733.jpg&q=80)
+![Authorities stand outside the house of the grandparents of Emile Soleil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797420_1_20250326091733.jpg&q=80)
   
 
 A months-long investigation into the mysterious death of a French toddler took a surprise turn on Tuesday when police arrested four people including the boy's grandparents on suspicion of murder and concealment of a body.

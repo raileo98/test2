@@ -1,3 +1,27 @@
+# Hong Kong stocks rally at opening
+
+![The Hang Seng Index opened half a percentage point higher. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797435_1_20250326103245.jpg&q=75)
+  
+
+The Hang Seng Index rose 116.06 points or 0.5 percent to open at 23,460.31 points on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm)
+
+---
+
 # US stocks make minor gains on tariff hopes
 
 ![Tuesday's market gains came despite US consumer confidence falling for a fourth straight month in March. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797399_1_20250326062321.jpg&q=90)
@@ -1413,29 +1437,5 @@ Japan's economy expanded in the October-December quarter at a slower pace than i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm)
-
----
-
-# Wall Street sells off on US recession fears
-
-![The main three US indices fell between 2 percent and 4 percent. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795182_1_20250311061228.jpg&q=85)
-  
-
-Wall Street stocks fell sharply on Monday as investors fretted that uncertainty over President Donald Trump's tariff policy could tip the world's biggest economy into a recession.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795182-20250311.htm)
 
 ---

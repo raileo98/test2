@@ -1,3 +1,51 @@
+# Lights out for lamp model after hospital mishap
+
+![The Hospital Authority said it would not resume the use of the light in question until thorough checks are completed. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797428_1_20250326094629.jpg&q=90)
+  
+
+The Hospital Authority has suspended the use of about 200 examination lights of the same model as that involved in a recent incident that saw a surgical lamp fall at Hong Kong Adventist Hospital in Tsuen Wan.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm)
+
+---
+
+# Hong Kong stocks rally at opening
+
+![The Hang Seng Index opened half a percentage point higher. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797435_1_20250326103245.jpg&q=75)
+  
+
+The Hang Seng Index rose 116.06 points or 0.5 percent to open at 23,460.31 points on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm)
+
+---
+
 # Djokovic marches into Miami quarters; Ruud exits
 
 ![Novak Djokovic breezed past Italy's Lorenzo Musetti to book his spot in the next round in Miami. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797434_1_20250326101120.jpg&q=90)
@@ -24,7 +72,7 @@ Novak Djokovic cruised into the quarter-finals of the Miami Open with a 6-2, 6-2
 
 # French police arrest four over toddler's death
 
-![Gendarmes stand outside the house of the grandparents of Emile Soleil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797420_1_20250326091733.jpg&q=80)
+![Authorities stand outside the house of the grandparents of Emile Soleil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797420_1_20250326091733.jpg&q=80)
   
 
 A months-long investigation into the mysterious death of a French toddler took a surprise turn on Tuesday when police arrested four people including the boy's grandparents on suspicion of murder and concealment of a body.
@@ -1393,53 +1441,5 @@ Former Fifa president Sepp Blatter and France football great Michel Platini will
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm)
-
----
-
-# Venezuelans go home as US deportation flights resume
-
-![An aircraft carrying Venezuelan migrants, who were deported from the United States, lands in Caracas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797145_1_20250324144241.jpg&q=90)
-  
-
-Venezuela on Monday received nearly 200 citizens deported from the United States via Honduras, as US President Donald Trump cracks down on undocumented foreigners.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm)
-
----
-
-# Subsidy level for public healthcare 'unsustainable'
-
-![Public Doctors' Association chairman Christopher Lung is calling for clear guidelines for frontline medics to handle future fee-related arguments with patients. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797138_2_20250324131612.jpg&q=80)
-  
-
-There's no way Hong Kong's public healthcare system will be sustainable in the long term if the government continues to subsidise nearly all of the expenses, according to an adviser tasked with reforming the body managing the hospitals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797138-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797138-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797138-20250324.htm)
 
 ---
