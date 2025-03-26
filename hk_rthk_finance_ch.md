@@ -1,3 +1,51 @@
+# 中銀香港料市場利率繼續下行　將增加非利息業務應對息差壓力
+
+![中銀香港劉承鋼預計，市場利率將呈下行趨勢，未來將增加非利息業務貢獻，以減輕對淨息差的壓力。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797567_1_20250326211627.jpg&q=90)
+  
+
+中銀香港去年淨息差1.46厘，按年收窄7個基點；經調整淨息差1.64厘，擴大1個基點。副總裁兼財務總監劉承鋼表示，現時在港股較熾熱，境外資金持續流入，即使美國聯儲局減息步伐仍然不確定，但預計市場利率將呈下行趨勢，未來將增加非利息業務貢獻，以減輕對淨息差的壓力，亦會保持淨利息收入平穩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797567-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797567-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797567-20250326.htm)
+
+---
+
+# 中銀香港：本港地產組合風險受壓　但資產質量可控
+
+![中銀香港徐海峰：目前本港地產組合風險受壓，但整體資產質量可控。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797566_1_20250326211146.jpg&q=90)
+  
+
+中銀香港截至去年底，貸款總減值準備149.6億元，按年升1.4%。副總裁兼風險總監徐海峰表示，去年香港房地產市場面對高息環境，特別是商業房地產市場持續受壓，部份規模較小的房企流動性持續緊張，目前本港地產組合風險受壓，但整體資產質量可控。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797566-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797566-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797566-20250326.htm)
+
+---
+
 # 蜜雪集團去年盈利升逾41%　內地門店增加8350家
 
 ![蜜雪集團去年盈利近44.4億元人民幣，按年增長逾41%。不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797562_1_20250326205416.jpg&q=85)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797416-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797416-20250326.htm)
-
----
-
-# 韓股初段約0.3%
-
-![首爾綜合指數較早時報2623點，升7點，升幅0.28%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797415_1_20250326083917.jpg&q=90)
-  
-
-南韓股市初段上升，首爾綜合指數較早時報2623點，升7點，升幅0.28%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797415-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797415-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797415-20250326.htm)
-
----
-
-# 日股初段升逾200點　重上38000點
-
-![日經指數重上38000點水平，較早時報38029點，升248點，升幅0.66%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797414_1_20250326083608.jpg&q=75)
-  
-
-日股初段造好，重上38000點水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797414-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797414-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797414-20250326.htm)
 
 ---
