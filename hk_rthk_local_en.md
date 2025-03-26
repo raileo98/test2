@@ -1,3 +1,27 @@
+# Online applications set for healthcare bills waivers
+
+![The Hospital Authority’s chief manager of allied health, Priscilla Poon, says there are ways to ensure the expanded fee waiver mechanism will not overwhelm medical social workers. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797528_1_20250326180228.jpg&q=90)
+  
+
+People who have financial difficulties would be able to apply online for waivers of healthcare charges in a few months' time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797528-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797528-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797528-20250326.htm)
+
+---
+
 # Investment migrant scheme could lure at least HK$27b
 
 ![Christopher Hui says more than 900 capital investment migrant applications have been received. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797505_1_20250326155229.jpg&q=85)
@@ -1419,29 +1443,5 @@ Cathay Pacific said on Friday it cancelled two flights from Hong Kong to London,
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm)
-
----
-
-# HK$3bn scheme to support academic research: CE
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796766_1_20250321125749.jpg&q=80)
-  
-
-Chief Executive John Lee on Friday said the city will soon launch a HK$3 billion scheme to support local academic and scientific research, as authorities ramp up efforts to transition Hong Kong into a global innovation and technology centre.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Online applications set for healthcare bills waivers
+
+![The Hospital Authority’s chief manager of allied health, Priscilla Poon, says there are ways to ensure the expanded fee waiver mechanism will not overwhelm medical social workers. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797528_1_20250326180228.jpg&q=90)
+  
+
+People who have financial difficulties would be able to apply online for waivers of healthcare charges in a few months' time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797528-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797528-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797528-20250326.htm)
+
+---
+
 # New Zealand aim for HK Sevens three-peat
 
 ![Rugby teams from around the world are preparing for this year's Hong Kong Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797526_3_20250326175525.jpg&q=75)
@@ -1418,29 +1442,5 @@ South Korean auto giant Hyundai on Monday announced a multi-billion-dollar inves
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797250-20250325.htm)
-
----
-
-# 'Trump's fees on Chinese ships will backfire'
-
-![A container ship sails beneath the Golden Gate Bridge as it makes its way into port in San Francisco. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797249_1_20250325083906.jpg&q=90)
-  
-
-President Donald Trump's plan to revitalise the US shipbuilding industry is likely to backfire because it relies on proposed fees on China-linked vessels that will hurt domestic ship operators, seaports, exporters and jobs, industry executives said at US Trade Representative (USTR) hearings on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm)
 
 ---

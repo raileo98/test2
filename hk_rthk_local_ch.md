@@ -1,3 +1,26 @@
+# 張舉能率高級法官代表團結束在澳洲訪問　期間出席司法學術研討會
+
+  
+
+終審法院首席法官張舉能星期一率領高級法官代表團在澳洲坎培拉出席亞太區司法學術研討會，今日結束在澳洲的訪問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797534-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797534-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797534-20250326.htm)
+
+---
+
 # 廉署接待斯里蘭卡及贊比亞反貪機構高層代表團　分享香港反貪策略
 
   
@@ -46,6 +69,7 @@
 
 # 大灣區救援演練模擬鯉魚門500名居民被洪水圍困　三地人員救援
 
+![本港消防處聯同廣東省消防救援總隊和澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。(任浩鋒攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797523_1_20250326181030.jpg&q=80)
   
 
 本港消防處聯同廣東省消防救援總隊和澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。下午的演練，模擬鯉魚門沿海低窪地區因風災而出現水浸，並正值超級天文大潮，村內有500名居民被洪水圍困，要緊急撤離。
@@ -1407,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm)
-
----
-
-# 政府積極籌備成立香港海運港口發展局　期待與業界緊密合作
-
-![香港海運港口局昨天舉行最後一次會議。（運輸及物流局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797362_1_20250325211116.jpg&q=90)
-  
-
-政府正積極籌備在今年年中成立新的「香港海運港口發展局」，運輸及物流局期待在新架構下繼續與業界緊密合作，共同以求新求變的精神，為香港航運業創造美好篇章。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm)
 
 ---
