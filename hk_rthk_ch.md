@@ -1,3 +1,75 @@
+# 男子涉網上違法銷售含有未標示受管制藥物成分濕疹外用產品
+
+![衞生署呼籲市民如懷疑已購買上述產品，應立即停止使用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797570_1_20250326213049.jpg&q=80)
+  
+
+一名男子涉嫌在網上違法銷售治療濕疹的外用產品被捕，有關產品沒有任何標籤，懷疑屬未經註冊藥劑製品，衞生署繼續調查，呼籲市民如懷疑已購買上述產品，應立即停止使用，如有疑問或用後感到不適，應徵詢醫護人員的意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm)
+
+---
+
+# 在岸人民幣微升5點子收市　結束5連跌
+
+![在岸人民幣收報7.2635兌1美元，較昨日收市微升5點子，結束5連跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797569_1_20250326212925.jpg&q=80)
+  
+
+在岸人民幣收報7.2635兌1美元，較昨日收市微升5點子，結束5連跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm)
+
+---
+
+# 歐盟發布應急戰略應對新興威脅　包括鼓勵公眾儲72小時避難物資
+
+![馮德萊恩在公告中說，新的現實情況要求歐洲達到新的應急準備水平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797568_1_20250326212752.jpg&q=90)
+  
+
+歐盟委員會發布「應急準備歐盟戰略」，內容包括鼓勵公眾在緊急情況下，保持至少72小時的基本物資儲備，以及制定醫院、學校、交通和電信等關鍵服務的最低「應急準備」標準，目的是支持歐盟成員國，並增強歐洲預防和應對新興威脅的能力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm)
+
+---
+
 # 中銀香港料市場利率繼續下行　將增加非利息業務應對息差壓力
 
 ![中銀香港劉承鋼預計，市場利率將呈下行趨勢，未來將增加非利息業務貢獻，以減輕對淨息差的壓力。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797567_1_20250326211627.jpg&q=90)
@@ -27,7 +99,7 @@
 ![中銀香港徐海峰：目前本港地產組合風險受壓，但整體資產質量可控。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797566_1_20250326211146.jpg&q=90)
   
 
-中銀香港截至去年底，貸款總減值準備149.6億元，按年升1.4%。副總裁兼風險總監徐海峰表示，去年香港房地產市場面對高息環境，特別是商業房地產市場持續受壓，部份規模較小的房企流動性持續緊張，目前本港地產組合風險受壓，但整體資產質量可控。
+中銀香港截至去年底，貸款總減值準備149.6億元，按年升1.4%。副總裁兼風險總監徐海峰表示，去年香港房地產市場面對高息環境，特別是商業房地產市場持續受壓，部份規模較小的房企流動性持續緊張，但目前整體資產質素可控。
 
   
 
@@ -216,6 +288,7 @@
 
 # 醫管局料醫療費用減免優化申請流程　受惠人數將增至140萬
 
+![醫管局預計放寬後申請個案數目將上升，但方案同時減省醫務社工處理文件的時間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797558_1_20250326212153.jpg&q=90)
   
 
 政府優化醫療費用減免機制，預計受惠人數由30萬增至140萬。醫管局總行政經理潘綺紅說，日後申請流程將優化，但難以預計未來申請減免的人數，將視乎推行情況，再探討調整人手和安排。

@@ -1,3 +1,27 @@
+# 在岸人民幣微升5點子收市　結束5連跌
+
+![在岸人民幣收報7.2635兌1美元，較昨日收市微升5點子，結束5連跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797569_1_20250326212925.jpg&q=80)
+  
+
+在岸人民幣收報7.2635兌1美元，較昨日收市微升5點子，結束5連跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm)
+
+---
+
 # 中銀香港料市場利率繼續下行　將增加非利息業務應對息差壓力
 
 ![中銀香港劉承鋼預計，市場利率將呈下行趨勢，未來將增加非利息業務貢獻，以減輕對淨息差的壓力。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797567_1_20250326211627.jpg&q=90)
@@ -27,7 +51,7 @@
 ![中銀香港徐海峰：目前本港地產組合風險受壓，但整體資產質量可控。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797566_1_20250326211146.jpg&q=90)
   
 
-中銀香港截至去年底，貸款總減值準備149.6億元，按年升1.4%。副總裁兼風險總監徐海峰表示，去年香港房地產市場面對高息環境，特別是商業房地產市場持續受壓，部份規模較小的房企流動性持續緊張，目前本港地產組合風險受壓，但整體資產質量可控。
+中銀香港截至去年底，貸款總減值準備149.6億元，按年升1.4%。副總裁兼風險總監徐海峰表示，去年香港房地產市場面對高息環境，特別是商業房地產市場持續受壓，部份規模較小的房企流動性持續緊張，但目前整體資產質素可控。
 
   
 
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm)
-
----
-
-# 台股初段升逾百點
-
-![加權指數較早時報22381點，升108點，升幅0.49%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797416_1_20250326090347.jpg&q=90)
-  
-
-台股初段靠穩，加權指數較早時報22381點，升108點，升幅0.49%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797416-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797416-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797416-20250326.htm)
 
 ---

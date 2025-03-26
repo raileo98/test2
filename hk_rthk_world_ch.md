@@ -1,3 +1,27 @@
+# 歐盟發布應急戰略應對新興威脅　包括鼓勵公眾儲72小時避難物資
+
+![馮德萊恩在公告中說，新的現實情況要求歐洲達到新的應急準備水平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797568_1_20250326212752.jpg&q=90)
+  
+
+歐盟委員會發布「應急準備歐盟戰略」，內容包括鼓勵公眾在緊急情況下，保持至少72小時的基本物資儲備，以及制定醫院、學校、交通和電信等關鍵服務的最低「應急準備」標準，目的是支持歐盟成員國，並增強歐洲預防和應對新興威脅的能力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm)
+
+---
+
 # 以色列議會批准2025年度國家預算　其中國防預算創新高
 
 ![分析人士認為，預算案通過表明以色列執政聯盟繼續獲得議會多數支持，內塔尼亞胡政府得以繼續執政。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797563_1_20250326210135.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm)
-
----
-
-# 外交部：中美關係保持穩定健康可持續發展符合兩國人民共同利益
-
-![郭嘉昆表示，中方始終認為中美關係保持穩定、健康可持續發展，符合兩國人民共同利益。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797181_1_20250324173329.jpg&q=90)
-  
-
-在北京，外交部回應有關中方是否將與美方進行對話的提問，發言人郭嘉昆表示，中方始終認為中美關係保持穩定、健康可持續發展，符合兩國人民共同利益及國際社會普遍期待。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797181-20250324.htm)
 
 ---

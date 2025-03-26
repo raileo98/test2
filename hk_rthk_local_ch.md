@@ -1,3 +1,27 @@
+# 男子涉網上違法銷售含有未標示受管制藥物成分濕疹外用產品
+
+![衞生署呼籲市民如懷疑已購買上述產品，應立即停止使用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797570_1_20250326213049.jpg&q=80)
+  
+
+一名男子涉嫌在網上違法銷售治療濕疹的外用產品被捕，有關產品沒有任何標籤，懷疑屬未經註冊藥劑製品，衞生署繼續調查，呼籲市民如懷疑已購買上述產品，應立即停止使用，如有疑問或用後感到不適，應徵詢醫護人員的意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm)
+
+---
+
 # 女子疑進食自行採摘野生菇類致食物中毒　留院觀察情況穩定
 
 ![中心表示，由於難以辨別菇類是否適宜食用，提醒市民切勿採摘野生菇類進食。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797565_1_20250326210235.jpg&q=90)
@@ -24,6 +48,7 @@
 
 # 醫管局料醫療費用減免優化申請流程　受惠人數將增至140萬
 
+![醫管局預計放寬後申請個案數目將上升，但方案同時減省醫務社工處理文件的時間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797558_1_20250326212153.jpg&q=90)
   
 
 政府優化醫療費用減免機制，預計受惠人數由30萬增至140萬。醫管局總行政經理潘綺紅說，日後申請流程將優化，但難以預計未來申請減免的人數，將視乎推行情況，再探討調整人手和安排。
