@@ -1,3 +1,27 @@
+# 女子疑進食自行採摘野生菇類致食物中毒　留院觀察情況穩定
+
+![中心表示，由於難以辨別菇類是否適宜食用，提醒市民切勿採摘野生菇類進食。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797565_1_20250326210235.jpg&q=90)
+  
+
+一名女子懷疑進食自行採摘野生菇類引致食物中毒，目前情況穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797565-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797565-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797565-20250326.htm)
+
+---
+
 # 醫管局料醫療費用減免優化申請流程　受惠人數將增至140萬
 
   

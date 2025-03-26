@@ -1,3 +1,75 @@
+# 女子疑進食自行採摘野生菇類致食物中毒　留院觀察情況穩定
+
+![中心表示，由於難以辨別菇類是否適宜食用，提醒市民切勿採摘野生菇類進食。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797565_1_20250326210235.jpg&q=90)
+  
+
+一名女子懷疑進食自行採摘野生菇類引致食物中毒，目前情況穩定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797565-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797565-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797565-20250326.htm)
+
+---
+
+# 蜜雪集團去年盈利升逾41%　內地門店增加8350家
+
+![蜜雪集團去年盈利近44.4億元人民幣，按年增長逾41%。不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797562_1_20250326205416.jpg&q=85)
+  
+
+蜜雪集團公布，去年盈利近44.4億元人民幣，按年增長逾41%。不派末期息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797562-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797562-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797562-20250326.htm)
+
+---
+
+# 美國2月耐用品訂單出乎意料按月增長0.9%
+
+![美國2月耐用品訂單意外按月增長0.9%，市場原先預期會下跌1%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797560_1_20250326203953.jpg&q=90)
+  
+
+美國2月耐用品訂單出乎意料按月增長0.9%，市場原先預期會下跌1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797560-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797560-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797560-20250326.htm)
+
+---
+
 # 中信銀行去年多賺2.3%
 
 ![中信銀行去年盈利約685.8億元人民幣，按年升2.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797555_1_20250326200434.jpg&q=90)
@@ -24,6 +96,7 @@
 
 # 以色列議會批准2025年度國家預算　其中國防預算創新高
 
+![分析人士認為，預算案通過表明以色列執政聯盟繼續獲得議會多數支持，內塔尼亞胡政府得以繼續執政。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797563_1_20250326210135.jpg&q=90)
   
 
 以色列議會批准2025年度國家預算，避免議會自動解散並觸發提前選舉，其中國防預算創新高。

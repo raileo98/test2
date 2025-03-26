@@ -1,3 +1,51 @@
+# 蜜雪集團去年盈利升逾41%　內地門店增加8350家
+
+![蜜雪集團去年盈利近44.4億元人民幣，按年增長逾41%。不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797562_1_20250326205416.jpg&q=85)
+  
+
+蜜雪集團公布，去年盈利近44.4億元人民幣，按年增長逾41%。不派末期息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797562-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797562-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797562-20250326.htm)
+
+---
+
+# 美國2月耐用品訂單出乎意料按月增長0.9%
+
+![美國2月耐用品訂單意外按月增長0.9%，市場原先預期會下跌1%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797560_1_20250326203953.jpg&q=90)
+  
+
+美國2月耐用品訂單出乎意料按月增長0.9%，市場原先預期會下跌1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797560-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797560-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797560-20250326.htm)
+
+---
+
 # 中信銀行去年多賺2.3%
 
 ![中信銀行去年盈利約685.8億元人民幣，按年升2.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797555_1_20250326200434.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797414-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797414-20250326.htm)
-
----
-
-# 華潤萬象生活去年多賺約24%　再度派發特別股息
-
-![華潤萬象生活派末期息每股0.643元人民幣，另派特別股息0.614元，是繼中期業績後再度派特別股息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797412_1_20250326075549.jpg&q=80)
-  
-
-華潤萬象生活去年盈利36.3億元人民幣，按年升約24%。撇除投資物業重估、無形資產相關影響，核心盈利35.1億元，按年升20%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797412-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797412-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797412-20250326.htm)
-
----
-
-# 華潤置地去年盈利跌約19%　末期息減少約10%
-
-![華潤置地去年盈利255.8億元人民幣，按年跌18.5%。核心盈利254.2億元，按年跌8.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797411_1_20250326074341.jpg&q=90)
-  
-
-華潤置地去年盈利255.8億元人民幣，按年跌18.5%。撇除投資物業重估影響，核心盈利254.2億元，按年跌8.5%，受到行業整體毛利率持續探底影響。當中，經常性業務核心盈利103.4億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797411-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797411-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797411-20250326.htm)
 
 ---
