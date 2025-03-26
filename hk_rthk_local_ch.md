@@ -1,3 +1,26 @@
+# 19歲男學生被捕　涉嫌與至少10宗假冒官員電話騙案有關
+
+  
+
+一名19歲男學生被捕，他涉嫌與至少10宗假冒官員電話騙案有關，警方表示，被捕人涉嫌冒充香港警察，指示案中被騙的事主簽署保密協定，涉案金額超過300萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797515-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797515-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797515-20250326.htm)
+
+---
+
 # 立法會三讀通過法院遙距聆訊條例草案　簡短法律程序優先採用
 
   
@@ -23,6 +46,7 @@
 
 # 區議員柯創盛：提交工作報告讓議員有組織詳列工作　檢視有無遺漏
 
+![柯創盛表示，工作報告是日常工作範疇，包括接觸市民、與政府部門互動、舉辦活動等，形容準備報告時得心應手。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797513_1_20250326164649.jpg&q=90)
   
 
 第七屆區議會運作超過1年，根據區議員履職監察制度指引，區議員需要每年向區議會主席提交工作報告，闡述該年度的工作重點。
@@ -70,6 +94,7 @@
 
 # 麥美娟：市民本月31起可向各區民政處申請查閱區議員工作報告
 
+![麥美娟表示，470名議員已經如期提交報告，市民在本月31日可向各區民政處登記申請查閲報告。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797510_1_20250326164547.jpg&q=80)
   
 
 民政及青年事務局局長麥美娟說，新一屆區議會引入履職監察制度，區議員需要遵守有關指引各項要求，包括每年要提交工作報告，470名議員已經如期提交報告，市民在本月31日可向各區民政處登記申請查閲報告。
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797347-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797347-20250325.htm)
-
----
-
-# 每名病人每年最多支付1萬元料7萬人受惠　並放寬費用減免資格
-
-![改革方案增設每人每年1萬元收費上限。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797346_1_20250325184856.jpg&q=80)
-  
-
-公營醫療體系改革方案增設每人每年1萬元收費上限，適用於除了自費藥械外的所有收費項目，預料7萬人受惠。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797346-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797346-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797346-20250325.htm)
 
 ---
