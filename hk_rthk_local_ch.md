@@ -1,3 +1,27 @@
+# 貿發局將本港今年出口增長預測下調至3%　但出口商信心有改善
+
+![范婉兒（左）稱最新預測顯示香港出口仍可望錄得增長，反映本港出口業強韌穩健。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797490_1_20250326145813.jpg&q=90)
+  
+
+貿易發展局將本港今年出口增長預測由4%下調至3%，原因是考慮到美國過去兩個月實施新一輪加徵關稅措施可能帶來的影響。由於未來環球貿易摩擦可能升級，在不明確因素下，出口預測仍有下行風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797490-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797490-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797490-20250326.htm)
+
+---
+
 # 博鰲亞洲論壇國際科技與創新論壇香港會議今年6月會展舉行
 
 ![孫東表示，「香港會議」以「科技引領未來 創新驅動轉型」為主題，聚焦一系列目前最熱門的創科議題。（創新科技及工業局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797485_1_20250326144957.jpg&q=90)
@@ -47,7 +71,7 @@
 
 # 大公報再刊來論告誡長和勿在錯路越走越遠
 
-![文章指出，長和集團計劃「打包」出售巴拿馬運河港口等資產，引起海內外強烈質疑。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797482_1_20250326144042.jpg&q=75)
+![文章指出，長和集團計劃出售巴拿馬運河港口等資產，引起海內外強烈質疑。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797482_1_20250326144042.jpg&q=75)
   
 
 《大公報》再次刊登評論文章，告誡長和計劃出售港口一事上，勿在錯誤的道路上越走越遠，否則後果十分嚴重。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797328-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797328-20250325.htm)
-
----
-
-# 雙層巴士大埔行駛途中車尾起火冒濃煙　消防救熄無人受傷
-
-![事發在下午約2時半，涉事的雙層巴士沿完善路往吐露港公路方向行駛，駛至完善公園附近時，車尾起火並冒出濃煙。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797324_1_20250325171222.jpg&q=70)
-  
-
-一部雙層巴士在大埔行駛途中，車尾起火，消防員到場灌救，將火撲熄，事件中沒有人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797324-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797324-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797324-20250325.htm)
 
 ---

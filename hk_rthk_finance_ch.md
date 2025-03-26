@@ -1,3 +1,27 @@
+# 貿發局將本港今年出口增長預測下調至3%　但出口商信心有改善
+
+![范婉兒（左）稱最新預測顯示香港出口仍可望錄得增長，反映本港出口業強韌穩健。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797490_1_20250326145813.jpg&q=90)
+  
+
+貿易發展局將本港今年出口增長預測由4%下調至3%，原因是考慮到美國過去兩個月實施新一輪加徵關稅措施可能帶來的影響。由於未來環球貿易摩擦可能升級，在不明確因素下，出口預測仍有下行風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797490-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797490-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797490-20250326.htm)
+
+---
+
 # 韓股高收逾1%
 
 ![首爾綜合指數收市報2643點，升28點，升幅1.08%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797487_1_20250326144640.jpg&q=90)
@@ -119,7 +143,7 @@
 
 # 大公報再刊來論告誡長和勿在錯路越走越遠
 
-![文章指出，長和集團計劃「打包」出售巴拿馬運河港口等資產，引起海內外強烈質疑。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797482_1_20250326144042.jpg&q=75)
+![文章指出，長和集團計劃出售巴拿馬運河港口等資產，引起海內外強烈質疑。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797482_1_20250326144042.jpg&q=75)
   
 
 《大公報》再次刊登評論文章，告誡長和計劃出售港口一事上，勿在錯誤的道路上越走越遠，否則後果十分嚴重。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797368-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797368-20250325.htm)
-
----
-
-# 孫東稱推出多個加強數字能力建構政策　促進香港成為國際化人才庫
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797369_1_20250325215249.jpg&q=90)
-  
-
-創新科技及工業局局長孫東說，今年博鰲科技論壇將於6月在香港舉行，明日會舉行相關新聞發佈會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm)
 
 ---
