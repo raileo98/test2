@@ -1,3 +1,26 @@
+# 丘應樺下午啓程赴北京訪問　將拜訪商務部及外交部
+
+  
+
+商務及經濟發展局局長丘應樺下午啓程前往北京訪問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797457-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797457-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797457-20250326.htm)
+
+---
+
 # 虐待3歲女兒謀殺罪成　42歲男子被判終身監禁
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797284-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797284-20250325.htm)
-
----
-
-# 陳茂波：香港作為國際金融中心擅長將優質綠色專案與資金配對
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797282_1_20250325120618.jpg&q=80)
-  
-
-財政司司長陳茂波表示，香港致力於在2050年實現碳中和，而氣候目標同時為企業創造新的機遇。他又認為人工智能與綠色發展的關係應該有更廣闊視野，形容人工智能在綠色領域的應用機會無所不在。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797282-20250325.htm)
 
 ---
