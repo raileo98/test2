@@ -1,3 +1,27 @@
+# Ta Kung Pao issues fresh criticism of Hutchison deal
+
+![Ta Kung Pao says the sale by CK Hutchison of ports in Panama and elsewhere to BlackRock undermines China's national interests. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797495_1_20250326151647.jpg&q=80)
+  
+
+The Ta Kung Pao newspaper on Wednesday renewed its criticism of the sale by CK Hutchison of its Panama Canal ports.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm)
+
+---
+
 # Hong Kong stocks rally at opening
 
 ![The Hang Seng Index opened half a percentage point higher. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797435_1_20250326103245.jpg&q=75)
@@ -1413,29 +1437,5 @@ Hong Kong's Hang Seng Index fell 508.63 points, or 2.14 percent, to open at 23,2
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795211-20250311.htm)
-
----
-
-# Japan revises Q4 annualised GDP growth estimate
-
-![Data shows on a seasonally adjusted, month-on-month basis, spending dropped 4.5 percent in the last quarter of 2024. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795200_1_20250311085336.jpg&q=75)
-  
-
-Japan's economy expanded in the October-December quarter at a slower pace than initially reported, government data showed on Tuesday, weighed by weaker consumption but still likely supporting the case for further interest rate hikes.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795200-20250311.htm)
 
 ---

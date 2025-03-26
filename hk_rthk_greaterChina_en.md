@@ -1,3 +1,27 @@
+# Ta Kung Pao issues fresh criticism of Hutchison deal
+
+![Ta Kung Pao says the sale by CK Hutchison of ports in Panama and elsewhere to BlackRock undermines China's national interests. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797495_1_20250326151647.jpg&q=80)
+  
+
+The Ta Kung Pao newspaper on Wednesday renewed its criticism of the sale by CK Hutchison of its Panama Canal ports.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm)
+
+---
+
 # China's World Cup qualifying hopes take a big hit
 
 ![The national team stayed at the bottom of the group of six, seven points behind second place Australia with two matches remaining. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797366_1_20250325213048.jpg&q=80)
@@ -1411,29 +1435,5 @@ The first major global effort to crack down on the fast-growing industry of scam
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795054-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795054-20250310.htm)
-
----
-
-# China's job market to be stable this year: official
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1794995_1_20250309170328.jpg&q=90)
-  
-
-Beijing officials on Sunday said it is not easy to stabilise and expand the job market, but they expect there will be good outcomes with high-quality development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm](https://news.rthk.hk/rthk/en/component/k2/1794995-20250309.htm)
 
 ---
