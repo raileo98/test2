@@ -1,3 +1,27 @@
+# 信保局法定最高彌償百分率由90%提升至95%
+
+![信保局法定最高彌償百分率提升至95%，有助為香港出口商，特別是中小企提供更全面保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797532_1_20250326180336.jpg&q=90)
+  
+
+香港出口信用保險局宣布，將信保局法定最高彌償百分率由90%提升至95%的立法會決議已獲通過，有助信保局為香港出口商，特別是中小企提供更全面保障，加強企業國際貿易競爭力，更好把握海外及內地市場龐大商機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm)
+
+---
+
 # 中人壽去年盈利升逾1倍
 
 ![中人壽按國際財務報告準則計，去年盈利1069.4億元人民幣，創歷年最好，按年急升1.32倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797544_1_20250326184738.jpg&q=90)
@@ -139,6 +163,8 @@
 
 # 房協推售觀塘及粉嶺項目共1604個單位　下月起兩周接受申請
 
+![房協項目「峻然」的間格。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797538_1_20250326185611.jpg&q=1)
+![房協推售觀塘及粉嶺項目共1604個單位　下月起兩周接受申請](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797538_2_20250326185606.jpg&q=90)
   
 
 房協推售觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，合共提供1604個單位，售價介乎約230萬至636萬元，約為市價7折，下月1日至14日接受申請。
@@ -258,6 +284,7 @@
 
 # 張舉能率高級法官代表團結束在澳洲訪問　期間出席司法學術研討會
 
+![張舉能率高級法官代表團結束在澳洲訪問　期間出席司法學術研討會](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797534_1_20250326185501.jpg&q=90)
   
 
 終審法院首席法官張舉能星期一率領高級法官代表團在澳洲坎培拉出席亞太區司法學術研討會，今日結束在澳洲的訪問。
@@ -281,6 +308,7 @@
 
 # 中國科學院自動化研究所高層稱AI不應替代醫生判斷和決策
 
+![中國科學院自動化研究所高層稱AI不應替代醫生判斷和決策](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797531_1_20250326185425.jpg&q=90)
   
 
 中國科學院自動化研究所、人工智能倫理與治理研究中心主任曾毅表示，人工智能(AI)應用於教育及醫療過程當中，如果全面的替代決策，問題非常多，AI不應替代決策，在教育領域，可以輔助教師。
@@ -328,6 +356,7 @@
 
 # 廉署接待斯里蘭卡及贊比亞反貪機構高層代表團　分享香港反貪策略
 
+![廉政公署接待一帶一路國家斯里蘭卡及贊比亞的反貪機構高層代表團。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797529_1_20250326185358.jpg&q=90)
   
 
 廉政公署接待一帶一路國家斯里蘭卡及贊比亞的反貪機構高層代表團，分享香港的成功反貪策略，以及打擊貪污、制度防貪和建立廉潔文化的經驗，加強培訓合作。
@@ -351,6 +380,7 @@
 
 # 醫管局：費用減免機制最長有效期將由12個月延長至18個月
 
+![醫管局將擴闊65歲以下人士的有限期醫療費用減免涵蓋範圍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797527_1_20250326185220.jpg&q=80)
   
 
 公營醫療體系改革方案提出放寬費用減免的入息及資產資格。

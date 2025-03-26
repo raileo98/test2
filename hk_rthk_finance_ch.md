@@ -1,3 +1,27 @@
+# 信保局法定最高彌償百分率由90%提升至95%
+
+![信保局法定最高彌償百分率提升至95%，有助為香港出口商，特別是中小企提供更全面保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797532_1_20250326180336.jpg&q=90)
+  
+
+香港出口信用保險局宣布，將信保局法定最高彌償百分率由90%提升至95%的立法會決議已獲通過，有助信保局為香港出口商，特別是中小企提供更全面保障，加強企業國際貿易競爭力，更好把握海外及內地市場龐大商機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm)
+
+---
+
 # 中人壽去年盈利升逾1倍
 
 ![中人壽按國際財務報告準則計，去年盈利1069.4億元人民幣，創歷年最好，按年急升1.32倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797544_1_20250326184738.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797398-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797398-20250326.htm)
-
----
-
-# 黎堅明：冀三寶樹濕地公園做到保育與旅遊平衡
-
-![漁護署表示，三寶樹濕地保育公園將加入旅遊元素，包括生態旅舍等。（立法會文件截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797408_1_20250326072548.jpg&q=90)
-  
-
-漁護署表示，位於北部都會區的三寶樹濕地保育公園，除了發展現代化塘魚養殖等保育項目，亦會加入旅遊元素，包括推出觀鳥活動、生態旅舍等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797408-20250326.htm)
 
 ---

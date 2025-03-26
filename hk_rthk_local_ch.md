@@ -1,3 +1,27 @@
+# 信保局法定最高彌償百分率由90%提升至95%
+
+![信保局法定最高彌償百分率提升至95%，有助為香港出口商，特別是中小企提供更全面保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797532_1_20250326180336.jpg&q=90)
+  
+
+香港出口信用保險局宣布，將信保局法定最高彌償百分率由90%提升至95%的立法會決議已獲通過，有助信保局為香港出口商，特別是中小企提供更全面保障，加強企業國際貿易競爭力，更好把握海外及內地市場龐大商機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm)
+
+---
+
 # 消防處指粵港澳聯合演練成功測試大灣區緊急動員及協調機制
 
   
@@ -115,6 +139,8 @@
 
 # 房協推售觀塘及粉嶺項目共1604個單位　下月起兩周接受申請
 
+![房協項目「峻然」的間格。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797538_1_20250326185611.jpg&q=1)
+![房協推售觀塘及粉嶺項目共1604個單位　下月起兩周接受申請](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797538_2_20250326185606.jpg&q=90)
   
 
 房協推售觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，合共提供1604個單位，售價介乎約230萬至636萬元，約為市價7折，下月1日至14日接受申請。
@@ -210,6 +236,7 @@
 
 # 張舉能率高級法官代表團結束在澳洲訪問　期間出席司法學術研討會
 
+![張舉能率高級法官代表團結束在澳洲訪問　期間出席司法學術研討會](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797534_1_20250326185501.jpg&q=90)
   
 
 終審法院首席法官張舉能星期一率領高級法官代表團在澳洲坎培拉出席亞太區司法學術研討會，今日結束在澳洲的訪問。
@@ -233,6 +260,7 @@
 
 # 廉署接待斯里蘭卡及贊比亞反貪機構高層代表團　分享香港反貪策略
 
+![廉政公署接待一帶一路國家斯里蘭卡及贊比亞的反貪機構高層代表團。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797529_1_20250326185358.jpg&q=90)
   
 
 廉政公署接待一帶一路國家斯里蘭卡及贊比亞的反貪機構高層代表團，分享香港的成功反貪策略，以及打擊貪污、制度防貪和建立廉潔文化的經驗，加強培訓合作。
@@ -256,6 +284,7 @@
 
 # 醫管局：費用減免機制最長有效期將由12個月延長至18個月
 
+![醫管局將擴闊65歲以下人士的有限期醫療費用減免涵蓋範圍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797527_1_20250326185220.jpg&q=80)
   
 
 公營醫療體系改革方案提出放寬費用減免的入息及資產資格。
@@ -1401,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797417-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797417-20250326.htm)
-
----
-
-# 漁護署：正在金山郊野公園試行人工智能閉路電視監察野豬出沒情況
-
-![漁護署表示，本港現時野豬問題黑點只剩10多個。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797409_1_20250326072909.jpg&q=80)
-  
-
-漁護署助理署長陳堅峰表示，本港現時野豬問題黑點只剩10多個，署方正在金山郊野公園試行以人工智能閉路電視，監察野豬出沒的情況，減省人手監測。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797409-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797409-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797409-20250326.htm)
 
 ---
