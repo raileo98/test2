@@ -1,3 +1,27 @@
+# 人才服務辦公室小紅書官方平台　提供實用資訊及提醒分辨假消息
+
+![孫玉菡在片段粉墨登場，介紹兩位虛擬代言人物。（社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797536_1_20250326182059.jpg&q=90)
+  
+
+香港人才服務辦公室在小紅書設立官方平台，協助人才融入香港，提醒他們分清虛假消息及謠言，以及向他們提供實用的生活攻略等資訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm)
+
+---
+
 # 中國科學院自動化研究所高層稱AI不應替代醫生判斷和決策
 
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797093-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797093-20250324.htm)
-
----
-
-# 李強：沒哪個國家的繁榮靠加關稅實現　只能靠開放靠合作
-
-![李強會見美國國會參議員戴安斯及部分美國企業界人士。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797068_1_20250324031706.jpg&q=80)
-  
-
-國務院總理李強昨日在北京人民大會堂，會見來華出席中國發展高層論壇年會的美國國會參議員戴安斯，以及部分美國企業界人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797068-20250324.htm)
 
 ---

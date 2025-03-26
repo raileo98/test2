@@ -1,3 +1,27 @@
+# 人才服務辦公室小紅書官方平台　提供實用資訊及提醒分辨假消息
+
+![孫玉菡在片段粉墨登場，介紹兩位虛擬代言人物。（社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797536_1_20250326182059.jpg&q=90)
+  
+
+香港人才服務辦公室在小紅書設立官方平台，協助人才融入香港，提醒他們分清虛假消息及謠言，以及向他們提供實用的生活攻略等資訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm)
+
+---
+
 # 中國銀行去年多賺近2.6%　淨息差按年收窄19個基點
 
 ![中國銀行去年盈利2378.4億元人民幣，按年升近2.6%。末期息每股0.1216元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797533_1_20250326180731.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797397-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797397-20250326.htm)
-
----
-
-# 英美期油創逾3星期新高後個別發展
-
-![英美期油曾觸及逾3星期高位，收市個別發展，布蘭特期油全日升2美仙，紐約期油跌約0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797396_1_20250326055419.jpg&q=90)
-  
-
-英美期油曾觸及逾3星期高位，收市個別發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797396-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797396-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797396-20250326.htm)
 
 ---

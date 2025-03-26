@@ -1,3 +1,74 @@
+# 人才服務辦公室小紅書官方平台　提供實用資訊及提醒分辨假消息
+
+![孫玉菡在片段粉墨登場，介紹兩位虛擬代言人物。（社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797536_1_20250326182059.jpg&q=90)
+  
+
+香港人才服務辦公室在小紅書設立官方平台，協助人才融入香港，提醒他們分清虛假消息及謠言，以及向他們提供實用的生活攻略等資訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm)
+
+---
+
+# 中國銀行去年多賺近2.6%　淨息差按年收窄19個基點
+
+![中國銀行去年盈利2378.4億元人民幣，按年升近2.6%。末期息每股0.1216元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797533_1_20250326180731.jpg&q=90)
+  
+
+中國銀行去年盈利2378.4億元人民幣，按年升近2.6%。末期息每股0.1216元人民幣，全年派息0.2424元，按年升2.5%，派息率30%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797533-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797533-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797533-20250326.htm)
+
+---
+
+# 「七欖」周五舉行　球迷村提早關閉
+
+  
+
+香港國際七人欖球賽，星期五起，一連三天在啟德體育園舉行，其中球迷村原本稱開放到晚上11時，改為星期五和星期六提早在晚上10時半關閉，星期日晚提早至晚上7時關閉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm)
+
+---
+
 # 張舉能率高級法官代表團結束在澳洲訪問　期間出席司法學術研討會
 
   
@@ -46,6 +117,7 @@
 
 # 南韓山火增至最少24死　學校及體育館成為災民臨時安置中心
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797530_1_20250326182823.jpg&q=85)
   
 
 南韓東南部大型山火持續，增至最少24人死亡、12人重傷、14人輕傷；房屋、工廠、寺廟及文化遺產等超過200處地點受災。
@@ -163,7 +235,6 @@
 
 # 大灣區救援演練模擬鯉魚門500名居民被洪水圍困　三地人員救援
 
-![本港消防處聯同廣東省消防救援總隊和澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。(任浩鋒攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797523_1_20250326181030.jpg&q=80)
   
 
 本港消防處聯同廣東省消防救援總隊和澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。下午的演練，模擬鯉魚門沿海低窪地區因風災而出現水浸，並正值超級天文大潮，村內有500名居民被洪水圍困，要緊急撤離。
@@ -2607,7 +2678,7 @@
 
 # 澤連斯基：莫斯科已試圖扭曲黑海航運及能源設施停火協議
 
-![澤連斯基表示，莫斯科已試圖扭曲協議，實際上欺騙了烏俄的中間人和整個世界。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797393_1_20250326042026.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797393_1_20250326042026.jpg&q=90)
   
 
 美國白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全，並禁止俄烏兩國互相攻擊對方的能源設施。

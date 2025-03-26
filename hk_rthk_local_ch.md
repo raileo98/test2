@@ -1,3 +1,27 @@
+# 人才服務辦公室小紅書官方平台　提供實用資訊及提醒分辨假消息
+
+![孫玉菡在片段粉墨登場，介紹兩位虛擬代言人物。（社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797536_1_20250326182059.jpg&q=90)
+  
+
+香港人才服務辦公室在小紅書設立官方平台，協助人才融入香港，提醒他們分清虛假消息及謠言，以及向他們提供實用的生活攻略等資訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm)
+
+---
+
 # 「七欖」周五舉行　球迷村提早關閉
 
   
@@ -92,7 +116,6 @@
 
 # 大灣區救援演練模擬鯉魚門500名居民被洪水圍困　三地人員救援
 
-![本港消防處聯同廣東省消防救援總隊和澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。(任浩鋒攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797523_1_20250326181030.jpg&q=80)
   
 
 本港消防處聯同廣東省消防救援總隊和澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。下午的演練，模擬鯉魚門沿海低窪地區因風災而出現水浸，並正值超級天文大潮，村內有500名居民被洪水圍困，要緊急撤離。
@@ -1406,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797373-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797373-20250325.htm)
-
----
-
-# 荃灣失蹤男子李展文已被尋回
-
-![荃灣失蹤男子李展文已被尋回](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797372_1_20250325215126.jpg&q=90)
-  
-
-早前在荃灣失蹤的42歲男子李展文，下午在蕙荃路被尋回，他沒有受傷，案件沒有可疑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797372-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797372-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797372-20250325.htm)
 
 ---

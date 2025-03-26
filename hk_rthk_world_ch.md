@@ -1,5 +1,6 @@
 # 南韓山火增至最少24死　學校及體育館成為災民臨時安置中心
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797530_1_20250326182823.jpg&q=85)
   
 
 南韓東南部大型山火持續，增至最少24人死亡、12人重傷、14人輕傷；房屋、工廠、寺廟及文化遺產等超過200處地點受災。
@@ -358,7 +359,7 @@
 
 # 澤連斯基：莫斯科已試圖扭曲黑海航運及能源設施停火協議
 
-![澤連斯基表示，莫斯科已試圖扭曲協議，實際上欺騙了烏俄的中間人和整個世界。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797393_1_20250326042026.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797393_1_20250326042026.jpg&q=90)
   
 
 美國白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全，並禁止俄烏兩國互相攻擊對方的能源設施。
