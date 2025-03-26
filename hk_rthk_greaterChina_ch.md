@@ -1,3 +1,27 @@
+# 商務部：中方堅決反對美國將多家中國實體列入出口管制實體清單
+
+![商務部稱，中方敦促美方立即停止錯誤做法，並將採取必要措施，堅決維護中國實體的合法權益。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797579_1_20250326225129.jpg&q=75)
+  
+
+在北京，商務部新聞發言人說，美國持續泛化國家安全概念，濫用出口管制措施，將多家中國實體列入出口管制「實體清單」，中方對此堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm)
+
+---
+
 # 祁斌稱中央全力支持瓊港兩地自由港平台與超級聯繫人雙向聯動
 
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797149-20250324.htm)
-
----
-
-# 湖南耒水上游地區鉈排放濃度超標　郴州及耒陽當局稱飲用水安全
-
-![湖南耒水上游地區鉈排放濃度超標　郴州及耒陽當局稱飲用水安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797146_1_20250324144507.jpg&q=90)
-  
-
-湖南湘江最大支流耒水流域近日部分河段水質出現異常，懷疑因耒水上游地區鉈排放濃度超標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797146-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797146-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797146-20250324.htm)
 
 ---
