@@ -24,7 +24,7 @@ The NBA is to review a proposal to create a European basketball league, a spokes
 
 # 'All systems go at Kai Tak for rugby showcase'
 
-![Tang King-shing (second left), Bryan Rennie (right), along with police and transport officials, meet the media ahead of the Rugby Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
   
 
 The Kai Tak Sports Park said it's ready to host the Hong Kong Rugby Sevens tournament later this week.

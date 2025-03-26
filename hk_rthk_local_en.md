@@ -24,7 +24,7 @@ The government on Wednesday said a renewed capital investment migrant scheme cou
 
 # HK, Hainan to cooperate in promoting trade ties
 
-![Chief Executive John Lee says collaboration between Hong Kong and Hainan will contribute to a high-level opening-up of the country. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797500_1_20250326153447.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797500_1_20250326153447.jpg&q=85)
   
 
 Chief Executive John Lee said on Wednesday a cooperation deal between Hong Kong and Hainan will contribute to the nation further opening up on the back of the free-trade advantages from the two regions.
@@ -169,7 +169,7 @@ Secretary for Home and Youth Affairs Alice Mak said there has been a strong resp
 
 # 'All systems go at Kai Tak for rugby showcase'
 
-![Tang King-shing (second left), Bryan Rennie (right), along with police and transport officials, meet the media ahead of the Rugby Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
   
 
 The Kai Tak Sports Park said it's ready to host the Hong Kong Rugby Sevens tournament later this week.

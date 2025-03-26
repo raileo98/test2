@@ -1,3 +1,27 @@
+# Seoul found responsible for abuse of adoptions process
+
+![International adoptions from South Korea began after the Korean War as a way to remove mixed-race children. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797520_2_20250326170321.jpg&q=90)
+  
+
+A South Korean official enquiry said on Wednesday the government was responsible for abuse in international adoptions of local children, including record fabrication and inadequate consent, and recommended an official state apology.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm)
+
+---
+
 # BYD aims to double overseas sales to 800K in 2025
 
 ![BYD sold 417,204 units overseas in 2024 and expects to see "a substantial rise" in its market share in Britain. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797519_1_20250326165846.jpg&q=50)
@@ -72,7 +96,7 @@ The government on Wednesday said a renewed capital investment migrant scheme cou
 
 # HK, Hainan to cooperate in promoting trade ties
 
-![Chief Executive John Lee says collaboration between Hong Kong and Hainan will contribute to a high-level opening-up of the country. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797500_1_20250326153447.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797500_1_20250326153447.jpg&q=85)
   
 
 Chief Executive John Lee said on Wednesday a cooperation deal between Hong Kong and Hainan will contribute to the nation further opening up on the back of the free-trade advantages from the two regions.
@@ -313,7 +337,7 @@ Secretary for Home and Youth Affairs Alice Mak said there has been a strong resp
 
 # 'All systems go at Kai Tak for rugby showcase'
 
-![Tang King-shing (second left), Bryan Rennie (right), along with police and transport officials, meet the media ahead of the Rugby Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
   
 
 The Kai Tak Sports Park said it's ready to host the Hong Kong Rugby Sevens tournament later this week.
@@ -383,12 +407,12 @@ The Secretary for Health says the new fee for people seeking help at accident an
 
 ---
 
-# Toll hits at least 18 in S Korea's worst wildfires
+# Toll hits at least 24 in S Korea's worst wildfires
 
 ![Most of the surrounding buildings at the Gounsa Temple complex in Uiseong were burned to the ground. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797453_1_20250326115256.jpg&q=90)
   
 
-At least 18 people have been killed in one of South Korea's worst wildfire outbreaks, with multiple blazes burning and causing "unprecedented damage," acting president Han Duck-soo said on Wednesday.
+Wildfires in South Korea have killed 24 people, officials said on Wednesday, warning that the toll in one of South Korea's worst wildfire outbreaks could rise further, with more people injured and the blaze still not under control.
 
   
 
@@ -1417,29 +1441,5 @@ The tense first day of the trial of French actor Gerard Depardieu over sexual as
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm)
-
----
-
-# Venezuelan oil tariffs condemned as 'illegal'
-
-![An oil tanker near the Venezuelan port of La Salina. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797246_1_20250325082707.jpg&q=90)
-  
-
-The Foreign Ministry in Beijing on Tuesday called on the United States to stop interfering in Venezuela's internal affairs and abolish the "illegal" unilateral sanctions on the South American country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm)
 
 ---

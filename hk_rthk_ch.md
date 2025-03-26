@@ -1,3 +1,73 @@
+# 大灣區救援演練模擬鯉魚門500名居民被洪水圍困　三地人員救援
+
+  
+
+本港消防處聯同廣東省消防救援總隊和澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。下午的演練，模擬鯉魚門沿海低窪地區因風災而出現水浸，並正值超級天文大潮，村內有500名居民被洪水圍困，要緊急撤離。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797523-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797523-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797523-20250326.htm)
+
+---
+
+# 運輸署建議七欖觀眾乘港鐵往啟德主場館　港鐵加密屯馬綫列車班次
+
+  
+
+香港國際七人欖球賽將於本星期五起，一連三日舉行，啟德體育園表示，有信心與主辦單位合辦一件盛事，運輸署表示，港鐵及公共巴士將會有特別安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm)
+
+---
+
+# 中銀香港去年多賺近17%　擬今年起按季度派息
+
+![中銀香港去年盈利382.3億元，按年升16.8%。派末期息每股1.419元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797518_1_20250326165556.jpg&q=90)
+  
+
+中銀香港公布，去年盈利382.3億元，按年升16.8%。派末期息每股1.419元，全年派息1.989元，按年增長近19%，派息比率為55%，提升1個百分點。公司計劃由今年起，按季度派發股息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm)
+
+---
+
 # 虐待女兒致死男子囚終身　法官斥被告施虐位置隱蔽明顯故意隱瞞
 
   
@@ -46,6 +116,7 @@
 
 # 19歲男學生被捕　涉嫌與至少10宗假冒官員電話騙案有關
 
+![警方表示，被捕人涉嫌冒充香港警察，指示案中被騙的事主簽署保密協定，涉案金額超過300萬元。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797515_1_20250326170636.jpg&q=90)
   
 
 一名19歲男學生被捕，他涉嫌與至少10宗假冒官員電話騙案有關，警方表示，被捕人涉嫌冒充香港警察，指示案中被騙的事主簽署保密協定，涉案金額超過300萬元。
@@ -69,6 +140,7 @@
 
 # 立法會三讀通過法院遙距聆訊條例草案　簡短法律程序優先採用
 
+![立法會三讀通過《法院遙距聆訊條例草案》。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797514_1_20250326170554.jpg&q=80)
   
 
 立法會三讀通過《法院遙距聆訊條例草案》。條例提供清晰的法律依據，讓法官和司法人員在考慮所有相關情況，以及司法公開和聆訊公正兩大原則後，在認為合適的情況下，可於各級別法院及審裁處的法律程序命令進行遙距聆訊。

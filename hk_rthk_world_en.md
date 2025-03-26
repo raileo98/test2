@@ -1,6 +1,6 @@
 # Seoul found responsible for abuse of adoptions process
 
-![Jo Youn-hwan, a South Korean who grew up in an orphanage, set up the country's first-ever orphan rights group in Seoul. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797520_1_20250326170024.jpg&q=90)
+![International adoptions from South Korea began after the Korean War as a way to remove mixed-race children. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797520_2_20250326170321.jpg&q=90)
   
 
 A South Korean official enquiry said on Wednesday the government was responsible for abuse in international adoptions of local children, including record fabrication and inadequate consent, and recommended an official state apology.
@@ -70,12 +70,12 @@ Thai Prime Minister Paetongtarn Shinawatra survived a no-confidence vote in parl
 
 ---
 
-# Toll hits at least 18 in S Korea's worst wildfires
+# Toll hits at least 24 in S Korea's worst wildfires
 
 ![Most of the surrounding buildings at the Gounsa Temple complex in Uiseong were burned to the ground. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797453_1_20250326115256.jpg&q=90)
   
 
-At least 18 people have been killed in one of South Korea's worst wildfire outbreaks, with multiple blazes burning and causing "unprecedented damage," acting president Han Duck-soo said on Wednesday.
+Wildfires in South Korea have killed 24 people, officials said on Wednesday, warning that the toll in one of South Korea's worst wildfire outbreaks could rise further, with more people injured and the blaze still not under control.
 
   
 

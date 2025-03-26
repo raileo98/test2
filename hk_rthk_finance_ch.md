@@ -1,3 +1,27 @@
+# 中銀香港去年多賺近17%　擬今年起按季度派息
+
+![中銀香港去年盈利382.3億元，按年升16.8%。派末期息每股1.419元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797518_1_20250326165556.jpg&q=90)
+  
+
+中銀香港公布，去年盈利382.3億元，按年升16.8%。派末期息每股1.419元，全年派息1.989元，按年增長近19%，派息比率為55%，提升1個百分點。公司計劃由今年起，按季度派發股息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm)
+
+---
+
 # 貿發局：關稅政策不確定　料本港出口表現將較反覆
 
 ![范婉兒：受關稅政策的不確定性影響，進出口商目前仍採取觀望態度，相信本港出口表現將較反覆。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797512_1_20250326163058.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm)
-
----
-
-# 張國清：平台經濟要發揮擴消費、穩就業等引領帶動作用
-
-![張國清表示，平台經濟要發揮在促創新、擴消費、穩就業等方面的引領帶動作用，要堅決整治低質低價「內卷式」競爭等問題。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797383_1_20250325231910.jpg&q=90)
-  
-
-新華社報道，國務院副總理張國清近日先後到外賣送餐、網絡零售、直播電商、交通出行等平台企業調研，詳細了解企業商業模式、技術創新、合規經營等情況，促進平台經濟健康發展和市場監管等工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm)
 
 ---
