@@ -1,3 +1,27 @@
+# 黃益平：仍有很大宏觀政策空間可以支持中國經濟
+
+![黃益平指出，收入及信心對提振消費需求至關重要。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797483_1_20250326141202.jpg&q=85)
+  
+
+人民銀行貨幣政策委員黃益平表示，仍有很大宏觀政策空間可以支持中國經濟，指出收入及信心對提振消費需求至關重要，又認為除近期的政策舉措，還需要採取改革措施提振消費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm)
+
+---
+
 # 國台辦︰台積電已成為砧板上任人宰割的肥肉
 
 ![陳斌華表示，在民進黨當局極力逢迎、拱手相送下，台積電已成為砧板上任人宰割的肥肉。(盧紫菁攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797452_1_20250326115329.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797032-20250323.htm)
-
----
-
-# 王毅晤日本國家安全保障局長　雙方同意繼續保持溝通
-
-![王毅在東京會見日本國家安全保障局長岡野正敬。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797030_1_20250323161703.jpg&q=90)
-  
-
-中共中央政治局委員、中央外辦主任王毅在東京會見日本國家安全保障局長岡野正敬。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797030-20250323.htm)
 
 ---

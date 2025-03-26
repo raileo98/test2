@@ -1,3 +1,74 @@
+# 黃益平：仍有很大宏觀政策空間可以支持中國經濟
+
+![黃益平指出，收入及信心對提振消費需求至關重要。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797483_1_20250326141202.jpg&q=85)
+  
+
+人民銀行貨幣政策委員黃益平表示，仍有很大宏觀政策空間可以支持中國經濟，指出收入及信心對提振消費需求至關重要，又認為除近期的政策舉措，還需要採取改革措施提振消費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm)
+
+---
+
+# 日股收市升逾0.6%
+
+![日經指數收市報38027點，升246點，升幅0.65%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797486_1_20250326144509.jpg&q=90)
+  
+
+東京股市造好。日經指數收市報38027點，升246點，升幅0.65%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797486-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797486-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797486-20250326.htm)
+
+---
+
+# 博鰲亞洲論壇國際科技與創新論壇香港會議今年6月會展舉行
+
+  
+
+由特區政府和博鰲亞洲論壇聯合主辦的「博鰲亞洲論壇國際科技與創新論壇2025香港會議」將於今年6月6日至7日，在香港會議展覽中心舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797485-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797485-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797485-20250326.htm)
+
+---
+
 # 新資本投資者入境計劃接918宗申請　如全數獲批帶來逾270億
 
   
@@ -47,6 +118,7 @@
 
 # 大公報再刊來論告誡長和勿在錯路越走越遠
 
+![文章指出，長和集團計劃「打包」出售巴拿馬運河港口等資產，引起海內外強烈質疑。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797482_1_20250326144042.jpg&q=75)
   
 
 《大公報》再次刊登評論文章，告誡長和計劃出售港口一事上，勿在錯誤的道路上越走越遠，否則後果十分嚴重。
@@ -118,6 +190,7 @@
 
 # 紀念啟德起航香港百年航空歷史　3月30日維港舉行飛行演示
 
+![政府支持活動主辦機構於本月30日下午進行一次飛越維多利亞港的飛行演示，象徵香港航空史的百年傳承。（國泰社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797478_1_20250326144317.jpg&q=90)
   
 
 為紀念由啟德起航的香港百年航空歷史，適逢香港國際七人欖球賽首次於啟德體育園舉行，特區政府支持活動主辦機構於本月30日下午進行一次飛越維多利亞港的飛行演示，象徵香港航空史的百年傳承，並讓市民見證別具意義的歷史時刻。
@@ -141,6 +214,7 @@
 
 # 盧寵茂：公私營醫療收費差距遠　不存在調整公營收費後推高私營
 
+![盧寵茂指不存在調整收費後，會推高私營市場的收費，形容「矮仔好難將高佬推得更高」。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797476_1_20250326144408.jpg&q=90)
   
 
 政府昨日公布公營醫療收費改革方案，醫務衞生局局長盧寵茂強調，調整收費並非為收回成本，又說政府沒有準確數字，在急症室調整收費後會有多少病人流向私營市場，但根據上次於2017年調整收費的經驗，有關數字約為5%，他期望今次調整收費後，急症室分流的人數會更多。
@@ -164,6 +238,7 @@
 
 # 投資推廣署上月發現一宗涉惡意勒索軟件攻擊部分電腦系統事故
 
+![投資推廣署在發現事件後已即時採取行動，加強系統的安全措施，防止進一步受到勒索軟件攻擊，並按既定程序向警方報案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797474_1_20250326144158.jpg&q=80)
   
 
 創新科技及工業局局長孫東表示，投資推廣署上月22日發現的一宗涉及惡意勒索軟件攻擊部分電腦系統的資訊保安事故，署方在發現事件後已即時採取行動，加強系統的安全措施，防止進一步受到勒索軟件攻擊，並按既定程序向警方報案，以及向數字辦、私隱專員公署和保安局通報事件。根據調查所得，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況。
@@ -739,7 +814,6 @@
 
 # 房協安達臣道及粉嶺資助房屋共1604個單位　售價最平230萬
 
-![安達臣道「峻然」提供960個單位，實用面積介乎302呎至664呎。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797444_1_20250326121252.jpg&q=90)
 ![粉嶺「聚然」提供644個單位，實用面積介乎302至616呎。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797444_2_20250326121252.jpg&q=90)
   
 

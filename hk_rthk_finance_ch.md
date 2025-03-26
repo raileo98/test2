@@ -1,3 +1,98 @@
+# 韓股高收逾1%
+
+![首爾綜合指數收市報2643點，升28點，升幅1.08%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797487_1_20250326144640.jpg&q=90)
+  
+
+南韓股市造好。首爾綜合指數收市報2643點，升28點，升幅1.08%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797487-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797487-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797487-20250326.htm)
+
+---
+
+# 黃益平：仍有很大宏觀政策空間可以支持中國經濟
+
+![黃益平指出，收入及信心對提振消費需求至關重要。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797483_1_20250326141202.jpg&q=85)
+  
+
+人民銀行貨幣政策委員黃益平表示，仍有很大宏觀政策空間可以支持中國經濟，指出收入及信心對提振消費需求至關重要，又認為除近期的政策舉措，還需要採取改革措施提振消費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm)
+
+---
+
+# 日股收市升逾0.6%
+
+![日經指數收市報38027點，升246點，升幅0.65%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797486_1_20250326144509.jpg&q=90)
+  
+
+東京股市造好。日經指數收市報38027點，升246點，升幅0.65%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797486-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797486-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797486-20250326.htm)
+
+---
+
+# 博鰲亞洲論壇國際科技與創新論壇香港會議今年6月會展舉行
+
+  
+
+由特區政府和博鰲亞洲論壇聯合主辦的「博鰲亞洲論壇國際科技與創新論壇2025香港會議」將於今年6月6日至7日，在香港會議展覽中心舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797485-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797485-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797485-20250326.htm)
+
+---
+
 # 新資本投資者入境計劃接918宗申請　如全數獲批帶來逾270億
 
   
@@ -18,6 +113,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797484-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797484-20250326.htm)
+
+---
+
+# 大公報再刊來論告誡長和勿在錯路越走越遠
+
+![文章指出，長和集團計劃「打包」出售巴拿馬運河港口等資產，引起海內外強烈質疑。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797482_1_20250326144042.jpg&q=75)
+  
+
+《大公報》再次刊登評論文章，告誡長和計劃出售港口一事上，勿在錯誤的道路上越走越遠，否則後果十分嚴重。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797482-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797482-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797482-20250326.htm)
 
 ---
 
@@ -71,6 +190,7 @@
 
 # 投資推廣署上月發現一宗涉惡意勒索軟件攻擊部分電腦系統事故
 
+![投資推廣署在發現事件後已即時採取行動，加強系統的安全措施，防止進一步受到勒索軟件攻擊，並按既定程序向警方報案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797474_1_20250326144158.jpg&q=80)
   
 
 創新科技及工業局局長孫東表示，投資推廣署上月22日發現的一宗涉及惡意勒索軟件攻擊部分電腦系統的資訊保安事故，署方在發現事件後已即時採取行動，加強系統的安全措施，防止進一步受到勒索軟件攻擊，並按既定程序向警方報案，以及向數字辦、私隱專員公署和保安局通報事件。根據調查所得，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況。
@@ -358,7 +478,6 @@
 
 # 房協安達臣道及粉嶺資助房屋共1604個單位　售價最平230萬
 
-![安達臣道「峻然」提供960個單位，實用面積介乎302呎至664呎。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797444_1_20250326121252.jpg&q=90)
 ![粉嶺「聚然」提供644個單位，實用面積介乎302至616呎。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797444_2_20250326121252.jpg&q=90)
   
 
@@ -1316,125 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm)
-
----
-
-# 周生生去年少賺20%　正縮減內地三線及以下城市實體店
-
-![周生生去年盈利約8.1億元，按年跌20%。派末期息每股0.36元，全年派息0.51元，按年減少15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797365_1_20250325210852.jpg&q=90)
-  
-
-周生生公布，去年盈利約8.1億元，按年跌20%。派末期息每股0.36元，全年派息0.51元，按年減少15%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797365-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797365-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797365-20250325.htm)
-
----
-
-# 海底撈去年多賺近5%　末期息每股0.507港元
-
-![海底撈去年盈利47.1億元人民幣，按年增長4.6%。派末期息每股0.507港元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797360_1_20250325204317.jpg&q=90)
-  
-
-海底撈公布，去年盈利47.1億元人民幣，按年增長4.6%。派末期息每股0.507港元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797360-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797360-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797360-20250325.htm)
-
----
-
-# 政府積極籌備成立香港海運港口發展局　期待與業界緊密合作
-
-![香港海運港口局昨天舉行最後一次會議。（運輸及物流局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797362_1_20250325211116.jpg&q=90)
-  
-
-政府正積極籌備在今年年中成立新的「香港海運港口發展局」，運輸及物流局期待在新架構下繼續與業界緊密合作，共同以求新求變的精神，為香港航運業創造美好篇章。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm)
-
----
-
-# 農夫山泉去年盈利微升0.4%　毛利率收窄1.4個百分點
-
-![農夫山泉去年盈利121.2億元人民幣，按年微升0.4%。派末期息每股0.76元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797354_1_20250325192146.jpg&q=80)
-  
-
-農夫山泉公布，去年盈利121.2億元人民幣，按年微升0.4%。派末期息每股0.76元人民幣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797354-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797354-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797354-20250325.htm)
-
----
-
-# 信德集團去年虧損擴大近22%
-
-![信德集團去年虧損8.24億元，按年擴大近22%。不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797352_1_20250325190842.jpg&q=90)
-  
-
-信德集團公布，去年虧損8.24億元，按年擴大近22%。不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797352-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797352-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797352-20250325.htm)
 
 ---
