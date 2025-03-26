@@ -1,3 +1,27 @@
+# Son homes in on pitches for S Korea's World Cup slips
+
+![Son Heung-min reacts at the end of the match with Jordan that saw South Korea draw again. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797449_1_20250326114106.jpg&q=90)
+  
+
+Son Heung-min blamed South Korea's shoddy pitches for their 2026 World Cup qualifying struggles after a 1-1 draw with Jordan left them sweating on an automatic place at the tournament.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm)
+
+---
+
 # Sabalenka sets up Paolini semis with win over Zheng
 
 ![Aryna Sabalenka has a word with Zheng Qinwen after their Miami Open match at the Hard Rock Stadium. Mandatory Credit: Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797443_1_20250326112222.jpg&q=90)
@@ -1417,29 +1441,5 @@ Wildfires have hit several regions in western Japan, injuring at least two peopl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm)
-
----
-
-# Laos, Chinese firm sign US$1.45b clean energy deal
-
-![China Western Power Industrial has signed an agreement to design, supply, and build a 1,800-megawatt clean energy power project in southern Laos. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797153_2_20250324151758.jpg&q=90)
-  
-
-Laos has signed a US$1.45 billion clean energy deal with a Chinese power plant equipment manufacturer as the country furthers its push into clean power generation and transmission.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm)
 
 ---

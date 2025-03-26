@@ -1,3 +1,27 @@
+# Son homes in on pitches for S Korea's World Cup slips
+
+![Son Heung-min reacts at the end of the match with Jordan that saw South Korea draw again. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797449_1_20250326114106.jpg&q=90)
+  
+
+Son Heung-min blamed South Korea's shoddy pitches for their 2026 World Cup qualifying struggles after a 1-1 draw with Jordan left them sweating on an automatic place at the tournament.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm)
+
+---
+
 # Sabalenka sets up Paolini semis with win over Zheng
 
 ![Aryna Sabalenka has a word with Zheng Qinwen after their Miami Open match at the Hard Rock Stadium. Mandatory Credit: Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797443_1_20250326112222.jpg&q=90)
@@ -1413,29 +1437,5 @@ Australian sprinting prodigy Gout Gout ran the fastest men's 200m in the world t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795982-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795982-20250317.htm)
-
----
-
-# Cavs win streak halted after Magic comeback
-
-![Orlando's Paolo Banchero led the Magic with 24 points in the road victory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795978_1_20250317061009.jpg&q=90)
-  
-
-Paolo Banchero scored 24 points as the Orlando Magic overturned a 13-point deficit to end the Cleveland Cavaliers' 16-game unbeaten streak with a gutsy 108-103 road victory.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795978-20250317.htm)
 
 ---

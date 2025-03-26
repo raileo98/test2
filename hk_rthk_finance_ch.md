@@ -1,5 +1,30 @@
+# 滬股半日升約0.2%　深證成指及創業板升近0.4%
+
+![內地股市反覆靠穩，上證指數半日收報3375點，升5點，升幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797450_1_20250326114354.jpg&q=90)
+  
+
+內地股市反覆靠穩，機械人概念、養殖、光伏、化工板塊造好，銀行、油服、電力股下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797450-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797450-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797450-20250326.htm)
+
+---
+
 # 陳茂波呼籲國際投資者不要錯失內地及亞太區機遇
 
+![陳茂波稱未來3至5年地緣政治起伏，香港維持作為國際投資者及資金探索內地以至亞洲機遇理想地。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797447_1_20250326113924.jpg&q=90)
   
 
 財政司司長陳茂波指出，內地及亞太地區在未來10年將保持增長引擎角色，至少佔全球增長30至40%，呼籲國際投資者不要錯失機遇，面對挑戰仍要駕馭複雜性並將機遇最大化。
@@ -25,7 +50,7 @@
 
   
 
-房協推售位於觀塘安達臣道及粉嶺馬會道的資助出售項目合共1604個單位，
+房協推售位於觀塘安達臣道及粉嶺馬會道的資助出售房屋項目合共1604個單位。
 
   
 
@@ -70,6 +95,7 @@
 
 # 港深西部鐵路目標2035年開通　料洪水橋到前海約15分鐘
 
+![文件交代，港深西部鐵路走線由正在興建的屯馬線洪水橋站西面出發，途經厦村和流浮山，並跨越后海灣經深圳灣口岸連接至前海。（立法會文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797441_1_20250326114103.jpg&q=90)
   
 
 運輸及物流局提交立法會的最新文件表示，港深西部鐵路「專班」早前審議並通過次階段研究成果，兩地政府目標於2035年同步開通香港段和深圳段。
@@ -117,6 +143,7 @@
 
 # 唐家成：香港橋樑角色在當今經濟發展進程中發揮重要作用
 
+![唐家成稱香港是中國及全球市場之間資金流動主要促進者。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797438_1_20250326113739.jpg&q=90)
   
 
 港交所主席唐家成表示，香港作為內地與離岸市場的橋樑，在當今時代的經濟發展進程中發揮重要作用，並對全球經濟帶來重大影響。本港過去12個月日均交易額多次刷新記錄，去年首次公開招股（IPO）額度位居全球第4，期望今年排名能夠提升。
@@ -1408,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797317-20250325.htm)
-
----
-
-# 滙控預計將加倍投資在亞洲和中東投資銀行業務
-
-![艾橋智形容滙控充滿動力，預計將重新分配15億美元資金到富有增長及優勢的領域。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797310_1_20250325152101.jpg&q=90)
-  
-
-滙豐控股行政總裁艾橋智表示，退出歐洲和美國的關鍵業務後，預計將加倍投資在亞洲和中東的投資銀行業務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797310-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797310-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797310-20250325.htm)
 
 ---
