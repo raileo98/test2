@@ -1,3 +1,27 @@
+# 日本巴西領袖會談　石破茂稱將在外交安保等領域深化兩國關係
+
+![日本首相石破茂（右）在東京與到訪的巴西總統盧拉舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797588_1_20250327015211.jpg&q=90)
+  
+
+日本首相石破茂在東京與到訪的巴西總統盧拉舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797588-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797588-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797588-20250327.htm)
+
+---
+
 # 中印舉行外交部官員磋商　中方形容氣氛坦誠務實、富建設性
 
 ![中國與印度在北京舉行外交部官員磋商。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797587_1_20250327013533.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797221-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797221-20250325.htm)
-
----
-
-# 特朗普宣布將對購買委內瑞拉油氣的國家徵收25%關稅
-
-![特朗普經常指責拉美國家向美國輸送犯罪分子。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797220_1_20250325003813.jpg&q=90)
-  
-
-美國總統特朗普宣布，將會對購買委內瑞拉石油和天然氣的國家徵收25%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797220-20250325.htm)
 
 ---

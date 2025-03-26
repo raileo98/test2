@@ -1,3 +1,27 @@
+# 日本巴西領袖會談　石破茂稱將在外交安保等領域深化兩國關係
+
+![日本首相石破茂（右）在東京與到訪的巴西總統盧拉舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797588_1_20250327015211.jpg&q=90)
+  
+
+日本首相石破茂在東京與到訪的巴西總統盧拉舉行會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797588-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797588-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797588-20250327.htm)
+
+---
+
 # 中印舉行外交部官員磋商　中方形容氣氛坦誠務實、富建設性
 
 ![中國與印度在北京舉行外交部官員磋商。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797587_1_20250327013533.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797523-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797523-20250326.htm)
-
----
-
-# 運輸署建議七欖觀眾乘港鐵往啟德主場館　港鐵加密屯馬綫列車班次
-
-![鄧竟成（左二）說，體育園將不斷累積經驗，與主辦方合作及調整營運及溝通，合辦香港盛事。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797522_1_20250326203304.jpg&q=80)
-  
-
-香港國際七人欖球賽將於本星期五起，一連三日舉行，啟德體育園表示，有信心與主辦單位合辦一件盛事，運輸署表示，港鐵及公共巴士將會有特別安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm)
 
 ---
