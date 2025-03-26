@@ -1,3 +1,27 @@
+# Certify your subdivided flat early or pay more: govt
+
+![Winnie Ho says the requirement of a basic housing unit having a window that faces the street or semi-enclosed light well may be relaxed. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797475_1_20250326133032.jpg&q=90)
+  
+
+Discounts will be offered to landlords who get their subdivided homes certified early under a proposed certification system, according to housing minister Winnie Ho.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm)
+
+---
+
 # GBA cities need to maximise tourism synergy: survey
 
 ![The study, led by the Polytechnic University, suggests cities in the Greater Bay Area work together to grow the tourism market together. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797477_1_20250326142939.jpg&q=85)
@@ -1419,29 +1443,5 @@ Hong Kong has the full support from the central government in maintaining its un
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm)
-
----
-
-# HK ranked Asia's top financial centre, third globally
-
-![Hong Kong retains its spot as Asia's top financial centre, having only reclaimed it from Singapore in September 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796664_1_20250320203327.jpg&q=90)
-  
-
-Hong Kong remains Asia's top financial hub, and third in the world behind New York and London, according to a half-yearly index of global financial centres.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796664-20250320.htm)
 
 ---

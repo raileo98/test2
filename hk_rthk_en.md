@@ -1,3 +1,51 @@
+# Certify your subdivided flat early or pay more: govt
+
+![Winnie Ho says the requirement of a basic housing unit having a window that faces the street or semi-enclosed light well may be relaxed. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797475_1_20250326133032.jpg&q=90)
+  
+
+Discounts will be offered to landlords who get their subdivided homes certified early under a proposed certification system, according to housing minister Winnie Ho.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm)
+
+---
+
+# Ta Kung Pao issues fresh criticism of Hutchison deal
+
+![Ta Kung Pao says the sale by CK Hutchison of ports in Panama and elsewhere to BlackRock undermines China's national interests. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797495_1_20250326151647.jpg&q=80)
+  
+
+The Ta Kung Pao newspaper on Wednesday renewed its criticism of the sale by CK Hutchison of its Panama Canal ports.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm)
+
+---
+
 # Seoul court clears opposition leader for top job run
 
 ![Lee Jae-myung appeals for patience outside the court in Seoul. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797498_1_20250326152240.jpg&q=90)
@@ -1393,53 +1441,5 @@ Shenzhen-based carmaker BYD saw a surge in revenue last year, a stock filing sho
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797208-20250324.htm)
-
----
-
-# New public hospital fees to start next year: sources
-
-![Sources say the fixed accident and emergency fee will be raised to no more than HK$400 from the current HK$180, with exemptions for critically ill and urgent patients. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797197_1_20250324194549.jpg&q=90)
-  
-
-Sources say new fees for public hospital services will be rolled out in three phases starting as early as January next year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797197-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797197-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797197-20250324.htm)
-
----
-
-# Billiards, tennis retain Tier A status
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797192_1_20250324223333.jpg&q=90)
-  
-
-The government announced on Monday that tennis and billiards have retained their Tier A sport status for two years, avoiding a downgrade that would result in significant funding cuts.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm)
 
 ---
