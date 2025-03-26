@@ -1,5 +1,29 @@
+# 立法會首二讀相關草案　賦權立法會功能界別選舉用點票機點票
+
+  
+
+立法會首讀及二讀修訂選舉法例的條例草案，包括建議賦權選管會在立法會功能界別選舉中，可使用點票機點票、並整合有關界別的選票結算表，進一步優化點票流程和提升效率等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797503-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797503-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797503-20250326.htm)
+
+---
+
 # 消防處清明及重陽期間利用無人機在指定航道偵測火警
 
+![楊恩健說，除使用無人機吊運，以加強救援效率，亦可使用無人機進行偵測工作。（周國安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797497_1_20250326155117.jpg&q=90)
   
 
 當局早前公布首批低空經濟「監管沙盒」試點項目，消防處有兩個項目獲批。
@@ -23,6 +47,7 @@
 
 # 大灣區救援演練　模擬香港受特大颱風暴雨侵襲向廣東澳門提出要求
 
+![香港消防處聯同廣東省消防救援總隊及澳門消防局，將一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。（周國安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797496_1_20250326155052.jpg&q=75)
   
 
 香港消防處聯同廣東省消防救援總隊及澳門消防局，將一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。
@@ -334,7 +359,7 @@
 
 # 麥美娟：各項青年交流實習計劃申請人數按年增加一倍
 
-![麥美娟接受本台電視節目《盤點政策》訪問。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797466_1_20250326131240.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797466_1_20250326131240.jpg&q=90)
   
 
 民政及青年事務局局長麥美娟表示，現任470名區議員很快投入到其角色，一些很困難的任務，例如協助法團處理紛爭等，他們亦願意接受挑戰去做，在社區中能作為民政當局的好夥伴，包括協助接觸市民。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm)
-
----
-
-# 李家超博鰲分論壇致辭　稱香港致力深化國際交流與合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797335_1_20250325182921.jpg&q=90)
-  
-
-正在博鰲論壇亞洲年會的行政長官李家超，下午出席「全球自由貿易港發展」分論壇並致辭。他表示，亞洲作為全球增長引擎，必須推動多邊主義，拒絕保護主義，香港將致力於深化國際交流與合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm)
 
 ---

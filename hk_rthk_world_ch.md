@@ -1,3 +1,26 @@
+# 李在明涉嫌違反南韓《公職選舉法》案二審獲判無罪
+
+  
+
+南韓首爾高等法院對最大在野黨共同民主黨黨魁李在明涉嫌違反《公職選舉法》案作出二審判決，推翻一審判決結果，李在明獲判無罪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797504-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797504-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797504-20250326.htm)
+
+---
+
 # 韓正晤新加坡副總理　稱中方願深化兩國各領域交流合作
 
 ![國家副主席韓正（右）在北京會見新加坡副總理王瑞傑。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797501_1_20250326153401.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797148-20250324.htm)
-
----
-
-# 就任半年的泰國總理佩通坦首次面對國會不信任動議
-
-![佩通坦上任半年來，首次面對國會提出不信任動議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797143_1_20250324143156.jpg&q=90)
-  
-
-泰國總理佩通坦就任半年來，首次面對國會提出不信任動議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797143-20250324.htm)
 
 ---
