@@ -1,3 +1,27 @@
+# 涉虐待12歲男童　已停職49歲輔警被控明早提堂
+
+![49歲男子被控以「對所看管兒童或少年人虐待或忽略」罪。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797581_1_20250326225440.jpg&q=60)
+  
+
+一名12歲男童懷疑曾被不恰當對待，一名49歲男子被控以「對所看管兒童或少年人虐待或忽略」罪，明日在觀塘裁判法院提堂。警方表示，涉案男子為一名輔警，已被停職，重申警隊非常重視人員的操守，任何人員干犯違法行為，警隊絕不容忍及姑息，定必嚴正處理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797581-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797581-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797581-20250326.htm)
+
+---
+
 # 商務部：中方堅決反對美國將多家中國實體列入出口管制實體清單
 
 ![商務部稱，中方敦促美方立即停止錯誤做法，並將採取必要措施，堅決維護中國實體的合法權益。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797579_1_20250326225129.jpg&q=75)
@@ -24,6 +48,7 @@
 
 # 祁斌稱中央全力支持瓊港兩地自由港平台與超級聯繫人雙向聯動
 
+![祁斌指出，海南自貿區零關稅低稅率政策，與香港自由港制度可以形成疊加效應。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797578_1_20250326225528.jpg&q=80)
   
 
 在海南，瓊港簽署備忘錄，在多方面深化合作。
