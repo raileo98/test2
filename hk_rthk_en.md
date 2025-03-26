@@ -1,3 +1,51 @@
+# Magazine publishes US attack plan shared in group chat
+
+![In the Signal chat, Defence Secretary Pete Hegseth lays out the weather conditions, times of attacks and types of aircraft being used. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797576_1_20250326222631.jpg&q=90)
+  
+
+The Atlantic magazine on Wednesday published what it said was the entire text of a chat group mistakenly shared with a journalist by top US national security officials, laying out plans for an imminent attack on Yemen.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm)
+
+---
+
+# UK slashes growth forecast, cuts public spending
+
+![UK finance minister Rachel Reeves delivers the Spring Statement spending update. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797575_1_20250326221849.jpg&q=90)
+  
+
+The UK government halved its 2025 growth forecast on Wednesday as it made billions of pounds of spendings cuts to shore up the public purse in the face of economic headwinds.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm)
+
+---
+
 # World Club Cup winner to score up to US$125 million
 
 ![This year's Club World Cup will take place from June 14 to July 13 in the United States. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797561_1_20250326204658.jpg&q=90)
@@ -1393,53 +1441,5 @@ Boeing is seeking to withdraw an agreement to plead guilty in a criminal case th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm)
-
----
-
-# UN cuts headcount in Gaza after worker dies
-
-![A foreign worker wounded in an airstrike at UN headquarters on March 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797253_1_20250325090322.jpg&q=85)
-  
-
-The United Nations said Monday it would “reduce its footprint” in Gaza after an Israeli tank strike hit one of its compounds last week, killing one staff member from Bulgaria and wounding five other employees.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797253-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797253-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797253-20250325.htm)
-
----
-
-# Hang Seng Index opens over a percentage point lower
-
-![US President Donald Trump's reciprocal tariffs are due to be unveiled on April 2. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797260_1_20250325094919.jpg&q=90)
-  
-
-The Hang Seng Index lost 262.24 points, or 1.1 percent, to open at 23,643.32 on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797260-20250325.htm)
 
 ---

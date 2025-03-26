@@ -1,3 +1,27 @@
+# 海南省委書記馮飛稱瓊港合作備忘錄必將共創輝煌新篇章
+
+![馮飛說，兩地合作不斷邁上新台階，打造香港與內地省份合作的典範。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797577_1_20250326222754.jpg&q=80)
+  
+
+行政長官李家超與海南省委書記馮飛會面，並見證海南省人民政府與香港特區政府簽署《合作備忘錄》。馮飛致辭時表示，近年香港與海南兩地經貿合作，日益頻繁，不斷深化，相信今次簽約，必將開啟兩地攜手共進，共創輝煌的新篇章。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm)
+
+---
+
 # 何立峰與美國貿易代表格里爾舉行視像通話
 
   

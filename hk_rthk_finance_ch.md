@@ -1,3 +1,27 @@
+# 海南省委書記馮飛稱瓊港合作備忘錄必將共創輝煌新篇章
+
+![馮飛說，兩地合作不斷邁上新台階，打造香港與內地省份合作的典範。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797577_1_20250326222754.jpg&q=80)
+  
+
+行政長官李家超與海南省委書記馮飛會面，並見證海南省人民政府與香港特區政府簽署《合作備忘錄》。馮飛致辭時表示，近年香港與海南兩地經貿合作，日益頻繁，不斷深化，相信今次簽約，必將開啟兩地攜手共進，共創輝煌的新篇章。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm)
+
+---
+
 # 劉國勳稱地契修訂「按實補價」可增加發展商或企業投資意欲
 
 ![劉國勳認為，「按實補價」可加快發展項目早日落地，亦有助北部都會區多元化發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797573_1_20250326214934.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797423-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797423-20250326.htm)
-
----
-
-# 人民幣兌美元中間價升34點子　創近1星期新高
-
-![人民幣中間價報7.1754兌1美元，較昨日中間價升34點子，創近1星期新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797422_1_20250326091921.jpg&q=80)
-  
-
-人民幣中間價報7.1754兌1美元，較昨日中間價升34點子，創近1星期新高，與市場預測偏離800點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797422-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797422-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797422-20250326.htm)
 
 ---

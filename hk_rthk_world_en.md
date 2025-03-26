@@ -1,3 +1,51 @@
+# Magazine publishes US attack plan shared in group chat
+
+![In the Signal chat, Defence Secretary Pete Hegseth lays out the weather conditions, times of attacks and types of aircraft being used. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797576_1_20250326222631.jpg&q=90)
+  
+
+The Atlantic magazine on Wednesday published what it said was the entire text of a chat group mistakenly shared with a journalist by top US national security officials, laying out plans for an imminent attack on Yemen.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm)
+
+---
+
+# UK slashes growth forecast, cuts public spending
+
+![UK finance minister Rachel Reeves delivers the Spring Statement spending update. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797575_1_20250326221849.jpg&q=90)
+  
+
+The UK government halved its 2025 growth forecast on Wednesday as it made billions of pounds of spendings cuts to shore up the public purse in the face of economic headwinds.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm)
+
+---
+
 # Seoul found responsible for abuse of adoptions process
 
 ![International adoptions from South Korea began after the Korean War as a way to remove mixed-race children. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797520_2_20250326170321.jpg&q=90)
@@ -1388,53 +1436,5 @@ Tesla was removed from the Vancouver International Auto Show in Canada because o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm)
-
----
-
-# Oxygen detected in most distant galaxy: astronomers
-
-![Dutch and Italian astronomers probed the JADES-GS-z14-0 galaxy using the ALMA radio telescope in Chile's Atacama desert. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796693_1_20250321032017.jpg&q=90)
-  
-
-Oxygen has been detected in the most distant galaxy ever discovered, surprised astronomers said on Thursday, offering further evidence that stars in the early universe matured far quicker than had been thought possible.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796693-20250321.htm)
-
----
-
-# Finns still happiest, but US happiness sinks
-
-![Finland's grand lakes and strong welfare system boost its mood. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796695_1_20250321033221.jpg&q=75)
-  
-
-The United States fell to its lowest happiness ranking ever partly due to a rise in the number of Americans eating their meals alone, an annual UN-sponsored report said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796695-20250321.htm)
 
 ---
