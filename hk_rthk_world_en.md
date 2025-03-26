@@ -72,7 +72,7 @@ Thai Prime Minister Paetongtarn Shinawatra survived a no-confidence vote in parl
 
 # Toll hits at least 24 in S Korea's worst wildfires
 
-![Most of the surrounding buildings at the Gounsa Temple complex in Uiseong were burned to the ground. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797453_1_20250326115256.jpg&q=90)
+![About 20 of 30 buildings and structures in the Gounsa temple complex, including two of South Korea's three state-designated 'treasures,' in Uiseong were burned to the ground. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797453_1_20250326115256.jpg&q=90)
   
 
 Wildfires in South Korea have killed 24 people, officials said on Wednesday, warning that the toll in one of South Korea's worst wildfire outbreaks could rise further, with more people injured and the blaze still not under control.

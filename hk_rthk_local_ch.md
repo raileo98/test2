@@ -1,3 +1,49 @@
+# 廉署接待斯里蘭卡及贊比亞反貪機構高層代表團　分享香港反貪策略
+
+  
+
+廉政公署接待一帶一路國家斯里蘭卡及贊比亞的反貪機構高層代表團，分享香港的成功反貪策略，以及打擊貪污、制度防貪和建立廉潔文化的經驗，加強培訓合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797529-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797529-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797529-20250326.htm)
+
+---
+
+# 醫管局：費用減免機制最長有效期將由12個月延長至18個月
+
+  
+
+公營醫療體系改革方案提出放寬費用減免的入息及資產資格。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm)
+
+---
+
 # 大灣區救援演練模擬鯉魚門500名居民被洪水圍困　三地人員救援
 
   
@@ -1385,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797362-20250325.htm)
-
----
-
-# 孫玉菡：「多元共融藝術巡禮」展示本港多元共融成績
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797355_2_20250325205633.jpg&q=80)
-  
-
-勞工及福利局局長孫玉菡說，香港正值「盛匯超級三月」，有欖球、Art Basel Hong Kong及Art Central等活動，另一盛事就是「多元共融藝術巡禮」的活動，希望藉此向全社會及國際展示本港在推廣多元共融方面的成績，殘疾藝術家的作品及才華，若能被賞識就更理想。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797355-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797355-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797355-20250325.htm)
-
----
-
-# 林定國：維護國家安全與深化國際交往合作絕對沒有任何衝突
-
-![林定國在香港法律界2025全國兩會精神分享會致辭。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797353_1_20250325204848.jpg&q=90)
-  
-
-律政司司長林定國說，深化國際交往合作有一個基本前提，就是維護國家安全，強調維護國家安全與深化國際交往合作絕對沒有任何衝突，香港的維護國家安全法律都是極具針對性，亦只有在充分理據下才會運用，難以想像一般正常的國際交往合作會危害國家安全，違反國家安全的行為和活動也不可能是一般正常的國際交往合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797353-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797353-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797353-20250325.htm)
 
 ---

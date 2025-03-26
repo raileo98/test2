@@ -1,3 +1,51 @@
+# 中銀香港去年貸款總減值準備升1.4%
+
+![中銀香港公布，截至去年底，貸款總減值準備149.6億元，按年升1.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797524_1_20250326171643.jpg&q=85)
+  
+
+中銀香港公布，截至去年底，貸款總減值準備149.6億元，按年升1.4%。總減值準備對客戶貸款比率按年升0.02個百分點至0.89%。減值貸款比率持平於1.05%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm)
+
+---
+
+# 電視廣播去年虧損收窄近36%　料今年業績扭虧
+
+![電視廣播去年度虧損收窄近36%至4.91億元，估計今年將實現正股東應佔淨溢利。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797525_1_20250326172337.jpg&q=90)
+  
+
+電視廣播公布，去年度虧損收窄近36%至4.91億元，維持不派息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797525-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797525-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797525-20250326.htm)
+
+---
+
 # 中銀香港去年多賺近17%　擬今年起按季度派息
 
 ![中銀香港去年盈利382.3億元，按年升16.8%。派末期息每股1.419元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797518_1_20250326165556.jpg&q=90)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797395-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797395-20250326.htm)
-
----
-
-# 道指全日升4點　納指升約0.5%　關注關稅政策發展
-
-![美股3大指數連升3日，創近3星期新高，但全日升幅有限。道瓊斯指數收市報42587點，升4點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797394_1_20250326054015.jpg&q=90)
-  
-
-美股3大指數反覆向上，連升3日，創近3星期新高，但全日升幅有限，市場持續關注美國關稅措施如何實施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797394-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797394-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797394-20250326.htm)
-
----
-
-# 澤連斯基：莫斯科已試圖扭曲黑海航運及能源設施停火協議
-
-![澤連斯基表示，莫斯科已試圖扭曲協議，實際上欺騙了烏俄的中間人和整個世界。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797393_1_20250326042026.jpg&q=90)
-  
-
-美國白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全，並禁止俄烏兩國互相攻擊對方的能源設施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm)
 
 ---

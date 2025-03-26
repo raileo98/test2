@@ -1,3 +1,120 @@
+# 南韓山火增至最少24死　學校及體育館成為災民臨時安置中心
+
+  
+
+南韓東南部大型山火持續，增至最少24人死亡、12人重傷、14人輕傷；房屋、工廠、寺廟及文化遺產等超過200處地點受災。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797530-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797530-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797530-20250326.htm)
+
+---
+
+# 廉署接待斯里蘭卡及贊比亞反貪機構高層代表團　分享香港反貪策略
+
+  
+
+廉政公署接待一帶一路國家斯里蘭卡及贊比亞的反貪機構高層代表團，分享香港的成功反貪策略，以及打擊貪污、制度防貪和建立廉潔文化的經驗，加強培訓合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797529-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797529-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797529-20250326.htm)
+
+---
+
+# 醫管局：費用減免機制最長有效期將由12個月延長至18個月
+
+  
+
+公營醫療體系改革方案提出放寬費用減免的入息及資產資格。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm)
+
+---
+
+# 中銀香港去年貸款總減值準備升1.4%
+
+![中銀香港公布，截至去年底，貸款總減值準備149.6億元，按年升1.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797524_1_20250326171643.jpg&q=85)
+  
+
+中銀香港公布，截至去年底，貸款總減值準備149.6億元，按年升1.4%。總減值準備對客戶貸款比率按年升0.02個百分點至0.89%。減值貸款比率持平於1.05%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm)
+
+---
+
+# 電視廣播去年虧損收窄近36%　料今年業績扭虧
+
+![電視廣播去年度虧損收窄近36%至4.91億元，估計今年將實現正股東應佔淨溢利。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797525_1_20250326172337.jpg&q=90)
+  
+
+電視廣播公布，去年度虧損收窄近36%至4.91億元，維持不派息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797525-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797525-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797525-20250326.htm)
+
+---
+
 # 大灣區救援演練模擬鯉魚門500名居民被洪水圍困　三地人員救援
 
   
