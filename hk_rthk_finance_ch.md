@@ -1,3 +1,27 @@
+# 港股半日升57點　內銀股偏軟　消費股個別發展
+
+![恒生指數升至近23600點水平後升幅顯著收窄，中午收市報23402點，升57點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797458_1_20250326121109.jpg&q=65)
+  
+
+港股反彈，恒生指數最多升逾250點，升至近23600點水平，其後升幅顯著收窄，中午收市報23402點，升57點，升幅0.25%，半日主板成交額約1138億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797458-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797458-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797458-20250326.htm)
+
+---
+
 # 丘應樺下午啓程赴北京訪問　將拜訪商務部及外交部
 
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797326-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797326-20250325.htm)
-
----
-
-# 本港首2個月出口按年升6.5%　上月出口升15.4%
-
-![本港首2個月整體出口貨值按年升6.5%，進口貨值升5.7%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797325_1_20250325164835.jpg&q=80)
-  
-
-政府統計處公布，本港首2個月整體出口貨值按年升6.5%，進口貨值升5.7%。首兩個月錄得有形貿易逆差346億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797325-20250325.htm)
 
 ---

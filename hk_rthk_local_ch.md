@@ -1,3 +1,27 @@
+# 港股半日升57點　內銀股偏軟　消費股個別發展
+
+![恒生指數升至近23600點水平後升幅顯著收窄，中午收市報23402點，升57點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797458_1_20250326121109.jpg&q=65)
+  
+
+港股反彈，恒生指數最多升逾250點，升至近23600點水平，其後升幅顯著收窄，中午收市報23402點，升57點，升幅0.25%，半日主板成交額約1138億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797458-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797458-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797458-20250326.htm)
+
+---
+
 # 丘應樺下午啓程赴北京訪問　將拜訪商務部及外交部
 
   
@@ -93,6 +117,7 @@
 
 # 甯漢豪冀短期有措施便利商業地帶休憩用地　做活動帶動經濟氣氛
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797445_1_20250326122826.jpg&q=90)
   
 
 立法會舉行前廳交流會，由財政司副司長黃偉綸帶領多名官員出席，包括發展局局長甯漢豪和房屋局局長何永賢等，交流會首次以事務委員會為基礎分組進行討論。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797285-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797285-20250325.htm)
-
----
-
-# 海關破香港往新加坡經遠洋船走私貨物　估計市值約一千萬元
-
-![海關檢獲的懷疑走私貨物。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797284_1_20250325124434.jpg&q=80)
-  
-
-海關偵破涉嫌利用遠洋船走私的案件，檢獲一批懷疑走私貨物，估計市值約1000萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797284-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797284-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797284-20250325.htm)
 
 ---
