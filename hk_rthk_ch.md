@@ -1,3 +1,26 @@
+# 王毅指中美應避免誤判並管控分歧　稱中方願對話協商解決各自關切
+
+  
+
+中共中央政治局委員、中央外辦主任王毅，在北京會見美中關係全國委員會董事會執行副主席格林伯格。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797492-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797492-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797492-20250326.htm)
+
+---
+
 # 貿發局將本港今年出口增長預測下調至3%　但出口商信心有改善
 
 ![范婉兒（左）稱最新預測顯示香港出口仍可望錄得增長，反映本港出口業強韌穩健。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797490_1_20250326145813.jpg&q=90)

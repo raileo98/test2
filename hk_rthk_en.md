@@ -1,3 +1,27 @@
+# NBA mulls over creation of a 10-strong European league
+
+![Elias Harris, left, goes for a shot against Jabari Parker during a match between Barcelona and Bayern Munich in the Spanish city. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797489_1_20250326150704.jpg&q=90)
+  
+
+The NBA is to review a proposal to create a European basketball league, a spokesperson has confirmed, after a report detailed a new competition that could feature up to 10 teams.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm)
+
+---
+
 # Thai PM beats no-confidence motion handily
 
 ![Paetongtarn Shinawatra with members of the government after surviving the no-confidence vote. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797488_1_20250326144940.jpg&q=90)
@@ -1417,29 +1441,5 @@ The secretary for culture, sports and tourism has called on the ticketing platfo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm)
-
----
-
-# Thai PM set to survive no-confidence vote
-
-![Paetongtarn Shinawatra attends the first day of the no-confidence motion against her. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797189_1_20250324183239.jpg&q=80)
-  
-
-Thai Prime Minister Paetongtarn Shinawatra on Monday faced a no-confidence motion in parliament as the opposition alleged she was being unduly influenced by her father, a former prime minister, and is mismanaging the country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm)
 
 ---

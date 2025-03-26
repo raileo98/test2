@@ -1,3 +1,27 @@
+# NBA mulls over creation of a 10-strong European league
+
+![Elias Harris, left, goes for a shot against Jabari Parker during a match between Barcelona and Bayern Munich in the Spanish city. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797489_1_20250326150704.jpg&q=90)
+  
+
+The NBA is to review a proposal to create a European basketball league, a spokesperson has confirmed, after a report detailed a new competition that could feature up to 10 teams.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm)
+
+---
+
 # 'All systems go at Kai Tak for rugby showcase'
 
 ![Tang King-shing (second left), Bryan Rennie (right), along with police and transport officials, meet the media ahead of the Rugby Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
@@ -1413,29 +1437,5 @@ Olympic women's badminton champion An Se-young came from behind to beat China's 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796035-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796035-20250317.htm)
-
----
-
-# Draper powers past Rune to claim first ATP 1000 title
-
-![Draper will make his top ten debut at seventh in the world after the victory at Indian Wells. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795988_1_20250317081126.jpg&q=90)
-  
-
-Britain's Jack Draper roared past Denmark's Holger Rune 6-2, 6-2 to win his first ATP Masters 1000 title at Indian Wells.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795988-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795988-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1795988-20250317.htm)
 
 ---

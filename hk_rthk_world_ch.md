@@ -1,3 +1,26 @@
+# 王毅指中美應避免誤判並管控分歧　稱中方願對話協商解決各自關切
+
+  
+
+中共中央政治局委員、中央外辦主任王毅，在北京會見美中關係全國委員會董事會執行副主席格林伯格。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797492-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797492-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797492-20250326.htm)
+
+---
+
 # 南韓一架滅火直升機墜毀　飛行員喪生
 
 ![當局出動多架直升機，連日協助撲滅山火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797480_1_20250326141829.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797141-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797141-20250324.htm)
-
----
-
-# 國防部：中泰海軍聯合訓練將於湛江附近舉行
-
-![國防郈表示，中泰海軍聯合訓練將於3月下旬至4月上旬在湛江附近舉行。（國防部網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797139_1_20250324132905.jpg&q=90)
-  
-
-國防部網站公布，根據中泰雙方共識，中泰「藍色突擊-2025」海軍聯合訓練將於3月下旬至4月上旬在廣東湛江附近舉行。此次聯合訓練主要開展城市反恐戰術、聯合對海打擊、聯合反潛等內容訓練。是兩國海軍第六次舉行有關系列聯合訓練，對深化兩國海軍務實合作、提升海上聯合行動能力具有積極意義。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797139-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797139-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797139-20250324.htm)
 
 ---
