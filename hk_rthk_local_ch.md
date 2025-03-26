@@ -1,3 +1,27 @@
+# 陳國基歡迎立法會通過法院遙距聆訊條例草案
+
+![陳國基表示，歡迎立法會通過《法院遙距聆訊條例草案》。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797585_1_20250327004131.jpg&q=90)
+  
+
+政務司司長陳國基歡迎立法會通過《法院遙距聆訊條例草案》。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797585-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797585-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797585-20250327.htm)
+
+---
+
 # 黃澤林感謝團隊及外界支持給予動力　稱暫時目標打泥地賽提升排名
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797583_1_20250327002027.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797462-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797462-20250326.htm)
-
----
-
-# 何永賢指業主以簡樸房賺租金收入　政府應收回行政成本
-
-![何永賢接受本台專訪。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797460_1_20250326131631.jpg&q=80)
-  
-
-房屋局局長何永賢接受本台專訪表示，規管簡樸房的方案，建議政府日後向業主收取「簡樸房」認證費用，預計每個約為數千元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797460-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797460-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797460-20250326.htm)
 
 ---

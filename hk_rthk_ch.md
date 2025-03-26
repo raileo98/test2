@@ -1,3 +1,27 @@
+# 陳國基歡迎立法會通過法院遙距聆訊條例草案
+
+![陳國基表示，歡迎立法會通過《法院遙距聆訊條例草案》。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797585_1_20250327004131.jpg&q=90)
+  
+
+政務司司長陳國基歡迎立法會通過《法院遙距聆訊條例草案》。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797585-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797585-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797585-20250327.htm)
+
+---
+
 # 王毅讚賞瑙方堅定奉行一個中國政策　稱願開闢中瑙關係更光明前景
 
 ![王毅在北京與瑙魯外長安格明會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797584_1_20250327003043.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm)
-
----
-
-# 強風及乾燥天氣增南韓山火撲救及控制火場面積難度
-
-![強風及乾燥天氣增加撲救及控制火場面積的難度。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797517_1_20250326184322.jpg&q=90)
-  
-
-南韓山火持續，強風及乾燥天氣增加撲救及控制火場面積的難度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797517-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797517-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797517-20250326.htm)
 
 ---
