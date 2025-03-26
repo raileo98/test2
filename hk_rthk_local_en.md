@@ -1,3 +1,27 @@
+# New A&E fee to bring timely treatment in urgent cases
+
+![Lo Chung-mau says the new fee of up to HK$400 for A&E treatments in public hospitals is reasonable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797455_1_20250326115900.jpg&q=80)
+  
+
+The Secretary for Health says the new fee for people seeking help at accident and emergency wards in public hospitals can result in quicker treatment for more serious cases.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm)
+
+---
+
 # Lights out for lamp model after hospital mishap
 
 ![The Hospital Authority said it would not resume the use of the light in question until thorough checks are completed. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797428_1_20250326094629.jpg&q=90)
@@ -1422,29 +1446,5 @@ Healthcare officials said on Thursday that patients should not get to pick the m
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796581-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796581-20250320.htm)
-
----
-
-# Low-altitude economy a new growth engine: CE
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796579_1_20250320122305.jpg&q=85)
-  
-
-Chief Executive John Lee on Thursday said the low-altitude economy will be a new growth engine, with a trial programme on drone operations set to help such activities take off and "fly steadily and far".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796579-20250320.htm)
 
 ---

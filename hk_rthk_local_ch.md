@@ -1,3 +1,49 @@
+# 何永賢指業主以簡樸房賺租金收入　政府應收回行政成本
+
+  
+
+房屋局局長何永賢接受本台專訪表示，規管簡樸房的方案，建議政府日後向業主收取「簡樸房」認證費用，預計每個約為數千元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797460-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797460-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797460-20250326.htm)
+
+---
+
+# 七欖周五起一連三日啟德體育園舉行　主場館上蓋周五關周六日打開
+
+  
+
+香港國際七人欖球賽將於星期五起一連三日舉行。啟德體育園表示，為配合賽事，主場館上蓋將於星期五關閉，並於星期六及日打開。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797459-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797459-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797459-20250326.htm)
+
+---
+
 # 港股半日升57點　內銀股偏軟　消費股個別發展
 
 ![恒生指數升至近23600點水平後升幅顯著收窄，中午收市報23402點，升57點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797458_1_20250326121109.jpg&q=65)
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797289-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797289-20250325.htm)
-
----
-
-# 盧寵茂公布公營醫療服務收費改革　稱共付比率屬可負擔水平
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797286_1_20250325124022.jpg&q=80)
-  
-
-政府公布公營醫療服務收費改革詳情，醫務衞生局局長盧寵茂表示，香港一直有高效、高質量的醫療系統，發揮全民安全網角色，但系統面臨很大挑戰，人口老化令醫療需求不斷上升，醫學進步、診治能力提升及先進新藥械和治療方法，亦令醫療成本上升，本港奉行簡單低稅制，沒有全民醫保，市民以3%的超低共付率使用公營醫療服務，政府資助達97.6%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797286-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797286-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797286-20250325.htm)
-
----
-
-# 港股半日跌517點　舜宇及比亞迪電子績後急挫
-
-![恒生指數中午收市報23387點，跌517點，跌幅2.2%，半日主板成交額約1845億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797285_1_20250325120719.jpg&q=65)
-  
-
-港股捱沽，恒生指數今早最多跌逾580點，中午收市報23387點，跌517點，跌幅2.2%，半日主板成交額約1845億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797285-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797285-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797285-20250325.htm)
 
 ---

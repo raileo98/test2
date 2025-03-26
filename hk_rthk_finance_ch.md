@@ -1,3 +1,27 @@
+# 泡泡馬特去年盈利增長近兩倍
+
+![泡泡瑪特去年盈利約31.3億元人民幣，增長近兩倍；港澳台及海外業務銷售收入佔整體近40%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797461_1_20250326124221.jpg&q=90)
+  
+
+泡泡瑪特去年盈利約31.3億元人民幣，按年增長近兩倍；以非國際財務報告準則計，盈利34億元，增長近兩倍。末期息每股81.46分。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797461-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797461-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797461-20250326.htm)
+
+---
+
 # 港股半日升57點　內銀股偏軟　消費股個別發展
 
 ![恒生指數升至近23600點水平後升幅顯著收窄，中午收市報23402點，升57點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797458_1_20250326121109.jpg&q=65)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm)
-
----
-
-# 快手去年盈利按年急升1.4倍
-
-![快手去年盈利153.4億元人民幣，按年急升1.4倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797326_1_20250325165713.jpg&q=90)
-  
-
-快手去年盈利153.4億元人民幣，按年急升1.4倍。不派末期息。按非國際財務報告準則計，去年經調整利潤177.16億元，按年升72.5%。全年收入約1269億元，按年升近12%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797326-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797326-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797326-20250325.htm)
 
 ---

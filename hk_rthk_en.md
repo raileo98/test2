@@ -1,3 +1,27 @@
+# New A&E fee to bring timely treatment in urgent cases
+
+![Lo Chung-mau says the new fee of up to HK$400 for A&E treatments in public hospitals is reasonable. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797455_1_20250326115900.jpg&q=80)
+  
+
+The Secretary for Health says the new fee for people seeking help at accident and emergency wards in public hospitals can result in quicker treatment for more serious cases.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm)
+
+---
+
 # Toll hits at least 18 in S Korea's worst wildfires
 
 ![Most of the surrounding buildings at the Gounsa Temple complex in Uiseong were burned to the ground. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797453_1_20250326115256.jpg&q=90)
@@ -1417,29 +1441,5 @@ South Korean authorities said on Monday they would deploy dozens of helicopters 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm)
-
----
-
-# Beijing says no Duterte asylum application received
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797161_1_20250324160317.jpg&q=90)
-  
-
-China has not received any application for asylum from Philippines' former President Rodrigo Duterte and his family, a foreign ministry spokesperson said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm)
 
 ---
