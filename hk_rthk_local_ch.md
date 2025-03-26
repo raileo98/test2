@@ -1,3 +1,26 @@
+# 蔡若蓮率代表團出席冰島雷克雅未克教學專業國際高峰會
+
+  
+
+教育局局長蔡若蓮率領香港校長和教育專家代表團，出席在冰島雷克雅未克舉行的教學專業國際高峰會，與其他地區代表一起探討全球教育發展的新趨勢，並藉此機會推廣香港作為國際專上教育樞紐的優勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797465-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797465-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797465-20250326.htm)
+
+---
+
 # 李家超：瓊港雙方合力開拓面向東盟區域性大市場
 
   
@@ -69,6 +92,7 @@
 
 # 七欖周五起一連三日啟德體育園舉行　主場館上蓋周五關周六日打開
 
+![啟德體育園表示，為配合賽事，主場館上蓋將於星期五關閉，並於星期六及日打開。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797459_1_20250326125713.jpg&q=90)
   
 
 香港國際七人欖球賽將於星期五起一連三日舉行。啟德體育園表示，為配合賽事，主場館上蓋將於星期五關閉，並於星期六及日打開。
@@ -187,7 +211,7 @@
 
 # 陳茂波呼籲國際投資者不要錯失內地及亞太區機遇
 
-![陳茂波稱未來3至5年地緣政治起伏，香港維持作為國際投資者及資金探索內地以至亞洲機遇理想地。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797447_1_20250326113924.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797447_1_20250326113924.jpg&q=90)
   
 
 財政司司長陳茂波指出，內地及亞太地區在未來10年將保持增長引擎角色，至少佔全球增長30至40%，呼籲國際投資者不要錯失機遇，面對挑戰仍要駕馭複雜性並將機遇最大化。
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm)
-
----
-
-# 杜嘉祺：本港資本市場復蘇將成為全球最大財富管理中心
-
-![杜嘉祺稱內地人工智能大模型DeepSeek正好展示內地民營經濟及創新能力。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797293_1_20250325125655.jpg&q=80)
-  
-
-滙控主席杜嘉祺表示，隨著內地市場持續開放，香港作為內地、亞洲和全球其他地區之間的超級連繫人，將扮演非常重要角色；受惠於資本市場復蘇，香港有望在2027至2028年超越瑞士，成為全球最大財富管理中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm)
 
 ---
