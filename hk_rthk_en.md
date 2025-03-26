@@ -1,3 +1,28 @@
+# New Zealand aim for HK Sevens three-peat
+
+![Rugby teams from around the world are preparing for this year's Hong Kong Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797526_3_20250326175525.jpg&q=75)
+![The Melrose Claymores, a tournament featuring Asian teams that runs alongside the Sevens, will be back this weekend. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797526_4_20250326175525.jpg&q=80)
+  
+
+The men’s and women’s squad from New Zealand are chasing their third straight Hong Kong Sevens title this weekend when they battle it out at the brand new Kai Tak Stadium.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm)
+
+---
+
 # Seoul found responsible for abuse of adoptions process
 
 ![International adoptions from South Korea began after the Korean War as a way to remove mixed-race children. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797520_2_20250326170321.jpg&q=90)
@@ -1417,29 +1442,5 @@ President Donald Trump's plan to revitalise the US shipbuilding industry is like
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm)
-
----
-
-# Procedural matters cloud first day of Depardieu trial
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797251_1_20250325085514.jpg&q=90)
-  
-
-The tense first day of the trial of French actor Gerard Depardieu over sexual assault allegations ended on Monday, with both sides trading jabs on their approach to the legal procedure.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm)
 
 ---

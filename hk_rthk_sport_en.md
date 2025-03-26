@@ -1,3 +1,28 @@
+# New Zealand aim for HK Sevens three-peat
+
+![Rugby teams from around the world are preparing for this year's Hong Kong Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797526_3_20250326175525.jpg&q=75)
+![The Melrose Claymores, a tournament featuring Asian teams that runs alongside the Sevens, will be back this weekend. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797526_4_20250326175525.jpg&q=80)
+  
+
+The men’s and women’s squad from New Zealand are chasing their third straight Hong Kong Sevens title this weekend when they battle it out at the brand new Kai Tak Stadium.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm)
+
+---
+
 # NBA mulls over creation of a 10-strong European league
 
 ![Elias Harris, left, goes for a shot against Jabari Parker during a match between Barcelona and Bayern Munich in the Spanish city. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797489_1_20250326150704.jpg&q=90)
@@ -1412,30 +1437,5 @@ Triathletes from the SAR will try to book a spot in this year's National Games b
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796101-20250317.htm)
-
----
-
-# An keeps up streak to win All England title
-
-![An Se-young, right, with China's Wang Zhiyi in Birmingham, England, after their close-fought match. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796035_1_20250317122442.jpg&q=80)
-![China's Shi Yuqi with the All England Open trophy after beating Lee Chia-hao of Chinese Taipei in Birmingham. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796035_2_20250317125238.jpg&q=90)
-  
-
-Olympic women's badminton champion An Se-young came from behind to beat China's Wang Zhiyi 13-21, 21-18, 21-18 in a classic All England Open final as top seed Shi Yuqi lifted the men's crown.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796035-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796035-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796035-20250317.htm)
 
 ---
