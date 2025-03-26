@@ -1,3 +1,28 @@
+# 瓊港簽備忘錄深化合作　有當地工作港人認為可帶來新機遇
+
+![李家超下午與在當地工作的香港青年暢談，他們都認為備忘錄帶來不同的新機遇。（社交專頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797545_1_20250326185907.jpg&q=90)
+![李家超鼓勵香港和海南業界利用好《備忘錄》的機遇，互惠互利，推動經濟增長。（社交專頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797545_2_20250326185907.jpg&q=90)
+  
+
+香港與海南省簽署《合作備忘錄》，在經貿投資、金融、數據安全流動、旅遊以及人才交流共五個領域深化合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797545-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797545-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797545-20250326.htm)
+
+---
+
 # 信保局法定最高彌償百分率由90%提升至95%
 
 ![信保局法定最高彌償百分率提升至95%，有助為香港出口商，特別是中小企提供更全面保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797532_1_20250326180336.jpg&q=90)
@@ -47,6 +72,7 @@
 
 # 啟德體育園提醒參與欖球賽活動者守規則　警方料日均4萬觀眾到場
 
+![香港國際七人欖球賽將首次於啟德體育園主場館舉行。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797542_1_20250326185930.jpg&q=90)
   
 
 香港國際七人欖球賽將於本星期五展開，並首次於啟德體育園主場館舉行。
@@ -70,6 +96,7 @@
 
 # 盧寵茂：不存在調整公營醫療服務收費後推高私營市場收費
 
+![盧寵茂強調，考慮收費時有顧及病人的負擔能力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797541_1_20250326185743.jpg&q=80)
   
 
 政府明年起調整公營醫療服務收費，包括急症室費用加至400元。醫務衞生局局長盧寵茂說，調整收費並非為收回成本，公營醫療收費仍與私營市場相差很遠，因此不存在調整收費後推高私營市場收費。
@@ -93,6 +120,7 @@
 
 # 麥美娟稱關愛隊完成首期協議後將交報告　下月舉行好人好事分享會
 
+![麥美娟認為區議員過去一年很落力履職盡責。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797540_1_20250326185702.jpg&q=80)
   
 
 民政及青年事務局局長麥美娟說，關愛隊完成第一期協議後，將向當局提交報告並向社會公布，她表示，單從數字看不到服務成果，下月將舉行好人好事分享會。
@@ -116,6 +144,7 @@
 
 # 香港與海南簽《合作備忘錄》涉5領域　李家超：深化兩地合作
 
+![李家超見證瓊港簽署合作備忘錄，深化兩地合作。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797539_1_20250326185649.jpg&q=80)
   
 
 香港與海南省簽署《合作備忘錄》，涉及經貿投資、旅遊等5個領域。
@@ -1406,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797418-20250326.htm)
-
----
-
-# 盧寵茂：急症室收費加至400元合理　顧及負擔能力及善用服務
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797417_1_20250326102302.jpg&q=80)
-  
-
-政府公布公營醫療服務收費改革方案，當中急症室收費由現時180元上調至400元，第一類危殆及第二類危急病人豁免收費。醫務衞生局局長盧寵茂認為400元共付額是合理，他說，環顧全世界的急症室收費亦不只這個數目，外國甚至會收過千元美金，強調考慮收費時有顧及病人負擔能力、如何善用服務及分擔成本等因素。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797417-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797417-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797417-20250326.htm)
 
 ---
