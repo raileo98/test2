@@ -1,3 +1,72 @@
+# 盧寵茂：不存在調整公營醫療服務收費後推高私營市場收費
+
+  
+
+政府明年起調整公營醫療服務收費，包括急症室費用加至400元。醫務衞生局局長盧寵茂說，調整收費並非為收回成本，公營醫療收費仍與私營市場相差很遠，因此不存在調整收費後推高私營市場收費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm)
+
+---
+
+# 麥美娟稱關愛隊完成首期協議後將交報告　下月舉行好人好事分享會
+
+  
+
+民政及青年事務局局長麥美娟說，關愛隊完成第一期協議後，將向當局提交報告並向社會公布，她表示，單從數字看不到服務成果，下月將舉行好人好事分享會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797540-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797540-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797540-20250326.htm)
+
+---
+
+# 香港與海南簽《合作備忘錄》涉5領域　李家超：深化兩地合作
+
+  
+
+香港與海南省簽署《合作備忘錄》，涉及經貿投資、旅遊等5個領域。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797539-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797539-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797539-20250326.htm)
+
+---
+
 # 房協推售觀塘及粉嶺項目共1604個單位　下月起兩周接受申請
 
   

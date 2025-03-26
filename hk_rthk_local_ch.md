@@ -1,3 +1,72 @@
+# 盧寵茂：不存在調整公營醫療服務收費後推高私營市場收費
+
+  
+
+政府明年起調整公營醫療服務收費，包括急症室費用加至400元。醫務衞生局局長盧寵茂說，調整收費並非為收回成本，公營醫療收費仍與私營市場相差很遠，因此不存在調整收費後推高私營市場收費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm)
+
+---
+
+# 麥美娟稱關愛隊完成首期協議後將交報告　下月舉行好人好事分享會
+
+  
+
+民政及青年事務局局長麥美娟說，關愛隊完成第一期協議後，將向當局提交報告並向社會公布，她表示，單從數字看不到服務成果，下月將舉行好人好事分享會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797540-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797540-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797540-20250326.htm)
+
+---
+
+# 香港與海南簽《合作備忘錄》涉5領域　李家超：深化兩地合作
+
+  
+
+香港與海南省簽署《合作備忘錄》，涉及經貿投資、旅遊等5個領域。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797539-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797539-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797539-20250326.htm)
+
+---
+
 # 房協推售觀塘及粉嶺項目共1604個單位　下月起兩周接受申請
 
   
@@ -1357,77 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797407-20250326.htm)
-
----
-
-# 醫管局停用200支與港安醫院手術燈墮下事故相同型號檢查燈
-
-![涉事的同一型號檢查燈。（Draeger Hong Kong Limited網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797382_1_20250325230852.jpg&q=90)
-  
-
-醫管局轄下公立醫院及診所，暫停使用200支與港安醫院早前手術燈墮下事故相同型號的檢查燈。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797382-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797382-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797382-20250325.htm)
-
----
-
-# 亞洲盃外圍賽港隊作客0:0賽和新加坡
-
-![亞洲盃外圍賽港隊作客0:0賽和新加坡。（中國香港足球總會社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797377_1_20250325230346.jpg&q=90)
-  
-
-亞洲盃外圍賽第三圈首場賽事，港隊作客0:0賽和新加坡，各得一分。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797377-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797377-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797377-20250325.htm)
-
----
-
-# 小欖精神病治療中心有還押人士涉襲社署職員　兩人均無受傷
-
-![懲教署表示，事發早上約11時許，已交由警方調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797376_1_20250325221918.jpg&q=90)
-  
-
-小欖精神病治療中心有一名男性還押在囚人士，涉嫌襲擊社署職員，在場懲教人員即時制止，這名社署職員及施襲者均無受傷，事件已轉交警方調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797376-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797376-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797376-20250325.htm)
 
 ---
