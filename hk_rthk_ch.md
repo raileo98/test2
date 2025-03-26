@@ -1,3 +1,27 @@
+# 網球未來兩年續成精英運動A級項目　黃澤林稱感謝政府及網球總會
+
+![黃澤林說，感謝團隊背後的一直支持，亦要多謝所有香港支持自己的人。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797611_1_20250327072355.jpg&q=90)
+  
+
+創下本港網球手在ATP-1000分賽最佳成績的黃澤林昨晚返抵香港，他表示，美國邁阿密網球公開賽很累但很開心打得不錯，但始終不是參加很多大滿貫或ATP-1000分賽，自己仍未習慣，需要時間適應和學習。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm)
+
+---
+
 # 美元指數創近3星期新高
 
 ![美元指數升穿104.7，創近3星期新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797604_1_20250327062904.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797540-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797540-20250326.htm)
-
----
-
-# 香港與海南簽《合作備忘錄》涉5領域　李家超：深化兩地合作
-
-![李家超見證瓊港簽署合作備忘錄，深化兩地合作。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797539_1_20250326185649.jpg&q=80)
-  
-
-香港與海南省簽署《合作備忘錄》，涉及經貿投資、旅遊等5個領域。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797539-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797539-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797539-20250326.htm)
 
 ---

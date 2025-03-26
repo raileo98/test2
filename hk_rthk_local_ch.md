@@ -1,3 +1,27 @@
+# 網球未來兩年續成精英運動A級項目　黃澤林稱感謝政府及網球總會
+
+![黃澤林說，感謝團隊背後的一直支持，亦要多謝所有香港支持自己的人。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797611_1_20250327072355.jpg&q=90)
+  
+
+創下本港網球手在ATP-1000分賽最佳成績的黃澤林昨晚返抵香港，他表示，美國邁阿密網球公開賽很累但很開心打得不錯，但始終不是參加很多大滿貫或ATP-1000分賽，自己仍未習慣，需要時間適應和學習。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm)
+
+---
+
 # 陳國基歡迎立法會通過法院遙距聆訊條例草案
 
 ![陳國基表示，歡迎立法會通過《法院遙距聆訊條例草案》。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797585_1_20250327004131.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm)
-
----
-
-# 盧寵茂盼普通科門診多照顧弱勢社群　高拔陞指新方案免不必要爭拗
-
-![政府公布公營醫療服務收費改革方案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797462_1_20250326131500.jpg&q=90)
-  
-
-政府公布公營醫療服務收費改革方案，醫務衞生局局長盧寵茂表示，增加急症室收費及夜診需要兩方面同步推動，又說一直有提升公營夜診服務，希望普通科門診多照顧低收入人士及弱勢社群。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797462-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797462-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797462-20250326.htm)
 
 ---
