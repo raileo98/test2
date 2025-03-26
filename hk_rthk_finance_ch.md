@@ -1,3 +1,27 @@
+# 劉國勳稱地契修訂「按實補價」可增加發展商或企業投資意欲
+
+![劉國勳認為，「按實補價」可加快發展項目早日落地，亦有助北部都會區多元化發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797573_1_20250326214934.jpg&q=75)
+  
+
+發展局局長甯漢豪出席立法會前廳交流會後表示，政府提出「按實補價」概念，即是進行地契修訂時，研究不一定要用最高樓面的面積定其補價，可按實際興建量定其補價，目的是讓一些發展項目早日可以「去馬」和成事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm)
+
+---
+
 # 美股初段個別發展
 
 ![美股初段個別發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797571_1_20250326213503.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797422-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797422-20250326.htm)
-
----
-
-# 寧德時代在港上市已獲中證監備案
-
-![寧德時代計劃發行H股並在香港聯交所主板上市，已獲中國證監會備案。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797419_1_20250326091253.jpg&q=90)
-  
-
-寧德時代計劃發行H股並在香港聯交所主板上市，已獲中國證監會備案，擬發行不多於約2.2億股H股。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797419-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797419-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797419-20250326.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 劉國勳稱地契修訂「按實補價」可增加發展商或企業投資意欲
+
+![劉國勳認為，「按實補價」可加快發展項目早日落地，亦有助北部都會區多元化發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797573_1_20250326214934.jpg&q=75)
+  
+
+發展局局長甯漢豪出席立法會前廳交流會後表示，政府提出「按實補價」概念，即是進行地契修訂時，研究不一定要用最高樓面的面積定其補價，可按實際興建量定其補價，目的是讓一些發展項目早日可以「去馬」和成事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm)
+
+---
+
 # 約53萬4千名車主或駕駛執照持有人提交已核實電子聯絡方式
 
 ![運輸署呼籲，提供及核實香港流動電話號碼或電郵地址作為電子聯絡方式，以接收警方和署方的電子訊息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797572_1_20250326214210.jpg&q=80)
