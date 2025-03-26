@@ -1,3 +1,27 @@
+# 河北永清縣凌晨發生4.2級地震　暫沒傷亡和損毀報告
+
+![河北永清縣凌晨發生4.2級地震　暫沒傷亡和損毀報告](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797413_1_20250326082524.jpg&q=90)
+  
+
+河北廊坊市永清縣凌晨發生4.2級地震，震源深度20公里，中國地震局啟動三級應急服務響應，暫時無傷亡和損毀報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797413-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797413-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797413-20250326.htm)
+
+---
+
 # 華潤萬象生活去年多賺約24%　再度派發特別股息
 
 ![華潤萬象生活派末期息每股0.643元人民幣，另派特別股息0.614元，是繼中期業績後再度派特別股息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797412_1_20250326075549.jpg&q=80)
@@ -46,12 +70,12 @@
 
 ---
 
-# 南韓慶尚北道山火持續蔓延　增至15人死亡
+# 南韓慶尚北道山火持續蔓延　增至16人死亡
 
 ![在南韓安東市，山火持續燃燒，濃煙升至半空。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797410_1_20250326074128.jpg&q=90)
   
 
-南韓慶尚北道義城郡發生的山火持續多日，已蔓延至安東市等附近四個地區，增至15人死亡。
+南韓慶尚北道義城郡發生的山火持續多日，已蔓延至安東市等附近四個地區，增至16人死亡，10人受傷。
 
   
 
@@ -216,7 +240,7 @@
 
 # 漁護署：本地優質漁農產品將可獲統一Q嘜認證　令市民食得放心
 
-![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_2_20250326072955.jpg&q=70)
+![漁護署將推出「Q嘜」制度，認證本地優質漁農產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797407_3_20250326080309.jpg&q=80)
   
 
 漁護署表示，本地優質漁農產品將可獲得統一的「Q嘜」認證，目標是2025/26財政年度內推出相關制度。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797341-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797341-20250325.htm)
-
----
-
-# 中電信去年多賺逾8%　全年派息升逾11%
-
-![中電信公布，去年盈利330.1億元人民幣，按年升8.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797337_1_20250325174545.jpg&q=85)
-  
-
-中電信去年盈利330.1億元人民幣，按年升8.4%。末期息每股9.27分，全年派息25.98分，按年升逾11%，派息比率72%。公司指，3年內派息比率將逐步提升至75%以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797337-20250325.htm)
 
 ---
