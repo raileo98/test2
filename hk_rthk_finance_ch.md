@@ -1,3 +1,28 @@
+# 「裕澤香江」高峰論壇完成　陳茂波：香港成為家辦落戶理想地
+
+![陳茂波稱香港正大力推動創科發展，讓香港成為家辦落戶和實踐願景理想地。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797548_1_20250326191440.jpg&q=90)
+![許正宇認為家辦可善用香港獨特生態圈創造可持續影響力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797548_2_20250326192825.jpg&q=90)
+  
+
+「裕澤香江」高峰論壇圓滿完成。匯聚約360位在全球各地具影響力的家族辦公室決策人、領導者和業界，展示香港在創新、投資和跨文化合作方面的蓬勃發展，以及作為東西方橋樑的優勢。出席講者包括阿里巴巴主席蔡崇信、香港財富傳承學院主席鄭志剛、施華洛世奇副主席Robert Buchbauer等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm)
+
+---
+
 # 信保局法定最高彌償百分率由90%提升至95%
 
 ![信保局法定最高彌償百分率提升至95%，有助為香港出口商，特別是中小企提供更全面保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797532_1_20250326180336.jpg&q=90)
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797400-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797400-20250326.htm)
-
----
-
-# 港股美國預託證券大多造好　滙控升約3%
-
-![滙控ADR比本港昨日收市價升約3%，以港元計折合報90.8元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797398_1_20250326060241.jpg&q=90)
-  
-
-港股美國預託證券(ADR)大多造好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797398-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797398-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797398-20250326.htm)
 
 ---

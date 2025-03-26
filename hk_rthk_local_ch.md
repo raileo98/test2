@@ -1,5 +1,31 @@
+# 「裕澤香江」高峰論壇完成　陳茂波：香港成為家辦落戶理想地
+
+![陳茂波稱香港正大力推動創科發展，讓香港成為家辦落戶和實踐願景理想地。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797548_1_20250326191440.jpg&q=90)
+![許正宇認為家辦可善用香港獨特生態圈創造可持續影響力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797548_2_20250326192825.jpg&q=90)
+  
+
+「裕澤香江」高峰論壇圓滿完成。匯聚約360位在全球各地具影響力的家族辦公室決策人、領導者和業界，展示香港在創新、投資和跨文化合作方面的蓬勃發展，以及作為東西方橋樑的優勢。出席講者包括阿里巴巴主席蔡崇信、香港財富傳承學院主席鄭志剛、施華洛世奇副主席Robert Buchbauer等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm)
+
+---
+
 # 港澳辦轉載報道引述各界提醒營商不顧國家利益終會自毀基石
 
+![港澳辦轉載《大公報》報道引述各界提醒，營商不顧國家利益，終究會自毀基石。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797551_1_20250326192832.jpg&q=75)
   
 
 中共中央港澳辦公室、國務院港澳辦轉載《大公報》報道指，長和擬出售巴拿馬港口一事繼續熱議，社會各界人士提醒營商不顧國家利益，終究會自毀基石。
@@ -1411,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797438-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797438-20250326.htm)
-
----
-
-# 丘應樺：地緣政治日益複雜　局方為商界開發其他新經濟體
-
-![丘應樺表示，在港的外地企業數目增加，香港在不同國際排名名列前茅，都是國際認可。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797436_1_20250326104617.jpg&q=80)
-  
-
-下月15日是「全民國家安全教育日」，商務及經濟發展局局長丘應樺接受報章訪問表示，經濟安全與國家安全息息相關，看到外國企業對於落實香港國安法、維護國家安全條例後的營商環境非常有信心。他表示，在港的外地企業數目增加，香港在不同國際排名名列前茅，都是國際認可，局方在知識產權、電訊、商貿等方面做了很多功夫，力求保障經濟發展和國家安全。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797436-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797436-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797436-20250326.htm)
 
 ---

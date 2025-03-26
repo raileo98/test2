@@ -1,3 +1,28 @@
+# 「裕澤香江」高峰論壇完成　陳茂波：香港成為家辦落戶理想地
+
+![陳茂波稱香港正大力推動創科發展，讓香港成為家辦落戶和實踐願景理想地。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797548_1_20250326191440.jpg&q=90)
+![許正宇認為家辦可善用香港獨特生態圈創造可持續影響力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797548_2_20250326192825.jpg&q=90)
+  
+
+「裕澤香江」高峰論壇圓滿完成。匯聚約360位在全球各地具影響力的家族辦公室決策人、領導者和業界，展示香港在創新、投資和跨文化合作方面的蓬勃發展，以及作為東西方橋樑的優勢。出席講者包括阿里巴巴主席蔡崇信、香港財富傳承學院主席鄭志剛、施華洛世奇副主席Robert Buchbauer等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm)
+
+---
+
 # 湖北省委原書記蔣超良被罷免全國人大代表資格
 
 ![湖北省委原書記蔣超良被罷免全國人大代表資格](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797552_1_20250326192308.jpg&q=90)
@@ -24,6 +49,7 @@
 
 # 港澳辦轉載報道引述各界提醒營商不顧國家利益終會自毀基石
 
+![港澳辦轉載《大公報》報道引述各界提醒，營商不顧國家利益，終究會自毀基石。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797551_1_20250326192832.jpg&q=75)
   
 
 中共中央港澳辦公室、國務院港澳辦轉載《大公報》報道指，長和擬出售巴拿馬港口一事繼續熱議，社會各界人士提醒營商不顧國家利益，終究會自毀基石。
