@@ -1,3 +1,27 @@
+# 'Youngsters respond positively to govt youth schemes'
+
+![Alice Mak says proactive outreach by officials has helped generate a strong response towards government youth programmes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797448_1_20250326113912.jpg&q=75)
+  
+
+Secretary for Home and Youth Affairs Alice Mak said there has been a strong response to various government youth programmes.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797448-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797448-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797448-20250326.htm)
+
+---
+
 # 'All systems go at Kai Tak for rugby showcase'
 
 ![Tang King-shing (second left), Bryan Rennie (right), along with police and transport officials, meet the media ahead of the Rugby Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
@@ -1416,29 +1440,5 @@ Hong Kong's stock market ended higher on Monday with the benchmark Hang Seng Ind
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797176-20250324.htm)
-
----
-
-# China vows more proactive fiscal policy at dev't forum
-
-![Entrepreneurs, government officials, experts and business representatives attend the China Development Forum 2025. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797174_1_20250324171122.jpg&q=75)
-  
-
-Beijing on Monday said it will implement a more proactive fiscal policy this year, with finance minister Lan Fo'an saying the nation's economic and fiscal strengths have grown significantly.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797174-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797174-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797174-20250324.htm)
 
 ---

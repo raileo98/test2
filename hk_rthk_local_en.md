@@ -1,3 +1,27 @@
+# 'Youngsters respond positively to govt youth schemes'
+
+![Alice Mak says proactive outreach by officials has helped generate a strong response towards government youth programmes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797448_1_20250326113912.jpg&q=75)
+  
+
+Secretary for Home and Youth Affairs Alice Mak said there has been a strong response to various government youth programmes.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797448-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797448-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797448-20250326.htm)
+
+---
+
 # 'All systems go at Kai Tak for rugby showcase'
 
 ![Tang King-shing (second left), Bryan Rennie (right), along with police and transport officials, meet the media ahead of the Rugby Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
@@ -1422,29 +1446,5 @@ A Hong Kong Airlines flight was forced to make an emergency landing in Fuzhou af
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796611-20250320.htm)
-
----
-
-# Ride-hailing drivers 'should face cabbie-style test'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796607_1_20250320154245.jpg&q=90)
-  
-
-The government should draw up "an appropriate level" of regulations for ride-hailing platforms, such as by making it mandatory for drivers to take a licensing exam similar to that for cabbies, a lawmaker said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796607-20250320.htm)
 
 ---
