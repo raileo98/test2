@@ -1,3 +1,27 @@
+# 韓正晤新加坡副總理　稱中方願深化兩國各領域交流合作
+
+![國家副主席韓正（右）在北京會見新加坡副總理王瑞傑。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797501_1_20250326153401.jpg&q=90)
+  
+
+國家副主席韓正在北京會見新加坡副總理王瑞傑時表示，過去一年來，中新關係穩步深入發展，習近平主席同新加坡領導人的系列會晤為下階段中新關係發展指明方向。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm)
+
+---
+
 # 湖北省委原書記蔣超良被提請罷免全國人大代表資格
 
   
