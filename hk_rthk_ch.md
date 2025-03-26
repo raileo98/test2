@@ -1,3 +1,27 @@
+# 中印舉行外交部官員磋商　中方形容氣氛坦誠務實、富建設性
+
+![中國與印度在北京舉行外交部官員磋商。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797587_1_20250327013533.jpg&q=90)
+  
+
+中國與印度在北京舉行外交部官員磋商。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm)
+
+---
+
 # 中國成功發射天鏈二號04星
 
 ![中國於西昌衛星發射中心使用長征三號乙運載火箭，成功將天鏈二號04星發射升空。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797586_1_20250327012105.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm)
-
----
-
-# 中銀香港去年多賺近17%　擬今年起按季度派息
-
-![中銀香港去年盈利382.3億元，按年升16.8%。派末期息每股1.419元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797518_1_20250326165556.jpg&q=90)
-  
-
-中銀香港公布，去年盈利382.3億元，按年升16.8%。派末期息每股1.419元，全年派息1.989元，按年增長近19%，派息比率為55%，提升1個百分點。公司計劃由今年起，按季度派發股息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm)
 
 ---

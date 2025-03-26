@@ -1,3 +1,27 @@
+# 中印舉行外交部官員磋商　中方形容氣氛坦誠務實、富建設性
+
+![中國與印度在北京舉行外交部官員磋商。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797587_1_20250327013533.jpg&q=90)
+  
+
+中國與印度在北京舉行外交部官員磋商。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm)
+
+---
+
 # 中國成功發射天鏈二號04星
 
 ![中國於西昌衛星發射中心使用長征三號乙運載火箭，成功將天鏈二號04星發射升空。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797586_1_20250327012105.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797162-20250324.htm)
-
----
-
-# 法國外長巴羅本周四起訪華兩日
-
-![巴羅將於本星期四至五訪華。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797158_1_20250324154336.jpg&q=90)
-  
-
-在北京，外交部表示，應中共中央政治局委員、外交部長王毅邀請，法國歐洲及外交部長巴羅將於本星期四至五訪華。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm)
 
 ---
