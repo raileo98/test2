@@ -1,4 +1,28 @@
-# 特朗普宣布對美國進口汽車徵收25%關稅
+# 華府高層通訊群組討論軍事行動　資深共和黨參議員要求獨立調查
+
+![共和黨籍的國會參議院軍事委員會主席威克表示，有關聊天信息非常敏感。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797601_1_20250327063816.jpg&q=90)
+  
+
+美國一名記者被加入華府高層討論打擊也門胡塞武裝行動的通訊群組，引發外界對政府洩密的憂慮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797601-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797601-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797601-20250327.htm)
+
+---
+
+# 特朗普宣布對進口美國汽車徵收25%關稅
 
 ![美國總統特朗普宣布，對所有進口汽車徵收25%關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797597_1_20250327060309.jpg&q=90)
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797230-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797230-20250325.htm)
-
----
-
-# 以軍因標注有誤向紅十字會國際委員會建築物開火
-
-![加沙持續遭到以軍空襲，大量建築物受損。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797227_1_20250325042635.jpg&q=60)
-  
-
-以色列軍方繼續在加沙的軍事行動之際，位於加沙南部拉法的紅十字國際委員會辦事處，遭到以軍襲擊，無人員傷亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797227-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797227-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797227-20250325.htm)
 
 ---

@@ -1,3 +1,51 @@
+# Denmark welcomes US limiting Greenland visit
+
+![US Vice President JD Vance announced he would accompany his wife Usha, left, on Friday to the Pituffik Space Base in Greenland. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797564_1_20250326210127.jpg&q=90)
+  
+
+Denmark welcomed on Wednesday Washington's decision to limit an American delegation's visit to Greenland to a US military base, after previous plans for the unexpected trip sparked criticism.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797564-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797564-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797564-20250327.htm)
+
+---
+
+# Netanyahu threatens to seize parts of Gaza
+
+![Israeli Prime Minister Benjamin Netanyahu has threatened to seize more of Gaza if the remaining hostages are not released. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797593_1_20250327035155.jpg&q=90)
+  
+
+Israeli Prime Minister Benjamin Netanyahu threatened on Wednesday to seize parts of Gaza if Hamas does not release hostages, while the militant group warned they would return "in coffins" if Israel does not stop bombing the Palestinian territory.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm)
+
+---
+
 # Coleman Wong ready to climb up world tennis ranking
 
 ![Coleman Wong said he's glad to prove that a player from the SAR can beat a top-20 player in the world. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797605_1_20250327063121.jpg&q=90)
@@ -1391,53 +1439,5 @@ The chairman of the Billiard Sports Council of Hong Kong China welcomes the gove
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm)
-
----
-
-# Cats and dogs allowed on light rail from May
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797287_1_20250325122816.jpg&q=85)
-  
-
-Cat and dog owners will soon be able to bring pets on board the light rail on weekends and public holidays once the MTR Corporation rolls out a HK$99 monthly pet pass from May as part of a trial scheme.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm)
-
----
-
-# Chinese staff of US due diligence firm freed
-
-![Mintz Group's office in Beijing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797274_1_20250325111046.jpg&q=90)
-  
-
-Chinese authorities have released all employees of a US corporate due diligence firm detained in Beijing two years ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm)
 
 ---

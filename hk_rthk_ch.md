@@ -1,4 +1,28 @@
-# 特朗普宣布對美國進口汽車徵收25%關稅
+# 華府高層通訊群組討論軍事行動　資深共和黨參議員要求獨立調查
+
+![共和黨籍的國會參議院軍事委員會主席威克表示，有關聊天信息非常敏感。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797601_1_20250327063816.jpg&q=90)
+  
+
+美國一名記者被加入華府高層討論打擊也門胡塞武裝行動的通訊群組，引發外界對政府洩密的憂慮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797601-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797601-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797601-20250327.htm)
+
+---
+
+# 特朗普宣布對進口美國汽車徵收25%關稅
 
 ![美國總統特朗普宣布，對所有進口汽車徵收25%關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797597_1_20250327060309.jpg&q=90)
   
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797531-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797531-20250326.htm)
-
----
-
-# 南韓山火增至最少24死　學校及體育館成為災民臨時安置中心
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797530_1_20250326182823.jpg&q=85)
-  
-
-南韓東南部大型山火持續，增至最少24人死亡、12人重傷、14人輕傷；房屋、工廠、寺廟及文化遺產等超過200處地點受災。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797530-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797530-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797530-20250326.htm)
 
 ---

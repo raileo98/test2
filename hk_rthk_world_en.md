@@ -1,3 +1,51 @@
+# Denmark welcomes US limiting Greenland visit
+
+![US Vice President JD Vance announced he would accompany his wife Usha, left, on Friday to the Pituffik Space Base in Greenland. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797564_1_20250326210127.jpg&q=90)
+  
+
+Denmark welcomed on Wednesday Washington's decision to limit an American delegation's visit to Greenland to a US military base, after previous plans for the unexpected trip sparked criticism.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797564-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797564-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797564-20250327.htm)
+
+---
+
+# Netanyahu threatens to seize parts of Gaza
+
+![Israeli Prime Minister Benjamin Netanyahu has threatened to seize more of Gaza if the remaining hostages are not released. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797593_1_20250327035155.jpg&q=90)
+  
+
+Israeli Prime Minister Benjamin Netanyahu threatened on Wednesday to seize parts of Gaza if Hamas does not release hostages, while the militant group warned they would return "in coffins" if Israel does not stop bombing the Palestinian territory.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm)
+
+---
+
 # Magazine publishes US attack plan shared in group chat
 
 ![In the Signal chat, Defence Secretary Pete Hegseth lays out the weather conditions, times of attacks and types of aircraft being used. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797576_1_20250326222631.jpg&q=90)
@@ -1388,53 +1436,5 @@ Beijing on Thursday demanded protections for Chinese students in the US after a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796721-20250321.htm)
-
----
-
-# Trump moves to shut down Department of Education
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796723_1_20250321092630.jpg&q=75)
-  
-
-US President Donald Trump on Thursday signed an executive order aimed at shutting down the Department of Education, a decades-old goal of the American right, which wants individual states to run schools free from the influence of federal government.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796723-20250321.htm)
-
----
-
-# Vancouver auto show bans Tesla over safety concerns
-
-![Tesla cars and showrooms have been vandalised in the US and other countries recently. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796697_1_20250321043524.jpg&q=85)
-  
-
-Tesla was removed from the Vancouver International Auto Show in Canada because of safety concerns, the event organisers said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796697-20250321.htm)
 
 ---

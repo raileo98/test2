@@ -1,4 +1,4 @@
-# 特朗普宣布對美國進口汽車徵收25%關稅
+# 特朗普宣布對進口美國汽車徵收25%關稅
 
 ![美國總統特朗普宣布，對所有進口汽車徵收25%關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797597_1_20250327060309.jpg&q=90)
   
