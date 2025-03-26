@@ -1,3 +1,27 @@
+# Investment migrant scheme could lure at least HK$27b
+
+![Christopher Hui says more than 900 capital investment migrant applications have been received. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797505_1_20250326155229.jpg&q=85)
+  
+
+The government on Wednesday said a renewed capital investment migrant scheme could bring investments worth HK$27 billion to Hong Kong.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797505-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797505-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797505-20250326.htm)
+
+---
+
 # HK, Hainan to cooperate in promoting trade ties
 
 ![Chief Executive John Lee says collaboration between Hong Kong and Hainan will contribute to a high-level opening-up of the country. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797500_1_20250326153447.jpg&q=85)
@@ -217,7 +241,7 @@ The organiser of Art Basel Hong Kong said on Wednesday this year's edition aims 
 
 # 'Youngsters respond positively to govt youth schemes'
 
-![Alice Mak says proactive outreach by officials has helped generate a strong response towards government youth programmes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797448_1_20250326113912.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797448_1_20250326113912.jpg&q=75)
   
 
 Secretary for Home and Youth Affairs Alice Mak said there has been a strong response to various government youth programmes.
@@ -1417,29 +1441,5 @@ Top Trump administration officials, including US Vice President JD Vance and Sec
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797229-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797229-20250325.htm)
-
----
-
-# Hong Kong's Coleman Wong bows out of Miami Open
-
-![Wong's historic Miami Open run ended in a three-set defeat to Australia's Adam Walton. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797228_2_20250325054405.jpg&q=90)
-  
-
-Hong Kong's rising tennis star Coleman Wong on Monday fell short of a third round victory at this year's Miami Open.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797228-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797228-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797228-20250325.htm)
 
 ---

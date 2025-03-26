@@ -1,3 +1,27 @@
+# 港股反彈139點收市
+
+![恒指最多升逾250點，收市報23483點，升139點，升幅0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797509_1_20250326162309.jpg&q=80)
+  
+
+港股反彈，恒生指數最多升逾250點，升至近23600點水平，其後一度蒸發大部分升幅，收市報23483點，升139點，升幅0.6%，主板成交額約1998億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797509-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797509-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797509-20250326.htm)
+
+---
+
 # 麥美娟：市民本月31起可向各區民政處申請查閱區議員工作報告
 
   
@@ -23,6 +47,7 @@
 
 # 麥美娟：恆常化關愛隊　調整合約安排18區看齊
 
+![麥美娟表示，因應延長幾個月協議期，該兩區的關愛隊相應工作，將以當局第一期協議的資源和關鍵績效指標，按比例計算以繼續工作。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797508_1_20250326162452.jpg&q=90)
   
 
 民政及青年事務局局長麥美娟說，行政長官在去年《施政報告》宣布恆常化關愛隊配置，因應有關安排，將調整關愛隊合約安排。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797344-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797344-20250325.htm)
-
----
-
-# 政府消息：有人貪方便求診急症室　護士反映病人半夜因腳痕求診
-
-![政府消息人士表示，急症室的功能是救急扶危，不是領取假紙或因為24小時運作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797343_1_20250325182128.jpg&q=90)
-  
-
-政府公布公營醫療服務收費改革方案， 急症室收費將由現時180元增至400元，第一類危殆及第二類危急病人可獲豁免。政府消息人士表示，急症室的功能是救急扶危，不是領取假紙或因為24小時運作，有人可以貪方便求診，如果急症室堆滿第四及第五類非緊急病人，對醫護人員士氣會有很大打擊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797343-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797343-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797343-20250325.htm)
 
 ---

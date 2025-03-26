@@ -1,3 +1,27 @@
+# Investment migrant scheme could lure at least HK$27b
+
+![Christopher Hui says more than 900 capital investment migrant applications have been received. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797505_1_20250326155229.jpg&q=85)
+  
+
+The government on Wednesday said a renewed capital investment migrant scheme could bring investments worth HK$27 billion to Hong Kong.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797505-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797505-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797505-20250326.htm)
+
+---
+
 # HK, Hainan to cooperate in promoting trade ties
 
 ![Chief Executive John Lee says collaboration between Hong Kong and Hainan will contribute to a high-level opening-up of the country. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797500_1_20250326153447.jpg&q=85)
@@ -121,7 +145,7 @@ The organiser of Art Basel Hong Kong said on Wednesday this year's edition aims 
 
 # 'Youngsters respond positively to govt youth schemes'
 
-![Alice Mak says proactive outreach by officials has helped generate a strong response towards government youth programmes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797448_1_20250326113912.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797448_1_20250326113912.jpg&q=75)
   
 
 Secretary for Home and Youth Affairs Alice Mak said there has been a strong response to various government youth programmes.
@@ -1419,29 +1443,5 @@ Chief Executive John Lee on Friday said the city will soon launch a HK$3 billion
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796766-20250321.htm)
-
----
-
-# All eyes on safety in low-altitude test runs
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796743_1_20250321110918.jpg&q=90)
-  
-
-Transport chief Mable Chan said on Friday most pilot projects in Hong Kong's first-ever low-altitude economy test run will be operated manually and within the line of sight.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796743-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796743-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796743-20250321.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 中方堅決反對美方濫施非法單邊制裁　予以強烈譴責
+
+  
+
+在北京，外交部指美方濫用實體清單等出口管制工具，以危害美國國家安全、違反美國外交政策為藉口，濫施非法單邊制裁，是典型的霸權主義行徑，嚴重違反國際法及國際關係基本準則，嚴重損害企業的合法權益，破壞全球產供鏈安全穩定，中方對此堅決反對，並予以強烈譴責。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797511-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797511-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797511-20250326.htm)
+
+---
+
 # 韓正晤新加坡副總理　稱中方願深化兩國各領域交流合作
 
 ![國家副主席韓正（右）在北京會見新加坡副總理王瑞傑。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797501_1_20250326153401.jpg&q=90)
@@ -1414,30 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797057-20250323.htm)
-
----
-
-# 許勤訪西九文化區　參觀兩個博物館
-
-![許勤（左二）與唐英年（右二）等人於M+合影。（唐英年提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797056_1_20250323212057.jpg&q=85)
-![許勤亦參觀香港故宮文化博物館。（唐英年提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797056_2_20250323212057.jpg&q=85)
-  
-
-黑龍江省委書記許勤昨日到西九文化區參觀，西九文化區管理局董事局主席唐英年、行政總裁馮程淑儀及香港故宮文化博物館館長吳志華，向許勤講解文化區的發展情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797056-20250323.htm)
 
 ---

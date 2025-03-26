@@ -1,3 +1,51 @@
+# 貿發局：關稅政策不確定　料本港出口表現將較反覆
+
+![范婉兒：受關稅政策的不確定性影響，進出口商目前仍採取觀望態度，相信本港出口表現將較反覆。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797512_1_20250326163058.jpg&q=90)
+  
+
+貿發局最新將今年本港出口增長預測由4%下調至3%。貿發局研究總監范婉兒解釋，主要是考慮到美國對內地及香港加徵20%關稅，以及對加拿大、墨西哥和歐盟加徵關稅及引發的報復措施等。但她形容，今次下調幅度溫和，3%的增長率與過去10年的平均水平相若。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797512-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797512-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797512-20250326.htm)
+
+---
+
+# 港股反彈139點收市
+
+![恒指最多升逾250點，收市報23483點，升139點，升幅0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797509_1_20250326162309.jpg&q=80)
+  
+
+港股反彈，恒生指數最多升逾250點，升至近23600點水平，其後一度蒸發大部分升幅，收市報23483點，升139點，升幅0.6%，主板成交額約1998億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797509-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797509-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797509-20250326.htm)
+
+---
+
 # 韓正晤新加坡副總理　稱中方願深化兩國各領域交流合作
 
 ![國家副主席韓正（右）在北京會見新加坡副總理王瑞傑。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797501_1_20250326153401.jpg&q=90)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm)
-
----
-
-# 美國2月新屋銷售按月增加1.8%
-
-![美國2月新屋銷售按月增加1.8%，以年率計有67.6萬間，略低過市場預期。 （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797374_1_20250325221232.jpg&q=25)
-  
-
-美國2月新屋銷售按月增加1.8%，以年率計有67.6萬間，略低過市場預期的67.9萬間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797374-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797374-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797374-20250325.htm)
-
----
-
-# 美國3月消費者信心指數連跌4個月　預期指數跌至12年以來最低
-
-![美國3月消費者信心指數跌至92.9，連跌4個月。 預期指數跌至12年以來最低水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797380_1_20250325225019.jpg&q=90)
-  
-
-世界大型企業研究會公布，美國3月消費者信心指數跌至92.9，低過市場預期的94，連跌4個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797380-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797380-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797380-20250325.htm)
 
 ---

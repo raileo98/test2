@@ -1,3 +1,26 @@
+# 中方堅決反對美方濫施非法單邊制裁　予以強烈譴責
+
+  
+
+在北京，外交部指美方濫用實體清單等出口管制工具，以危害美國國家安全、違反美國外交政策為藉口，濫施非法單邊制裁，是典型的霸權主義行徑，嚴重違反國際法及國際關係基本準則，嚴重損害企業的合法權益，破壞全球產供鏈安全穩定，中方對此堅決反對，並予以強烈譴責。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797511-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797511-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797511-20250326.htm)
+
+---
+
 # 不信任動議被否決　泰總理佩通坦感謝各方充分履行人民代表職責
 
 ![佩通坦說在今次表決中，不論投票取向，都會成為她與內閣團隊繼續為人民努力工作的動力。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797506_1_20250326155548.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797158-20250324.htm)
-
----
-
-# 韓悳洙：竭盡智慧和力量應對貿易戰　籲朝野黨派實現合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797155_1_20250324153129.jpg&q=90)
-  
-
-南韓憲法法院駁回國會對韓悳洙的彈劾案，韓悳洙停職87天後即時恢復國務總理及代總統職權。他復職後向國民發表講話，呼籲朝野黨派實現合作，克服當前國家面臨的危機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797155-20250324.htm)
 
 ---
