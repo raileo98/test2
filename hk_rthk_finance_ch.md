@@ -1,3 +1,26 @@
+# 李家超：瓊港雙方合力開拓面向東盟區域性大市場
+
+  
+
+正在海南的行政長官李家超，出席海南省人民政府與李家超香港特區政府簽署《合作備忘錄》儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm)
+
+---
+
 # 泡泡馬特去年盈利增長近兩倍
 
 ![泡泡瑪特去年盈利約31.3億元人民幣，增長近兩倍；港澳台及海外業務銷售收入佔整體近40%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797461_1_20250326124221.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm)
-
----
-
-# 李家超博鰲分論壇致辭　稱香港致力深化國際交流與合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797335_1_20250325182921.jpg&q=90)
-  
-
-正在博鰲論壇亞洲年會的行政長官李家超，下午出席「全球自由貿易港發展」分論壇並致辭。他表示，亞洲作為全球增長引擎，必須推動多邊主義，拒絕保護主義，香港將致力於深化國際交流與合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm)
 
 ---

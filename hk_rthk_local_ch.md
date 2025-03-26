@@ -1,3 +1,26 @@
+# 李家超：瓊港雙方合力開拓面向東盟區域性大市場
+
+  
+
+正在海南的行政長官李家超，出席海南省人民政府與李家超香港特區政府簽署《合作備忘錄》儀式。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm)
+
+---
+
 # 盧寵茂盼普通科門診多照顧弱勢社群　高拔陞指新方案免不必要爭拗
 
   
@@ -1409,30 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797293-20250325.htm)
-
----
-
-# 公營醫療收費每人每年1萬元上限　料7萬名重症病人受惠
-
-![政府公布公營醫療服務收費改革方案。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797292_2_20250325131612.jpg&q=90)
-![當局增設全年收費上限，每人每年1萬元，適用於所有收費項目，自費藥械除外。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797292_3_20250325132430.jpg&q=85)
-  
-
-政府公布公營醫療服務收費改革方案，當局強調，今次改革是從系統角度改革資助架構，按不同公營醫療服務𨤳定政府資助水平和共付比例，理順住院和急症室等服務的相對需求。政府強調會循序漸進，分階段5年內達致目標，第一階段調整將於明年推行，每兩年檢討一次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797292-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797292-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797292-20250325.htm)
 
 ---
