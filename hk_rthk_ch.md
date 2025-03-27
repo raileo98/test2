@@ -1,3 +1,26 @@
+# 差估署：上月私人住宅樓價跌幅擴大　創逾8年半新低
+
+  
+
+差餉物業估價署數據顯示，本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797654-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797654-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797654-20250327.htm)
+
+---
+
 # 男子深圳抵港攜9粒太空油毒品煙彈及1支電子煙裝置被捕
 
 ![關員在被捕男子身上及行李內搜出9粒懷疑「太空油毒品」煙彈及1支電子煙裝置。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797652_1_20250327122942.jpg&q=90)
@@ -120,7 +143,11 @@
 
 # 丁薛祥：擴大國內需求積極穩外貿穩外資　有信心實現發展目標
 
+![丁薛祥表示，去年在困難和挑戰明顯增多的情況下，中國經濟實現了5%增長，增速居於世界主要經濟體的前列。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797641_1_20250327123700.jpg&q=80)
   
+
+國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式致辭表示，今年首兩個月，中國經濟運行起步平穩，有信心實現經濟社會發展目標，為亞洲和世界的發展作出新貢獻。
+
   
 
 
@@ -1406,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm)
-
----
-
-# 約53萬4千名車主或駕駛執照持有人提交已核實電子聯絡方式
-
-![運輸署呼籲，提供及核實香港流動電話號碼或電郵地址作為電子聯絡方式，以接收警方和署方的電子訊息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797572_1_20250326214210.jpg&q=80)
-  
-
-賦權運輸署署長向相關人士收集電子聯絡方式的修訂條例自去年11月18日生效以來，截至昨日，有約53.4萬名車主或駕駛執照持有人提交已核實的電子聯絡方式，佔總數約兩成，預計有關數字將穩步上升。警方在電子告票實施初期會「雙軌並行」，即同時發出傳統紙本告票，讓市民逐步適應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797572-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797572-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797572-20250326.htm)
 
 ---
