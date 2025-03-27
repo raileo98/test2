@@ -1,3 +1,99 @@
+# 卡尼批評美國對進口汽車徵收關稅是對加拿大工人直接攻擊
+
+![德國汽車工業協會呼籲美國和歐盟展開雙邊會談尋求解決方案。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797615_1_20250327082909.jpg&q=60)
+  
+
+美國總統特朗普宣布對所有進口汽車徵收25%關稅，4月2日生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm)
+
+---
+
+# 卡什卡利：關稅影響轉趨明朗前　聯儲局應較長時間按兵不動
+
+![卡什卡利表示，不確定關稅措施對經濟造成的影響，在情況轉趨明朗前，聯儲局應在一段較長時間內保持按兵不動。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797612_1_20250327072904.jpg&q=80)
+  
+
+美國明尼亞波利斯聯邦儲備銀行總裁卡什卡利表示，不確定關稅措施對經濟造成的影響，可能會推高物價，因而需要加息，但亦可能會減慢經濟增長，因而要降低借貸成本。他認為，在情況轉趨明朗前，聯儲局應在一段較長時間內保持按兵不動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797612-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797612-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797612-20250327.htm)
+
+---
+
+# 日股初段曾跌逾1%　下試37500點水平
+
+![日經指數開市後低見37556點，跌1.2%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797613_1_20250327081559.jpg&q=75)
+  
+
+日股初段受壓，日經指數開市後低見37556點，跌1.2%，較早時報37738點，跌288點，跌幅0.76%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797613-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797613-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797613-20250327.htm)
+
+---
+
+# 韓股初段跌逾0.6%
+
+![首爾綜合指數較早時報2627點，跌16點，跌幅0.63%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797614_1_20250327081650.jpg&q=90)
+  
+
+南韓股市早段向下，首爾綜合指數較早時報2627點，跌16點，跌幅0.63%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797614-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797614-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797614-20250327.htm)
+
+---
+
 # 加拿大央行：關稅帶來不確定　目前不宜提供利率路徑指引
 
 ![加拿大央行表示，關稅導致難以確定貨幣政策未來走向，目前不宜為政策利率未來路徑提供指引。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797609_1_20250327071319.jpg&q=30)
@@ -1340,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797450-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797450-20250326.htm)
-
----
-
-# 陳茂波呼籲國際投資者不要錯失內地及亞太區機遇
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797447_1_20250326113924.jpg&q=90)
-  
-
-財政司司長陳茂波指出，內地及亞太地區在未來10年將保持增長引擎角色，至少佔全球增長30至40%，呼籲國際投資者不要錯失機遇，面對挑戰仍要駕馭複雜性並將機遇最大化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797447-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797447-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797447-20250326.htm)
-
----
-
-# 房協安達臣道及粉嶺資助房屋共1604個單位　售價最平230萬
-
-![粉嶺「聚然」提供644個單位，實用面積介乎302至616呎。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797444_2_20250326121252.jpg&q=90)
-  
-
-房協推售位於觀塘安達臣道及粉嶺馬會道的資助出售房屋項目合共1604個單位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797444-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797444-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797444-20250326.htm)
-
----
-
-# 李家超：瓊港合作備忘錄涵蓋五個領域深度合作　體現兩地優秀疊加
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797442_1_20250326112907.jpg&q=80)
-  
-
-行政長官李家超展開在海南的第二日行程，出席瓊港合作備忘錄簽約儀式。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm)
-
----
-
-# 港深西部鐵路目標2035年開通　料洪水橋到前海約15分鐘
-
-![文件交代，港深西部鐵路走線由正在興建的屯馬線洪水橋站西面出發，途經厦村和流浮山，並跨越后海灣經深圳灣口岸連接至前海。（立法會文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797441_1_20250326114103.jpg&q=90)
-  
-
-運輸及物流局提交立法會的最新文件表示，港深西部鐵路「專班」早前審議並通過次階段研究成果，兩地政府目標於2035年同步開通香港段和深圳段。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm)
 
 ---

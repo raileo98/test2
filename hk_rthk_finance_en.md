@@ -1,4 +1,4 @@
-# Trumps hints at lower tariffs for China over TikTok
+# Trump hints at lower tariffs for China over TikTok
 
 ![The short-video app is used by nearly half of all Americans. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
   
@@ -46,7 +46,7 @@ US stocks veered off course on Wednesday after the White House said President Do
 
 ---
 
-# Trump announces 25 percent tariff on non-US-built cars
+# Trump announces 25 pc tariff on non-US-built cars
 
 ![US President Donald Trump announces tariffs on auto imports in the Oval Office of the White House in Washington, DC. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797599_1_20250327060802.jpg&q=90)
   

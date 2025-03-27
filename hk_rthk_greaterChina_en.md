@@ -1,4 +1,4 @@
-# Trumps hints at lower tariffs for China over TikTok
+# Trump hints at lower tariffs for China over TikTok
 
 ![The short-video app is used by nearly half of all Americans. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
   

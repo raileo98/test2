@@ -1,3 +1,27 @@
+# 卡尼批評美國對進口汽車徵收關稅是對加拿大工人直接攻擊
+
+![德國汽車工業協會呼籲美國和歐盟展開雙邊會談尋求解決方案。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797615_1_20250327082909.jpg&q=60)
+  
+
+美國總統特朗普宣布對所有進口汽車徵收25%關稅，4月2日生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm)
+
+---
+
 # 華府高層通訊群組討論軍事行動　資深共和黨參議員要求獨立調查
 
 ![共和黨籍的國會參議院軍事委員會主席威克表示，有關聊天信息非常敏感。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797601_1_20250327063816.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm)
-
----
-
-# 美國記者被加入華府高層討論打擊胡塞武裝通訊群組惹關注
-
-![萬斯、赫格塞斯和華爾茲都在通訊群組內。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797230_1_20250325052321.jpg&q=90)
-  
-
-美國白宮證實，一名美國記者無意中被加入華府高層討論打擊也門胡塞武裝行動的通訊群組。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797230-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797230-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797230-20250325.htm)
 
 ---

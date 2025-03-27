@@ -1,3 +1,99 @@
+# 卡尼批評美國對進口汽車徵收關稅是對加拿大工人直接攻擊
+
+![德國汽車工業協會呼籲美國和歐盟展開雙邊會談尋求解決方案。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797615_1_20250327082909.jpg&q=60)
+  
+
+美國總統特朗普宣布對所有進口汽車徵收25%關稅，4月2日生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm)
+
+---
+
+# 卡什卡利：關稅影響轉趨明朗前　聯儲局應較長時間按兵不動
+
+![卡什卡利表示，不確定關稅措施對經濟造成的影響，在情況轉趨明朗前，聯儲局應在一段較長時間內保持按兵不動。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797612_1_20250327072904.jpg&q=80)
+  
+
+美國明尼亞波利斯聯邦儲備銀行總裁卡什卡利表示，不確定關稅措施對經濟造成的影響，可能會推高物價，因而需要加息，但亦可能會減慢經濟增長，因而要降低借貸成本。他認為，在情況轉趨明朗前，聯儲局應在一段較長時間內保持按兵不動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797612-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797612-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797612-20250327.htm)
+
+---
+
+# 日股初段曾跌逾1%　下試37500點水平
+
+![日經指數開市後低見37556點，跌1.2%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797613_1_20250327081559.jpg&q=75)
+  
+
+日股初段受壓，日經指數開市後低見37556點，跌1.2%，較早時報37738點，跌288點，跌幅0.76%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797613-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797613-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797613-20250327.htm)
+
+---
+
+# 韓股初段跌逾0.6%
+
+![首爾綜合指數較早時報2627點，跌16點，跌幅0.63%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797614_1_20250327081650.jpg&q=90)
+  
+
+南韓股市早段向下，首爾綜合指數較早時報2627點，跌16點，跌幅0.63%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797614-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797614-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797614-20250327.htm)
+
+---
+
 # 加拿大央行：關稅帶來不確定　目前不宜提供利率路徑指引
 
 ![加拿大央行表示，關稅導致難以確定貨幣政策未來走向，目前不宜為政策利率未來路徑提供指引。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797609_1_20250327071319.jpg&q=30)
@@ -1341,101 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm)
-
----
-
-# 中人壽去年盈利升逾1倍
-
-![中人壽按國際財務報告準則計，去年盈利1069.4億元人民幣，創歷年最好，按年急升1.32倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797544_1_20250326184738.jpg&q=90)
-  
-
-中人壽公布，按國際財務報告準則計，去年盈利1069.4億元人民幣，創歷年最好，按年急升1.32倍。末期息每股0.45元人民幣，全年派息0.65元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm)
-
----
-
-# 消防處指粵港澳聯合演練成功測試大灣區緊急動員及協調機制
-
-![香港消防處聯同廣東省消防救援總隊及澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練，模擬香港遇到極端天氣，全港多處發生大型緊急事故。（消防處提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797543_2_20250326190800.jpg&q=75)
-  
-
-香港消防處聯同廣東省消防救援總隊及澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練，模擬香港遇到極端天氣，全港多處發生大型緊急事故，本港的救援資源變得緊張，要向粵澳提出支援請求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm)
-
----
-
-# 啟德體育園提醒參與欖球賽活動者守規則　警方料日均4萬觀眾到場
-
-![香港國際七人欖球賽將首次於啟德體育園主場館舉行。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797542_1_20250326185930.jpg&q=90)
-  
-
-香港國際七人欖球賽將於本星期五展開，並首次於啟德體育園主場館舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797542-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797542-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797542-20250326.htm)
-
----
-
-# 盧寵茂：不存在調整公營醫療服務收費後推高私營市場收費
-
-![盧寵茂強調，考慮收費時有顧及病人的負擔能力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797541_1_20250326185743.jpg&q=80)
-  
-
-政府明年起調整公營醫療服務收費，包括急症室費用加至400元。醫務衞生局局長盧寵茂說，調整收費並非為收回成本，公營醫療收費仍與私營市場相差很遠，因此不存在調整收費後推高私營市場收費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm)
 
 ---
