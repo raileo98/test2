@@ -1,3 +1,75 @@
+# 日股半日跌約1%
+
+![日經指數半日跌353點，報37674點，跌幅0.93%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797632_1_20250327104659.jpg&q=90)
+  
+
+東京股市下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797632-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797632-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797632-20250327.htm)
+
+---
+
+# 本港2月住宅租金連升3個月
+
+![差餉物業估價署數據顯示，2月私人住宅租金指數升至193.5，創5個月新高，按月升逾0.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797630_1_20250327103802.jpg&q=85)
+  
+
+差餉物業估價署數據顯示，2月私人住宅租金指數升至193.5，創5個月新高，按月升逾0.3%，連升3個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm)
+
+---
+
+# 差估署：本港2月樓價指數按月跌0.87%　創逾8年半新低
+
+![本港上月住宅樓價連跌3個月，創逾8年半新低。  （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797627_1_20250327102342.jpg&q=85)
+  
+
+本港上月住宅樓價連跌3個月，創逾8年半新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm)
+
+---
+
 # 人行逆回購2185億元人民幣　單日轉為淨回籠500億元
 
 ![人行公開市場開展2185億元人民幣7天期逆回購操作，單日轉為淨回籠500億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797622_1_20250327092635.jpg&q=75)
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm)
-
----
-
-# 房協安達臣道及粉嶺資助出售房屋　首引入家有長者或初生優先選樓
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797468_1_20250326131410.jpg&q=80)
-  
-
-房協推售觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，合共提供1604個單位，售價介乎約230萬至636萬元，約為市值7折。綠白表申請配額是四六比，並首次引入「家有長者」及「家有初生」優先選樓安排。房協長沙灣辦事處的兩個示範單位明日起開放。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797468-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797468-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797468-20250326.htm)
-
----
-
-# 佐丹奴去年盈利按年跌逾37%
-
-![佐丹奴去年盈利跌37.4%，受非經常開支、應佔南韓合營公司溢利大幅減少及大中華表現欠佳影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797467_1_20250326130231.jpg&q=90)
-  
-
-佐丹奴去年盈利2.16億元，按年跌37.4%，主要受非經常開支、應佔南韓合營公司溢利大幅減少及大中華表現欠佳影響；公司5年轉型計劃相關經營費用亦增加。末期息每股6仙，連中期息全年派14仙，按年分別跌55.6%和54.1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797467-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797467-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797467-20250326.htm)
-
----
-
-# 李家超：瓊港雙方合力開拓面向東盟區域性大市場
-
-![李家超指合作備忘錄涵蓋多個範疇，標誌著香港和海南合作踏上新台階，將有助兩地優勢疊加、深化經貿交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797463_1_20250326131144.jpg&q=90)
-  
-
-正在海南的行政長官李家超，出席海南省人民政府與李家超香港特區政府簽署《合作備忘錄》儀式。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm)
 
 ---

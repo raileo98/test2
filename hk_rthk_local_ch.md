@@ -1,5 +1,77 @@
+# 本港2月住宅租金連升3個月
+
+![差餉物業估價署數據顯示，2月私人住宅租金指數升至193.5，創5個月新高，按月升逾0.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797630_1_20250327103802.jpg&q=85)
+  
+
+差餉物業估價署數據顯示，2月私人住宅租金指數升至193.5，創5個月新高，按月升逾0.3%，連升3個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm)
+
+---
+
+# 警方通緝一名印傭　據了解涉嫌虐待81歲老婦
+
+  
+
+警方正調查深水埗一宗普通襲擊案，通緝一名印傭，據了解，她涉嫌虐待一名81歲老婦。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797629-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797629-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797629-20250327.htm)
+
+---
+
+# 差估署：本港2月樓價指數按月跌0.87%　創逾8年半新低
+
+![本港上月住宅樓價連跌3個月，創逾8年半新低。  （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797627_1_20250327102342.jpg&q=85)
+  
+
+本港上月住宅樓價連跌3個月，創逾8年半新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm)
+
+---
+
 # 林正財：中產反映突患重病一夜致貧　收費封頂可協助長期住院人士
 
+![林正財指新機制可以協助需要經常接受檢查、覆診或長期住院人士。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797625_1_20250327102621.jpg&q=90)
   
 
 政府公布公營醫療服務收費改革方案，住院及門診收費上限每人每年1萬元，適用於自費藥械外收費項目。行政會議成員林正財表示，有關「封頂」機制過往從未做過，針對包括中產人士。他表示，過往曾有中產人士反映，患上突如其來的重病，例如中風及癌症年輕化等，或會「一夜致貧」，令醫療負擔加重，每年醫療費用或要數萬至10多萬元。新機制可以協助需要經常接受檢查、覆診或長期住院人士。
@@ -23,7 +95,7 @@
 
 # 醫管局澄清處方4周藥物屬計算單位　非要求病人4周後再配藥
 
-![崔俊明解釋每4個星期是計算的單位，並非要病人於4個星期後再到醫院或診所配藥。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797623_1_20250327100050.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797623_1_20250327100050.jpg&q=80)
   
 
 政府公布公營醫療服務收費改革方案，普通科及專科門診的藥物收費將會增加，醫管局總藥劑師崔俊明表示，最多處方4星期藥物的講法只是誤會，他解釋每4個星期是計算的單位，並非要病人於4個星期後再到醫院或診所配藥，否則會令藥劑部的工作壓力大增。
@@ -1365,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm)
-
----
-
-# 工聯會：需向違規「簡樸房」實施阻嚇性罰則
-
-![鄧家彪表示，簡樸房方案下星期將於立法會房屋事務委員會討論，期望可以在暑假前通過並刊憲。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797471_1_20250326132955.jpg&q=90)
-  
-
-立法會舉行前廳交流會，討論簡樸房規管等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797471-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797471-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797471-20250326.htm)
-
----
-
-# 房協安達臣道及粉嶺資助出售房屋　首引入家有長者或初生優先選樓
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797468_1_20250326131410.jpg&q=80)
-  
-
-房協推售觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，合共提供1604個單位，售價介乎約230萬至636萬元，約為市值7折。綠白表申請配額是四六比，並首次引入「家有長者」及「家有初生」優先選樓安排。房協長沙灣辦事處的兩個示範單位明日起開放。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797468-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797468-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797468-20250326.htm)
-
----
-
-# 麥美娟：各項青年交流實習計劃申請人數按年增加一倍
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797466_1_20250326131240.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟表示，現任470名區議員很快投入到其角色，一些很困難的任務，例如協助法團處理紛爭等，他們亦願意接受挑戰去做，在社區中能作為民政當局的好夥伴，包括協助接觸市民。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797466-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797466-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797466-20250326.htm)
 
 ---

@@ -1,3 +1,52 @@
+# South Korea battles worst ever wildfires as death toll
+
+![The wildfires in South Korea have been moving rapidly eastward, spreading almost to the coast, carried by gusty winds. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_1_20250327105237.jpg&q=80)
+![A satellite image shows smoke from fires burning in Uiseong county, South Korea. Photo: Nasa via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_2_20250327105237.jpg&q=80)
+  
+
+Wildfires raging in South Korea doubled in size on Thursday from a day earlier, as authorities called the blazes the country's worst natural fire disaster with at least 26 people killed and historic temples incinerated.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm)
+
+---
+
+# Wang Yi to meet French counterpart Jean-Noel Barrot
+
+![Foreign Minister Wang Yi will meet the top diplomat from France, Jean-Noel Barrot. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797631_1_20250327104617.jpg&q=90)
+  
+
+Foreign Minister Wang Yi will meet top French diplomat Jean-Noel Barrot on Thursday for talks on topics like the war in Ukraine and trade between China and the European Union.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm)
+
+---
+
 # Canada PM dubs US auto tariffs 'direct attack'
 
 ![Canada's Prime Minister Mark Carney attends a Liberal Party election campaign rally in Kitchener, Ontario. Carney has vowed to fight Trump's tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797616_1_20250327083849.jpg&q=90)
@@ -94,9 +143,9 @@ Israeli Prime Minister Benjamin Netanyahu threatened on Wednesday to seize parts
 
 ---
 
-# Trump announces 25 pc tariff on non-US-built cars
+# Trump announces 25pc tariff on non-US-built cars
 
-![US President Donald Trump announces tariffs on auto imports in the Oval Office of the White House in Washington, DC. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797599_1_20250327060802.jpg&q=90)
+![US President Donald Trump announces tariffs on auto imports in the Oval Office. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797599_1_20250327060802.jpg&q=90)
   
 
 US President Donald Trump announced steep tariffs on auto imports Wednesday, in a move set to fuel tensions with trading partners ahead of further promised levies next week.
@@ -1388,53 +1437,5 @@ Britain's Heathrow Airport on Friday said it would be closed until midnight afte
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796747-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796747-20250321.htm)
-
----
-
-# N Korea tests new anti-aircraft system
-
-![Kim Jong-un visits the Nampho Dockyard on Thursday in Nampho, North Korea. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796741_1_20250321110412.jpg&q=90)
-  
-
-North Korea test-fired its latest anti-aircraft missile system in a drill watched by leader Kim Jong-un, state media reported on Friday, as the nuclear-armed state lashed out at US-South Korea joint drills.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796741-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796741-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796741-20250321.htm)
-
----
-
-# Shin Bet boss axed as Netanyahu split comes to a head
-
-![Ronen Bar says his sacking is intended to 'prevent investigations into the events leading up to October 7' attack. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796737_1_20250321102045.jpg&q=90)
-  
-
-The head of Shin Bet, Israel's domestic intelligence agency, was sacked on Friday, days after Prime Minister Benjamin Netanyahu said he no longer trusts him, and fallout from a report on the October 7, 2023, Hamas attack.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Wang Yi to meet French counterpart Jean-Noel Barrot
+
+![Foreign Minister Wang Yi will meet the top diplomat from France, Jean-Noel Barrot. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797631_1_20250327104617.jpg&q=90)
+  
+
+Foreign Minister Wang Yi will meet top French diplomat Jean-Noel Barrot on Thursday for talks on topics like the war in Ukraine and trade between China and the European Union.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm)
+
+---
+
 # Trump hints at lower tariffs for China over TikTok
 
 ![The short-video app is used by nearly half of all Americans. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
@@ -1411,29 +1435,5 @@ Businessman Irons Sze on Monday said Hong Kong's position as an international fi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm)
-
----
-
-# CPPCC session ends with call to focus on 'big picture'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795070_1_20250310110517.jpg&q=85)
-  
-
-The annual session of the country's top advisory body has concluded in Beijing, with a senior state leader calling on members to focus on the "big picture" and deepen unity.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795070-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795070-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795070-20250310.htm)
 
 ---

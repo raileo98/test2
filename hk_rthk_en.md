@@ -1,3 +1,76 @@
+# South Korea battles worst ever wildfires as death toll
+
+![The wildfires in South Korea have been moving rapidly eastward, spreading almost to the coast, carried by gusty winds. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_1_20250327105237.jpg&q=80)
+![A satellite image shows smoke from fires burning in Uiseong county, South Korea. Photo: Nasa via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_2_20250327105237.jpg&q=80)
+  
+
+Wildfires raging in South Korea doubled in size on Thursday from a day earlier, as authorities called the blazes the country's worst natural fire disaster with at least 26 people killed and historic temples incinerated.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm)
+
+---
+
+# Hang Seng bucks trend to open up
+
+![Hang Seng bucks trend to open up](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797633_1_20250327105107.jpg&q=80)
+  
+
+Asian shares mostly skidded with Wall Street on Thursday while the dollar hovered near a three-week high after US President Donald Trump announced new tariffs on all auto imports, ratcheting up a global trade war that risks fuelling inflation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm)
+
+---
+
+# Wang Yi to meet French counterpart Jean-Noel Barrot
+
+![Foreign Minister Wang Yi will meet the top diplomat from France, Jean-Noel Barrot. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797631_1_20250327104617.jpg&q=90)
+  
+
+Foreign Minister Wang Yi will meet top French diplomat Jean-Noel Barrot on Thursday for talks on topics like the war in Ukraine and trade between China and the European Union.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm)
+
+---
+
 # Canada PM dubs US auto tariffs 'direct attack'
 
 ![Canada's Prime Minister Mark Carney attends a Liberal Party election campaign rally in Kitchener, Ontario. Carney has vowed to fight Trump's tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797616_1_20250327083849.jpg&q=90)
@@ -166,9 +239,9 @@ US stocks veered off course on Wednesday after the White House said President Do
 
 ---
 
-# Trump announces 25 pc tariff on non-US-built cars
+# Trump announces 25pc tariff on non-US-built cars
 
-![US President Donald Trump announces tariffs on auto imports in the Oval Office of the White House in Washington, DC. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797599_1_20250327060802.jpg&q=90)
+![US President Donald Trump announces tariffs on auto imports in the Oval Office. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797599_1_20250327060802.jpg&q=90)
   
 
 US President Donald Trump announced steep tariffs on auto imports Wednesday, in a move set to fuel tensions with trading partners ahead of further promised levies next week.
@@ -1365,79 +1438,5 @@ A court ordered the dissolution of the Unification Church in Japan, upholding a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm)
-
----
-
-# HK capital market 'needs blueprint for further growth'
-
-![Qi Bin, deputy director of the central government's liaison office, has called on Hong Kong to seize the momentum offered by the strong return of foreign capital. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_1_20250325140507.jpg&q=80)
-![Acting Chief Executive Eric Chan says that there are signs that global capital is returning to Hong Kong, as the city's total deposit rose by 7.1 percent last year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_2_20250325140507.jpg&q=80)
-![Alibaba chairman Joe Tsai warned about a potential "bubble" from the over-construction of data centres in the world, following the rapid growth of artificial intelligence technology. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_3_20250325140507.jpg&q=90)
-  
-
-A deputy at Beijing's top office on Hong Kong affairs has called on the SAR to roll out a blueprint to further drive its capital market development, seizing on opportunities brought about by the revitalisation of the city's stock market this year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm)
-
----
-
-# Oscar-winning Palestinian filmmaker arrested by IDF
-
-![According to Jewish American activists who witnessed the attack, Hamdan Ballal was surrounded and attacked by settlers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797302_2_20250325135917.jpg&q=90)
-  
-
-The Palestinian co-director of the Oscar-winning documentary "No Other Land", Hamdan Ballal, was attacked by settlers and arrested by the Israeli army on Monday in the occupied West Bank, according to his co-director Yuval Abraham.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797302-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797302-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797302-20250325.htm)
-
----
-
-# Giant sinkhole swallows motorcyclist in Seoul
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797301_1_20250325135606.jpg&q=70)
-  
-
-One person has been killed after a massive sinkhole opened up in Seoul, the fire department said on Tuesday, with harrowing video footage showing the moment his vehicle was swallowed by the hole.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797301-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797301-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797301-20250325.htm)
 
 ---

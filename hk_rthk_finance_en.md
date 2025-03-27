@@ -1,3 +1,27 @@
+# Hang Seng bucks trend to open up
+
+![Hang Seng bucks trend to open up](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797633_1_20250327105107.jpg&q=80)
+  
+
+Asian shares mostly skidded with Wall Street on Thursday while the dollar hovered near a three-week high after US President Donald Trump announced new tariffs on all auto imports, ratcheting up a global trade war that risks fuelling inflation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm)
+
+---
+
 # Canada PM dubs US auto tariffs 'direct attack'
 
 ![Canada's Prime Minister Mark Carney attends a Liberal Party election campaign rally in Kitchener, Ontario. Carney has vowed to fight Trump's tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797616_1_20250327083849.jpg&q=90)
@@ -70,9 +94,9 @@ US stocks veered off course on Wednesday after the White House said President Do
 
 ---
 
-# Trump announces 25 pc tariff on non-US-built cars
+# Trump announces 25pc tariff on non-US-built cars
 
-![US President Donald Trump announces tariffs on auto imports in the Oval Office of the White House in Washington, DC. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797599_1_20250327060802.jpg&q=90)
+![US President Donald Trump announces tariffs on auto imports in the Oval Office. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797599_1_20250327060802.jpg&q=90)
   
 
 US President Donald Trump announced steep tariffs on auto imports Wednesday, in a move set to fuel tensions with trading partners ahead of further promised levies next week.
@@ -1413,29 +1437,5 @@ Hong Kong stocks ended lower on Wednesday with the benchmark Hang Seng Index dow
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795445-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795445-20250312.htm)
-
----
-
-# Cathay Pacific profits edge up
-
-![Cathay Pacific's group net profit rose one percent to HK$9.89 billion last year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795410_1_20250312142536.jpg&q=90)
-  
-
-Cathay Pacific Airways on Wednesday reported marginal full-year profit growth as airfares fell amid intense competition at a time when Asia's airlines are continuing to get back to pre-pandemic seat capacity.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm)
 
 ---
