@@ -1,3 +1,27 @@
+# 'Exporters remain positive despite trade tensions'
+
+![Irina Fan, director of research at the Trade Development Council, says the impact of US tariffs on Hong Kong is "relatively mild". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797662_1_20250327132129.jpg&q=60)
+  
+
+The Trade Development Council said Hong Kong exporters are well-prepared for the new round of US tariffs set to take effect on April 2.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm)
+
+---
+
 # 'Art Basel, Art Central a barometer for art market'
 
 ![Daniel Kwok, an independent art consultant, says that art fairs and auctions will give the city's art market a boost. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797660_1_20250327130541.jpg&q=90)
@@ -1419,29 +1443,5 @@ A French aeronautic services company on Friday said it is working with the Airpo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796793-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796793-20250321.htm)
-
----
-
-# NJZ loses court fight to leave label
-
-![The Seoul Central District Court prohibits members of NJZ from pursuing independent endeavours. File photo: NewJeans](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796797_1_20250321161623.jpg&q=85)
-  
-
-A South Korean court on Friday ruled against popular K-pop girl group NewJeans, which had sought to sever ties with their label ADOR over what they called "mistreatment" by the company.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796797-20250321.htm)
 
 ---

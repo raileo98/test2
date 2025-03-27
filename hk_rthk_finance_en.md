@@ -1,3 +1,27 @@
+# 'Exporters remain positive despite trade tensions'
+
+![Irina Fan, director of research at the Trade Development Council, says the impact of US tariffs on Hong Kong is "relatively mild". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797662_1_20250327132129.jpg&q=60)
+  
+
+The Trade Development Council said Hong Kong exporters are well-prepared for the new round of US tariffs set to take effect on April 2.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm)
+
+---
+
 # 'Art Basel, Art Central a barometer for art market'
 
 ![Daniel Kwok, an independent art consultant, says that art fairs and auctions will give the city's art market a boost. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797660_1_20250327130541.jpg&q=90)
@@ -1413,29 +1437,5 @@ Struggling chipmaker Intel has hired former board member and semiconductor indus
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm)
-
----
-
-# Hong Kong stocks open flat in early trading
-
-![The Hang Seng Index rose 0.07 percent at the starting of trading. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795517_1_20250313101303.jpg&q=75)
-  
-
-The Hang Seng Index gained 16.02 points, or 0.07 per cent, to open at 23,616.33 on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795517-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795517-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795517-20250313.htm)
 
 ---

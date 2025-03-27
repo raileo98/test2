@@ -1,3 +1,27 @@
+# 'Exporters remain positive despite trade tensions'
+
+![Irina Fan, director of research at the Trade Development Council, says the impact of US tariffs on Hong Kong is "relatively mild". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797662_1_20250327132129.jpg&q=60)
+  
+
+The Trade Development Council said Hong Kong exporters are well-prepared for the new round of US tariffs set to take effect on April 2.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm)
+
+---
+
 # 'Art Basel, Art Central a barometer for art market'
 
 ![Daniel Kwok, an independent art consultant, says that art fairs and auctions will give the city's art market a boost. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797660_1_20250327130541.jpg&q=90)
@@ -1413,29 +1437,5 @@ A family physician said on Tuesday that the government's overhaul of healthcare 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797359-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797359-20250325.htm)
-
----
-
-# Vietnam death row tycoon begins appeal
-
-![Vietnamese property tycoon Truong My Lan (centre) looks on at a court in Ho Chi Minh City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797356_1_20250325193707.jpg&q=90)
-  
-
-The appeal of a Vietnamese property tycoon convicted of money laundering began on Tuesday, three months after she lost a challenge against the death penalty in a separate case.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm)
 
 ---

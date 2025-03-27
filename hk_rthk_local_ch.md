@@ -1,3 +1,26 @@
+# 逾200萬劑流感疫苗接種創新高　衞防中心稱有重要保護作用
+
+  
+
+衞生防護中心表示，去年9月開始，多個流感疫苗接種計劃共接種約207萬劑流感疫苗，比上季同期增加22萬6千劑，創下歷史新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797663-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797663-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797663-20250327.htm)
+
+---
+
 # 差估署：上月私人住宅樓價跌幅擴大　創逾8年半新低
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797490-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797490-20250326.htm)
-
----
-
-# 博鰲亞洲論壇國際科技與創新論壇香港會議今年6月會展舉行
-
-![孫東表示，「香港會議」以「科技引領未來 創新驅動轉型」為主題，聚焦一系列目前最熱門的創科議題。（創新科技及工業局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797485_1_20250326144957.jpg&q=90)
-  
-
-由特區政府和博鰲亞洲論壇聯合主辦的「博鰲亞洲論壇國際科技與創新論壇2025香港會議」將於今年6月6日至7日，在香港會議展覽中心舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797485-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797485-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797485-20250326.htm)
 
 ---

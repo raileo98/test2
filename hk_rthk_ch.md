@@ -1,3 +1,26 @@
+# 逾200萬劑流感疫苗接種創新高　衞防中心稱有重要保護作用
+
+  
+
+衞生防護中心表示，去年9月開始，多個流感疫苗接種計劃共接種約207萬劑流感疫苗，比上季同期增加22萬6千劑，創下歷史新高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797663-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797663-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797663-20250327.htm)
+
+---
+
 # 4名美軍士兵在立陶宛訓練期間失蹤　搜索工作繼續
 
 ![搜索失蹤美軍士兵的行動仍在進行。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797661_1_20250327131515.jpg&q=90)
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797580-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797580-20250326.htm)
-
----
-
-# 涉虐待12歲男童　已停職49歲輔警被控明早提堂
-
-![49歲男子被控以「對所看管兒童或少年人虐待或忽略」罪。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797581_1_20250326225440.jpg&q=60)
-  
-
-一名12歲男童懷疑曾被不恰當對待，一名49歲男子被控以「對所看管兒童或少年人虐待或忽略」罪，明日在觀塘裁判法院提堂。警方表示，涉案男子為一名輔警，已被停職，重申警隊非常重視人員的操守，任何人員干犯違法行為，警隊絕不容忍及姑息，定必嚴正處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797581-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797581-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797581-20250326.htm)
 
 ---
