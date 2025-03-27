@@ -1,3 +1,75 @@
+# 粵港澳大灣區律師顧問小組加入網紅　律政司冀制定措施更「貼地」
+
+![謝承益表示，發現不少港人在內地遇到各式各樣問題或困難，但不懂處理。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_1_20250327235446.jpg&q=75)
+  
+
+律政司兩年前成立「粵港澳大灣區專責小組」，以深化大灣區便利惠民的互利合作，以及推進大灣區發展和建設，去年再在專責小組之下成立「粵港澳大灣區律師顧問小組」。政府本月初委任兩個小組合共7名新成員，包括居住在深圳的香港人、網紅「西DorSi」謝承益，亦是專責小組唯一並非來自法律界又長居內地的港人成員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm)
+
+---
+
+# 廉署：系統研發遭晶片禁運拖慢　DeepSeek可加快推進工作
+
+![胡英明說，內地人工智能系統DeepSeek去年底公布大模型後，可加快推進工作。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797757_1_20250327235419.jpg&q=75)
+  
+
+廉政專員胡英明表示，受制於西方國家的晶片禁運，拖慢廉署的系統研發工作，因涉及很多機密敏感資料，維護等工作，要由內部研究。不過內地人工智能系統DeepSeek去年底公布大模型後，胡英明形容有如見到陽光，可加快推進工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797757-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797757-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797757-20250328.htm)
+
+---
+
+# 立法會選舉胡英明稱勿煽動他人不投票或投無效票　廉署將強硬執法
+
+![胡英明表示，有向來港勞工講解要遵守本港法律。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797756_1_20250327235356.jpg&q=75)
+  
+
+立法會換屆選舉年底舉行，廉政專員胡英明表示，法例清楚寫明，任何人如透過公開活動煽動他人不投票或投無效票，均屬違法，公眾不要轉載和分享有關言論。胡英明強調，廉署會強硬執法，「見一宗拉一宗」，公眾不要存有僥倖心態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797756-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797756-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797756-20250328.htm)
+
+---
+
 # 外交部駐港公署強烈不滿英國涉港報告　促立即停止政治操弄
 
 ![外交部駐港公署強烈不滿及堅決反對英國政府再次發布所謂「香港問題半年報告」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797755_1_20250327233719.jpg&q=85)
@@ -1365,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm)
-
----
-
-# 國防部：堅決打掉一切「台獨」分裂圖謀
-
-![吳謙說，人民軍隊堅決打掉一切「台獨」分裂圖謀。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797692_1_20250327160736.jpg&q=90)
-  
-
-在北京，國防部強調，人民軍隊將堅決貫徹新時代黨解決台灣問題的總體方略，全時待戰、隨時能戰、戰之必勝，堅決打掉一切「台獨」分裂圖謀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797692-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797692-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797692-20250327.htm)
-
----
-
-# 張宇人指修正案騎劫故不動議檢視小班教學原議案　朱國強稱不合理
-
-![張宇人在會上以議案被教育界議員朱國強提出的修正案「騎劫」為由，決定不作動議。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797690_1_20250327162424.jpg&q=90)
-  
-
-立法會今早續會，根據議程將辯論自由黨張宇人提出，「檢視中小學以小班模式教學的成效」的無約束力議員議案，但張宇人在會上以議案被教育界議員朱國強提出的修正案「騎劫」為由，決定不作動議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797690-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797690-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797690-20250327.htm)
-
----
-
-# 鴨脷洲街坊學校決定申請以私營方式自資開辦小一班級
-
-![學校法團校董會表示，不同持份者一致支持學校繼續營辦。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797688_1_20250327155622.jpg&q=90)
-  
-
-2025/26學年被「派0班」的鴨脷洲街坊學校，宣布將申請以私營方式自資開辦小一班級。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797688-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797688-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797688-20250327.htm)
 
 ---

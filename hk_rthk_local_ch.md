@@ -1,3 +1,75 @@
+# 粵港澳大灣區律師顧問小組加入網紅　律政司冀制定措施更「貼地」
+
+![謝承益表示，發現不少港人在內地遇到各式各樣問題或困難，但不懂處理。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_1_20250327235446.jpg&q=75)
+  
+
+律政司兩年前成立「粵港澳大灣區專責小組」，以深化大灣區便利惠民的互利合作，以及推進大灣區發展和建設，去年再在專責小組之下成立「粵港澳大灣區律師顧問小組」。政府本月初委任兩個小組合共7名新成員，包括居住在深圳的香港人、網紅「西DorSi」謝承益，亦是專責小組唯一並非來自法律界又長居內地的港人成員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm)
+
+---
+
+# 廉署：系統研發遭晶片禁運拖慢　DeepSeek可加快推進工作
+
+![胡英明說，內地人工智能系統DeepSeek去年底公布大模型後，可加快推進工作。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797757_1_20250327235419.jpg&q=75)
+  
+
+廉政專員胡英明表示，受制於西方國家的晶片禁運，拖慢廉署的系統研發工作，因涉及很多機密敏感資料，維護等工作，要由內部研究。不過內地人工智能系統DeepSeek去年底公布大模型後，胡英明形容有如見到陽光，可加快推進工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797757-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797757-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797757-20250328.htm)
+
+---
+
+# 立法會選舉胡英明稱勿煽動他人不投票或投無效票　廉署將強硬執法
+
+![胡英明表示，有向來港勞工講解要遵守本港法律。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797756_1_20250327235356.jpg&q=75)
+  
+
+立法會換屆選舉年底舉行，廉政專員胡英明表示，法例清楚寫明，任何人如透過公開活動煽動他人不投票或投無效票，均屬違法，公眾不要轉載和分享有關言論。胡英明強調，廉署會強硬執法，「見一宗拉一宗」，公眾不要存有僥倖心態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797756-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797756-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797756-20250328.htm)
+
+---
+
 # 外交部駐港公署強烈不滿英國涉港報告　促立即停止政治操弄
 
 ![外交部駐港公署強烈不滿及堅決反對英國政府再次發布所謂「香港問題半年報告」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797755_1_20250327233719.jpg&q=85)
@@ -1365,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797583-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797583-20250327.htm)
-
----
-
-# 涉虛報被陌生男子尾隨及襲擊　涉誤導警員26歲女子被捕
-
-![涉誤導警員女子被捕。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797582_1_20250326230847.jpg&q=85)
-  
-
-一名女子聲稱日前遭一名男子尾隨及推入單位，之後被男子用鎅刀襲擊後逃去。警方調查後發現，女子所作的報案與事實不符，懷疑她蓄意向警方提供虛假資料及誤導調查人員，女子涉嫌「誤導警務人員」被捕，正被扣留調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797582-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797582-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797582-20250326.htm)
-
----
-
-# 涉虐待12歲男童　已停職49歲輔警被控明早提堂
-
-![49歲男子被控以「對所看管兒童或少年人虐待或忽略」罪。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797581_1_20250326225440.jpg&q=60)
-  
-
-一名12歲男童懷疑曾被不恰當對待，一名49歲男子被控以「對所看管兒童或少年人虐待或忽略」罪，明日在觀塘裁判法院提堂。警方表示，涉案男子為一名輔警，已被停職，重申警隊非常重視人員的操守，任何人員干犯違法行為，警隊絕不容忍及姑息，定必嚴正處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797581-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797581-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797581-20250326.htm)
-
----
-
-# 祁斌稱中央全力支持瓊港兩地自由港平台與超級聯繫人雙向聯動
-
-![祁斌指出，海南自貿區零關稅低稅率政策，與香港自由港制度可以形成疊加效應。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797578_1_20250326225528.jpg&q=80)
-  
-
-在海南，瓊港簽署備忘錄，在多方面深化合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm)
 
 ---

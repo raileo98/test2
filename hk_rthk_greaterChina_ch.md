@@ -1,3 +1,27 @@
+# 粵港澳大灣區律師顧問小組加入網紅　律政司冀制定措施更「貼地」
+
+![謝承益表示，發現不少港人在內地遇到各式各樣問題或困難，但不懂處理。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_1_20250327235446.jpg&q=75)
+  
+
+律政司兩年前成立「粵港澳大灣區專責小組」，以深化大灣區便利惠民的互利合作，以及推進大灣區發展和建設，去年再在專責小組之下成立「粵港澳大灣區律師顧問小組」。政府本月初委任兩個小組合共7名新成員，包括居住在深圳的香港人、網紅「西DorSi」謝承益，亦是專責小組唯一並非來自法律界又長居內地的港人成員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm)
+
+---
+
 # 外交部駐港公署強烈不滿英國涉港報告　促立即停止政治操弄
 
 ![外交部駐港公署強烈不滿及堅決反對英國政府再次發布所謂「香港問題半年報告」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797755_1_20250327233719.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797349-20250325.htm)
-
----
-
-# 博鰲論壇秘書長張軍冀傳遞保持信心　戰勝困難的強烈信號
-
-![博鰲亞洲論壇2025年年會今日至本周五在海南博鰲舉行。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797348_1_20250325185031.jpg&q=90)
-  
-
-博鰲亞洲論壇2025年年會今日至本周五在海南博鰲舉行，今年主題是「在世界變局中共創亞洲未來」。中共中央政治局常委、國務院副總理丁薛祥將在開幕式發表主旨演講。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797348-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797348-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797348-20250325.htm)
 
 ---
