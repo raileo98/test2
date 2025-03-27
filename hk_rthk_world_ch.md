@@ -1,3 +1,27 @@
+# 回應美國對進口汽車徵收25%關稅　中方：做法損害多邊貿易體制
+
+![外交部重申，沒有哪個國家的發展繁榮是靠加徵關稅實現。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797683_1_20250327154428.jpg&q=80)
+  
+
+在北京，外交部在例行記者會回應有關美國總統特朗普宣布美國對所有進口汽車徵收25%關稅的提問，發言人郭嘉昆說，中方注意到美國的主要交易夥伴已經紛紛做出回應。他重申，貿易戰關稅戰沒有贏家，沒有哪個國家的發展繁榮是靠加徵關稅實現。美方的做法違反世貿組織規則，損害以規則為基礎的多邊貿易體制和各國人民的共同利益，也無益於解決自身的問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm)
+
+---
+
 # 金正恩指導北韓國防科研工作　滿意新研製電子干擾攻擊武器系統
 
 ![金正恩指導無人航空技術聯合體和探測電子戰研究團隊的國防科研工作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797681_1_20250327153506.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm)
-
----
-
-# 北京：加國執意對部分中國進口商品採取歧視性限制措施違世貿規則
-
-![郭嘉昆說，加拿大執意對部分中國進口商品採取歧視性限制措施，嚴重違反世貿組織規則。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797318_1_20250325162306.jpg&q=90)
-  
-
-對於有報道指，加拿大已在世界貿易組織提出申訴，反對中國對加拿大農產品和漁業產品加徵關稅，在北京，外交部發言人郭嘉昆回應， 加拿大方面不顧中方多次規勸，執意對部分中國進口商品採取歧視性限制措施，嚴重違反世貿組織規則，干擾正常的貿易秩序，嚴重損害了中方的合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm)
 
 ---

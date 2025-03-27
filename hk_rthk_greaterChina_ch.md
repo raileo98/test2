@@ -1,3 +1,50 @@
+# 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
+
+  
+
+行政長官李家超說，「一國兩制」下，香港是全球唯一同時享有中國優勢及國際優勢的開放經濟體。面對地緣政治變化、保護主義和單邊主義冒起，香港始終倡導自由貿易及多邊主義，致力於增強應對挑戰的應變能力，亦是外國企業進軍內地以及內地企業「走出去」的最佳平台。在國家支持下，香港會進一步深化國際交往合作，並與國家及亞洲各國一道增進互信團結、開放融通、互利共贏、和平共處，促進亞洲經濟發展，推動全球經濟一體化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
+
+---
+
+# 回應美國對進口汽車徵收25%關稅　中方：做法損害多邊貿易體制
+
+![外交部重申，沒有哪個國家的發展繁榮是靠加徵關稅實現。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797683_1_20250327154428.jpg&q=80)
+  
+
+在北京，外交部在例行記者會回應有關美國總統特朗普宣布美國對所有進口汽車徵收25%關稅的提問，發言人郭嘉昆說，中方注意到美國的主要交易夥伴已經紛紛做出回應。他重申，貿易戰關稅戰沒有贏家，沒有哪個國家的發展繁榮是靠加徵關稅實現。美方的做法違反世貿組織規則，損害以規則為基礎的多邊貿易體制和各國人民的共同利益，也無益於解決自身的問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm)
+
+---
+
 # 李家超與糧農組織總幹事會面　共享農業數據為制定政策提供依據
 
 ![李家超（左）在海南與聯合國糧食及農業組織總幹事屈冬玉博士（右）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797667_1_20250327140223.jpg&q=90)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm)
-
----
-
-# 李強晤亞行行長　稱中方將擔起大國責任為世界發展注入更多穩定性
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797201_1_20250324201943.jpg&q=90)
-  
-
-國務院總理李強在北京人民大會堂會見亞洲開發銀行行長神田真人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797201-20250324.htm)
-
----
-
-# 李強簽國務院令　 公布實施《反外國制裁法》規定
-
-![李強簽署國務院令，公布實施《反外國制裁法》的規定。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797199_1_20250324195956.jpg&q=90)
-  
-
-國務院總理李強簽署國務院令，公布實施《中華人民共和國反外國制裁法》的規定，即日起施行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797199-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797199-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797199-20250324.htm)
 
 ---
