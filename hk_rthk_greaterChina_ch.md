@@ -1,5 +1,30 @@
+# 中方：奉勸美方反思對拉美和加勒比國家的霸權霸凌　停止抺黑中國
+
+![外交部說，美方惡意散布虛假信息，目的是挑撥中國同其他國家關係，不會得逞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797737_1_20250327211131.jpg&q=80)
+  
+
+在北京，外交部發言人郭嘉昆表示，中方同世界各國開展投資合作，有力地促進各國經濟發展和民生改善。奉勸美方好好反思自身對拉美和加勒比發展中國家的霸權霸凌和巧取豪奪，停止對中國的歪曲抹黑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm)
+
+---
+
 # 特首政策組與全國港澳研究會合辦全國兩會精神研討會
 
+![特首政策組與全國港澳研究會聯合主辦全國「兩會」精神與「新時代香港融入國家發展大局」專題研討會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797734_1_20250327211837.jpg&q=90)
   
 
 特首政策組與全國港澳研究會聯合主辦全國「兩會」精神與「新時代香港融入國家發展大局」專題研討會，就今年全國兩會的重要內容及對香港未來發展的重要啓示，作深入交流和互動研討。共有近120名來自本地民間智庫、大學智庫、專業機構、商會、特首政策組專家組，以及全國港澳研究會副會長、理事及顧問等不同領域和界別的代表參加。
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm)
-
----
-
-# 外交部：中方從未也沒有興趣干涉加拿大內政
-
-![郭嘉昆表示，中方一貫堅持不干涉別國內政的原則，從未也沒有興趣干涉加拿大的內政。(路透社資料圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797321_1_20250325164026.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，中方一貫堅持不干涉別國內政的原則，從未也沒有興趣干涉加拿大的內政。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm)
 
 ---

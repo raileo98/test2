@@ -1,3 +1,27 @@
+# 中方：奉勸美方反思對拉美和加勒比國家的霸權霸凌　停止抺黑中國
+
+![外交部說，美方惡意散布虛假信息，目的是挑撥中國同其他國家關係，不會得逞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797737_1_20250327211131.jpg&q=80)
+  
+
+在北京，外交部發言人郭嘉昆表示，中方同世界各國開展投資合作，有力地促進各國經濟發展和民生改善。奉勸美方好好反思自身對拉美和加勒比發展中國家的霸權霸凌和巧取豪奪，停止對中國的歪曲抹黑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm)
+
+---
+
 # 李強晤法國外長　冀法方為赴法投資中企營造公平發展環境
 
 ![國務院總理李強在北京會見法國外長巴羅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797732_1_20250327203707.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797381-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797381-20250325.htm)
-
----
-
-# 記者被加入高層通訊群組　特朗普：新政府兩個月來唯一小問題
-
-![特朗普說，這是新政府兩個月來唯一的小問題，而且結果並不嚴重，沃爾茲吸取了教訓。(法新社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797378_1_20250325224330.jpg&q=90)
-  
-
-美國一名記者無意中被加入華府高層討論打擊也門胡塞武裝行動的通訊群組，成員包括副總統萬斯、國家安全顧問沃爾茲、防長赫格塞思等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797378-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797378-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797378-20250325.htm)
 
 ---
