@@ -1,3 +1,27 @@
+# Work under way to boost night-time services: HA
+
+![HA chief executive Tony Ko says public hospitals are working closely with the primary healthcare sector and private practitioners to ramp up services. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797727_2_20250327205242.jpg&q=90)
+  
+
+The Hospital Authority (HA) has stressed that decisions on how and where to beef up public healthcare services will "depend on the actual situation", amid calls to offer more general outpatient services at night.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797727-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797727-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797727-20250327.htm)
+
+---
+
 # 'HK can act as Beijing's diplomatic super-connector'
 
 ![Lam Tai-fai says Hong Kong must fully utilise its advantages and help Beijing rise on the international stage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_1_20250327192921.jpg&q=90)
@@ -1418,30 +1442,5 @@ Requiring patients to pay separately for tests and scans at public hospitals wil
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm)
-
----
-
-# HK Investment Corp chips in with strategic deal
-
-![Paul Chan says the design and application of RISC-V open-source chips will speed up industrial revolutions. Photo: Courtesy of Government Information Services](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796829_1_20250321182218.jpg&q=90)
-![Hong Kong Investment Corporation has signed a strategic partnership deal with Shanghai-based startup StarFive to speed up RISC-V chips' adoption in the SAR. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796829_2_20250321182218.jpg&q=90)
-  
-
-Financial Secretary Paul Chan said on Friday a strategic partnership between the government-backed investment firm and a mainland chipmaker will speed up adoption of the popular RISC-V chips in the city.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm)
 
 ---

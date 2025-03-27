@@ -1,3 +1,26 @@
+# 網上涉出售未標示受管制藥物成分減肥藥　衞生署籲市民停用
+
+  
+
+衞生署正調查一宗網上非法出售含有未標示受管制藥物成分的減肥藥個案，提醒市民切勿購買或服用該產品，已購買相關產品的市民應立即停止服用，如有疑問或服用後感到不適，應立即徵詢醫護人員的意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm)
+
+---
+
 # 高拔陞稱普通科門診夜診服務需視乎實際需要每區各有不同
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797558-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797558-20250326.htm)
-
----
-
-# 李家超稱港商樂見香港與海南簽署合作備忘錄帶來新機遇
-
-![李家超（左二）、卓永興（左一）、海南省委書記馮飛（右二）和海南省常務副省長巴特爾（右一）在簽約儀式合照。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797556_1_20250326203707.jpg&q=85)
-  
-
-香港與海南省簽署《合作備忘錄》，在經貿投資、金融、數據安全流動、旅遊以及人才交流共五個領域深化合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 網上涉出售未標示受管制藥物成分減肥藥　衞生署籲市民停用
+
+  
+
+衞生署正調查一宗網上非法出售含有未標示受管制藥物成分的減肥藥個案，提醒市民切勿購買或服用該產品，已購買相關產品的市民應立即停止服用，如有疑問或服用後感到不適，應立即徵詢醫護人員的意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm)
+
+---
+
 # 高拔陞稱普通科門診夜診服務需視乎實際需要每區各有不同
 
   

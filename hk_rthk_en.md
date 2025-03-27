@@ -1,3 +1,27 @@
+# Work under way to boost night-time services: HA
+
+![HA chief executive Tony Ko says public hospitals are working closely with the primary healthcare sector and private practitioners to ramp up services. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797727_2_20250327205242.jpg&q=90)
+  
+
+The Hospital Authority (HA) has stressed that decisions on how and where to beef up public healthcare services will "depend on the actual situation", amid calls to offer more general outpatient services at night.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797727-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797727-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797727-20250327.htm)
+
+---
+
 # 'HK can act as Beijing's diplomatic super-connector'
 
 ![Lam Tai-fai says Hong Kong must fully utilise its advantages and help Beijing rise on the international stage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_1_20250327192921.jpg&q=90)
@@ -1413,29 +1437,5 @@ Argentina celebrated their 2026 World Cup qualification with a dazzling 4-1 thra
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm)
-
----
-
-# Deals reached on Ukraine maritime and energy truce
-
-![Ukrainian Defence Minister Rustem Umerov talks to reporters after US-Russia talks on a Ukraine ceasefire. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797401_1_20250326063126.jpg&q=90)
-  
-
-The United States reached deals on Tuesday with Ukraine and Russia to pause attacks at sea and against energy targets, with Washington agreeing to push to lift some sanctions against Moscow in its latest step towards endorsing Russia's positions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm)
 
 ---
