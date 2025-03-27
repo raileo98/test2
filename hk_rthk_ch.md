@@ -1,3 +1,27 @@
+# 銀行公會冀利率下調及經濟改善有助本港樓市回暖
+
+![禤惠儀表示，隨着利率逐步下調及經濟改善，期望有助本港樓市回暖，並利好樓價。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797717_1_20250327185121.jpg&q=90)
+  
+
+差餉物業估價署數據顯示，本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797717-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797717-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797717-20250327.htm)
+
+---
+
 # 王毅：中法建交精神對中歐和世界都有現實借鑒意義
 
   
