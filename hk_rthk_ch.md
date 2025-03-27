@@ -1,3 +1,27 @@
+# 蔡若蓮稱香港於教學與研究追求卓越成就是理想升學目的地
+
+![蔡若蓮說，香港擁有五所名列世界百強的公帑資助大學，整個城市充滿活力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797746_1_20250327220329.jpg&q=85)
+  
+
+教育局局長蔡若蓮在亞太國際教育協會年會以「留學香港」為題作演講，她表示，香港着力發展成為國際專上教育樞紐，擁有五所名列世界百強的公帑資助大學，整個城市充滿活力、重視生活質素和安全，在教學與研究均追求卓越成就，是理想的升學目的地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm)
+
+---
+
 # 載遊客潛艇在埃及紅海沿岸沉沒　據報6死19傷
 
   

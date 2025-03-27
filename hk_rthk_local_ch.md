@@ -1,3 +1,27 @@
+# 蔡若蓮稱香港於教學與研究追求卓越成就是理想升學目的地
+
+![蔡若蓮說，香港擁有五所名列世界百強的公帑資助大學，整個城市充滿活力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797746_1_20250327220329.jpg&q=85)
+  
+
+教育局局長蔡若蓮在亞太國際教育協會年會以「留學香港」為題作演講，她表示，香港着力發展成為國際專上教育樞紐，擁有五所名列世界百強的公帑資助大學，整個城市充滿活力、重視生活質素和安全，在教學與研究均追求卓越成就，是理想的升學目的地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm)
+
+---
+
 # 林定國稱香港普通法制度具備「國際化、高水平、信譽好」優勢
 
 ![林定國在北京出席「人民法院涉外涉港澳系列專題講座」。（林定國社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797744_1_20250327215754.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797572-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797572-20250326.htm)
-
----
-
-# 男子涉網上違法銷售含有未標示受管制藥物成分濕疹外用產品
-
-![衞生署呼籲市民如懷疑已購買上述產品，應立即停止使用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797570_1_20250326213049.jpg&q=80)
-  
-
-一名男子涉嫌在網上違法銷售治療濕疹的外用產品被捕，有關產品沒有任何標籤，懷疑屬未經註冊藥劑製品，衞生署繼續調查，呼籲市民如懷疑已購買上述產品，應立即停止使用，如有疑問或用後感到不適，應徵詢醫護人員的意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm)
 
 ---
