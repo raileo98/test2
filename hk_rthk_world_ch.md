@@ -1,3 +1,27 @@
+# 俄羅斯新任駐美大使據報抵達華盛頓
+
+![俄羅斯新任駐美大使據報抵達華盛頓](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797637_1_20250327110044.jpg&q=90)
+  
+
+俄羅斯傳媒報道，俄羅斯新任駐美大使達爾奇耶夫已於周三抵達美國首都華盛頓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797637-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797637-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797637-20250327.htm)
+
+---
+
 # 中國常駐聯合國代表：歡迎俄美烏利雅得談判取得積極進展
 
 ![傅聰說，中方希望達成一個公平、持久、有約束力並被各方所接受的和平協議。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797628_1_20250327103232.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797243-20250325.htm)
-
----
-
-# 美眾議長稱特朗普政府確認記者無意中被加入高官群組屬錯誤
-
-![約翰遜認為事件顯示白宮高層官員正在履行職責，而且做得很好。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797248_1_20250325104251.jpg&q=90)
-  
-
-美國國會眾議院議長、共和黨籍的約翰遜表示，在記者無意中被加入高官通訊群組的事件上，總統特朗普政府確認是一個錯誤，但他認為確實見到白宮高層官員正在履行職責，而且做得很好。約翰遜又說政府正應對及追查事件，確保不再發生同類情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797248-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797248-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797248-20250325.htm)
 
 ---

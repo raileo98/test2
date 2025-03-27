@@ -1,3 +1,27 @@
+# 俄羅斯新任駐美大使據報抵達華盛頓
+
+![俄羅斯新任駐美大使據報抵達華盛頓](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797637_1_20250327110044.jpg&q=90)
+  
+
+俄羅斯傳媒報道，俄羅斯新任駐美大使達爾奇耶夫已於周三抵達美國首都華盛頓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797637-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797637-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797637-20250327.htm)
+
+---
+
 # 日股半日跌約1%
 
 ![日經指數半日跌353點，報37674點，跌幅0.93%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797632_1_20250327104659.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797555-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797555-20250326.htm)
-
----
-
-# 以色列議會批准2025年度國家預算　其中國防預算創新高
-
-![分析人士認為，預算案通過表明以色列執政聯盟繼續獲得議會多數支持，內塔尼亞胡政府得以繼續執政。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797563_1_20250326210135.jpg&q=90)
-  
-
-以色列議會批准2025年度國家預算，避免議會自動解散並觸發提前選舉，其中國防預算創新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797563-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797563-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797563-20250326.htm)
 
 ---
