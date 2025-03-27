@@ -1,3 +1,27 @@
+# 港股全日升幅收窄至95點　內需及醫藥股上升
+
+![恒生指數最多升逾380點，收市報23578點，升95點，升幅0.41%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797696_1_20250327163031.jpg&q=85)
+  
+
+港股連升兩日，但下午升幅收窄。恒生指數最多升逾380點，高見23865點，收市報23578點，升95點，升幅0.41%。主板成交額逾2396億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm)
+
+---
+
 # 新世界發展：加快香港與內地市場資金回籠
 
 ![新世界發展稱啟德跑道區住宅項目柏蔚森暫套現近40億元；北角皇都套現逾33.7億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797691_1_20250327160602.jpg&q=90)
@@ -22,30 +46,6 @@
 
 ---
 
-# 金管局冀穩定幣相關法案未來幾個月獲立法會通過
-
-![陳維民形容，香港在發展穩定幣方面進展良好，相關法案正經立法會審議，期望在未來幾個月通過。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797685_1_20250327154514.jpg&q=80)
-  
-
-金管局副總裁陳維民表示，正就「穩定幣」發行建立監管框架，為加密貨幣生態系統的發展打下基礎。他形容，香港在發展穩定幣方面進展良好，相關法案正經立法會審議，期望在未來幾個月通過。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm)
-
----
-
 # 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
 
 ![李家超表示，丁薛祥發表主旨演講，就共創亞洲和世界更加美好的未來提出「四點建議」，及就國家經濟走勢提出「三點看法」。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797684_1_20250327162313.jpg&q=90)
@@ -67,6 +67,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
+
+---
+
+# 金管局冀穩定幣相關法案未來幾個月獲立法會通過
+
+![陳維民形容，香港在發展穩定幣方面進展良好，相關法案正經立法會審議，期望在未來幾個月通過。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797685_1_20250327154514.jpg&q=80)
+  
+
+金管局副總裁陳維民表示，正就「穩定幣」發行建立監管框架，為加密貨幣生態系統的發展打下基礎。他形容，香港在發展穩定幣方面進展良好，相關法案正經立法會審議，期望在未來幾個月通過。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm)
 
 ---
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm)
-
----
-
-# 中人壽去年盈利升逾1倍
-
-![中人壽按國際財務報告準則計，去年盈利1069.4億元人民幣，創歷年最好，按年急升1.32倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797544_1_20250326184738.jpg&q=90)
-  
-
-中人壽公布，按國際財務報告準則計，去年盈利1069.4億元人民幣，創歷年最好，按年急升1.32倍。末期息每股0.45元人民幣，全年派息0.65元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm)
 
 ---
