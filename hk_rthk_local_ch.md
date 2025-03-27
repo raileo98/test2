@@ -1,3 +1,46 @@
+# 丁薛祥出席博鰲亞洲論壇開幕式　稱亞洲命運共同體建設成績斐然
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm)
+
+---
+
+# 保險投訴局去年接646宗投訴升約5%　111人獲賠償逾千萬元
+
+  
+
+保險投訴局去年共接獲646宗投訴個案，按年上升約5%。在已審結的356宗與索償相關投訴個案中，111名投訴人獲得保險公司賠償，涉及總賠償金額達1050萬港元。住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm)
+
+---
+
 # 本港2月住宅租金連升3個月
 
 ![差餉物業估價署數據顯示，2月私人住宅租金指數升至193.5，創5個月新高，按月升逾0.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797630_1_20250327103802.jpg&q=85)
@@ -24,6 +67,7 @@
 
 # 警方通緝一名印傭　據了解涉嫌虐待81歲老婦
 
+![警方調查深水埗一宗普通襲擊案，通緝一名印傭。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797629_1_20250327110814.jpg&q=90)
   
 
 警方正調查深水埗一宗普通襲擊案，通緝一名印傭，據了解，她涉嫌虐待一名81歲老婦。
@@ -1389,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797476-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797476-20250326.htm)
-
----
-
-# 投資推廣署上月發現一宗涉惡意勒索軟件攻擊部分電腦系統事故
-
-![投資推廣署在發現事件後已即時採取行動，加強系統的安全措施，防止進一步受到勒索軟件攻擊，並按既定程序向警方報案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797474_1_20250326144158.jpg&q=80)
-  
-
-創新科技及工業局局長孫東表示，投資推廣署上月22日發現的一宗涉及惡意勒索軟件攻擊部分電腦系統的資訊保安事故，署方在發現事件後已即時採取行動，加強系統的安全措施，防止進一步受到勒索軟件攻擊，並按既定程序向警方報案，以及向數字辦、私隱專員公署和保安局通報事件。根據調查所得，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797474-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797474-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797474-20250326.htm)
-
----
-
-# 港股下午初段升近百點
-
-![恒生指數較早時報23427點，升82點，升幅0.36%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797470_1_20250326130905.jpg&q=10)
-  
-
-港股下午初段靠穩，恒生指數較早時報23427點，升82點，升幅0.36%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm)
 
 ---

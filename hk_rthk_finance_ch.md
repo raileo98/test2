@@ -1,3 +1,50 @@
+# 內地首兩個月工業企業利潤按年跌0.3%
+
+![內地今年首兩個月工業企業利潤按年跌0.3%，跌幅較去年全年收窄3個百分點。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797636_1_20250327105906.jpg&q=90)
+  
+
+內地今年首兩個月工業企業利潤總額9109.9億元人民幣，按年跌0.3%，跌幅較去年全年收窄3個百分點，但表現差過去年首兩個月的增長10.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm)
+
+---
+
+# 保險投訴局去年接646宗投訴升約5%　111人獲賠償逾千萬元
+
+  
+
+保險投訴局去年共接獲646宗投訴個案，按年上升約5%。在已審結的356宗與索償相關投訴個案中，111名投訴人獲得保險公司賠償，涉及總賠償金額達1050萬港元。住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm)
+
+---
+
 # 朱民：中國經濟改革要轉向消費　成為經濟主要動力
 
   
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797479-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797479-20250326.htm)
-
----
-
-# 投資推廣署上月發現一宗涉惡意勒索軟件攻擊部分電腦系統事故
-
-![投資推廣署在發現事件後已即時採取行動，加強系統的安全措施，防止進一步受到勒索軟件攻擊，並按既定程序向警方報案。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797474_1_20250326144158.jpg&q=80)
-  
-
-創新科技及工業局局長孫東表示，投資推廣署上月22日發現的一宗涉及惡意勒索軟件攻擊部分電腦系統的資訊保安事故，署方在發現事件後已即時採取行動，加強系統的安全措施，防止進一步受到勒索軟件攻擊，並按既定程序向警方報案，以及向數字辦、私隱專員公署和保安局通報事件。根據調查所得，未有證據顯示事件涉及個人資料外洩，亦沒有再偵測到任何可疑的活動情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797474-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797474-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797474-20250326.htm)
-
----
-
-# 中遠海運國際去年多賺19%　末期息升約23%
-
-![中遠海運國際去年盈利7.09億港元，按年升19%。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797469_1_20250326130835.jpg&q=90)
-  
-
-中遠海運國際去年盈利7.09億港元，按年升19%，由於收入及應佔一家合營企業盈利上升。末期息每股21.5港仙，全年派息48港仙，按年分別升約23%及20%，派息比率約99%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797469-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797469-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797469-20250326.htm)
 
 ---

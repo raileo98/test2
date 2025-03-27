@@ -1,3 +1,70 @@
+# 內地首兩個月工業企業利潤按年跌0.3%
+
+![內地今年首兩個月工業企業利潤按年跌0.3%，跌幅較去年全年收窄3個百分點。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797636_1_20250327105906.jpg&q=90)
+  
+
+內地今年首兩個月工業企業利潤總額9109.9億元人民幣，按年跌0.3%，跌幅較去年全年收窄3個百分點，但表現差過去年首兩個月的增長10.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm)
+
+---
+
+# 丁薛祥出席博鰲亞洲論壇開幕式　稱亞洲命運共同體建設成績斐然
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm)
+
+---
+
+# 保險投訴局去年接646宗投訴升約5%　111人獲賠償逾千萬元
+
+  
+
+保險投訴局去年共接獲646宗投訴個案，按年上升約5%。在已審結的356宗與索償相關投訴個案中，111名投訴人獲得保險公司賠償，涉及總賠償金額達1050萬港元。住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm)
+
+---
+
 # 朱民：中國經濟改革要轉向消費　成為經濟主要動力
 
   
@@ -95,6 +162,7 @@
 
 # 警方通緝一名印傭　據了解涉嫌虐待81歲老婦
 
+![警方調查深水埗一宗普通襲擊案，通緝一名印傭。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797629_1_20250327110814.jpg&q=90)
   
 
 警方正調查深水埗一宗普通襲擊案，通緝一名印傭，據了解，她涉嫌虐待一名81歲老婦。
@@ -1361,77 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797566-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797566-20250326.htm)
-
----
-
-# 女子疑進食自行採摘野生菇類致食物中毒　留院觀察情況穩定
-
-![中心表示，由於難以辨別菇類是否適宜食用，提醒市民切勿採摘野生菇類進食。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797565_1_20250326210235.jpg&q=90)
-  
-
-一名女子懷疑進食自行採摘野生菇類引致食物中毒，目前情況穩定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797565-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797565-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797565-20250326.htm)
-
----
-
-# 蜜雪集團去年盈利升逾41%　內地門店增加8350家
-
-![蜜雪集團去年盈利近44.4億元人民幣，按年增長逾41%。不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797562_1_20250326205416.jpg&q=85)
-  
-
-蜜雪集團公布，去年盈利近44.4億元人民幣，按年增長逾41%。不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797562-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797562-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797562-20250326.htm)
-
----
-
-# 美國2月耐用品訂單出乎意料按月增長0.9%
-
-![美國2月耐用品訂單意外按月增長0.9%，市場原先預期會下跌1%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797560_1_20250326203953.jpg&q=90)
-  
-
-美國2月耐用品訂單出乎意料按月增長0.9%，市場原先預期會下跌1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797560-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797560-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797560-20250326.htm)
 
 ---
