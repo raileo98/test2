@@ -1,3 +1,27 @@
+# 中海油去年多賺逾11%　末期息每股0.66港元
+
+![中海油去年盈利1379.4億元人民幣，按年升逾11%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797700_1_20250327165258.jpg&q=90)
+  
+
+中海油去年盈利1379.4億元人民幣，按年升逾11%。末期息每股0.66港元，全年派息1.4元，按年升12%，派息比率44.7%。公司計劃今年起至2027年，全年派息比率提升至不低於45%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm)
+
+---
+
 # 王毅與法國外長會談　強調雙方要以互利共贏反對脫鉤斷鏈
 
   
@@ -21,7 +45,7 @@
 
 ---
 
-# 中聯辦祁斌：香港資本是帶動解決財政、房地產等問題的重要抓手
+# 祁斌：香港資本是帶動解決財政、房地產等問題的重要抓手
 
   
 

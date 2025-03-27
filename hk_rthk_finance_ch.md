@@ -1,4 +1,28 @@
-# 中聯辦祁斌：香港資本是帶動解決財政、房地產等問題的重要抓手
+# 中海油去年多賺逾11%　末期息每股0.66港元
+
+![中海油去年盈利1379.4億元人民幣，按年升逾11%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797700_1_20250327165258.jpg&q=90)
+  
+
+中海油去年盈利1379.4億元人民幣，按年升逾11%。末期息每股0.66港元，全年派息1.4元，按年升12%，派息比率44.7%。公司計劃今年起至2027年，全年派息比率提升至不低於45%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm)
+
+---
+
+# 祁斌：香港資本是帶動解決財政、房地產等問題的重要抓手
 
   
 
@@ -115,6 +139,30 @@
 
 ---
 
+# 商務部：中方已在世貿爭端解決機制起訴美方加徵關稅措施
+
+![商務部表示，中方已在世貿爭端解決機制起訴美方加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797686_1_20250327155129.jpg&q=75)
+  
+
+在北京，商務部表示，針對美方加徵關稅措施，中方已在世貿組織爭端解決機制下起訴，將根據世貿組織規則推進後續程序。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm)
+
+---
+
 # 金管局冀穩定幣相關法案未來幾個月獲立法會通過
 
 ![陳維民形容，香港在發展穩定幣方面進展良好，相關法案正經立法會審議，期望在未來幾個月通過。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797685_1_20250327154514.jpg&q=80)
@@ -160,6 +208,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
+
+---
+
+# 回應美國對進口汽車徵收25%關稅　中方：做法損害多邊貿易體制
+
+![外交部重申，沒有哪個國家的發展繁榮是靠加徵關稅實現。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797683_1_20250327154428.jpg&q=80)
+  
+
+在北京，外交部在例行記者會回應有關美國總統特朗普宣布美國對所有進口汽車徵收25%關稅的提問，發言人郭嘉昆說，中方注意到美國的主要交易夥伴已經紛紛做出回應。他重申，貿易戰關稅戰沒有贏家，沒有哪個國家的發展繁榮是靠加徵關稅實現。美方的做法違反世貿組織規則，損害以規則為基礎的多邊貿易體制和各國人民的共同利益，也無益於解決自身的問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm)
 
 ---
 
@@ -328,6 +400,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm)
+
+---
+
+# 回應政府有否就港口交易事件接觸長和　李家超：上次已說過這件事
+
+![《南華早報》引述消息人士表示，政府在3月4日得知長和宣布將出售予美國貝萊德牽頭的財團之後，已立即與長和接觸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797673_1_20250327144852.jpg&q=80)
+  
+
+長和計劃出售巴拿馬港口的業務引起爭議。《南華早報》引述消息人士表示，政府在3月4日得知長和宣布將出售予美國貝萊德牽頭的財團之後，已立即與長和接觸，商討「合理的解決方案」。報道亦引述其他消息指，解決方案的選擇有限，因為退出交易可能會造成高昂的成本，並帶來嚴重的政治影響，但交易繼續進行，則會對公司和國家造成損害。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797673-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797673-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797673-20250327.htm)
 
 ---
 
@@ -1335,101 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797566-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797566-20250326.htm)
-
----
-
-# 蜜雪集團去年盈利升逾41%　內地門店增加8350家
-
-![蜜雪集團去年盈利近44.4億元人民幣，按年增長逾41%。不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797562_1_20250326205416.jpg&q=85)
-  
-
-蜜雪集團公布，去年盈利近44.4億元人民幣，按年增長逾41%。不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797562-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797562-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797562-20250326.htm)
-
----
-
-# 美國2月耐用品訂單出乎意料按月增長0.9%
-
-![美國2月耐用品訂單意外按月增長0.9%，市場原先預期會下跌1%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797560_1_20250326203953.jpg&q=90)
-  
-
-美國2月耐用品訂單出乎意料按月增長0.9%，市場原先預期會下跌1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797560-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797560-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797560-20250326.htm)
-
----
-
-# 中信銀行去年多賺2.3%
-
-![中信銀行去年盈利約685.8億元人民幣，按年升2.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797555_1_20250326200434.jpg&q=90)
-  
-
-中信銀行公布，去年盈利約685.8億元人民幣，按年升2.3%。派末期息每股0.1722元人民幣，全年派息0.3547元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797555-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797555-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797555-20250326.htm)
-
----
-
-# 新奧股份擬私有化新奧能源後在港上市　響應中證監對港合作措施
-
-![根據私有化計劃，每股新奧能源可換2.9427股新奧股份H股及24.5元現金。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797553_1_20250326194804.jpg&q=80)
-  
-
-新奧股份計劃私有化新奧能源，新奧股份將發行H股，每股新奧能源計劃股份理論總價值約80元，可換取2.9427股新奧股份H股及24.5元現金，註銷代價相當於新奧能源停牌前59.45元溢價約34.57%。連同註銷計劃股份及新奧能源購股權要約，私有化交易總作價約184億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797553-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797553-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797553-20250326.htm)
 
 ---
