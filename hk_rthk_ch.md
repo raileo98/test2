@@ -1,3 +1,46 @@
+# 冬季流感季節完結　衞生署料今年夏季有一半機會出現流感季節
+
+  
+
+衞生署宣布，本港今年度冬季流感季節已完結。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797644-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797644-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797644-20250327.htm)
+
+---
+
+# 丁薛祥：擴大國內需求積極穩外貿穩外資　有信心實現發展目標
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm)
+
+---
+
 # 內地首兩個月工業企業利潤按年跌0.3%
 
 ![內地今年首兩個月工業企業利潤按年跌0.3%，跌幅較去年全年收窄3個百分點。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797636_1_20250327105906.jpg&q=90)
@@ -44,6 +87,7 @@
 
 # 保險投訴局去年接646宗投訴升約5%　111人獲賠償逾千萬元
 
+![徐福燊（中）表示，投訴委員會過去一年裁定9宗個案的投訴人得直，維持保險公司賠償決定的個案則有33宗。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797639_1_20250327112511.jpg&q=85)
   
 
 保險投訴局去年共接獲646宗投訴個案，按年上升約5%。在已審結的356宗與索償相關投訴個案中，111名投訴人獲得保險公司賠償，涉及總賠償金額達1050萬港元。住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。
@@ -90,7 +134,7 @@
 
 # 俄羅斯新任駐美大使據報抵達華盛頓
 
-![俄羅斯新任駐美大使據報抵達華盛頓](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797637_1_20250327110044.jpg&q=90)
+![俄羅斯傳媒報道，俄羅斯新任駐美大使達爾奇耶夫已於周三抵達華盛頓。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797637_2_20250327112822.jpg&q=90)
   
 
 俄羅斯傳媒報道，俄羅斯新任駐美大使達爾奇耶夫已於周三抵達美國首都華盛頓。
@@ -1381,53 +1425,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm)
-
----
-
-# 中銀香港料市場利率繼續下行　將增加非利息業務應對息差壓力
-
-![中銀香港劉承鋼預計，市場利率將呈下行趨勢，未來將增加非利息業務貢獻，以減輕對淨息差的壓力。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797567_1_20250326211627.jpg&q=90)
-  
-
-中銀香港去年淨息差1.46厘，按年收窄7個基點；經調整淨息差1.64厘，擴大1個基點。副總裁兼財務總監劉承鋼表示，現時在港股較熾熱，境外資金持續流入，即使美國聯儲局減息步伐仍然不確定，但預計市場利率將呈下行趨勢，未來將增加非利息業務貢獻，以減輕對淨息差的壓力，亦會保持淨利息收入平穩。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797567-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797567-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797567-20250326.htm)
-
----
-
-# 中銀香港：本港地產組合風險受壓　但資產質量可控
-
-![中銀香港徐海峰：目前本港地產組合風險受壓，但整體資產質量可控。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797566_1_20250326211146.jpg&q=90)
-  
-
-中銀香港截至去年底，貸款總減值準備149.6億元，按年升1.4%。副總裁兼風險總監徐海峰表示，去年香港房地產市場面對高息環境，特別是商業房地產市場持續受壓，部份規模較小的房企流動性持續緊張，但目前整體資產質素可控。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797566-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797566-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797566-20250326.htm)
 
 ---

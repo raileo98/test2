@@ -1,3 +1,23 @@
+# 丁薛祥：擴大國內需求積極穩外貿穩外資　有信心實現發展目標
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm)
+
+---
+
 # 丁薛祥出席博鰲亞洲論壇開幕式　稱亞洲命運共同體建設成績斐然
 
   
@@ -20,7 +40,7 @@
 
 # 俄羅斯新任駐美大使據報抵達華盛頓
 
-![俄羅斯新任駐美大使據報抵達華盛頓](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797637_1_20250327110044.jpg&q=90)
+![俄羅斯傳媒報道，俄羅斯新任駐美大使達爾奇耶夫已於周三抵達華盛頓。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797637_2_20250327112822.jpg&q=90)
   
 
 俄羅斯傳媒報道，俄羅斯新任駐美大使達爾奇耶夫已於周三抵達美國首都華盛頓。
@@ -1407,29 +1427,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797264-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797264-20250325.htm)
-
----
-
-# 委內瑞拉面對美方涉能源關稅　中國是委内瑞拉石油最大買家
-
-![委內瑞拉是石油輸出國組織成員國，石油是主要出口產品。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797254_1_20250325104323.jpg&q=90)
-  
-
-美國總統特朗普表示，汽車關稅即將來臨，但並非所有他打算要徵收的關稅，都要在4月2日實施，部分國家可獲減免，但他未有提供細節。市場認為特朗普對關稅措施展現靈活性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm)
 
 ---

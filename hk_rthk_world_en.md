@@ -1,4 +1,4 @@
-# South Korea battles worst ever wildfires as death toll
+# South Korea battles worst ever wildfires
 
 ![The wildfires in South Korea have been moving rapidly eastward, spreading almost to the coast, carried by gusty winds. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_1_20250327105237.jpg&q=80)
 ![A satellite image shows smoke from fires burning in Uiseong county, South Korea. Photo: Nasa via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_2_20250327105237.jpg&q=80)
@@ -73,7 +73,7 @@ Canadian Prime Minister Mark Carney reacted with anger on Wednesday to US Presid
 
 # Trump hints at lower tariffs for China over TikTok
 
-![The short-video app is used by nearly half of all Americans. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
   
 
 US President Donald Trump said on Wednesday he would be willing to reduce tariffs to get a deal done with TikTok's Chinese parent ByteDance to sell the short video app used by 170 million Americans.

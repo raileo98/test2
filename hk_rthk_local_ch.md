@@ -1,3 +1,46 @@
+# 冬季流感季節完結　衞生署料今年夏季有一半機會出現流感季節
+
+  
+
+衞生署宣布，本港今年度冬季流感季節已完結。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797644-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797644-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797644-20250327.htm)
+
+---
+
+# 丁薛祥：擴大國內需求積極穩外貿穩外資　有信心實現發展目標
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm)
+
+---
+
 # 丁薛祥出席博鰲亞洲論壇開幕式　稱亞洲命運共同體建設成績斐然
 
   
@@ -20,6 +63,7 @@
 
 # 保險投訴局去年接646宗投訴升約5%　111人獲賠償逾千萬元
 
+![徐福燊（中）表示，投訴委員會過去一年裁定9宗個案的投訴人得直，維持保險公司賠償決定的個案則有33宗。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797639_1_20250327112511.jpg&q=85)
   
 
 保險投訴局去年共接獲646宗投訴個案，按年上升約5%。在已審結的356宗與索償相關投訴個案中，111名投訴人獲得保險公司賠償，涉及總賠償金額達1050萬港元。住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。
@@ -1385,53 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797481-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797481-20250326.htm)
-
----
-
-# 紀念啟德起航香港百年航空歷史　3月30日維港舉行飛行演示
-
-![適逢香港國際七人欖球賽首次於啟德體育園舉行，特區政府支持活動主辦機構於本月30日下午進行一次飛越維港的飛行演示。 （李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797478_2_20250326152709.jpg&q=80)
-  
-
-為紀念由啟德起航的香港百年航空歷史，適逢香港國際七人欖球賽首次於啟德體育園舉行，特區政府支持活動主辦機構於本月30日下午進行一次飛越維多利亞港的飛行演示，象徵香港航空史的百年傳承，並讓市民見證別具意義的歷史時刻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797478-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797478-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797478-20250326.htm)
-
----
-
-# 盧寵茂：公私營醫療收費差距遠　不存在調整公營收費後推高私營
-
-![盧寵茂指不存在調整收費後，會推高私營市場的收費，形容「矮仔好難將高佬推得更高」。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797476_1_20250326144408.jpg&q=90)
-  
-
-政府昨日公布公營醫療收費改革方案，醫務衞生局局長盧寵茂強調，調整收費並非為收回成本，又說政府沒有準確數字，在急症室調整收費後會有多少病人流向私營市場，但根據上次於2017年調整收費的經驗，有關數字約為5%，他期望今次調整收費後，急症室分流的人數會更多。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797476-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797476-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797476-20250326.htm)
 
 ---

@@ -1,3 +1,23 @@
+# 丁薛祥：擴大國內需求積極穩外貿穩外資　有信心實現發展目標
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm)
+
+---
+
 # 內地首兩個月工業企業利潤按年跌0.3%
 
 ![內地今年首兩個月工業企業利潤按年跌0.3%，跌幅較去年全年收窄3個百分點。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797636_1_20250327105906.jpg&q=90)
@@ -1408,29 +1428,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm)
-
----
-
-# 財政部：今年財政政策要更加積極　具體提高財政赤字率
-
-![財政部發布報告指，今年財政政策要更加積極，包括具體提高財政赤字率、加大支出強度、加速支出進度等。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797183_1_20250324174156.jpg&q=75)
-  
-
-在北京，財政部發布《中國財政政策執行情況報告》，表示今年財政政策要更加積極、持續用力、更加給力，包括具體提高財政赤字率、加大支出強度、加速支出進度；安排更大規模政府債券，為穩增長、調結構提供更多支撐；大力優化支出結構、加強精準投放，更加注重惠民生、促消費、增後勁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797183-20250324.htm)
 
 ---

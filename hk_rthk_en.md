@@ -1,4 +1,4 @@
-# South Korea battles worst ever wildfires as death toll
+# South Korea battles worst ever wildfires
 
 ![The wildfires in South Korea have been moving rapidly eastward, spreading almost to the coast, carried by gusty winds. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_1_20250327105237.jpg&q=80)
 ![A satellite image shows smoke from fires burning in Uiseong county, South Korea. Photo: Nasa via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_2_20250327105237.jpg&q=80)
@@ -97,7 +97,7 @@ Canadian Prime Minister Mark Carney reacted with anger on Wednesday to US Presid
 
 # Trump hints at lower tariffs for China over TikTok
 
-![The short-video app is used by nearly half of all Americans. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
   
 
 US President Donald Trump said on Wednesday he would be willing to reduce tariffs to get a deal done with TikTok's Chinese parent ByteDance to sell the short video app used by 170 million Americans.
@@ -193,7 +193,7 @@ Israeli Prime Minister Benjamin Netanyahu threatened on Wednesday to seize parts
 
 # Coleman Wong ready to climb up world tennis rankings
 
-![Coleman Wong said he's glad to prove that a player from the SAR can beat a top-20 player in the world. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797605_1_20250327063121.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797605_1_20250327063121.jpg&q=90)
   
 
 The SAR's tennis star, Coleman Wong, said late Wednesday that he was more confident about cracking the top 100 in the men's singles world rankings, following his historic success at the Miami Open.

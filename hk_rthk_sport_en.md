@@ -24,7 +24,7 @@ Alexandra Eala, a 19-year-old wildcard from the Philippines, produced a huge ups
 
 # Coleman Wong ready to climb up world tennis rankings
 
-![Coleman Wong said he's glad to prove that a player from the SAR can beat a top-20 player in the world. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797605_1_20250327063121.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797605_1_20250327063121.jpg&q=90)
   
 
 The SAR's tennis star, Coleman Wong, said late Wednesday that he was more confident about cracking the top 100 in the men's singles world rankings, following his historic success at the Miami Open.
