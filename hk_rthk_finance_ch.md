@@ -1,3 +1,27 @@
+# 銀行公會：關稅促進其他貿易走廊發展　香港可以把握機遇
+
+![禤惠儀表示，銀行公會在日後出訪行程中，聯合商會幫助中小企把握新冒起貿易走廊的機遇。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797718_1_20250327185455.jpg&q=90)
+  
+
+銀行公會主席禤惠儀表示，香港作為外向型經濟，雖然面對關稅等不確定性，但市場已經做好分散風險的部署，而關稅亦涉及不同國家，反而促進其他貿易走廊的發展，認為香港可以把握相關機遇。她期望，銀行公會在日後出訪行程中，聯合商會幫助中小企把握新冒起貿易走廊的機遇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797718-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797718-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797718-20250327.htm)
+
+---
+
 # 銀行公會冀利率下調及經濟改善有助本港樓市回暖
 
 ![禤惠儀表示，隨着利率逐步下調及經濟改善，期望有助本港樓市回暖，並利好樓價。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797717_1_20250327185121.jpg&q=90)
@@ -1407,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797589-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797589-20250327.htm)
-
----
-
-# 蒙牛去年盈利倒退98%　仍派末期息每股0.509元人民幣
-
-![蒙牛去年盈利倒退98%，受子公司商譽及無形資產減值虧損，以及現代牧業商譽減值影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797580_1_20250326225414.jpg&q=90)
-  
-
-蒙牛去年盈利約1億元人民幣，按年大幅倒退98%，主要受子公司貝拉米商譽及無形資產減值虧損，以及現代牧業商譽減值等影響。公司撇除相關影響的利潤作為分紅基礎，派末期息每股0.509元人民幣，派息比率升至45%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797580-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797580-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797580-20250326.htm)
 
 ---
