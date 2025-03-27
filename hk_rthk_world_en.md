@@ -1,4 +1,4 @@
-# Healthrow set for incentives to upgrade after closure
+# Heathrow set for incentives to upgrade after closure
 
 ![A sign is put up at King's Cross railway station in London after a fire at  an electrical substation wiped out power to Heathrow last Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797682_1_20250327153912.jpg&q=90)
   

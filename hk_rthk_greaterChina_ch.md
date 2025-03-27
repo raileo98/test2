@@ -1,3 +1,27 @@
+# 商務部：中方已在世貿爭端解決機制起訴美方加徵關稅措施
+
+![商務部表示，中方已在世貿爭端解決機制起訴美方加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797686_1_20250327155129.jpg&q=75)
+  
+
+在北京，商務部表示，針對美方加徵關稅措施，中方已在世貿組織爭端解決機制下起訴，將根據世貿組織規則推進後續程序。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm)
+
+---
+
 # 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm)
-
----
-
-# 韓正冀英國太古集團參與大灣區建設　瑞士諾華抓緊機遇拓展合作
-
-![韓正分別會見英國太古集團行政總裁施銘倫及瑞士諾華公司首席執行官萬思瀚。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797206_1_20250324212520.jpg&q=90)
-  
-
-國家副主席韓正在北京分別會見來華參加中國發展高層論壇2025年年會的英國太古集團行政總裁施銘倫及瑞士諾華公司首席執行官萬思瀚。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797206-20250324.htm)
 
 ---

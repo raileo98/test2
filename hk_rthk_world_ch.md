@@ -1,3 +1,27 @@
+# 商務部：中方已在世貿爭端解決機制起訴美方加徵關稅措施
+
+![商務部表示，中方已在世貿爭端解決機制起訴美方加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797686_1_20250327155129.jpg&q=75)
+  
+
+在北京，商務部表示，針對美方加徵關稅措施，中方已在世貿組織爭端解決機制下起訴，將根據世貿組織規則推進後續程序。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm)
+
+---
+
 # 回應美國對進口汽車徵收25%關稅　中方：做法損害多邊貿易體制
 
 ![外交部重申，沒有哪個國家的發展繁榮是靠加徵關稅實現。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797683_1_20250327154428.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm)
-
----
-
-# 外交部：中方從未也沒有興趣干涉加拿大內政
-
-![郭嘉昆表示，中方一貫堅持不干涉別國內政的原則，從未也沒有興趣干涉加拿大的內政。(路透社資料圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797321_1_20250325164026.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，中方一貫堅持不干涉別國內政的原則，從未也沒有興趣干涉加拿大的內政。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm)
 
 ---

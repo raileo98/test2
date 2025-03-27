@@ -1,8 +1,9 @@
-# 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
+# 商務部：中方已在世貿爭端解決機制起訴美方加徵關稅措施
 
+![商務部表示，中方已在世貿爭端解決機制起訴美方加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797686_1_20250327155129.jpg&q=75)
   
 
-行政長官李家超說，「一國兩制」下，香港是全球唯一同時享有中國優勢及國際優勢的開放經濟體。面對地緣政治變化、保護主義和單邊主義冒起，香港始終倡導自由貿易及多邊主義，致力於增強應對挑戰的應變能力，亦是外國企業進軍內地以及內地企業「走出去」的最佳平台。在國家支持下，香港會進一步深化國際交往合作，並與國家及亞洲各國一道增進互信團結、開放融通、互利共贏、和平共處，促進亞洲經濟發展，推動全球經濟一體化。
+在北京，商務部表示，針對美方加徵關稅措施，中方已在世貿組織爭端解決機制下起訴，將根據世貿組織規則推進後續程序。
 
   
 
@@ -10,14 +11,14 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm)
 
 ---
 
@@ -42,6 +43,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm)
+
+---
+
+# 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
+
+  
+
+行政長官李家超說，「一國兩制」下，香港是全球唯一同時享有中國優勢及國際優勢的開放經濟體。面對地緣政治變化、保護主義和單邊主義冒起，香港始終倡導自由貿易及多邊主義，致力於增強應對挑戰的應變能力，亦是外國企業進軍內地以及內地企業「走出去」的最佳平台。在國家支持下，香港會進一步深化國際交往合作，並與國家及亞洲各國一道增進互信團結、開放融通、互利共贏、和平共處，促進亞洲經濟發展，推動全球經濟一體化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
 
 ---
 
