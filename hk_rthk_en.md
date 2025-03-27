@@ -72,7 +72,7 @@ Hong Kong home prices slumped for the third month in a row in February, dropping
 
 # Govt 'pays almost all drug costs despite fee hike'
 
-![William Chui says the government will still be paying 90 percent of the costs of medication when the higher fees take effect in January. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797648_1_20250327115415.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797648_1_20250327115415.jpg&q=90)
   
 
 The Hospital Authority's chief pharmacist said on Thursday the upcoming hike in medication fees will help to subsidise the purchase of new drugs, as well as those used to fight cancer or rare diseases.
