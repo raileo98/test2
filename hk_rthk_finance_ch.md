@@ -70,6 +70,30 @@
 
 ---
 
+# 許正宇：香港家辦匯數字知識中心讓家辦走在財富管理創新最前沿
+
+![許正宇在首屆彭博家族辦公室峰會上，正式啓動「香港家辦匯」計劃下的家族辦公室數字知識中心。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797719_1_20250327185904.jpg&q=90)
+  
+
+財經事務及庫務局局長許正宇在首屆彭博家族辦公室峰會上，正式啓動「香港家辦匯」計劃下的數字知識中心。他表示，這個全新的網上平台可讓家辦走在財富管理創新最前沿，通過香港抓緊亞洲區內無限機遇，增值私人財富。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm)
+
+---
+
 # 銀行公會：關稅促進其他貿易走廊發展　香港可以把握機遇
 
 ![禤惠儀表示，銀行公會在日後出訪行程中，聯合商會幫助中小企把握新冒起貿易走廊的機遇。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797718_1_20250327185455.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797596-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797596-20250327.htm)
-
----
-
-# 特朗普宣布對進口美國汽車徵收25%關稅
-
-![美國總統特朗普宣布，對所有進口汽車徵收25%關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797597_1_20250327060309.jpg&q=90)
-  
-
-美國總統特朗普宣布，對所有進口汽車徵收25%關稅，如果在美國製造的汽車則毋須繳交關稅，措施4月2日起生效，將是永久性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm)
 
 ---

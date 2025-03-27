@@ -120,7 +120,7 @@
 
 # 范鴻齡稱積極研究減少前線行政讓醫護多做臨床工作
 
-![范鴻齡會後表示，今年內會推出一系列措施，為自身進行改革，以提升服務效率，增加生產力。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797720_1_20250327193911.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797720_1_20250327193911.jpg&q=80)
   
 
 醫管局下午舉行大會，主席范鴻齡會後表示，今年內會推出一系列措施，為自身進行改革，以提升服務效率，增加生產力。他表示，醫管局現時每年使用一千億元公帑，當中65%屬員工薪酬，這部分不能縮減，能夠做的是將生產力提高，若最終能節省0.1%，已是1億元，可以聘請到100名醫生，而最無痛苦的節流方法，就是減少浪費。
@@ -139,6 +139,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797720-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797720-20250327.htm)
+
+---
+
+# 許正宇：香港家辦匯數字知識中心讓家辦走在財富管理創新最前沿
+
+![許正宇在首屆彭博家族辦公室峰會上，正式啓動「香港家辦匯」計劃下的家族辦公室數字知識中心。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797719_1_20250327185904.jpg&q=90)
+  
+
+財經事務及庫務局局長許正宇在首屆彭博家族辦公室峰會上，正式啓動「香港家辦匯」計劃下的數字知識中心。他表示，這個全新的網上平台可讓家辦走在財富管理創新最前沿，通過香港抓緊亞洲區內無限機遇，增值私人財富。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm)
 
 ---
 
