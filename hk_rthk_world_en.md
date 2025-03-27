@@ -1,6 +1,6 @@
 # Japan warns of 'significant impact' of US tariffs
 
-![Japan says the Trump administration's decision to impose 25 percent tariffs on auto imports to the US was "extremely regrettable". File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797646_1_20250327114555.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797646_1_20250327114555.jpg&q=90)
   
 
 Japan's government on Thursday warned of a "significant impact" on its economic ties with the United States -- and on global trade -- after US President Donald Trump announced import tariffs on cars.

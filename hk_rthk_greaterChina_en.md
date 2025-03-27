@@ -1,3 +1,27 @@
+# Innovation is driving China's economy: Ding Xuexiang
+
+![Vice Premier Ding Xuexiang says China ranks among the world's fastest growing major economies. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797653_1_20250327122112.jpg&q=90)
+  
+
+Vice Premier Ding Xuexiang on Thursday said China's economy is remaking itself with the growing capacity to drive growth through innovation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797653-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797653-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797653-20250327.htm)
+
+---
+
 # Wang Yi to meet French counterpart Jean-Noel Barrot
 
 ![Foreign Minister Wang Yi will meet the top diplomat from France, Jean-Noel Barrot. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797631_1_20250327104617.jpg&q=90)
@@ -1411,29 +1435,5 @@ Hong Kong will improve as long as everyone works together to tackle the fiscal d
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm)
-
----
-
-# 'HK plays an important role in China's development'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795077_1_20250310114948.jpg&q=90)
-  
-
-Businessman Irons Sze on Monday said Hong Kong's position as an international financial centre is attributed to China's reform and opening up and reinforced by the "One Country, Two Systems" principle.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795077-20250310.htm)
 
 ---

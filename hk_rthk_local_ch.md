@@ -1,3 +1,26 @@
+# 男子深圳抵港攜9粒太空油毒品煙彈及1支電子煙裝置被捕
+
+  
+
+海關在落馬洲支線管制站偵破涉及入境旅客管有屬《危險藥物條例》的依托咪酯案件，檢獲9粒懷疑「太空油毒品」煙彈及1支電子煙裝置。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797652-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797652-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797652-20250327.htm)
+
+---
+
 # 港股半日升246點　蒙牛及中銀績後造好
 
 ![港股連升兩日，恒生指數最多升逾380點，高見23865點，中午收市報23729點，升246點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797651_1_20250327121037.jpg&q=15)
@@ -69,6 +92,9 @@
 # 丁薛祥出席博鰲亞洲論壇開幕式　稱亞洲命運共同體建設成績斐然
 
   
+
+國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式致辭表示，今年是國家主席習近平提出構建「亞洲命運共同體」 10周年，在各方的共同努力下，「亞洲命運共同體」建設成績斐然。他提出4點建議，共創亞洲和世界更加美好的未來。
+
   
 
 
@@ -1406,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797484-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797484-20250326.htm)
-
----
-
-# 大公報再刊來論告誡長和勿在錯路越走越遠
-
-![文章指出，長和集團計劃出售巴拿馬運河港口等資產，引起海內外強烈質疑。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797482_1_20250326144042.jpg&q=75)
-  
-
-《大公報》再次刊登評論文章，告誡長和計劃出售港口一事上，勿在錯誤的道路上越走越遠，否則後果十分嚴重。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797482-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797482-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797482-20250326.htm)
 
 ---

@@ -1,3 +1,51 @@
+# Innovation is driving China's economy: Ding Xuexiang
+
+![Vice Premier Ding Xuexiang says China ranks among the world's fastest growing major economies. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797653_1_20250327122112.jpg&q=90)
+  
+
+Vice Premier Ding Xuexiang on Thursday said China's economy is remaking itself with the growing capacity to drive growth through innovation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797653-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797653-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797653-20250327.htm)
+
+---
+
+# Home prices drop to lowest level in nearly nine years
+
+![Home prices continued to decline last month. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797650_1_20250327120658.jpg&q=65)
+  
+
+Hong Kong home prices slumped for the third month in a row in February, dropping to their lowest level in almost nine years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm)
+
+---
+
 # Govt 'pays almost all drug costs despite fee hike'
 
 ![William Chui says the government will still be paying 90 percent of the costs of medication when the higher fees take effect in January. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797648_1_20250327115415.jpg&q=90)
@@ -72,7 +120,7 @@ The Centre for Health Protection (CHP) says the winter influenza season has come
 
 # Japan warns of 'significant impact' of US tariffs
 
-![Japan says the Trump administration's decision to impose 25 percent tariffs on auto imports to the US was "extremely regrettable". File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797646_1_20250327114555.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797646_1_20250327114555.jpg&q=90)
   
 
 Japan's government on Thursday warned of a "significant impact" on its economic ties with the United States -- and on global trade -- after US President Donald Trump announced import tariffs on cars.
@@ -1389,53 +1437,5 @@ Sepp Blatter and Michel Platini won again in court on Tuesday and now lead 2-0 i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm)
-
----
-
-# Microplastics fear for those who chew gum
-
-![Researchers say a gram of gum releases an average of 100 microplastic fragments and that some shed more than 600. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797333_1_20250325172205.jpg&q=90)
-  
-
-Chewing gum releases hundreds of tiny plastic pieces straight into people's mouths, researchers said on Tuesday, also warning of the pollution created by the rubber-based sweet.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797333-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797333-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797333-20250325.htm)
-
----
-
-# Boao forum offers upbeat forecast on Asia growth
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797323_1_20250325164614.jpg&q=80)
-  
-
-Asia's economy is likely to continue its robust growth this year despite challenges, according to a report by the Boao Forum for Asia.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm)
 
 ---

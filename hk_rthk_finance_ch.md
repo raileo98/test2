@@ -70,6 +70,29 @@
 
 ---
 
+# 丁薛祥出席博鰲亞洲論壇開幕式　稱亞洲命運共同體建設成績斐然
+
+  
+
+國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式致辭表示，今年是國家主席習近平提出構建「亞洲命運共同體」 10周年，在各方的共同努力下，「亞洲命運共同體」建設成績斐然。他提出4點建議，共創亞洲和世界更加美好的未來。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm)
+
+---
+
 # 保險投訴局去年接646宗投訴升約5%　111人獲賠償逾千萬元
 
 ![徐福燊（中）表示，投訴委員會過去一年裁定9宗個案的投訴人得直，維持保險公司賠償決定的個案則有33宗。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797639_1_20250327112511.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797484-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797484-20250326.htm)
-
----
-
-# 大公報再刊來論告誡長和勿在錯路越走越遠
-
-![文章指出，長和集團計劃出售巴拿馬運河港口等資產，引起海內外強烈質疑。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797482_1_20250326144042.jpg&q=75)
-  
-
-《大公報》再次刊登評論文章，告誡長和計劃出售港口一事上，勿在錯誤的道路上越走越遠，否則後果十分嚴重。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797482-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797482-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797482-20250326.htm)
 
 ---
