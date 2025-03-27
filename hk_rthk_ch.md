@@ -1,3 +1,75 @@
+# 蔚來折讓逾9%配股集資最多40.3億元
+
+![蔚來計劃配售最多近1.19億股A類普通股股份，集資最多40.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797751_1_20250327225635.jpg&q=90)
+  
+
+蔚來公布，計劃配售最多近1.19億股A類普通股股份，配售價每股29.46元，較今日收市價折讓逾9%，集資最多40.3億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797751-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797751-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797751-20250327.htm)
+
+---
+
+# 美國2月二手樓臨時買賣合約指數按月轉升2%
+
+![美國2月二手樓臨時買賣合約指數升至72，按月轉升2%，升幅高過預期的1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797749_1_20250327224419.jpg&q=90)
+  
+
+全美不動產協會(NAR)公布，美國2月二手樓臨時買賣合約指數升至72，按月轉升2%，升幅高過預期的1%。按年比較，2月指數下跌3.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm)
+
+---
+
+# 南韓東南部山火增至28人死亡
+
+![南韓當局出動直升機協助撲救山火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797750_1_20250327225531.jpg&q=90)
+  
+
+南韓東南部慶尚道地區山火持續，增至28人死亡，超過30人受傷，火場面積超過38000公頃創新高，37800多人緊急撤離。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm)
+
+---
+
 # 九龍城警區打擊違規學習駕駛發出12張定額罰款通知書及2張傳票
 
 ![警方打擊違規學習駕駛的導師和學習駕駛者。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797748_1_20250327224449.jpg&q=85)
@@ -24,6 +96,7 @@
 
 # 范鴻齡：醫管局未來一年有連串措施提高效率並加強節流
 
+![范鴻齡說，未來一年會有連串措施提高效率，同時加強節流，研究簡化採購流程。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797747_1_20250327225701.jpg&q=80)
   
 
 醫管局在新一個財政年度，獲近一千億元經常撥款。醫管局主席范鴻齡說，未來一年會有連串措施提高效率，同時加強節流，研究簡化採購流程。

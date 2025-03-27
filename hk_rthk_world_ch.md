@@ -1,3 +1,27 @@
+# 南韓東南部山火增至28人死亡
+
+![南韓當局出動直升機協助撲救山火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797750_1_20250327225531.jpg&q=90)
+  
+
+南韓東南部慶尚道地區山火持續，增至28人死亡，超過30人受傷，火場面積超過38000公頃創新高，37800多人緊急撤離。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm)
+
+---
+
 # 蔡若蓮稱香港於教學與研究追求卓越成就是理想升學目的地
 
 ![蔡若蓮說，香港擁有五所名列世界百強的公帑資助大學，整個城市充滿活力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797746_1_20250327220329.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797388-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797388-20250326.htm)
-
----
-
-# 美國宣布制裁3名伊朗情報官員　涉與前聯邦調查局特工失蹤有關
-
-![美國財長貝森特表示，萊文森所受的對待，是伊朗本已惡劣侵犯人權紀錄上的污點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797387_1_20250326021821.jpg&q=90)
-  
-
-美國財政部及國務院宣布，對3名伊朗情報及安全部官員實施制裁，指他們涉嫌與前聯邦調查局特工萊文森失蹤有關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797387-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797387-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797387-20250326.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 蔚來折讓逾9%配股集資最多40.3億元
+
+![蔚來計劃配售最多近1.19億股A類普通股股份，集資最多40.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797751_1_20250327225635.jpg&q=90)
+  
+
+蔚來公布，計劃配售最多近1.19億股A類普通股股份，配售價每股29.46元，較今日收市價折讓逾9%，集資最多40.3億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797751-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797751-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797751-20250327.htm)
+
+---
+
+# 美國2月二手樓臨時買賣合約指數按月轉升2%
+
+![美國2月二手樓臨時買賣合約指數升至72，按月轉升2%，升幅高過預期的1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797749_1_20250327224419.jpg&q=90)
+  
+
+全美不動產協會(NAR)公布，美國2月二手樓臨時買賣合約指數升至72，按月轉升2%，升幅高過預期的1%。按年比較，2月指數下跌3.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm)
+
+---
+
 # 美國2月貿易逆差收窄近5%　分析：逆差仍居高不下
 
 ![美國2月商品貿易逆差收窄4.9%至1479億美元，仍在紀錄高位居高不下。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797742_1_20250327213559.jpg&q=85)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797617-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797617-20250327.htm)
-
----
-
-# 卡尼批評美國對進口汽車徵收關稅是對加拿大工人直接攻擊
-
-![德國汽車工業協會呼籲美國和歐盟展開雙邊會談尋求解決方案。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797615_1_20250327082909.jpg&q=60)
-  
-
-美國總統特朗普宣布對所有進口汽車徵收25%關稅，4月2日生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm)
-
----
-
-# 卡什卡利：關稅影響轉趨明朗前　聯儲局應較長時間按兵不動
-
-![卡什卡利表示，不確定關稅措施對經濟造成的影響，在情況轉趨明朗前，聯儲局應在一段較長時間內保持按兵不動。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797612_1_20250327072904.jpg&q=80)
-  
-
-美國明尼亞波利斯聯邦儲備銀行總裁卡什卡利表示，不確定關稅措施對經濟造成的影響，可能會推高物價，因而需要加息，但亦可能會減慢經濟增長，因而要降低借貸成本。他認為，在情況轉趨明朗前，聯儲局應在一段較長時間內保持按兵不動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797612-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797612-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797612-20250327.htm)
 
 ---
