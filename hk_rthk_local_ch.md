@@ -1,3 +1,26 @@
+# 乳癌患者住私院最初只獲賠12天費用　保險投訴局終裁定賠一個月
+
+  
+
+保險投訴局去年共接獲646宗投訴個案，按年上升約5%。當中住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。投訴類别方面，保單條款的詮釋佔最多，有54%，不保事項及沒有披露事實分别佔16.5%及15.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797693-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797693-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797693-20250327.htm)
+
+---
+
 # 張宇人指修正案騎劫故不動議檢視小班教學原議案　朱國強稱不合理
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797523-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797523-20250326.htm)
-
----
-
-# 運輸署建議七欖觀眾乘港鐵往啟德主場館　港鐵加密屯馬綫列車班次
-
-![鄧竟成（左二）說，體育園將不斷累積經驗，與主辦方合作及調整營運及溝通，合辦香港盛事。（李俊傑攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797522_1_20250326203304.jpg&q=80)
-  
-
-香港國際七人欖球賽將於本星期五起，一連三日舉行，啟德體育園表示，有信心與主辦單位合辦一件盛事，運輸署表示，港鐵及公共巴士將會有特別安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm)
 
 ---

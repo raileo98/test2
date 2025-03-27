@@ -1,3 +1,27 @@
+# Police probe alleged attack on elderly woman
+
+![Police say an elderly woman was taken to hospital with injuries to her face and hands. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797689_1_20250327160355.jpg&q=60)
+  
+
+Police on Thursday said they are investigating a suspected assault at a flat in Sham Shui Po after a video shared online appeared to show an elderly woman being physically abused by a helper.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797689-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797689-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797689-20250327.htm)
+
+---
+
 # Thais give green light to draft law for casinos
 
 ![Protesters rally near Government House in Bangkok against the casino-entertainment complex bill. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797665_1_20250327133509.jpg&q=90)
@@ -1419,29 +1443,5 @@ Police on Friday said they will launch a citywide operation next week to tackle 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796806-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796806-20250321.htm)
-
----
-
-# Well-off public housing tenants to pay more
-
-![Cleresa Wong said the higher rental charges for well-off tenants are aimed at bringing about a fairer use of public resources and not at raising government revenue. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796794_1_20250321160610.jpg&q=90)
-  
-
-A Housing Authority committee tightened rules on Friday for well-off public housing tenants, raising the likelihood that their rent would more than double.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796794-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796794-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796794-20250321.htm)
 
 ---

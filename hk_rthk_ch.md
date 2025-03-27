@@ -1,3 +1,26 @@
+# 乳癌患者住私院最初只獲賠12天費用　保險投訴局終裁定賠一個月
+
+  
+
+保險投訴局去年共接獲646宗投訴個案，按年上升約5%。當中住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。投訴類别方面，保單條款的詮釋佔最多，有54%，不保事項及沒有披露事實分别佔16.5%及15.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797693-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797693-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797693-20250327.htm)
+
+---
+
 # 新世界發展：加快香港與內地市場資金回籠
 
 ![新世界發展稱啟德跑道區住宅項目柏蔚森暫套現近40億元；北角皇都套現逾33.7億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797691_1_20250327160602.jpg&q=90)
