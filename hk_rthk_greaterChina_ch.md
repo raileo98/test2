@@ -1,3 +1,27 @@
+# 陳子達先後與北京廣州及深圳海關交流並參觀當地設施
+
+![陳子達（中）參觀北京大興國際機場。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797726_1_20250327193953.jpg&q=90)
+  
+
+香港海關關長陳子達昨日在北京拜訪國家海關總署，與海關總署署長孫梅君會面，雙方就深化內地與香港海關業務合作等事宜交換意見，並參觀了海關設施及北京大興國際機場，了解當地的通關流程以及如何運用科技提升通關效率等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm)
+
+---
+
 # 港澳辦網站轉載報道指長和出售港口不符商業邏輯
 
 ![中共中央港澳辦、國務院港澳辦轉載報道，內容提及長和計劃出售巴拿馬運河港口等資產。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797725_1_20250327192925.jpg&q=75)
@@ -48,6 +72,7 @@
 
 # 王毅：中法建交精神對中歐和世界都有現實借鑒意義
 
+![外長王毅在同法國外長巴羅共同會見記者。（外交部網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797715_1_20250327193641.jpg&q=90)
   
 
 中共中央政治局委員、外長王毅在同法國外長巴羅共同會見記者時，闡述雙方達成的共識。
@@ -71,6 +96,7 @@
 
 # 丁薛祥：今年經濟運行起步平穩　努力完成全年經濟社會發展目標
 
+![丁薛祥說，今年首兩個月，中國經濟運行起步平穩。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797711_1_20250327193831.jpg&q=80)
   
 
 中共中央政治局常委、國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式發表主旨演講。他指出，全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
@@ -1410,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm)
-
----
-
-# 博鰲亞洲論壇展開　料60多個國家和地區約2000名代表參加
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797276_1_20250325114930.jpg&q=90)
-  
-
-博鰲亞洲論壇2025年年會今日至本周五海南博鰲舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797276-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797276-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797276-20250325.htm)
 
 ---

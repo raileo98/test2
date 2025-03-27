@@ -72,6 +72,7 @@
 
 # 王毅與法國外長會談　強調雙方要以互利共贏反對脫鉤斷鏈
 
+![外長王毅在北京同法國外長巴羅會談。（外交部網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797708_1_20250327193722.jpg&q=90)
   
 
 中共中央政治局委員、外長王毅在北京同法國外長巴羅會談。
