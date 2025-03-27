@@ -1,3 +1,27 @@
+# 澳洲總理阿爾巴內塞宣佈5月3日舉行聯邦議會選舉
+
+![阿爾巴內塞宣佈，將於今年5月3日舉行聯邦議會選舉。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797784_1_20250328073351.jpg&q=90)
+  
+
+澳洲總理阿爾巴內塞宣佈，將於今年5月3日舉行聯邦議會選舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797784-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797784-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797784-20250328.htm)
+
+---
+
 # 埃及旅遊潛艇事故釀6名俄羅斯遊客死亡　當局調查事故原因
 
 ![辛德巴德號潛艇的執照有效，船長亦取得相關證書。圖為之前遊客在潛艇內觀賞海底珊瑚的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797772_1_20250328061429.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797492-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797492-20250326.htm)
-
----
-
-# 南韓一架滅火直升機墜毀　飛行員喪生
-
-![當局出動多架直升機，連日協助撲滅山火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797480_1_20250326141829.jpg&q=85)
-  
-
-韓聯社報道，一架在南韓慶尚北道義城郡協助撲滅山火的直升機墜毀，一名飛行員喪生，消防部門已派出救援人員，趕往事發地點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797480-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797480-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797480-20250326.htm)
 
 ---

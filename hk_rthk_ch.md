@@ -1,3 +1,27 @@
+# 澳洲總理阿爾巴內塞宣佈5月3日舉行聯邦議會選舉
+
+![阿爾巴內塞宣佈，將於今年5月3日舉行聯邦議會選舉。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797784_1_20250328073351.jpg&q=90)
+  
+
+澳洲總理阿爾巴內塞宣佈，將於今年5月3日舉行聯邦議會選舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797784-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797784-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797784-20250328.htm)
+
+---
+
 # 美國10年期債息觸及4.4厘　創逾1個月新高
 
 ![美國10年期債息觸及4.4厘，創逾1個月新高，升6.2個基點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797783_1_20250328071200.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797720-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797720-20250327.htm)
-
----
-
-# 許正宇：香港家辦匯數字知識中心讓家辦走在財富管理創新最前沿
-
-![許正宇在首屆彭博家族辦公室峰會上，正式啓動「香港家辦匯」計劃下的家族辦公室數字知識中心。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797719_1_20250327185904.jpg&q=90)
-  
-
-財經事務及庫務局局長許正宇在首屆彭博家族辦公室峰會上，正式啓動「香港家辦匯」計劃下的數字知識中心。他表示，這個全新的網上平台可讓家辦走在財富管理創新最前沿，通過香港抓緊亞洲區內無限機遇，增值私人財富。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm)
 
 ---
