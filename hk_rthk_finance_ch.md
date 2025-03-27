@@ -1,3 +1,51 @@
+# 美國上周新申領失業援助人數減少1千人
+
+![美國上周新申領失業援助人數減少1千人，降至22.4萬人，市場原先預期會維持不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797739_1_20250327211901.jpg&q=85)
+  
+
+美國上周新申領失業援助人數減少1千人，降至22.4萬人，市場原先預期會維持不變；4周平均新申領失業援助人數減少4750人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797739-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797739-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797739-20250327.htm)
+
+---
+
+# 美國去年第4季GDP按季年率增長2.4%　略高於前值及預期
+
+![美國去年第4季國內生產總值(GDP)按季年率修訂為增長2.4%，略高於前值和市場預期的2.3%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797738_1_20250327211320.jpg&q=80)
+  
+
+美國去年第4季國內生產總值(GDP)按季年率修訂為增長2.4%，略高於前值和市場預期的2.3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm)
+
+---
+
 # 中國人保去年多賺近89%
 
 ![中國人保去年盈利421.5億元人民幣，按年急升近89%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797722_1_20250327191025.jpg&q=50)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797609-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797609-20250327.htm)
-
----
-
-# 美元指數創近3星期新高
-
-![美元指數升穿104.7，創近3星期新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797604_1_20250327062904.jpg&q=90)
-  
-
-美元指數升穿104.7，創近3星期新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797604-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797604-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797604-20250327.htm)
-
----
-
-# 港股美國預託證券個別發展　滙控升逾1%　ATMXJ偏軟
-
-![港股美國預託證券個別發展，滙控ADR比本港昨日收市價升逾1%，以港元計折合報90.7元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797603_1_20250327062157.jpg&q=90)
-  
-
-港股美國預託證券(ADR)個別發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797603-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797603-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797603-20250327.htm)
 
 ---

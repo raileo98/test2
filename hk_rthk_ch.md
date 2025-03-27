@@ -1,3 +1,51 @@
+# 美國上周新申領失業援助人數減少1千人
+
+![美國上周新申領失業援助人數減少1千人，降至22.4萬人，市場原先預期會維持不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797739_1_20250327211901.jpg&q=85)
+  
+
+美國上周新申領失業援助人數減少1千人，降至22.4萬人，市場原先預期會維持不變；4周平均新申領失業援助人數減少4750人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797739-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797739-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797739-20250327.htm)
+
+---
+
+# 美國去年第4季GDP按季年率增長2.4%　略高於前值及預期
+
+![美國去年第4季國內生產總值(GDP)按季年率修訂為增長2.4%，略高於前值和市場預期的2.3%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797738_1_20250327211320.jpg&q=80)
+  
+
+美國去年第4季國內生產總值(GDP)按季年率修訂為增長2.4%，略高於前值和市場預期的2.3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm)
+
+---
+
 # 中方：奉勸美方反思對拉美和加勒比國家的霸權霸凌　停止抺黑中國
 
 ![外交部說，美方惡意散布虛假信息，目的是挑撥中國同其他國家關係，不會得逞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797737_1_20250327211131.jpg&q=80)
