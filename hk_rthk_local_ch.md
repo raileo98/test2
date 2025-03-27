@@ -1,5 +1,30 @@
+# 衞生防護中心指今年有一半機會出現夏季流感季節
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797705_1_20250327180741.jpg&q=90)
+  
+
+衞生防護中心表示，最近呼吸道樣本的季節性流感病毒陽性比例，以及公立醫院入院率已低於基線水平，另外學校及院舍流感爆發宗數亦回落，宣布本港今年度冬季流感季節結束。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797705-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797705-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797705-20250327.htm)
+
+---
+
 # 陳茂波：「裕澤香江」高峰論壇總體氣氛較去年正面
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797702_1_20250327180250.jpg&q=90)
   
 
 財政司司長陳茂波表示，周三結束的「裕澤香江」高峰論壇，總體氣氛比去年更正面，期間進行非常具建設性的對話，與會者普遍要求政府擴展資產類別、促進更多跨境投資機會，部份有意來港定居的人士亦希望，投資門檻及合資格投資類別能更具彈性。
@@ -744,6 +769,7 @@
 # 網球未來兩年續成精英運動A級項目　黃澤林稱感謝政府及網球總會
 
 ![黃澤林說，感謝團隊背後的一直支持，亦要多謝所有香港支持自己的人。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797611_1_20250327072355.jpg&q=90)
+![創下本港網球手在ATP-1000分賽最佳成績的黃澤林昨晚返抵香港，他表示，美國邁阿密網球公開賽很累但很開心打得不錯，但始終不是參加很多大滿貫或ATP-1000分賽，自己仍未習慣，需要時間適應和學習。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797611_2_20250327175057.jpg&q=90)
   
 
 創下本港網球手在ATP-1000分賽最佳成績的黃澤林昨晚返抵香港，他表示，美國邁阿密網球公開賽很累但很開心打得不錯，但始終不是參加很多大滿貫或ATP-1000分賽，自己仍未習慣，需要時間適應和學習。
@@ -1413,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm)
-
----
-
-# 「七欖」周五舉行　球迷村提早關閉
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797535_1_20250326183239.jpg&q=90)
-  
-
-香港國際七人欖球賽，星期五起，一連三天在啟德體育園舉行，其中球迷村原本稱開放到晚上11時，改為星期五和星期六提早在晚上10時半關閉，星期日晚提早至晚上7時關閉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm)
 
 ---

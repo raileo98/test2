@@ -70,6 +70,7 @@
 
 # 陳茂波：「裕澤香江」高峰論壇總體氣氛較去年正面
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797702_1_20250327180250.jpg&q=90)
   
 
 財政司司長陳茂波表示，周三結束的「裕澤香江」高峰論壇，總體氣氛比去年更正面，期間進行非常具建設性的對話，與會者普遍要求政府擴展資產類別、促進更多跨境投資機會，部份有意來港定居的人士亦希望，投資門檻及合資格投資類別能更具彈性。
@@ -208,30 +209,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
-
----
-
-# 回應美國對進口汽車徵收25%關稅　中方：做法損害多邊貿易體制
-
-![外交部重申，沒有哪個國家的發展繁榮是靠加徵關稅實現。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797683_1_20250327154428.jpg&q=80)
-  
-
-在北京，外交部在例行記者會回應有關美國總統特朗普宣布美國對所有進口汽車徵收25%關稅的提問，發言人郭嘉昆說，中方注意到美國的主要交易夥伴已經紛紛做出回應。他重申，貿易戰關稅戰沒有贏家，沒有哪個國家的發展繁榮是靠加徵關稅實現。美方的做法違反世貿組織規則，損害以規則為基礎的多邊貿易體制和各國人民的共同利益，也無益於解決自身的問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm)
 
 ---
 
@@ -1431,5 +1408,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm)
+
+---
+
+# 祁斌稱中央全力支持瓊港兩地自由港平台與超級聯繫人雙向聯動
+
+![祁斌指出，海南自貿區零關稅低稅率政策，與香港自由港制度可以形成疊加效應。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797578_1_20250326225528.jpg&q=80)
+  
+
+在海南，瓊港簽署備忘錄，在多方面深化合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm)
 
 ---
