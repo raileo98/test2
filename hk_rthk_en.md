@@ -1,3 +1,27 @@
+# Australian PM says general election is 'imminent'
+
+![Anthony Albanese, second right, leads party support for Treasurer Jim Chalmers after his fourth federal budget speech in Parliament House, Canberra. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797706_1_20250327172305.jpg&q=90)
+  
+
+Australian Prime Minister Anthony Albanese said on Thursday he would call a general election "imminently," with local media reporting the poll would be held on May 3.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm)
+
+---
+
 # Hong Kong stocks close higher
 
 ![The Hang Seng Index finished up 0.4 percent at 23,578. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797701_1_20250327165821.jpg&q=75)
@@ -1413,29 +1437,5 @@ Wall Street stocks mostly closed higher on Tuesday, building on earlier gains am
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm)
-
----
-
-# Depardieu denies 'groping' in sex abuse trial
-
-![Gerard Depardieu, 76, has been accused of improper behaviour by around 20 women but this is the first case to come to trial. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797392_1_20250326035129.jpg&q=90)
-  
-
-French star actor Gerard Depardieu, on trial for sexual assault, told the Paris court on Tuesday that he was not in the habit of "groping" women, and called the #MeToo movement a "reign of terror".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm)
 
 ---

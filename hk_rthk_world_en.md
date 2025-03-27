@@ -1,3 +1,27 @@
+# Australian PM says general election is 'imminent'
+
+![Anthony Albanese, second right, leads party support for Treasurer Jim Chalmers after his fourth federal budget speech in Parliament House, Canberra. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797706_1_20250327172305.jpg&q=90)
+  
+
+Australian Prime Minister Anthony Albanese said on Thursday he would call a general election "imminently," with local media reporting the poll would be held on May 3.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm)
+
+---
+
 # Beijing warns of 'no winners' over new Trump tariffs
 
 ![BYD cars await loading onto one of the company's roll-on/roll-off export vessels in Suzhou this year. China says US tariffs on foreign-made cars won't help Washington solve its own problems. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797697_1_20250327163138.jpg&q=80)
@@ -1413,29 +1437,5 @@ The foreign ministers of Germany, France and Britain called late on Friday for a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm)
-
----
-
-# Flights at London Heathrow resume after power outage
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796876_1_20250322061716.jpg&q=85)
-  
-
-Flights at Britain's Heathrow resumed late on Friday after a fire knocked out its power supply and shut Europe's busiest airport for the day, stranding tens of thousands of passengers and causing travel turmoil worldwide.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796876-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796876-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796876-20250322.htm)
 
 ---
