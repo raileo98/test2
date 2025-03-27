@@ -1,3 +1,26 @@
+# 阿姆斯特丹發生持刀襲擊案最少5傷　疑犯被捕其犯案動機待查明
+
+  
+
+荷蘭首都阿姆斯特丹市中心發生持刀襲擊案，最少5人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797765-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797765-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797765-20250328.htm)
+
+---
+
 # 李在明視察南韓山火災情時遇襲無受傷　據報襲擊者為災民
 
 ![李在明昨日視察慶尚北道山火災情。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797764_1_20250328013456.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797421-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797421-20250326.htm)
-
----
-
-# 南韓慶尚北道山火持續蔓延　增至16人死亡
-
-![在南韓安東市，山火持續燃燒，濃煙升至半空。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797410_1_20250326074128.jpg&q=90)
-  
-
-南韓慶尚北道義城郡發生的山火持續多日，已蔓延至安東市等附近四個地區，增至16人死亡，10人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797410-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797410-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797410-20250326.htm)
 
 ---

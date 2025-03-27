@@ -1,3 +1,50 @@
+# 阿姆斯特丹發生持刀襲擊案最少5傷　疑犯被捕其犯案動機待查明
+
+  
+
+荷蘭首都阿姆斯特丹市中心發生持刀襲擊案，最少5人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797765-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797765-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797765-20250328.htm)
+
+---
+
+# 李在明視察南韓山火災情時遇襲無受傷　據報襲擊者為災民
+
+![李在明昨日視察慶尚北道山火災情。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797764_1_20250328013456.jpg&q=90)
+  
+
+南韓最大在野黨共同民主黨黨魁李在明昨日視察慶尚北道山火災情時，被一名男子用外套襲擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797764-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797764-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797764-20250328.htm)
+
+---
+
 # 何立峰晤歐方經貿官員　稱中方願共同抵制單邊主義及保護主義
 
   
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm)
-
----
-
-# 南韓東南部山火增至27死32傷
-
-![南韓東南部慶尚道地區山火仍未受控。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797699_1_20250327164457.jpg&q=90)
-  
-
-南韓東南部慶尚道地區山火持續，增至27人死亡，32人受傷，火場面積36000公頃創新高，大約37000人疏散。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm)
-
----
-
-# 港股全日升幅收窄至95點　內需及醫藥股上升
-
-![恒生指數最多升逾380點，收市報23578點，升95點，升幅0.41%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797696_1_20250327163031.jpg&q=85)
-  
-
-港股連升兩日，但下午升幅收窄。恒生指數最多升逾380點，高見23865點，收市報23578點，升95點，升幅0.41%。主板成交額逾2396億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm)
 
 ---
