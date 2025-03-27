@@ -1,3 +1,26 @@
+# 載遊客潛艇在埃及紅海沿岸沉沒　據報6死19傷
+
+  
+
+一艘載著遊客的潛艇在埃及紅海城市胡爾加達附近海域沉沒，當地傳媒報道，有6人死亡，19人受傷。有關部門正在進行救援工作，事故原因仍在調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797745-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797745-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797745-20250327.htm)
+
+---
+
 # 美國2月貿易逆差收窄近5%　分析：逆差仍居高不下
 
 ![美國2月商品貿易逆差收窄4.9%至1479億美元，仍在紀錄高位居高不下。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797742_1_20250327213559.jpg&q=85)

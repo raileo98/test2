@@ -1,3 +1,26 @@
+# 載遊客潛艇在埃及紅海沿岸沉沒　據報6死19傷
+
+  
+
+一艘載著遊客的潛艇在埃及紅海城市胡爾加達附近海域沉沒，當地傳媒報道，有6人死亡，19人受傷。有關部門正在進行救援工作，事故原因仍在調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797745-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797745-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797745-20250327.htm)
+
+---
+
 # 酒吧業界料七欖賽事可帶來約2000萬元額外收益
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797386-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797386-20250326.htm)
-
----
-
-# 白宮：分別與俄烏達成協議確保黑海航行安全　並禁止攻擊能源設施
-
-![白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797385_1_20250326004847.jpg&q=85)
-  
-
-美國白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全，並禁止俄烏兩國互相攻擊對方的能源設施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797385-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797385-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797385-20250326.htm)
 
 ---
