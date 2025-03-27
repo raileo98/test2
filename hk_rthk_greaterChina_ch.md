@@ -120,7 +120,7 @@
 
 # 林大輝稱香港需配合國家外交工作　批評美國推行霸權及保護主義
 
-![林大輝表示，中國和平崛起，在國際舞台上的地位越來越重要。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_1_20250327190150.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_1_20250327190150.jpg&q=90)
   
 
 理工大學舉辦《新時代中國外交的挑戰與機遇》專題講座，理大校董會主席林大輝致辭時表示，中國和平崛起，透過改革開放發展成為世界第二大經濟體系，在國際舞台上的地位越來越重要。在這個新時代，香港必須充分發揮「一國兩制」的優勢，擔當超級聯繫人的角色，配合國家做好外交工作，服務國家外交大局。
@@ -139,6 +139,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm)
+
+---
+
+# 王毅與法國外長會談　強調雙方要以互利共贏反對脫鉤斷鏈
+
+![外長王毅在北京同法國外長巴羅會談。（外交部網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797708_1_20250327193722.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在北京同法國外長巴羅會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm)
 
 ---
 
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm)
-
----
-
-# 博鰲亞洲論壇年會旗艦報告倡推動綠色轉型
-
-![張軍表示，亞洲經濟前景及一體化進程報告反映面對諸多挑戰。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797278_1_20250325131407.jpg&q=80)
-  
-
-博鰲亞洲論壇年會發表旗艦報告，包括亞洲經濟前景及一體化進程、應對氣候變化兩份報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797278-20250325.htm)
 
 ---
