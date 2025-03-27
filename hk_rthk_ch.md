@@ -1,3 +1,26 @@
+# 普京稱俄羅斯密切關注北極地區局勢　不允任何侵犯主權行為
+
+  
+
+俄羅斯總統普京說，如果西方國家對北極地區的項目感到興趣，俄羅斯將允許西方國家與俄方開展聯合項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797767-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797767-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797767-20250328.htm)
+
+---
+
 # 阿姆斯特丹發生持刀襲擊案最少5傷　疑犯被捕其犯案動機待查明
 
 ![襲擊發生在水壩廣場附近一個街區，警方封鎖有關區域調查。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797765_1_20250328014200.jpg&q=85)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797704-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797704-20250327.htm)
-
----
-
-# 陳茂波：「裕澤香江」高峰論壇總體氣氛較去年正面
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797702_1_20250327180250.jpg&q=90)
-  
-
-財政司司長陳茂波表示，周三結束的「裕澤香江」高峰論壇，總體氣氛比去年更正面，期間進行非常具建設性的對話，與會者普遍要求政府擴展資產類別、促進更多跨境投資機會，部份有意來港定居的人士亦希望，投資門檻及合資格投資類別能更具彈性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm)
 
 ---
