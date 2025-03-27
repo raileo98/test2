@@ -1,3 +1,27 @@
+# 國台辦：台艦與福建漁船碰撞無人傷亡　譴責台艦惡劣行徑
+
+![國台辦表示，今日凌晨，台灣「中和艦」與福建一艘正常作業的漁船發生碰撞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797754_1_20250327231615.jpg&q=90)
+  
+
+在北京，國台辦發言人陳斌華表示，今日凌晨，台灣「中和艦」與福建一艘正常作業的漁船發生碰撞，並未造成人員傷亡，但漁船受到損傷。大陸對台艦的惡劣行徑表示譴責，將對事件進行調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797754-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797754-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797754-20250327.htm)
+
+---
+
 # 蔚來折讓逾9%配股集資最多40.3億元
 
 ![蔚來計劃配售最多近1.19億股A類普通股股份，集資最多40.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797751_1_20250327225635.jpg&q=90)

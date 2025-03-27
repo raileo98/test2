@@ -1,3 +1,27 @@
+# 國台辦：台艦與福建漁船碰撞無人傷亡　譴責台艦惡劣行徑
+
+![國台辦表示，今日凌晨，台灣「中和艦」與福建一艘正常作業的漁船發生碰撞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797754_1_20250327231615.jpg&q=90)
+  
+
+在北京，國台辦發言人陳斌華表示，今日凌晨，台灣「中和艦」與福建一艘正常作業的漁船發生碰撞，並未造成人員傷亡，但漁船受到損傷。大陸對台艦的惡劣行徑表示譴責，將對事件進行調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797754-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797754-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797754-20250327.htm)
+
+---
+
 # 林定國稱香港普通法制度具備「國際化、高水平、信譽好」優勢
 
 ![林定國在北京出席「人民法院涉外涉港澳系列專題講座」。（林定國社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797744_1_20250327215754.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm)
-
----
-
-# 發改委前副主任彭森：中國經濟步入穩定健康可持續發展軌道
-
-![彭森指改革開放仍然是確定中國前途命運的關鍵一招，也是高質量發展最重要的推動力量。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797336_1_20250326104417.jpg&q=80)
-  
-
-中國經濟體制改革研究會會長、國家發改委前副主任彭森說，隨著政策落實，中國經濟運行出現穩中有進的局面 ，去年中國經濟實現5%增長 ，今年首兩個月經濟平穩開局，兩會一系列利好政策推出，再加上去年7月二十屆三中全會的一系列改革政策的加持，中國經濟目前已經重新步入穩定健康，可持續發展軌道，中國經濟穩定回升態勢已經確立。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm)
 
 ---
