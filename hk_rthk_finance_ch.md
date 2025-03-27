@@ -1,3 +1,99 @@
+# 韓股低收近1.4%
+
+![首爾綜合指數收市報2607點，跌36點，跌幅1.39%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797676_1_20250327144134.jpg&q=90)
+  
+
+韓股低收近1.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797676-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797676-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797676-20250327.htm)
+
+---
+
+# 日股低收0.6%
+
+![日經指數收市報37799點，跌227點，跌幅0.6%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797674_1_20250327143930.jpg&q=90)
+  
+
+東京股市向下。日經指數收市報37799點，跌227點，跌幅0.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797674-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797674-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797674-20250327.htm)
+
+---
+
+# 台股低收近1.4%　創逾半年低位
+
+![台灣加權指數收報21951點，跌308點，跌幅1.39%，創逾半年低位收市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797672_1_20250327143702.jpg&q=90)
+  
+
+台股受壓，創逾半年低位收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797672-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797672-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797672-20250327.htm)
+
+---
+
+# 廖宜建：滙豐與香港關係密不可分　一定會繼續投資
+
+![廖宜建：香港與內地市場一向是集團增長和盈利中心，一定會繼續投資，同時優化配置資源。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797675_1_20250327144656.jpg&q=90)
+  
+
+滙控亞洲及中東地區聯席行政總裁廖宜建表示，滙豐與香港關係密不可分，共通點之一是聯繫全球，認為香港是國家在全球化進程中重要部份，包括協助內地、東南亞等企業到港上市，為私募資本創造有系統的退出機制。他認為，需要確保生態圈能夠運作暢順，指出香港可以在兩方面更上一層樓，包括持續強化多幣種功能，如支付、結算、產品、風險管理等；而互聯互通機制仍屬於發展初期，在資產類別、市場參與者和管理規模等方面，仍有較大發展空間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm)
+
+---
+
 # 分析料本港上半年樓價跌2%至3%　下半年或會回升
 
 ![王兆麒估計，短期市況仍較波動，上半年樓價累計或跌2%至3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797664_1_20250327132952.jpg&q=85)
@@ -1339,101 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm)
-
----
-
-# 貿發局：關稅政策不確定　料本港出口表現將較反覆
-
-![范婉兒：受關稅政策的不確定性影響，進出口商目前仍採取觀望態度，相信本港出口表現將較反覆。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797512_1_20250326163058.jpg&q=90)
-  
-
-貿發局最新將今年本港出口增長預測由4%下調至3%。貿發局研究總監范婉兒解釋，主要是考慮到美國對內地及香港加徵20%關稅，以及對加拿大、墨西哥和歐盟加徵關稅及引發的報復措施等。但她形容，今次下調幅度溫和，3%的增長率與過去10年的平均水平相若。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797512-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797512-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797512-20250326.htm)
-
----
-
-# 港股反彈139點收市
-
-![恒指最多升逾250點，收市報23483點，升139點，升幅0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797509_1_20250326162309.jpg&q=80)
-  
-
-港股反彈，恒生指數最多升逾250點，升至近23600點水平，其後一度蒸發大部分升幅，收市報23483點，升139點，升幅0.6%，主板成交額約1998億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797509-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797509-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797509-20250326.htm)
-
----
-
-# 韓正晤新加坡副總理　稱中方願深化兩國各領域交流合作
-
-![國家副主席韓正（右）在北京會見新加坡副總理王瑞傑。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797501_1_20250326153401.jpg&q=90)
-  
-
-國家副主席韓正在北京會見新加坡副總理王瑞傑時表示，過去一年來，中新關係穩步深入發展，習近平主席同新加坡領導人的系列會晤為下階段中新關係發展指明方向。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm)
-
----
-
-# 湖北省委原書記蔣超良被提請罷免全國人大代表資格
-
-![湖北省委原書記蔣超良被提請罷免全國人大代表資格](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797499_1_20250326184221.jpg&q=90)
-  
-
-早前落馬的湖北省委原書記蔣超良，被提請罷免全國人大代表資格。湖北省人大常委會會議昨日在武昌舉行，湖北人大秘書長張愛國説明提請罷免蔣超良全國人大職務的議案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm)
 
 ---

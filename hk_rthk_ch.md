@@ -1,5 +1,102 @@
+# 韓股低收近1.4%
+
+![首爾綜合指數收市報2607點，跌36點，跌幅1.39%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797676_1_20250327144134.jpg&q=90)
+  
+
+韓股低收近1.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797676-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797676-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797676-20250327.htm)
+
+---
+
+# 日股低收0.6%
+
+![日經指數收市報37799點，跌227點，跌幅0.6%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797674_1_20250327143930.jpg&q=90)
+  
+
+東京股市向下。日經指數收市報37799點，跌227點，跌幅0.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797674-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797674-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797674-20250327.htm)
+
+---
+
+# 台股低收近1.4%　創逾半年低位
+
+![台灣加權指數收報21951點，跌308點，跌幅1.39%，創逾半年低位收市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797672_1_20250327143702.jpg&q=90)
+  
+
+台股受壓，創逾半年低位收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797672-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797672-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797672-20250327.htm)
+
+---
+
+# 廖宜建：滙豐與香港關係密不可分　一定會繼續投資
+
+![廖宜建：香港與內地市場一向是集團增長和盈利中心，一定會繼續投資，同時優化配置資源。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797675_1_20250327144656.jpg&q=90)
+  
+
+滙控亞洲及中東地區聯席行政總裁廖宜建表示，滙豐與香港關係密不可分，共通點之一是聯繫全球，認為香港是國家在全球化進程中重要部份，包括協助內地、東南亞等企業到港上市，為私募資本創造有系統的退出機制。他認為，需要確保生態圈能夠運作暢順，指出香港可以在兩方面更上一層樓，包括持續強化多幣種功能，如支付、結算、產品、風險管理等；而互聯互通機制仍屬於發展初期，在資產類別、市場參與者和管理規模等方面，仍有較大發展空間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm)
+
+---
+
 # 回應政府有否就港口交易事件接觸長和　李家超：上次已說過這件事
 
+![《南華日報》引述消息人士表示，政府在3月4日得知長和宣布將出售予美國貝萊德牽頭的財團之後，已立即與長和接觸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797673_1_20250327144852.jpg&q=80)
   
 
 長和計劃出售巴拿馬港口的業務引起爭議。《南華日報》引述消息人士表示，政府在3月4日得知長和宣布將出售予美國貝萊德牽頭的財團之後，已立即與長和接觸，商討「合理的解決方案」。報道亦引述其他消息指，解決方案的選擇有限，因為退出交易可能會造成高昂的成本，並帶來嚴重的政治影響，但交易繼續進行，則會對公司和國家造成損害。
