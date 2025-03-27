@@ -1,3 +1,49 @@
+# 李家超與糧農組織總幹事會面　共享農業數據為制定政策提供依據
+
+  
+
+正在海南的行政長官李家超早上與一同出席博鰲亞洲論壇年會的聯合國糧食及農業組織總幹事屈冬玉會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm)
+
+---
+
+# 丁薛祥：今年首兩個月中國經濟運行起步平穩
+
+  
+
+博鰲亞洲論壇年會舉行開幕式，國務院副總理丁薛祥發表主旨演講，表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm)
+
+---
+
 # 逾200萬劑流感疫苗接種創新高　衞防中心稱有重要保護作用
 
   
@@ -1384,53 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797583-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797583-20250327.htm)
-
----
-
-# 涉虛報被陌生男子尾隨及襲擊　涉誤導警員26歲女子被捕
-
-![涉誤導警員女子被捕。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797582_1_20250326230847.jpg&q=85)
-  
-
-一名女子聲稱日前遭一名男子尾隨及推入單位，之後被男子用鎅刀襲擊後逃去。警方調查後發現，女子所作的報案與事實不符，懷疑她蓄意向警方提供虛假資料及誤導調查人員，女子涉嫌「誤導警務人員」被捕，正被扣留調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797582-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797582-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797582-20250326.htm)
-
----
-
-# 蒙牛去年盈利倒退98%　仍派末期息每股0.509元人民幣
-
-![蒙牛去年盈利倒退98%，受子公司商譽及無形資產減值虧損，以及現代牧業商譽減值影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797580_1_20250326225414.jpg&q=90)
-  
-
-蒙牛去年盈利約1億元人民幣，按年大幅倒退98%，主要受子公司貝拉米商譽及無形資產減值虧損，以及現代牧業商譽減值等影響。公司撇除相關影響的利潤作為分紅基礎，派末期息每股0.509元人民幣，派息比率升至45%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797580-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797580-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797580-20250326.htm)
 
 ---

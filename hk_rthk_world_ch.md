@@ -1,3 +1,26 @@
+# 丁薛祥：今年首兩個月中國經濟運行起步平穩
+
+  
+
+博鰲亞洲論壇年會舉行開幕式，國務院副總理丁薛祥發表主旨演講，表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm)
+
+---
+
 # 4名美軍士兵在立陶宛訓練期間失蹤　搜索工作繼續
 
 ![搜索失蹤美軍士兵的行動仍在進行。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797661_1_20250327131515.jpg&q=90)
@@ -1412,28 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797308-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797308-20250325.htm)
-
----
-
-# 新西蘭南島外海地震　當局正評估海嘯威脅
-
-  
-
-新西蘭南島發生地震，當局說強度為黎克特制6.7級，正評估會否構成海嘯威脅，呼籲南地大區及峽灣地區的居民，遠離海灘及一帶海域，慎防異常強烈水流帶來危險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797290-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797290-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797290-20250325.htm)
 
 ---

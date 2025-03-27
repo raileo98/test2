@@ -1,27 +1,3 @@
-# US$125m prize awaits in football Club World Cup
-
-![Gianni Infantino says the distribution model of the Fifa Club World Cup represents the biggest-ever prize money for a football tournament. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797655_1_20250327124306.jpg&q=90)
-  
-
-The 32 teams competing in the Club World Cup this summer will be vying for as much as a US$125 million first-place check from a US$1 billion prize pool.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797655-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797655-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797655-20250327.htm)
-
----
-
 # LeBron snaps Lakers' three-game slump with late tip-in
 
 ![LeBron James (23) and the Lakers snapped a three-game losing streak. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797649_1_20250327120443.jpg&q=85)
@@ -1436,5 +1412,29 @@ A tennis union co-founded by Novak Djokovic announced a series of legal actions 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm)
+
+---
+
+# F1 boss holds talks with Thailand on hosting GP
+
+![Thailand's Buriram track hosted the season-opening MotoGP races. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796287_1_20250318195022.jpg&q=90)
+  
+
+Formula One boss Stefano Domenicali held talks with Thailand's prime minister on Tuesday about possible plans to bring a grand prix to the kingdom.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1796287-20250318.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796287-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796287-20250318.htm)
 
 ---

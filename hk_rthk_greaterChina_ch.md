@@ -1,3 +1,49 @@
+# 李家超與糧農組織總幹事會面　共享農業數據為制定政策提供依據
+
+  
+
+正在海南的行政長官李家超早上與一同出席博鰲亞洲論壇年會的聯合國糧食及農業組織總幹事屈冬玉會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm)
+
+---
+
+# 丁薛祥：今年首兩個月中國經濟運行起步平穩
+
+  
+
+博鰲亞洲論壇年會舉行開幕式，國務院副總理丁薛祥發表主旨演講，表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm)
+
+---
+
 # 丁薛祥：擴大國內需求積極穩外貿穩外資　有信心實現發展目標
 
 ![丁薛祥表示，去年在困難和挑戰明顯增多的情況下，中國經濟實現了5%增長，增速居於世界主要經濟體的前列。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797641_1_20250327123700.jpg&q=80)
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797199-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797199-20250324.htm)
-
----
-
-# 李強簽國務院令　 公布修訂後的《保障中小企業款項支付條例》
-
-![李強簽署國務院令，公布修訂後的《保障中小企業款項支付條例》。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797194_1_20250324192142.jpg&q=90)
-  
-
-國務院總理李強簽署國務院令，公布修訂後的《保障中小企業款項支付條例》，今年6月1日起施行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797194-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797194-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797194-20250324.htm)
-
----
-
-# 人行：本月起MLF操作採固定數量、利率招標、多重價位中標開展
-
-![人行明日將開展4500億元人民幣MLF操作，本月起採用固定數量、利率招標、多重價位中標方式開展。（人行網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797185_2_20250324193652.jpg&q=90)
-  
-
-人民銀行公布，明日將開展4500億元人民幣中期借貸便利（MLF）操作，為期1年，以保持銀行體系流動性充裕。今次MLF續做規模超過本月到期的3870億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797185-20250324.htm)
 
 ---

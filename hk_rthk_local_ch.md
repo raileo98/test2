@@ -1,3 +1,49 @@
+# 李家超與糧農組織總幹事會面　共享農業數據為制定政策提供依據
+
+  
+
+正在海南的行政長官李家超早上與一同出席博鰲亞洲論壇年會的聯合國糧食及農業組織總幹事屈冬玉會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm)
+
+---
+
+# 丁薛祥：今年首兩個月中國經濟運行起步平穩
+
+  
+
+博鰲亞洲論壇年會舉行開幕式，國務院副總理丁薛祥發表主旨演講，表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm)
+
+---
+
 # 逾200萬劑流感疫苗接種創新高　衞防中心稱有重要保護作用
 
   
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797496-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797496-20250326.htm)
-
----
-
-# 國泰客機周日低飛至啟德上空　呈現昔日飛機穿梭鬧市集體回憶
-
-![國泰航空表示，屆時A350客機將會飛越維多利亞港，低飛至啟德主場館鄰近的上空。（國泰社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797493_1_20250326152424.jpg&q=90)
-  
-
-為紀念由啟德起航的香港百年航空歷史，適逢香港國際七人欖球賽首次於啟德體育園舉行，政府支持活動主辦機構周日下午進行一次飛越維多利亞港的飛行演示。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm)
-
----
-
-# 貿發局將本港今年出口增長預測下調至3%　但出口商信心有改善
-
-![范婉兒（左）稱最新預測顯示香港出口仍可望錄得增長，反映本港出口業強韌穩健。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797490_1_20250326145813.jpg&q=90)
-  
-
-貿易發展局將本港今年出口增長預測由4%下調至3%，原因是考慮到美國過去兩個月實施新一輪加徵關稅措施可能帶來的影響。由於未來環球貿易摩擦可能升級，在不明確因素下，出口預測仍有下行風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797490-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797490-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797490-20250326.htm)
 
 ---

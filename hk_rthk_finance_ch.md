@@ -1,3 +1,26 @@
+# 李家超與糧農組織總幹事會面　共享農業數據為制定政策提供依據
+
+  
+
+正在海南的行政長官李家超早上與一同出席博鰲亞洲論壇年會的聯合國糧食及農業組織總幹事屈冬玉會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm)
+
+---
+
 # 港股下午初段升逾1%
 
 ![港股下午初段持續造好，恒生指數較早時報23751點，升268點，升幅1.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797659_1_20250327130502.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm)
-
----
-
-# 內地股市反覆偏軟收市
-
-![上證指數收報3368點，微跌1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797491_1_20250326150355.jpg&q=90)
-  
-
-內地股市反覆偏軟收市。養殖業、機械人、化工等板塊上升，銀行股向下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797491-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797491-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797491-20250326.htm)
 
 ---

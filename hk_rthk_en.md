@@ -70,30 +70,6 @@ An expert has said that ongoing art shows and upcoming auctions will give the ma
 
 ---
 
-# US$125m prize awaits in football Club World Cup
-
-![Gianni Infantino says the distribution model of the Fifa Club World Cup represents the biggest-ever prize money for a football tournament. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797655_1_20250327124306.jpg&q=90)
-  
-
-The 32 teams competing in the Club World Cup this summer will be vying for as much as a US$125 million first-place check from a US$1 billion prize pool.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797655-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797655-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797655-20250327.htm)
-
----
-
 # Innovation is driving China's economy: Ding Xuexiang
 
 ![Vice Premier Ding Xuexiang says China ranks among the world's fastest growing major economies. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797653_1_20250327122112.jpg&q=90)
@@ -1437,5 +1413,29 @@ Coleman Wong’s history-making performance at the Miami Open will serve as a hu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm)
+
+---
+
+# 'Fee revamp prioritises patients' overall health'
+
+![Experts say family doctors should educate patients about whether a visit to the accident and emergency unit is necessary. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797359_1_20250325203807.jpg&q=90)
+  
+
+A family physician said on Tuesday that the government's overhaul of healthcare charges could motivate people to prioritise their overall health instead of only focusing on treating a disease.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797359-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797359-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797359-20250325.htm)
 
 ---
