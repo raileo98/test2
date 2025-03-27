@@ -1,3 +1,26 @@
+# 蒙牛：行業需求恢復速度較預期慢
+
+  
+
+蒙牛總裁兼執行董事高飛表示，過去一年集團面對經濟大環境，加上行業挑戰仍大，未來會繼續強化品牌、研發創新和進行數字轉型，通過供應鏈增益管理和提質增效，務求令各項奶類產品成為剛性需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797657-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797657-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797657-20250327.htm)
+
+---
+
 # 差估署：上月私人住宅樓價跌幅擴大　創逾8年半新低
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm)
-
----
-
-# 劉國勳稱地契修訂「按實補價」可增加發展商或企業投資意欲
-
-![劉國勳認為，「按實補價」可加快發展項目早日落地，亦有助北部都會區多元化發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797573_1_20250326214934.jpg&q=75)
-  
-
-發展局局長甯漢豪出席立法會前廳交流會後表示，政府提出「按實補價」概念，即是進行地契修訂時，研究不一定要用最高樓面的面積定其補價，可按實際興建量定其補價，目的是讓一些發展項目早日可以「去馬」和成事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm)
 
 ---

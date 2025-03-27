@@ -1,3 +1,26 @@
+# 蒙牛：行業需求恢復速度較預期慢
+
+  
+
+蒙牛總裁兼執行董事高飛表示，過去一年集團面對經濟大環境，加上行業挑戰仍大，未來會繼續強化品牌、研發創新和進行數字轉型，通過供應鏈增益管理和提質增效，務求令各項奶類產品成為剛性需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797657-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797657-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797657-20250327.htm)
+
+---
+
 # 差估署：上月私人住宅樓價跌幅擴大　創逾8年半新低
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm)
-
----
-
-# 日股收市升逾0.6%
-
-![日經指數收市報38027點，升246點，升幅0.65%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797486_1_20250326144509.jpg&q=90)
-  
-
-東京股市造好。日經指數收市報38027點，升246點，升幅0.65%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797486-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797486-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797486-20250326.htm)
 
 ---
