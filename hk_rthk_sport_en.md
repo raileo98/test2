@@ -1,3 +1,27 @@
+# Fils outplays top seed Zverev in Miami Open upset
+
+![Alexander Zverev returns a shot against Arthur Fils in their fourth-round match at the Hard Rock Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797645_1_20250327114411.jpg&q=90)
+  
+
+France's Arthur Fils upset top-seed Alexander Zverev with an outstanding display earning him a 3-6, 6-3, 6-4 win over the German in the fourth round of the Miami Open.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm)
+
+---
+
 # Teenage Filipino Eala stuns Swiatek at Miami Open
 
 ![Alexandra Eala is the first player from the Philippines to reach the semi-finals of a WTP 1000 tournament. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797607_1_20250327071056.jpg&q=90)
@@ -1412,29 +1436,5 @@ The Hong Kong, China women’s rugby team on Tuesday said they are ready to take
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm)
-
----
-
-# Messi ruled out as Argentina aim for World Cup spot
-
-![The Argentina superstar will reportedly be sidelined over a muscle strain injury. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796168_1_20250318073733.jpg&q=90)
-  
-
-Lionel Messi will miss two World Cup qualifiers after he was left out of the Argentina squad for games against Uruguay and Brazil because he reportedly suffered an injury in a club game.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796168-20250318.htm)
 
 ---

@@ -1,3 +1,51 @@
+# Japan warns of 'significant impact' of US tariffs
+
+![Japan says the Trump administration's decision to impose 25 percent tariffs on auto imports to the US was "extremely regrettable". File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797646_1_20250327114555.jpg&q=90)
+  
+
+Japan's government on Thursday warned of a "significant impact" on its economic ties with the United States -- and on global trade -- after US President Donald Trump announced import tariffs on cars.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797646-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797646-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797646-20250327.htm)
+
+---
+
+# Fils outplays top seed Zverev in Miami Open upset
+
+![Alexander Zverev returns a shot against Arthur Fils in their fourth-round match at the Hard Rock Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797645_1_20250327114411.jpg&q=90)
+  
+
+France's Arthur Fils upset top-seed Alexander Zverev with an outstanding display earning him a 3-6, 6-3, 6-4 win over the German in the fourth round of the Miami Open.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm)
+
+---
+
 # Hang Seng opens slightly higher after latest tariffs
 
 ![US President Donald Trump has suggested there may be room to cut tariffs on Chinese goods, if a deal can be reached on TikTok. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797635_1_20250327114100.jpg&q=90)
@@ -1390,53 +1438,5 @@ The annual Art Central fair is returning to Central Harbourfront from Wednesday 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797322-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797322-20250325.htm)
-
----
-
-# Red Army Faction fugitive faces trial at last
-
-![Daniela Klette is led away to a helicopter after a detention review hearing in Karlsruhe last March. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797316_1_20250325155616.jpg&q=90)
-  
-
-A former member of Germany's far-left Baader-Meinhof gang who was arrested last year after more than 30 years on the run will face trial on Tuesday for a series of armed robberies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm)
-
----
-
-# Beijing looking to boost ties with Lisbon: Wang Yi
-
-![Wang Yi says China is willing to work with Portugal to promote China and Europe to become strategic partners with mutual trust. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797311_1_20250325152545.jpg&q=90)
-  
-
-Beijing is willing to work with Portugal to build a more stable, fruitful and dynamic relationship, Foreign Minister Wang Yi told his Portuguese counterpart in Beijing on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797311-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797311-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797311-20250325.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Japan warns of 'significant impact' of US tariffs
+
+![Japan says the Trump administration's decision to impose 25 percent tariffs on auto imports to the US was "extremely regrettable". File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797646_1_20250327114555.jpg&q=90)
+  
+
+Japan's government on Thursday warned of a "significant impact" on its economic ties with the United States -- and on global trade -- after US President Donald Trump announced import tariffs on cars.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797646-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797646-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797646-20250327.htm)
+
+---
+
 # South Korea battles worst ever wildfires
 
 ![The wildfires in South Korea have been moving rapidly eastward, spreading almost to the coast, carried by gusty winds. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_1_20250327105237.jpg&q=80)
@@ -1413,29 +1437,5 @@ Russian President Vladimir Putin's top security adviser Sergei Shoigu has arrive
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796749-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796749-20250321.htm)
-
----
-
-# London's Heathrow airport closes due to power outage
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796747_1_20250321113009.jpg&q=90)
-  
-
-Britain's Heathrow Airport on Friday said it would be closed until midnight after experiencing a significant power outage due to a fire at a nearby electrical substation supplying the airport.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796747-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796747-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796747-20250321.htm)
 
 ---
