@@ -1,3 +1,26 @@
+# 陳茂波：「裕澤香江」高峰論壇總體氣氛較去年正面
+
+  
+
+財政司司長陳茂波表示，周三結束的「裕澤香江」高峰論壇，總體氣氛比去年更正面，期間進行非常具建設性的對話，與會者普遍要求政府擴展資產類別、促進更多跨境投資機會，部份有意來港定居的人士亦希望，投資門檻及合資格投資類別能更具彈性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm)
+
+---
+
 # 南韓東南部山火增至27死32傷
 
 ![南韓東南部慶尚道地區山火仍未受控。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797699_1_20250327164457.jpg&q=90)

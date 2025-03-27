@@ -1,3 +1,27 @@
+# Hong Kong stocks close higher
+
+![The Hang Seng Index finished up 0.4 percent at 23,578. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797701_1_20250327165821.jpg&q=75)
+  
+
+Hong Kong stocks ended higher on Thursday, with the benchmark Hang Seng Index up 0.4 percent at 23,578.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797701-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797701-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797701-20250327.htm)
+
+---
+
 # HK to continue leveraging 'its unique position'
 
 ![John Lee meets FAO director-general Qu Dongyu in Hainan. Photo: John Lee's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797694_1_20250327162229.jpg&q=90)
@@ -1413,29 +1437,5 @@ French star actor Gerard Depardieu, on trial for sexual assault, told the Paris 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm)
-
----
-
-# World Athletics approves swab test to determine gender
-
-![The president of the international track and field federation said the female category had to be protected. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797391_1_20250326033236.jpg&q=80)
-  
-
-World Athletics said on Tuesday it had approved the introduction of a cheek swab test to determine if an athlete is biologically female.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm)
 
 ---

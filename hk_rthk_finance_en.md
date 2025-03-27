@@ -1,3 +1,27 @@
+# Hong Kong stocks close higher
+
+![The Hang Seng Index finished up 0.4 percent at 23,578. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797701_1_20250327165821.jpg&q=75)
+  
+
+Hong Kong stocks ended higher on Thursday, with the benchmark Hang Seng Index up 0.4 percent at 23,578.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797701-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797701-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797701-20250327.htm)
+
+---
+
 # S Korea braces for tariffs hit on auto sector
 
 ![Kia cars await shipment to overseas markets in Pyeongtaek, South Korea. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797671_1_20250327140201.jpg&q=90)
@@ -1413,29 +1437,5 @@ Hong Kong stocks on Friday opened higher, after global markets slid, as US Presi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm)
-
----
-
-# US stocks slump after new Trump tariff threat
-
-![Before trading began, Washington unleashed the threat of a 200 percent tariff on wine, champagne and other alcoholic beverages from the European Union. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795654_1_20250314054827.jpg&q=90)
-  
-
-Wall Street stocks closed sharply lower on Thursday on a fresh wave of tariff threats by US President Donald Trump, and despite producer inflation remaining flat.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm)
 
 ---

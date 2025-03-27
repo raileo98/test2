@@ -1,3 +1,26 @@
+# 陳茂波：「裕澤香江」高峰論壇總體氣氛較去年正面
+
+  
+
+財政司司長陳茂波表示，周三結束的「裕澤香江」高峰論壇，總體氣氛比去年更正面，期間進行非常具建設性的對話，與會者普遍要求政府擴展資產類別、促進更多跨境投資機會，部份有意來港定居的人士亦希望，投資門檻及合資格投資類別能更具彈性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm)
+
+---
+
 # 港股全日升幅收窄至95點　內需及醫藥股上升
 
 ![恒生指數最多升逾380點，收市報23578點，升95點，升幅0.41%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797696_1_20250327163031.jpg&q=85)
@@ -46,30 +69,6 @@
 
 ---
 
-# 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
-
-![李家超表示，丁薛祥發表主旨演講，就共創亞洲和世界更加美好的未來提出「四點建議」，及就國家經濟走勢提出「三點看法」。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797684_1_20250327162313.jpg&q=90)
-  
-
-行政長官李家超說，「一國兩制」下，香港是全球唯一同時享有中國優勢及國際優勢的開放經濟體。面對地緣政治變化、保護主義和單邊主義冒起，香港始終倡導自由貿易及多邊主義，致力於增強應對挑戰的應變能力，亦是外國企業進軍內地以及內地企業「走出去」的最佳平台。在國家支持下，香港會進一步深化國際交往合作，並與國家及亞洲各國一道增進互信團結、開放融通、互利共贏、和平共處，促進亞洲經濟發展，推動全球經濟一體化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
-
----
-
 # 金管局冀穩定幣相關法案未來幾個月獲立法會通過
 
 ![陳維民形容，香港在發展穩定幣方面進展良好，相關法案正經立法會審議，期望在未來幾個月通過。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797685_1_20250327154514.jpg&q=80)
@@ -91,6 +90,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm)
+
+---
+
+# 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
+
+![李家超表示，丁薛祥發表主旨演講，就共創亞洲和世界更加美好的未來提出「四點建議」，及就國家經濟走勢提出「三點看法」。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797684_1_20250327162313.jpg&q=90)
+  
+
+行政長官李家超說，「一國兩制」下，香港是全球唯一同時享有中國優勢及國際優勢的開放經濟體。面對地緣政治變化、保護主義和單邊主義冒起，香港始終倡導自由貿易及多邊主義，致力於增強應對挑戰的應變能力，亦是外國企業進軍內地以及內地企業「走出去」的最佳平台。在國家支持下，香港會進一步深化國際交往合作，並與國家及亞洲各國一道增進互信團結、開放融通、互利共贏、和平共處，促進亞洲經濟發展，推動全球經濟一體化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
 
 ---
 
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm)
-
----
-
-# 信保局法定最高彌償百分率由90%提升至95%
-
-![信保局法定最高彌償百分率提升至95%，有助為香港出口商，特別是中小企提供更全面保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797532_1_20250326180336.jpg&q=90)
-  
-
-香港出口信用保險局宣布，將信保局法定最高彌償百分率由90%提升至95%的立法會決議已獲通過，有助信保局為香港出口商，特別是中小企提供更全面保障，加強企業國際貿易競爭力，更好把握海外及內地市場龐大商機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm)
 
 ---

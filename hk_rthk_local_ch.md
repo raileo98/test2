@@ -1,3 +1,26 @@
+# 陳茂波：「裕澤香江」高峰論壇總體氣氛較去年正面
+
+  
+
+財政司司長陳茂波表示，周三結束的「裕澤香江」高峰論壇，總體氣氛比去年更正面，期間進行非常具建設性的對話，與會者普遍要求政府擴展資產類別、促進更多跨境投資機會，部份有意來港定居的人士亦希望，投資門檻及合資格投資類別能更具彈性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm)
+
+---
+
 # 港股全日升幅收窄至95點　內需及醫藥股上升
 
 ![恒生指數最多升逾380點，收市報23578點，升95點，升幅0.41%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797696_1_20250327163031.jpg&q=85)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797535-20250326.htm)
-
----
-
-# 張舉能率高級法官代表團結束在澳洲訪問　期間出席司法學術研討會
-
-![張舉能率高級法官代表團結束在澳洲訪問　期間出席司法學術研討會](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797534_1_20250326185501.jpg&q=90)
-  
-
-終審法院首席法官張舉能星期一率領高級法官代表團在澳洲坎培拉出席亞太區司法學術研討會，今日結束在澳洲的訪問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797534-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797534-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797534-20250326.htm)
 
 ---
