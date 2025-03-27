@@ -1,3 +1,26 @@
+# 范鴻齡稱積極研究減少前線行政讓醫護多做臨床工作
+
+  
+
+醫管局下午舉行大會，主席范鴻齡會後表示，今年內會推出一系列措施，為自身進行改革，以提升服務效率，增加生產力。他表示，醫管局現時每年使用一億元公帑，當中65%屬員工薪酬，這部分不能縮減，能夠做的是將生產力提高，若最終能節省0.1%，已是1億元，可以聘請到100名醫生，而最無痛苦的節流方法，就是減少浪費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797720-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797720-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797720-20250327.htm)
+
+---
+
 # 銀行公會：關稅促進其他貿易走廊發展　香港可以把握機遇
 
 ![禤惠儀表示，銀行公會在日後出訪行程中，聯合商會幫助中小企把握新冒起貿易走廊的機遇。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797718_1_20250327185455.jpg&q=90)

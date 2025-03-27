@@ -1,3 +1,26 @@
+# 范鴻齡稱積極研究減少前線行政讓醫護多做臨床工作
+
+  
+
+醫管局下午舉行大會，主席范鴻齡會後表示，今年內會推出一系列措施，為自身進行改革，以提升服務效率，增加生產力。他表示，醫管局現時每年使用一億元公帑，當中65%屬員工薪酬，這部分不能縮減，能夠做的是將生產力提高，若最終能節省0.1%，已是1億元，可以聘請到100名醫生，而最無痛苦的節流方法，就是減少浪費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797720-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797720-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797720-20250327.htm)
+
+---
+
 # 7歲或以上香港永久居民下周一起持智能身份證可使用e-道
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797542-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797542-20250326.htm)
-
----
-
-# 盧寵茂：不存在調整公營醫療服務收費後推高私營市場收費
-
-![盧寵茂強調，考慮收費時有顧及病人的負擔能力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797541_1_20250326185743.jpg&q=80)
-  
-
-政府明年起調整公營醫療服務收費，包括急症室費用加至400元。醫務衞生局局長盧寵茂說，調整收費並非為收回成本，公營醫療收費仍與私營市場相差很遠，因此不存在調整收費後推高私營市場收費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797541-20250326.htm)
 
 ---
