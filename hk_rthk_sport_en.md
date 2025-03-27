@@ -1,4 +1,4 @@
-# US$125m top prize awaits in Club World Cup
+# US$125m prize awaits in football Club World Cup
 
 ![Gianni Infantino says the distribution model of the Fifa Club World Cup represents the biggest-ever prize money for a football tournament. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797655_1_20250327124306.jpg&q=90)
   

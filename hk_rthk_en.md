@@ -1,4 +1,28 @@
-# US$125m top prize awaits in Club World Cup
+# 'Art Basel, Art Central a barometer for art market'
+
+![Daniel Kwok, an independent art consultant, says that art fairs and auctions will give the city's art market a boost. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797660_1_20250327130541.jpg&q=90)
+  
+
+An expert has said that ongoing art shows and upcoming auctions will give the mainland and Hong Kong art scene a boost, and serve as a barometer for future market performance.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm)
+
+---
+
+# US$125m prize awaits in football Club World Cup
 
 ![Gianni Infantino says the distribution model of the Fifa Club World Cup represents the biggest-ever prize money for a football tournament. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797655_1_20250327124306.jpg&q=90)
   
@@ -120,7 +144,7 @@ LeBron James tipped in a buzzer-beating rebound with 0.1 seconds remaining as th
 
 # 'Winter flu season over but summer poses new threat'
 
-![The Centre for Health Protection says this year's winter influenza season lasted about 11 weeks. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797642_1_20250327113342.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797642_1_20250327113342.jpg&q=90)
   
 
 The Centre for Health Protection (CHP) says the winter influenza season has come to an end after about 11 weeks, but people should next get jabs to protect themselves against a possible summer flu season.
@@ -1413,29 +1437,5 @@ The appeal of a Vietnamese property tycoon convicted of money laundering began o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm)
-
----
-
-# AI a game-changer for climate transition: FS
-
-![Paul Chan says AI will act as a catalyst in helping Hong Kong become a more sustainable society. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797342_1_20250325181504.jpg&q=80)
-  
-
-Financial Secretary Paul Chan on Tuesday said that artificial intelligence is a game changer for Hong Kong in its goal to become a more sustainable society, as the city goes all out to achieve its carbon emission goals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm)
 
 ---

@@ -1,3 +1,75 @@
+# 4名美軍士兵在立陶宛訓練期間失蹤　搜索工作繼續
+
+![搜索失蹤美軍士兵的行動仍在進行。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797661_1_20250327131515.jpg&q=90)
+  
+
+4名美軍士兵在立陶宛演習期間失蹤，搜救行動仍在進行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797661-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797661-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797661-20250327.htm)
+
+---
+
+# 港股下午初段升逾1%
+
+![港股下午初段持續造好，恒生指數較早時報23751點，升268點，升幅1.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797659_1_20250327130502.jpg&q=90)
+  
+
+港股下午初段持續造好，恒生指數較早時報23751點，升268點，升幅1.14%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797659-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797659-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797659-20250327.htm)
+
+---
+
+# 碧桂園服務盈利升逾5倍　派末期息及特別息共29.61分人民幣
+
+![碧桂園服務去年盈利18.1億元人民幣，按年升5.2倍，核心盈利跌約23%至30.4億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797658_1_20250327125834.jpg&q=90)
+  
+
+碧桂園服務去年盈利18.1億元人民幣，按年升5.2倍。撇除購股權開支、金融資產公允值變動及無形資產減值等影響，核心盈利跌約23%至30.4億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797658-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797658-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797658-20250327.htm)
+
+---
+
 # 嘉華國際去年盈利跌58%　呂耀東即日起出任主席
 
 ![嘉華國際去年盈利3.35億元，按年減少58%，核心盈利3.61億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797656_1_20250327124544.jpg&q=90)
@@ -1361,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797581-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797581-20250326.htm)
-
----
-
-# 商務部：中方堅決反對美國將多家中國實體列入出口管制實體清單
-
-![商務部稱，中方敦促美方立即停止錯誤做法，並將採取必要措施，堅決維護中國實體的合法權益。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797579_1_20250326225129.jpg&q=75)
-  
-
-在北京，商務部新聞發言人說，美國持續泛化國家安全概念，濫用出口管制措施，將多家中國實體列入出口管制「實體清單」，中方對此堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm)
-
----
-
-# 祁斌稱中央全力支持瓊港兩地自由港平台與超級聯繫人雙向聯動
-
-![祁斌指出，海南自貿區零關稅低稅率政策，與香港自由港制度可以形成疊加效應。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797578_1_20250326225528.jpg&q=80)
-  
-
-在海南，瓊港簽署備忘錄，在多方面深化合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm)
-
----
-
-# 海南省委書記馮飛稱瓊港合作備忘錄必將共創輝煌新篇章
-
-![馮飛說，兩地合作不斷邁上新台階，打造香港與內地省份合作的典範。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797577_1_20250326222754.jpg&q=80)
-  
-
-行政長官李家超與海南省委書記馮飛會面，並見證海南省人民政府與香港特區政府簽署《合作備忘錄》。馮飛致辭時表示，近年香港與海南兩地經貿合作，日益頻繁，不斷深化，相信今次簽約，必將開啟兩地攜手共進，共創輝煌的新篇章。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 4名美軍士兵在立陶宛訓練期間失蹤　搜索工作繼續
+
+![搜索失蹤美軍士兵的行動仍在進行。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797661_1_20250327131515.jpg&q=90)
+  
+
+4名美軍士兵在立陶宛演習期間失蹤，搜救行動仍在進行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797661-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797661-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797661-20250327.htm)
+
+---
+
 # 特朗普：可能提出降低中國關稅換取中方批准出售TikTok
 
 ![特朗普1月上任後簽署行政命令，將針對TikTok「不賣就禁」法例生效的最後期限推遲至4月初。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797647_1_20250327115115.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797290-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797290-20250325.htm)
-
----
-
-# 以色列政府指法院無權司法干預解除國安總局局長職務決定
-
-![內塔尼亞胡政府的文件指任免國家安全總局負責人，屬於國家安全政策範疇，法院歷來不干涉有關領域。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797273_1_20250325111310.jpg&q=90)
-  
-
-以色列總理內塔尼亞胡政府向高等法院提交文件，內容是法院無權對政府解除國家安全總局局長巴爾職務的決定，作出司法干預。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797273-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797273-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797273-20250325.htm)
 
 ---

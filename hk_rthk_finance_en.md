@@ -1,3 +1,27 @@
+# 'Art Basel, Art Central a barometer for art market'
+
+![Daniel Kwok, an independent art consultant, says that art fairs and auctions will give the city's art market a boost. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797660_1_20250327130541.jpg&q=90)
+  
+
+An expert has said that ongoing art shows and upcoming auctions will give the mainland and Hong Kong art scene a boost, and serve as a barometer for future market performance.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm)
+
+---
+
 # Home prices drop to lowest level in nearly nine years
 
 ![Home prices continued to decline last month. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797650_1_20250327120658.jpg&q=65)
@@ -1413,29 +1437,5 @@ The Hang Seng Index gained 16.02 points, or 0.07 per cent, to open at 23,616.33 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795517-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795517-20250313.htm)
-
----
-
-# China, EU vow countermeasures against US steel tariffs
-
-![The production line at a cold rolling plant at Baoshan Iron & Steel in Shanghai. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795512_1_20250313085844.jpg&q=90)
-  
-
-China and the EU vowed on Wednesday to strike back and defend their economic interests against sweeping new US steel and aluminium tariffs, moving Washington closer to an all-out trade war with two major partners.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm)
 
 ---

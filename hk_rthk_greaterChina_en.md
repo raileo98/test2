@@ -1,3 +1,27 @@
+# 'Art Basel, Art Central a barometer for art market'
+
+![Daniel Kwok, an independent art consultant, says that art fairs and auctions will give the city's art market a boost. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797660_1_20250327130541.jpg&q=90)
+  
+
+An expert has said that ongoing art shows and upcoming auctions will give the mainland and Hong Kong art scene a boost, and serve as a barometer for future market performance.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm)
+
+---
+
 # Innovation is driving China's economy: Ding Xuexiang
 
 ![Vice Premier Ding Xuexiang says China ranks among the world's fastest growing major economies. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797653_1_20250327122112.jpg&q=90)
@@ -1411,29 +1435,5 @@ A deputy director of the Hong Kong and Macau Affairs Office on Monday said he do
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795110-20250310.htm)
-
----
-
-# Unity key to tackling HK's fiscal deficit: Qiu Hong
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795114_1_20250310160227.jpg&q=90)
-  
-
-Hong Kong will improve as long as everyone works together to tackle the fiscal deficit, a former deputy director of Beijing's liaison office in the SAR said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795114-20250310.htm)
 
 ---
