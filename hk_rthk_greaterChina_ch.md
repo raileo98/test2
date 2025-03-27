@@ -1,3 +1,27 @@
+# 國防部：堅決打掉一切「台獨」分裂圖謀
+
+![吳謙說，人民軍隊堅決打掉一切「台獨」分裂圖謀。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797692_1_20250327160736.jpg&q=90)
+  
+
+在北京，國防部強調，人民軍隊將堅決貫徹新時代黨解決台灣問題的總體方略，全時待戰、隨時能戰、戰之必勝，堅決打掉一切「台獨」分裂圖謀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797692-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797692-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797692-20250327.htm)
+
+---
+
 # 商務部：中方已在世貿爭端解決機制起訴美方加徵關稅措施
 
 ![商務部表示，中方已在世貿爭端解決機制起訴美方加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797686_1_20250327155129.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm)
-
----
-
-# 大熊貓福寶周二於卧龍神樹坪基地與公眾見面
-
-![福寶將於星期二在卧龍神樹坪基地幼兒園2號館與公眾見面。（研究中心影片截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797217_1_20250324231243.jpg&q=90)
-  
-
-中國大熊貓保護研究中心宣布，經過100多日靜養，大熊貓福寶將於星期二在卧龍神樹坪基地幼兒園2號館與公眾見面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797217-20250324.htm)
 
 ---

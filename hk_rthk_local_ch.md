@@ -1,3 +1,26 @@
+# 張宇人指修正案騎劫故不動議檢視小班教學原議案　朱國強稱不合理
+
+  
+
+立法會今早續會，根據議程將辯論自由黨張宇人提出，「檢視中小學以小班模式教學的成效」的無約束力議員議案，但張宇人在會上以議案被教育界議員朱國強提出的修正案「騎劫」為由，決定不作動議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797690-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797690-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797690-20250327.htm)
+
+---
+
 # 鴨脷洲街坊學校決定申請以私營方式自資開辦小一班級
 
 ![學校法團校董會表示，不同持份者一致支持學校繼續營辦。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797688_1_20250327155622.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797522-20250326.htm)
-
----
-
-# 虐待女兒致死男子囚終身　法官斥被告施虐位置隱蔽明顯故意隱瞞
-
-![法官判被告終身監禁，被告承認的虐兒罪，則被判入獄6年5個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797521_1_20250326185003.jpg&q=90)
-  
-
-一名42歲男子多次虐待3歲女兒，包括猛烈搖晃導致腦出血死亡，早前在高等法院陪審團裁定被告謀殺罪成，法官判被告終身監禁，被告承認的虐兒罪，則被判入獄6年5個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm)
 
 ---

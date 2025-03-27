@@ -1,8 +1,9 @@
-# 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
+# 新世界發展：加快香港與內地市場資金回籠
 
+![新世界發展稱啟德跑道區住宅項目柏蔚森暫套現近40億元；北角皇都套現逾33.7億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797691_1_20250327160602.jpg&q=90)
   
 
-行政長官李家超說，「一國兩制」下，香港是全球唯一同時享有中國優勢及國際優勢的開放經濟體。面對地緣政治變化、保護主義和單邊主義冒起，香港始終倡導自由貿易及多邊主義，致力於增強應對挑戰的應變能力，亦是外國企業進軍內地以及內地企業「走出去」的最佳平台。在國家支持下，香港會進一步深化國際交往合作，並與國家及亞洲各國一道增進互信團結、開放融通、互利共贏、和平共處，促進亞洲經濟發展，推動全球經濟一體化。
+新世界發展表示，將把握機遇，加快香港與內地市場資金回籠。集團與遠東發展合作開發的啟德跑道區住宅項目柏蔚森，截至本周一合共售出約540個單位，套現近40億元。
 
   
 
@@ -10,14 +11,14 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm)
 
 ---
 
@@ -42,6 +43,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm)
+
+---
+
+# 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
+
+  
+
+行政長官李家超說，「一國兩制」下，香港是全球唯一同時享有中國優勢及國際優勢的開放經濟體。面對地緣政治變化、保護主義和單邊主義冒起，香港始終倡導自由貿易及多邊主義，致力於增強應對挑戰的應變能力，亦是外國企業進軍內地以及內地企業「走出去」的最佳平台。在國家支持下，香港會進一步深化國際交往合作，並與國家及亞洲各國一道增進互信團結、開放融通、互利共贏、和平共處，促進亞洲經濟發展，推動全球經濟一體化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
 
 ---
 
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797544-20250326.htm)
-
----
-
-# 鄭永年稱香港問題是發展問題　香港一定要與大灣區結合
-
-![鄭永年說，不要低估中國的開放政策，對全球貿易體系的重塑能力。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797537_2_20250326205139.jpg&q=80)
-  
-
-正在海南出席博鰲亞洲論壇的香港中文大學(深圳)公共政策學院院長、特首政策組專家組成員鄭永年，被問到香港財政情況時表示，香港的問題是發展問題，香港一定要與大灣區結合，共同發展，因為香港四大產業是服務業，服務對象主要為大灣區居民。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm)
 
 ---

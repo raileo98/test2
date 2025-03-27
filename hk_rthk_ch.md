@@ -1,3 +1,74 @@
+# 新世界發展：加快香港與內地市場資金回籠
+
+![新世界發展稱啟德跑道區住宅項目柏蔚森暫套現近40億元；北角皇都套現逾33.7億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797691_1_20250327160602.jpg&q=90)
+  
+
+新世界發展表示，將把握機遇，加快香港與內地市場資金回籠。集團與遠東發展合作開發的啟德跑道區住宅項目柏蔚森，截至本周一合共售出約540個單位，套現近40億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm)
+
+---
+
+# 國防部：堅決打掉一切「台獨」分裂圖謀
+
+![吳謙說，人民軍隊堅決打掉一切「台獨」分裂圖謀。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797692_1_20250327160736.jpg&q=90)
+  
+
+在北京，國防部強調，人民軍隊將堅決貫徹新時代黨解決台灣問題的總體方略，全時待戰、隨時能戰、戰之必勝，堅決打掉一切「台獨」分裂圖謀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797692-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797692-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797692-20250327.htm)
+
+---
+
+# 張宇人指修正案騎劫故不動議檢視小班教學原議案　朱國強稱不合理
+
+  
+
+立法會今早續會，根據議程將辯論自由黨張宇人提出，「檢視中小學以小班模式教學的成效」的無約束力議員議案，但張宇人在會上以議案被教育界議員朱國強提出的修正案「騎劫」為由，決定不作動議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797690-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797690-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797690-20250327.htm)
+
+---
+
 # 鴨脷洲街坊學校決定申請以私營方式自資開辦小一班級
 
 ![學校法團校董會表示，不同持份者一致支持學校繼續營辦。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797688_1_20250327155622.jpg&q=90)
