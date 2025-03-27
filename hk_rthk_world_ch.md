@@ -1,3 +1,27 @@
+# 金正恩指導北韓國防科研工作　滿意新研製電子干擾攻擊武器系統
+
+![金正恩指導無人航空技術聯合體和探測電子戰研究團隊的國防科研工作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797681_1_20250327153506.jpg&q=90)
+  
+
+北韓領袖金正恩過去兩日指導無人航空技術聯合體，以及探測電子戰研究團隊的國防科研工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797681-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797681-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797681-20250327.htm)
+
+---
+
 # 南韓東南部山火面積創新高　增至26死30傷
 
 ![南韓當局出動直升機協助撲救山火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797678_1_20250327150945.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm)
-
----
-
-# 外交部籲美方停止干涉委內瑞拉內政　廢除對委國的非法單邊制裁
-
-![郭嘉昆表示，中方堅決反對美國長期濫用非法單邊制裁和所謂「長臂管轄」，粗暴干涉其他國家內政。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797314_1_20250325162332.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，中方堅決反對美國長期濫用非法單邊制裁和所謂「長臂管轄」，粗暴干涉其他國家內政。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm)
 
 ---

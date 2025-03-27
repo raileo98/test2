@@ -1,3 +1,51 @@
+# 市建局山東街/地士道街項目邀請28家發展商入標
+
+![市建局山東街/地士道街發展計劃招標。市場對項目估值約6.4億至9.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797680_1_20250327153215.jpg&q=90)
+  
+
+市區重建局邀請28家發展商入標競投合作發展九龍山東街/地士道街發展計劃，5月13日中午截標。項目本月初截收意向書，合共收到28份。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797680-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797680-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797680-20250327.htm)
+
+---
+
+# 金正恩指導北韓國防科研工作　滿意新研製電子干擾攻擊武器系統
+
+![金正恩指導無人航空技術聯合體和探測電子戰研究團隊的國防科研工作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797681_1_20250327153506.jpg&q=90)
+  
+
+北韓領袖金正恩過去兩日指導無人航空技術聯合體，以及探測電子戰研究團隊的國防科研工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797681-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797681-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797681-20250327.htm)
+
+---
+
 # 人行宣昌能：貨幣政策有足夠空間　將擇機降準減息
 
 ![宣昌能：中國實施適度寬鬆的貨幣政策立場明確，貨幣政策有足夠空間，將擇機降準減息。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797679_1_20250327152656.jpg&q=80)

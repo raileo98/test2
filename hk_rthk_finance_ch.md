@@ -1,3 +1,27 @@
+# 市建局山東街/地士道街項目邀請28家發展商入標
+
+![市建局山東街/地士道街發展計劃招標。市場對項目估值約6.4億至9.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797680_1_20250327153215.jpg&q=90)
+  
+
+市區重建局邀請28家發展商入標競投合作發展九龍山東街/地士道街發展計劃，5月13日中午截標。項目本月初截收意向書，合共收到28份。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797680-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797680-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797680-20250327.htm)
+
+---
+
 # 人行宣昌能：貨幣政策有足夠空間　將擇機降準減息
 
 ![宣昌能：中國實施適度寬鬆的貨幣政策立場明確，貨幣政策有足夠空間，將擇機降準減息。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797679_1_20250327152656.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797533-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797533-20250326.htm)
-
----
-
-# 中銀香港去年貸款總減值準備升1.4%
-
-![中銀香港公布，截至去年底，貸款總減值準備149.6億元，按年升1.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797524_1_20250326171643.jpg&q=85)
-  
-
-中銀香港公布，截至去年底，貸款總減值準備149.6億元，按年升1.4%。總減值準備對客戶貸款比率按年升0.02個百分點至0.89%。減值貸款比率持平於1.05%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm)
 
 ---
