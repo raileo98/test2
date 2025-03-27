@@ -1,5 +1,30 @@
+# 丘應樺稱政府致力建設香港成為區域知識產權貿易中心
+
+![丘應樺（左）拜會外交部港澳台司副司長冉波（右），介紹香港經貿的最新發展。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797721_1_20250327191021.jpg&q=45)
+  
+
+商務及經濟發展局局長丘應樺在北京展開訪問行程。他上午首先拜訪國家知識產權局，與副局長張志成會面，並表示，特區政府一直致力保護知識產權及推動知識產權貿易，建設香港成為區域知識產權貿易中心，協助推動新質生產力，尤其是促進大灣區創新科技及創意產業的進一步發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm)
+
+---
+
 # 林大輝稱香港需配合國家外交工作　批評美國推行霸權及保護主義
 
+![林大輝表示，中國和平崛起，在國際舞台上的地位越來越重要。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_1_20250327190150.jpg&q=90)
   
 
 理工大學舉辦《新時代中國外交的挑戰與機遇》專題講座，理大校董會主席林大輝致辭時表示，中國和平崛起，透過改革開放發展成為世界第二大經濟體系，在國際舞台上的地位越來越重要。在這個新時代，香港必須充分發揮「一國兩制」的優勢，擔當超級聯繫人的角色，配合國家做好外交工作，服務國家外交大局。
@@ -1411,28 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797369-20250325.htm)
-
----
-
-# 美軍兩架魚鷹運輸機分別在日本兩個機場緊急降落
-
-  
-
-共同社報道，兩架美軍魚鷹運輸機分別在日本兩個機場緊急降落。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797363-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797363-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797363-20250325.htm)
 
 ---
