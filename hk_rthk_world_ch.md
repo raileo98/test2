@@ -1,3 +1,26 @@
+# 普京稱俄羅斯密切關注北極地區局勢　不允任何侵犯主權行為
+
+  
+
+俄羅斯總統普京說，如果西方國家對北極地區的項目感到興趣，俄羅斯將允許西方國家與俄方開展聯合項目。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797767-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797767-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797767-20250328.htm)
+
+---
+
 # 阿姆斯特丹發生持刀襲擊案最少5傷　疑犯被捕其犯案動機待查明
 
 ![襲擊發生在水壩廣場附近一個街區，警方封鎖有關區域調查。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797765_1_20250328014200.jpg&q=85)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797430-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797430-20250326.htm)
-
----
-
-# 萬斯將與夫人訪問格陵蘭　丹麥斥為格陵蘭和丹麥帶來不可接受壓力
-
-![萬斯（右）表示，將會探望駐紮在格陵蘭島的美軍，並視察當地的安全狀況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797421_1_20250326092232.jpg&q=90)
-  
-
-美國副總統萬斯表示，他將和夫人烏莎一起在本周稍後訪問丹麥自治領土格陵蘭島，屆時將會探望駐紮在格陵蘭島的美軍，視察當地的安全狀況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797421-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797421-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797421-20250326.htm)
 
 ---
