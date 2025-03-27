@@ -1,3 +1,27 @@
+# 內地股市先跌後回穩
+
+![上證指數收報3373點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797677_1_20250327150551.jpg&q=85)
+  
+
+內地股市先跌後回穩，化學原料、光刻機、醫藥股造好，海工裝備、電力、電機板塊向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797677-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797677-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797677-20250327.htm)
+
+---
+
 # 韓股低收近1.4%
 
 ![首爾綜合指數收市報2607點，跌36點，跌幅1.39%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797676_1_20250327144134.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797525-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797525-20250326.htm)
-
----
-
-# 中銀香港去年多賺近17%　擬今年起按季度派息
-
-![中銀香港去年盈利382.3億元，按年升16.8%。派末期息每股1.419元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797518_1_20250326165556.jpg&q=90)
-  
-
-中銀香港公布，去年盈利382.3億元，按年升16.8%。派末期息每股1.419元，全年派息1.989元，按年增長近19%，派息比率為55%，提升1個百分點。公司計劃由今年起，按季度派發股息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797518-20250326.htm)
 
 ---

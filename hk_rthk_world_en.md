@@ -673,7 +673,7 @@ Chinese authorities have released all employees of a US corporate due diligence 
 
 # Boeing 'wants to bail out of 737 MAX guilty plea deal'
 
-![Two 737 MAX crashes that killed 346 people have fuelled deep concern over Boeing's quality and manufacturing processes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797265_1_20250325103519.jpg&q=60)
+![Two 737 MAX crashes that killed 346 people have fuelled deep concern over Boeing's quality and manufacturing processes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797265_1_20250325103519.jpg&q=1)
   
 
 Boeing is seeking to withdraw an agreement to plead guilty in a criminal case that blamed the company for deceiving regulators before two deadly crashes of 737 MAX jets, the Wall Street Journal reported on Monday.

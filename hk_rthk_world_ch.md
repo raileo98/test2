@@ -1,3 +1,27 @@
+# 南韓東南部山火面積創新高　增至26死30傷
+
+![南韓當局出動直升機協助撲救山火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797678_1_20250327150945.jpg&q=90)
+  
+
+南韓東南部慶尚道地區山火持續，增至26人死亡，30人受傷，火場面積36000公頃創新高，大約37000人疏散。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797678-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797678-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797678-20250327.htm)
+
+---
+
 # 丁薛祥：今年首兩個月中國經濟運行起步平穩
 
 ![丁薛祥表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797666_1_20250327140247.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm)
-
----
-
-# 東京地方法院下令解散原「統一教會」
-
-![原「統一教會」已改名為「世界和平統一家庭聯合會」。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797308_1_20250325151259.jpg&q=80)
-  
-
-日本文部科學省向東京地方法院申請，下令解散原「統一教會」的「世界和平統一家庭聯合會」，法院依據《宗教法人法》發出解散命令。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797308-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797308-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797308-20250325.htm)
 
 ---
