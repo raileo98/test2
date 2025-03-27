@@ -475,6 +475,30 @@
 
 ---
 
+# 丁薛祥：今年首兩個月中國經濟運行起步平穩
+
+![丁薛祥表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797666_1_20250327140247.jpg&q=80)
+  
+
+博鰲亞洲論壇年會舉行開幕式，國務院副總理丁薛祥發表主旨演講，表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm)
+
+---
+
 # 港股下午初段升逾1%
 
 ![港股下午初段持續造好，恒生指數較早時報23751點，升268點，升幅1.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797659_1_20250327130502.jpg&q=90)
@@ -616,6 +640,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797651-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797651-20250327.htm)
+
+---
+
+# 特朗普：可能提出降低中國關稅換取中方批准出售TikTok
+
+![特朗普1月上任後簽署行政命令，將針對TikTok「不賣就禁」法例生效的最後期限推遲至4月初。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797647_1_20250327115115.jpg&q=90)
+  
+
+美國總統特朗普宣布向進口汽車徵收25%關稅時說，可能會提出降低對中國的關稅，以獲得中國政府批准出售短片分享程式TikTok。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm)
 
 ---
 
@@ -834,6 +882,30 @@
 
 ---
 
+# 石破茂：在應對美國汽車關稅時將考慮所有選項
+
+![石破茂說，在應對美國徵收汽車關稅問題上，日本政府會把所有選項放在桌面上。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797626_1_20250327100102.jpg&q=90)
+  
+
+日本首相石破茂說，在應對美國向進口汽車徵收25%關稅的問題上，日本政府會把所有選項放在桌面上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm)
+
+---
+
 # 人行逆回購2185億元人民幣　單日轉為淨回籠500億元
 
 ![人行公開市場開展2185億元人民幣7天期逆回購操作，單日轉為淨回籠500億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797622_1_20250327092635.jpg&q=75)
@@ -927,6 +999,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797620-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797620-20250327.htm)
+
+---
+
+# 特朗普：關稅將促使更多汽車生產轉移到美國
+
+![特朗普對記者表示，關稅將促使更多汽車生產轉移到美國，為政府創造新的收入協助減少國家債務。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797618_1_20250327091202.jpg&q=90)
+  
+
+美國總統特朗普宣布對進口汽車徵收25%關稅，4月2日起生效，4月3日開始徵收。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797618-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797618-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797618-20250327.htm)
 
 ---
 
@@ -1242,6 +1338,30 @@
 
 ---
 
+# 中美均形容經貿官員通話坦誠　何立峰就美對華徵關稅表達嚴正關切
+
+![何立峰就美方以芬太尼為由對華加徵關稅等問題，向美國貿易代表表達嚴正關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797590_1_20250327032925.jpg&q=90)
+  
+
+中美經貿官員通話。中方牽頭人、國務院副總理何立峰就美方以芬太尼為由對華加徵關稅、有關301調查以及計劃出台「對等」關稅等，向美國貿易代表格里爾表達嚴正關切。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm)
+
+---
+
 # 蒙牛去年盈利倒退98%　仍派末期息每股0.509元人民幣
 
 ![蒙牛去年盈利倒退98%，受子公司商譽及無形資產減值虧損，以及現代牧業商譽減值影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797580_1_20250326225414.jpg&q=90)
@@ -1311,125 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm)
-
----
-
-# 劉國勳稱地契修訂「按實補價」可增加發展商或企業投資意欲
-
-![劉國勳認為，「按實補價」可加快發展項目早日落地，亦有助北部都會區多元化發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797573_1_20250326214934.jpg&q=75)
-  
-
-發展局局長甯漢豪出席立法會前廳交流會後表示，政府提出「按實補價」概念，即是進行地契修訂時，研究不一定要用最高樓面的面積定其補價，可按實際興建量定其補價，目的是讓一些發展項目早日可以「去馬」和成事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm)
-
----
-
-# 美股初段個別發展
-
-![美股初段個別發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797571_1_20250326213503.jpg&q=90)
-  
-
-美股初段個別發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797571-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797571-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797571-20250326.htm)
-
----
-
-# 在岸人民幣微升5點子收市　結束5連跌
-
-![在岸人民幣收報7.2635兌1美元，較昨日收市微升5點子，結束5連跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797569_1_20250326212925.jpg&q=80)
-  
-
-在岸人民幣收報7.2635兌1美元，較昨日收市微升5點子，結束5連跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm)
-
----
-
-# 中銀香港料市場利率繼續下行　將增加非利息業務應對息差壓力
-
-![中銀香港劉承鋼預計，市場利率將呈下行趨勢，未來將增加非利息業務貢獻，以減輕對淨息差的壓力。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797567_1_20250326211627.jpg&q=90)
-  
-
-中銀香港去年淨息差1.46厘，按年收窄7個基點；經調整淨息差1.64厘，擴大1個基點。副總裁兼財務總監劉承鋼表示，現時在港股較熾熱，境外資金持續流入，即使美國聯儲局減息步伐仍然不確定，但預計市場利率將呈下行趨勢，未來將增加非利息業務貢獻，以減輕對淨息差的壓力，亦會保持淨利息收入平穩。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797567-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797567-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797567-20250326.htm)
-
----
-
-# 中銀香港：本港地產組合風險受壓　但資產質量可控
-
-![中銀香港徐海峰：目前本港地產組合風險受壓，但整體資產質量可控。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797566_1_20250326211146.jpg&q=90)
-  
-
-中銀香港截至去年底，貸款總減值準備149.6億元，按年升1.4%。副總裁兼風險總監徐海峰表示，去年香港房地產市場面對高息環境，特別是商業房地產市場持續受壓，部份規模較小的房企流動性持續緊張，但目前整體資產質素可控。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797566-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797566-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797566-20250326.htm)
 
 ---
