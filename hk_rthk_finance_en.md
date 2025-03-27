@@ -1,3 +1,27 @@
+# Canada PM dubs US auto tariffs 'direct attack'
+
+![Canada's Prime Minister Mark Carney attends a Liberal Party election campaign rally in Kitchener, Ontario. Carney has vowed to fight Trump's tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797616_1_20250327083849.jpg&q=90)
+  
+
+Canadian Prime Minister Mark Carney reacted with anger on Wednesday to US President Donald Trump's imposition of import tariffs on cars, branding it a "direct attack" on his country.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm)
+
+---
+
 # Trump hints at lower tariffs for China over TikTok
 
 ![The short-video app is used by nearly half of all Americans. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
@@ -1413,29 +1437,5 @@ Cathay Pacific Airways on Wednesday reported marginal full-year profit growth as
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795410-20250312.htm)
-
----
-
-# Trump's 25 pct tariffs on steel and aluminium in force
-
-![A new wave of US tariffs sees levies of 25 percent on steel and aluminium imports. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795389_1_20250312121525.jpg&q=80)
-  
-
-US President Donald Trump's increased tariffs on steel and aluminum imports took effect on Wednesday as prior exemptions, duty free quotas and product exclusions expired.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795389-20250312.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 醫管局澄清處方4周藥物屬計算單位　非要求病人4周後再配藥
+
+  
+
+政府公布公營醫療服務收費改革方案，普通科及專科門診的藥物收費將會增加，醫管局總藥劑師崔俊明表示，最多處方4星期藥物的講法只是誤會，他解釋每4個星期是計算的單位，並非要病人於4個星期後再到醫院或診所配藥，否則會令藥劑部的工作壓力大增。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797623-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797623-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797623-20250327.htm)
+
+---
+
 # 網球未來兩年續成精英運動A級項目　黃澤林稱感謝政府及網球總會
 
 ![黃澤林說，感謝團隊背後的一直支持，亦要多謝所有香港支持自己的人。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797611_1_20250327072355.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797465-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797465-20250326.htm)
-
----
-
-# 李家超：瓊港雙方合力開拓面向東盟區域性大市場
-
-![李家超指合作備忘錄涵蓋多個範疇，標誌著香港和海南合作踏上新台階，將有助兩地優勢疊加、深化經貿交流。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797463_1_20250326131144.jpg&q=90)
-  
-
-正在海南的行政長官李家超，出席海南省人民政府與李家超香港特區政府簽署《合作備忘錄》儀式。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm)
 
 ---

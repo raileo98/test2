@@ -1,3 +1,123 @@
+# 人行逆回購2185億元人民幣　單日轉為淨回籠500億元
+
+![人行公開市場開展2185億元人民幣7天期逆回購操作，單日轉為淨回籠500億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797622_1_20250327092635.jpg&q=75)
+  
+
+人民銀行公開市場開展2185億元人民幣7天期逆回購操作，投標量與中標量相同，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797622-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797622-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797622-20250327.htm)
+
+---
+
+# 滬深股市初段偏軟
+
+![內地股市初段偏軟，上證指數較早時報3365點，跌3點，跌幅0.09%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797624_1_20250327093222.jpg&q=90)
+  
+
+內地股市初段偏軟，上證指數較早時報3365點，跌3點，跌幅0.09%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797624-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797624-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797624-20250327.htm)
+
+---
+
+# 港股競價時段升60點　新奧能源急升16%
+
+![恒生指數競價時段報23543點，升60點，升幅0.26%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797621_1_20250327092302.jpg&q=75)
+  
+
+港股高開，恒生指數競價時段報23543點，升60點，升幅0.26%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797621-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797621-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797621-20250327.htm)
+
+---
+
+# 人民幣兌美元中間價跌9點子
+
+![人民幣中間價報7.1763兌1美元，較昨日中間價跌9點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797620_1_20250327091857.jpg&q=70)
+  
+
+人民幣中間價報7.1763兌1美元，較昨日中間價跌9點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797620-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797620-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797620-20250327.htm)
+
+---
+
+# 台股初段跌逾1%　失守22000點
+
+![加權指數初段失守22000點水平，較早時報21970點，跌289點，跌幅1.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797617_1_20250327090244.jpg&q=90)
+  
+
+台灣股市偏軟，失守22000點水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797617-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797617-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797617-20250327.htm)
+
+---
+
 # 卡尼批評美國對進口汽車徵收關稅是對加拿大工人直接攻擊
 
 ![德國汽車工業協會呼籲美國和歐盟展開雙邊會談尋求解決方案。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797615_1_20250327082909.jpg&q=60)
@@ -1316,125 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797463-20250326.htm)
-
----
-
-# 泡泡瑪特去年盈利增長近兩倍
-
-![泡泡瑪特去年盈利約31.3億元人民幣，增長近兩倍；港澳台及海外業務銷售收入佔整體近40%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797461_1_20250326124221.jpg&q=90)
-  
-
-泡泡瑪特去年盈利約31.3億元人民幣，按年增長近兩倍；以非國際財務報告準則計，盈利34億元，增長近兩倍。末期息每股81.46分。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797461-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797461-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797461-20250326.htm)
-
----
-
-# 港股半日升57點　內銀股偏軟　消費股個別發展
-
-![恒生指數升至近23600點水平後升幅顯著收窄，中午收市報23402點，升57點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797458_1_20250326121109.jpg&q=65)
-  
-
-港股反彈，恒生指數最多升逾250點，升至近23600點水平，其後升幅顯著收窄，中午收市報23402點，升57點，升幅0.25%，半日主板成交額約1138億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797458-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797458-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797458-20250326.htm)
-
----
-
-# 丘應樺下午啓程赴北京訪問　將拜訪商務部及外交部
-
-![丘應樺下午啓程前往北京訪問。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797457_1_20250326131102.jpg&q=90)
-  
-
-商務及經濟發展局局長丘應樺下午啓程前往北京訪問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797457-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797457-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797457-20250326.htm)
-
----
-
-# 余偉文：香港於內地貿易和投資角色重要　建立貿易走廊有貢獻
-
-![余偉文指出人民幣於貿易走廊中使用越來越廣泛。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797451_1_20250326124735.jpg&q=75)
-  
-
-金管局總裁余偉文表示，香港在內地貿易和投資中均扮演重要角色，目前約三分之二的貿易和投資都是通過香港進行，香港在投入建立貿易走廊上亦有貢獻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797451-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797451-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797451-20250326.htm)
-
----
-
-# 滬股半日升約0.2%　深證成指及創業板升近0.4%
-
-![內地股市反覆靠穩，上證指數半日收報3375點，升5點，升幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797450_1_20250326114354.jpg&q=90)
-  
-
-內地股市反覆靠穩，機械人概念、養殖、光伏、化工板塊造好，銀行、油服、電力股下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797450-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797450-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797450-20250326.htm)
 
 ---

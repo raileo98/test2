@@ -1,3 +1,27 @@
+# Canada PM dubs US auto tariffs 'direct attack'
+
+![Canada's Prime Minister Mark Carney attends a Liberal Party election campaign rally in Kitchener, Ontario. Carney has vowed to fight Trump's tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797616_1_20250327083849.jpg&q=90)
+  
+
+Canadian Prime Minister Mark Carney reacted with anger on Wednesday to US President Donald Trump's imposition of import tariffs on cars, branding it a "direct attack" on his country.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm)
+
+---
+
 # Trump hints at lower tariffs for China over TikTok
 
 ![The short-video app is used by nearly half of all Americans. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
@@ -67,6 +91,30 @@ Israeli Prime Minister Benjamin Netanyahu threatened on Wednesday to seize parts
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm)
+
+---
+
+# Trump announces 25 pc tariff on non-US-built cars
+
+![US President Donald Trump announces tariffs on auto imports in the Oval Office of the White House in Washington, DC. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797599_1_20250327060802.jpg&q=90)
+  
+
+US President Donald Trump announced steep tariffs on auto imports Wednesday, in a move set to fuel tensions with trading partners ahead of further promised levies next week.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm)
 
 ---
 
@@ -1388,53 +1436,5 @@ The head of Shin Bet, Israel's domestic intelligence agency, was sacked on Frida
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796737-20250321.htm)
-
----
-
-# 'Coalition of willing' to meet next week on Ukraine
-
-![French President Emmanuel Macron announced the new meeting after a European Union summit in Brussels. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796727_1_20250321094059.jpg&q=90)
-  
-
-French President Emmanuel Macron said leaders of the coalition backing Ukraine would meet again next week, hoping to finalise plans to secure a potential truce in the war with Russia.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796727-20250321.htm)
-
----
-
-# World's glacier mass shrank again in 2024, says UN
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796725_1_20250321093234.jpg&q=85)
-  
-
-All 19 of the world's glacier regions experienced a net loss of mass in 2024 for the third consecutive year, the United Nations said on Friday, warning that saving the planet's glaciers was now a matter of "survival".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796725-20250321.htm)
 
 ---

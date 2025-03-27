@@ -1,3 +1,27 @@
+# Canada PM dubs US auto tariffs 'direct attack'
+
+![Canada's Prime Minister Mark Carney attends a Liberal Party election campaign rally in Kitchener, Ontario. Carney has vowed to fight Trump's tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797616_1_20250327083849.jpg&q=90)
+  
+
+Canadian Prime Minister Mark Carney reacted with anger on Wednesday to US President Donald Trump's imposition of import tariffs on cars, branding it a "direct attack" on his country.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm)
+
+---
+
 # Trump hints at lower tariffs for China over TikTok
 
 ![The short-video app is used by nearly half of all Americans. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
@@ -1415,29 +1439,5 @@ One person has been killed after a massive sinkhole opened up in Seoul, the fire
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797301-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797301-20250325.htm)
-
----
-
-# Tesla sales fall off a cliff in Europe
-
-![A woman encourages people outside the Tesla Centre Park Royal in London to boycott the electric vehicle giant. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797297_1_20250325132757.jpg&q=90)
-  
-
-European sales of Tesla electric cars dropped 49 percent in January and February compared with the same period a year earlier, the ACEA manufacturers' association said on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm)
 
 ---

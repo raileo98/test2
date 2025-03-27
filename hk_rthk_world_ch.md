@@ -1,3 +1,51 @@
+# 《環看天下》：美國針對委内瑞拉石油徵二級關稅　中方堅決反對
+
+![美國政府宣布下月初起向任何進口委內瑞拉石油的國家，徵收25%「二級關稅」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797619_1_20250327091822.jpg&q=90)
+  
+
+美國總統特朗普政府日前宣布，下月初開始會向任何進口委內瑞拉石油及天然氣的國家，徵收25%的「二級關稅」，理由是委內瑞拉對美國採取敵對態度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797619-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797619-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797619-20250327.htm)
+
+---
+
+# 特朗普：關稅將促使更多汽車生產轉移到美國
+
+![特朗普對記者表示，關稅將促使更多汽車生產轉移到美國，為政府創造新的收入協助減少國家債務。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797618_1_20250327091202.jpg&q=90)
+  
+
+美國總統特朗普宣布對進口汽車徵收25%關稅，4月2日起生效，4月3日開始徵收。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797618-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797618-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797618-20250327.htm)
+
+---
+
 # 卡尼批評美國對進口汽車徵收關稅是對加拿大工人直接攻擊
 
 ![德國汽車工業協會呼籲美國和歐盟展開雙邊會談尋求解決方案。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797615_1_20250327082909.jpg&q=60)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm)
-
----
-
-# 美俄代表團結束在沙特會談　美烏代表據報周二再度會晤
-
-![美俄代表團星期一在利雅得一間酒店舉行閉門會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797237_1_20250325062023.jpg&q=80)
-  
-
-美國與俄羅斯代表團結束在沙特阿拉伯首都利雅得的會談，歷時超過12小時。俄新社報道，雙方將於星期二發表關於談判結果的聯合聲明。烏克蘭傳媒報道，烏克蘭與美國官員將於星期二再次在沙特會談，跟進美俄會談進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797237-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797237-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797237-20250325.htm)
-
----
-
-# 特朗普：或向多國提供關稅優惠　但需要實現對等
-
-![特朗普說，未來數日將會宣布涉及汽車、木材、晶片等產品的關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797233_1_20250325055421.jpg&q=85)
-  
-
-美國總統特朗普表示，隨著4月2日對等關稅生效日期臨近，他可能會向很多國家提供關稅優惠，但需要實現對等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797233-20250325.htm)
 
 ---
