@@ -1,3 +1,51 @@
+# 美國2月貿易逆差收窄近5%　分析：逆差仍居高不下
+
+![美國2月商品貿易逆差收窄4.9%至1479億美元，仍在紀錄高位居高不下。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797742_1_20250327213559.jpg&q=85)
+  
+
+美國商務部公布，美國2月商品貿易逆差收窄4.9%至1479億美元。出口增長4%至1786億美元；進口微跌至3265億美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm)
+
+---
+
+# 美股初段向下　納指跌近0.8%
+
+![納斯達克指數報17760點，跌138點，跌幅0.78%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797743_1_20250327214011.jpg&q=90)
+  
+
+美股初段向下。美國總統特朗普宣布對進口汽車徵收25%關稅，打擊市場投資信心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797743-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797743-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797743-20250327.htm)
+
+---
+
 # 酒吧業界料七欖賽事可帶來約2000萬元額外收益
 
   
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797612-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797612-20250327.htm)
-
----
-
-# 日股初段曾跌逾1%　下試37500點水平
-
-![日經指數開市後低見37556點，跌1.2%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797613_1_20250327081559.jpg&q=75)
-  
-
-日股初段受壓，日經指數開市後低見37556點，跌1.2%，較早時報37738點，跌288點，跌幅0.76%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797613-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797613-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797613-20250327.htm)
-
----
-
-# 韓股初段跌逾0.6%
-
-![首爾綜合指數較早時報2627點，跌16點，跌幅0.63%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797614_1_20250327081650.jpg&q=90)
-  
-
-南韓股市早段向下，首爾綜合指數較早時報2627點，跌16點，跌幅0.63%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797614-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797614-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797614-20250327.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 林定國稱香港普通法制度具備「國際化、高水平、信譽好」優勢
+
+  
+
+律政司司長林定國在北京出席「人民法院涉外涉港澳系列專題講座」，分享在「一國兩制」下香港普通法制度的歷史脈絡、特點、發展，以及其獨特優勢如何助力國家發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm)
+
+---
+
 # 國防部：日方最沒有資格拿台灣說事
 
 ![吳謙指出，台灣問題不關日本甚麼事，日方也最沒有資格拿台灣說事。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797740_1_20250327212745.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797336-20250325.htm)
-
----
-
-# 李家超博鰲分論壇致辭　稱香港致力深化國際交流與合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797335_1_20250325182921.jpg&q=90)
-  
-
-正在博鰲論壇亞洲年會的行政長官李家超，下午出席「全球自由貿易港發展」分論壇並致辭。他表示，亞洲作為全球增長引擎，必須推動多邊主義，拒絕保護主義，香港將致力於深化國際交流與合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm)
 
 ---

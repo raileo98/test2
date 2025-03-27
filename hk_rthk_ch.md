@@ -1,3 +1,74 @@
+# 美國2月貿易逆差收窄近5%　分析：逆差仍居高不下
+
+![美國2月商品貿易逆差收窄4.9%至1479億美元，仍在紀錄高位居高不下。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797742_1_20250327213559.jpg&q=85)
+  
+
+美國商務部公布，美國2月商品貿易逆差收窄4.9%至1479億美元。出口增長4%至1786億美元；進口微跌至3265億美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm)
+
+---
+
+# 林定國稱香港普通法制度具備「國際化、高水平、信譽好」優勢
+
+  
+
+律政司司長林定國在北京出席「人民法院涉外涉港澳系列專題講座」，分享在「一國兩制」下香港普通法制度的歷史脈絡、特點、發展，以及其獨特優勢如何助力國家發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm)
+
+---
+
+# 美股初段向下　納指跌近0.8%
+
+![納斯達克指數報17760點，跌138點，跌幅0.78%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797743_1_20250327214011.jpg&q=90)
+  
+
+美股初段向下。美國總統特朗普宣布對進口汽車徵收25%關稅，打擊市場投資信心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797743-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797743-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797743-20250327.htm)
+
+---
+
 # 酒吧業界料七欖賽事可帶來約2000萬元額外收益
 
   
