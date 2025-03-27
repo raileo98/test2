@@ -1,3 +1,27 @@
+# US$125m top prize awaits in Club World Cup
+
+![Gianni Infantino says the distribution model of the Fifa Club World Cup represents the biggest-ever prize money for a football tournament. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797655_1_20250327124306.jpg&q=90)
+  
+
+The 32 teams competing in the Club World Cup this summer will be vying for as much as a US$125 million first-place check from a US$1 billion prize pool.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797655-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797655-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797655-20250327.htm)
+
+---
+
 # Innovation is driving China's economy: Ding Xuexiang
 
 ![Vice Premier Ding Xuexiang says China ranks among the world's fastest growing major economies. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797653_1_20250327122112.jpg&q=90)
@@ -1413,29 +1437,5 @@ Financial Secretary Paul Chan on Tuesday said that artificial intelligence is a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm)
-
----
-
-# Blatter and Platini cleared of graft charges again
-
-![Michel Platini, left, and Sepp Blatter were cleared of fraud mismanagement by a Swiss court. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797334_1_20250325173315.jpg&q=85)
-  
-
-Sepp Blatter and Michel Platini won again in court on Tuesday and now lead 2-0 in trial verdicts against Swiss federal prosecutors.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm)
 
 ---
