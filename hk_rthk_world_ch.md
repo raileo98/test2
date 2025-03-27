@@ -1,3 +1,26 @@
+# 德國指歐盟須堅定回應美國汽車關稅　加國總理稱若受威脅會反擊
+
+  
+
+美國的汽車關稅措施令全球貿易戰進一步蔓延。德國經濟和氣候保護部部長哈貝克表示，歐盟必須作出堅定回應，不可以向美國屈服，需要展現力量及自信。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797770-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797770-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797770-20250328.htm)
+
+---
+
 # 澤連斯基籲各方制定在烏部署部隊計劃　馮德萊恩強調援烏重要性
 
 ![澤連斯基指今次會議及即將舉行的軍事會談等，有一些非常具體的問題需要回答。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797768_1_20250328025431.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797429-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797429-20250326.htm)
-
----
-
-# 美傳媒人指防長有於群組披露軍事行動資料　又形容為巨大國安漏洞
-
-![戈德堡認為自己發現了國家安全系統中一個巨大的安全漏洞。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797439_1_20250326123948.jpg&q=90)
-  
-
-美國傳媒人無意中被加入政府高層討論軍事行動的通訊群組，事件主角、《大西洋雜誌》主編戈德堡接受其他傳媒訪問時說，他認為自己發現了國家安全系統中一個巨大的安全漏洞。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797439-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797439-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797439-20250326.htm)
 
 ---

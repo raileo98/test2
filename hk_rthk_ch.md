@@ -1,3 +1,26 @@
+# 德國指歐盟須堅定回應美國汽車關稅　加國總理稱若受威脅會反擊
+
+  
+
+美國的汽車關稅措施令全球貿易戰進一步蔓延。德國經濟和氣候保護部部長哈貝克表示，歐盟必須作出堅定回應，不可以向美國屈服，需要展現力量及自信。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797770-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797770-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797770-20250328.htm)
+
+---
+
 # 澤連斯基籲各方制定在烏部署部隊計劃　馮德萊恩強調援烏重要性
 
 ![澤連斯基指今次會議及即將舉行的軍事會談等，有一些非常具體的問題需要回答。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797768_1_20250328025431.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm)
-
----
-
-# 祁斌：香港資本市場是帶動解決財政、房地產等問題重要抓手
-
-![祁斌又認為，要優化內地與香港金融監管協調機制，促進港股和A股市場良性互動及協同成長。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797707_1_20250327192801.jpg&q=90)
-  
-
-中聯辦副主任祁斌表示，近期香港經濟社會發展良好，認為要搞好香港金融，關鍵要把資本市場發展好；香港資本市場不但對鞏固提升香港國際金融中心地位至關重要，亦是帶動解決消費、財政、房地產等各方面問題、推動香港由治及興重要抓手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797707-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797707-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797707-20250327.htm)
 
 ---
