@@ -1362,6 +1362,30 @@
 
 ---
 
+# 卡尼：中國並不認同加拿大價值觀　加強雙邊貿易關係需非常謹慎
+
+![卡尼表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面需要非常謹慎。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797589_1_20250327023249.jpg&q=90)
+  
+
+加拿大總理卡尼表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面需要非常謹慎。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797589-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797589-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797589-20250327.htm)
+
+---
+
 # 蒙牛去年盈利倒退98%　仍派末期息每股0.509元人民幣
 
 ![蒙牛去年盈利倒退98%，受子公司商譽及無形資產減值虧損，以及現代牧業商譽減值影響。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797580_1_20250326225414.jpg&q=90)
@@ -1386,36 +1410,12 @@
 
 ---
 
-# 祁斌稱中央全力支持瓊港兩地自由港平台與超級聯繫人雙向聯動
+# 商務部：中方堅決反對美國將多家中國實體列入出口管制實體清單
 
-![祁斌指出，海南自貿區零關稅低稅率政策，與香港自由港制度可以形成疊加效應。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797578_1_20250326225528.jpg&q=80)
+![商務部稱，中方敦促美方立即停止錯誤做法，並將採取必要措施，堅決維護中國實體的合法權益。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797579_1_20250326225129.jpg&q=75)
   
 
-在海南，瓊港簽署備忘錄，在多方面深化合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm)
-
----
-
-# 海南省委書記馮飛稱瓊港合作備忘錄必將共創輝煌新篇章
-
-![馮飛說，兩地合作不斷邁上新台階，打造香港與內地省份合作的典範。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797577_1_20250326222754.jpg&q=80)
-  
-
-行政長官李家超與海南省委書記馮飛會面，並見證海南省人民政府與香港特區政府簽署《合作備忘錄》。馮飛致辭時表示，近年香港與海南兩地經貿合作，日益頻繁，不斷深化，相信今次簽約，必將開啟兩地攜手共進，共創輝煌的新篇章。
+在北京，商務部新聞發言人說，美國持續泛化國家安全概念，濫用出口管制措施，將多家中國實體列入出口管制「實體清單」，中方對此堅決反對。
 
   
 
@@ -1423,13 +1423,13 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm)
 
 ---

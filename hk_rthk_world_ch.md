@@ -95,7 +95,7 @@
 
 # 金正恩指導北韓國防科研工作　滿意新研製電子干擾攻擊武器系統
 
-![金正恩指導無人航空技術聯合體和探測電子戰研究團隊的國防科研工作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797681_1_20250327153506.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797681_1_20250327153506.jpg&q=90)
   
 
 北韓領袖金正恩過去兩日指導無人航空技術聯合體，以及探測電子戰研究團隊的國防科研工作。
