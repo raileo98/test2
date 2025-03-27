@@ -1,3 +1,27 @@
+# Barcelona go three points atop La Liga with win
+
+![Ferran Torres (7) opened the scoring for Barcelona. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797785_1_20250328073805.jpg&q=90)
+  
+
+Barcelona swept to a comfortable 3-0 victory over Osasuna to move three points clear at the top of La Liga despite their discontent at having to play their match on Thursday local time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797785-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797785-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797785-20250328.htm)
+
+---
+
 # Autos lead market losses after Trump's new tariffs
 
 ![A line of Porsche cars is displayed outside a dealership in Edmonton, Canada. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797782_1_20250328071224.jpg&q=85)
@@ -1415,29 +1439,5 @@ The Hospital Authority has suspended the use of about 200 examination lights of 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm)
-
----
-
-# Hong Kong stocks rally at opening
-
-![The Hang Seng Index opened half a percentage point higher. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797435_1_20250326103245.jpg&q=75)
-  
-
-The Hang Seng Index rose 116.06 points or 0.5 percent to open at 23,460.31 points on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm)
 
 ---
