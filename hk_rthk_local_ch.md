@@ -1,3 +1,49 @@
+# 九龍城警區打擊違規學習駕駛發出12張定額罰款通知書及2張傳票
+
+  
+
+九龍城警區聯同相關部門在區內展開行動，打擊與「違規學習駕駛」相關的違法行為，過去一周，共發出12張定額罰款通知書及2張傳票，票控違規學習駕駛的導師和學習駕駛者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797748-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797748-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797748-20250327.htm)
+
+---
+
+# 范鴻齡：醫管局未來一年有連串措施提高效率並加強節流
+
+  
+
+醫管局在新一個財政年度，獲近一千億元經常撥款。醫管局主席范鴻齡說，未來一年會有連串措施提高效率，同時加強節流，研究簡化採購流程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797747-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797747-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797747-20250327.htm)
+
+---
+
 # 蔡若蓮稱香港於教學與研究追求卓越成就是理想升學目的地
 
 ![蔡若蓮說，香港擁有五所名列世界百強的公帑資助大學，整個城市充滿活力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797746_1_20250327220329.jpg&q=85)
@@ -1389,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm)
-
----
-
-# 劉國勳稱地契修訂「按實補價」可增加發展商或企業投資意欲
-
-![劉國勳認為，「按實補價」可加快發展項目早日落地，亦有助北部都會區多元化發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797573_1_20250326214934.jpg&q=75)
-  
-
-發展局局長甯漢豪出席立法會前廳交流會後表示，政府提出「按實補價」概念，即是進行地契修訂時，研究不一定要用最高樓面的面積定其補價，可按實際興建量定其補價，目的是讓一些發展項目早日可以「去馬」和成事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797573-20250326.htm)
-
----
-
-# 約53萬4千名車主或駕駛執照持有人提交已核實電子聯絡方式
-
-![運輸署呼籲，提供及核實香港流動電話號碼或電郵地址作為電子聯絡方式，以接收警方和署方的電子訊息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797572_1_20250326214210.jpg&q=80)
-  
-
-賦權運輸署署長向相關人士收集電子聯絡方式的修訂條例自去年11月18日生效以來，截至昨日，有約53.4萬名車主或駕駛執照持有人提交已核實的電子聯絡方式，佔總數約兩成，預計有關數字將穩步上升。警方在電子告票實施初期會「雙軌並行」，即同時發出傳統紙本告票，讓市民逐步適應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797572-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797572-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797572-20250326.htm)
 
 ---

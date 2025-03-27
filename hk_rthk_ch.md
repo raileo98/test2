@@ -1,3 +1,26 @@
+# 范鴻齡：醫管局未來一年有連串措施提高效率並加強節流
+
+  
+
+醫管局在新一個財政年度，獲近一千億元經常撥款。醫管局主席范鴻齡說，未來一年會有連串措施提高效率，同時加強節流，研究簡化採購流程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797747-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797747-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797747-20250327.htm)
+
+---
+
 # 蔡若蓮稱香港於教學與研究追求卓越成就是理想升學目的地
 
 ![蔡若蓮說，香港擁有五所名列世界百強的公帑資助大學，整個城市充滿活力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797746_1_20250327220329.jpg&q=85)
@@ -24,9 +47,10 @@
 
 # 載遊客潛艇在埃及紅海沿岸沉沒　據報6死19傷
 
+![事故中部分傷者被送到胡爾加達一間醫院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797745_1_20250327223805.jpg&q=85)
   
 
-一艘載著遊客的潛艇在埃及紅海城市胡爾加達附近海域沉沒，當地傳媒報道，有6人死亡，19人受傷。有關部門正在進行救援工作，事故原因仍在調查。
+一艘載著遊客的潛艇在埃及旅遊城市胡爾加達附近海域沉沒，當地傳媒報道，有6人死亡，19人受傷。有關部門正在進行救援工作，事故原因仍在調查。
 
   
 
