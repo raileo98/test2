@@ -1,3 +1,74 @@
+# 外交部駐港公署強烈不滿英國涉港報告　促立即停止政治操弄
+
+  
+
+外交部駐港公署強烈不滿及堅決反對英國政府再次發布所謂「香港問題半年報告」，指有關內容對香港事務指手畫腳，抹黑香港人權法治，罔顧事實、顛倒黑白，公然踐踏包括「不干涉別國內政」在內的國際法與國際關係基本準則，敦促英方立即停止炮製涉港報告的政治操弄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm)
+
+---
+
+# 永利澳門去年盈利近32億元　按年增逾1.7倍
+
+![永利澳門去年盈利近32億元，按年增長逾1.7倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797753_1_20250327231556.jpg&q=80)
+  
+
+永利澳門公布，去年盈利近32億元，按年增長逾1.7倍。派末期息每股0.185元，按年升近1.5倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm)
+
+---
+
+# 歐洲央行：與美國貿易戰對經濟增長極不利　須格外小心調整政策
+
+![歐洲央行副總裁德金多斯表示，與美國的貿易戰對經濟增長的不利影響大得多，有必要格外小心和謹慎地調整政策。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797752_1_20250327230701.jpg&q=85)
+  
+
+歐洲央行副總裁德金多斯出席一次金融會議時表示，與美國的貿易戰可能會對歐元區的通脹產生短暫影響，但對經濟增長的不利影響會大得多，認為歐洲央行有必要格外小心和謹慎地調整政策。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm)
+
+---
+
 # 國台辦：台艦與福建漁船碰撞無人傷亡　譴責台艦惡劣行徑
 
 ![國台辦表示，今日凌晨，台灣「中和艦」與福建一艘正常作業的漁船發生碰撞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797754_1_20250327231615.jpg&q=90)

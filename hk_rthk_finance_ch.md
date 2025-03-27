@@ -1,3 +1,51 @@
+# 永利澳門去年盈利近32億元　按年增逾1.7倍
+
+![永利澳門去年盈利近32億元，按年增長逾1.7倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797753_1_20250327231556.jpg&q=80)
+  
+
+永利澳門公布，去年盈利近32億元，按年增長逾1.7倍。派末期息每股0.185元，按年升近1.5倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm)
+
+---
+
+# 歐洲央行：與美國貿易戰對經濟增長極不利　須格外小心調整政策
+
+![歐洲央行副總裁德金多斯表示，與美國的貿易戰對經濟增長的不利影響大得多，有必要格外小心和謹慎地調整政策。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797752_1_20250327230701.jpg&q=85)
+  
+
+歐洲央行副總裁德金多斯出席一次金融會議時表示，與美國的貿易戰可能會對歐元區的通脹產生短暫影響，但對經濟增長的不利影響會大得多，認為歐洲央行有必要格外小心和謹慎地調整政策。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm)
+
+---
+
 # 蔚來折讓逾9%配股集資最多40.3億元
 
 ![蔚來計劃配售最多近1.19億股A類普通股股份，集資最多40.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797751_1_20250327225635.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797620-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797620-20250327.htm)
-
----
-
-# 特朗普：關稅將促使更多汽車生產轉移到美國
-
-![特朗普對記者表示，關稅將促使更多汽車生產轉移到美國，為政府創造新的收入協助減少國家債務。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797618_1_20250327091202.jpg&q=90)
-  
-
-美國總統特朗普宣布對進口汽車徵收25%關稅，4月2日起生效，4月3日開始徵收。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797618-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797618-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797618-20250327.htm)
-
----
-
-# 台股初段跌逾1%　失守22000點
-
-![加權指數初段失守22000點水平，較早時報21970點，跌289點，跌幅1.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797617_1_20250327090244.jpg&q=90)
-  
-
-台灣股市偏軟，失守22000點水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797617-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797617-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797617-20250327.htm)
 
 ---

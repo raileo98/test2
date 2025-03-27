@@ -1,3 +1,26 @@
+# 外交部駐港公署強烈不滿英國涉港報告　促立即停止政治操弄
+
+  
+
+外交部駐港公署強烈不滿及堅決反對英國政府再次發布所謂「香港問題半年報告」，指有關內容對香港事務指手畫腳，抹黑香港人權法治，罔顧事實、顛倒黑白，公然踐踏包括「不干涉別國內政」在內的國際法與國際關係基本準則，敦促英方立即停止炮製涉港報告的政治操弄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm)
+
+---
+
 # 國台辦：台艦與福建漁船碰撞無人傷亡　譴責台艦惡劣行徑
 
 ![國台辦表示，今日凌晨，台灣「中和艦」與福建一艘正常作業的漁船發生碰撞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797754_1_20250327231615.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797348-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797348-20250325.htm)
-
----
-
-# 林定國明啓程往北京訪問　向港澳辦匯報主要政策措施進展
-
-![林定國明日上午啓程前往北京，展開為期四日的訪問。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797338_1_20250326104241.jpg&q=85)
-  
-
-律政司司長林定國明日上午啓程前往北京，展開為期四日的訪問，將拜訪國務院港澳辦，匯報律政司主要政策措施的進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797338-20250325.htm)
 
 ---
