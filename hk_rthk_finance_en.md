@@ -1,3 +1,27 @@
+# S Korea braces for tariffs hit on auto sector
+
+![Kia cars await shipment to overseas markets in Pyeongtaek, South Korea. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797671_1_20250327140201.jpg&q=90)
+  
+
+South Korea's auto sector is expected to face "considerable difficulties" when US import tariffs on cars announced by President Donald Trump take effect and the government plans an emergency response by April, the industry minister said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797671-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797671-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797671-20250327.htm)
+
+---
+
 # 'Exporters remain positive despite trade tensions'
 
 ![Irina Fan, director of research at the Trade Development Council, says the impact of US tariffs on Hong Kong is "relatively mild". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797662_1_20250327132129.jpg&q=60)
@@ -1413,29 +1437,5 @@ Wall Street stocks closed sharply lower on Thursday on a fresh wave of tariff th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795654-20250314.htm)
-
----
-
-# Intel hires Malaysian veteran to head reboot
-
-![Tan Lip Bu rejoins Intel as chief executive on Tuesday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795538_1_20250313134923.jpg&q=90)
-  
-
-Struggling chipmaker Intel has hired former board member and semiconductor industry veteran Tan Lip Bu as the latest in a succession of chief executives to attempt to turn around a once-dominant company that helped define Silicon Valley.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795538-20250313.htm)
 
 ---

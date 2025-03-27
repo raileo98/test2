@@ -1,3 +1,26 @@
+# 港鐵第一城站與沙田圍站間信號設備故障　服務一度受阻已恢復正常
+
+  
+
+港鐵表示，屯馬綫第一城站與沙田圍站一度受阻的服務已經恢復正常。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797670-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797670-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797670-20250327.htm)
+
+---
+
 # 分析料本港上半年樓價跌2%至3%　下半年或會回升
 
 ![王兆麒估計，短期市況仍較波動，上半年樓價累計或跌2%至3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797664_1_20250327132952.jpg&q=85)
@@ -70,6 +93,7 @@
 
 # 李家超與糧農組織總幹事會面　共享農業數據為制定政策提供依據
 
+![李家超（左）在海南與聯合國糧食及農業組織總幹事屈冬玉博士（右）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797667_1_20250327140223.jpg&q=90)
   
 
 正在海南的行政長官李家超早上與一同出席博鰲亞洲論壇年會的聯合國糧食及農業組織總幹事屈冬玉會面。
@@ -93,6 +117,7 @@
 
 # 丁薛祥：今年首兩個月中國經濟運行起步平穩
 
+![丁薛祥表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797666_1_20250327140247.jpg&q=80)
   
 
 博鰲亞洲論壇年會舉行開幕式，國務院副總理丁薛祥發表主旨演講，表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
@@ -116,6 +141,7 @@
 
 # 逾200萬劑流感疫苗接種創新高　衞防中心稱有重要保護作用
 
+![梁耀康說，數字反映接種季節性流感疫苗預防重症和死亡的重要保護作用。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797663_1_20250327140313.jpg&q=80)
   
 
 衞生防護中心表示，去年9月開始，多個流感疫苗接種計劃共接種約207萬劑流感疫苗，比上季同期增加22萬6千劑，創下歷史新高。
@@ -235,7 +261,7 @@
 
 # 丁薛祥：擴大國內需求積極穩外貿穩外資　有信心實現發展目標
 
-![丁薛祥表示，去年在困難和挑戰明顯增多的情況下，中國經濟實現了5%增長，增速居於世界主要經濟體的前列。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797641_1_20250327123700.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797641_1_20250327123700.jpg&q=80)
   
 
 國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式致辭表示，今年首兩個月，中國經濟運行起步平穩，有信心實現經濟社會發展目標，為亞洲和世界的發展作出新貢獻。
@@ -1409,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797508-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797508-20250326.htm)
-
----
-
-# 海關拘一名男子涉以新型數碼技術把付費電視頻道內容轉播他人
-
-![海關早前接獲版權擁有人舉報，指有網上用戶自設網站，涉嫌未獲授權下，向公眾傳播多個收費電視頻道節目。（海關直播截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797507_1_20250326161933.jpg&q=90)
-  
-
-海關打擊非法串流發放電視頻道及侵權動畫影片，拘捕一名男子，檢獲約值4萬元的電視解碼器、電視訊號接收設備、懷疑用作非法串流的伺服器及手機等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797507-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797507-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797507-20250326.htm)
 
 ---
