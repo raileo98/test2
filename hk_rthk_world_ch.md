@@ -1,5 +1,29 @@
+# 澤連斯基籲各方制定在烏部署部隊計劃　馮德萊恩強調援烏重要性
+
+  
+
+援助烏克蘭的「志願者聯盟」峰會在巴黎閉幕。出席的烏克蘭總統澤連斯基在會上呼籲各方制定明確在烏克蘭部署部隊的計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797768-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797768-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797768-20250328.htm)
+
+---
+
 # 普京稱俄羅斯密切關注北極地區局勢　不允任何侵犯主權行為
 
+![普京說俄羅斯必須引進新一代破冰船，以進一步加強在北極地區的影響力。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797767_1_20250328025309.jpg&q=90)
   
 
 俄羅斯總統普京說，如果西方國家對北極地區的項目感到興趣，俄羅斯將允許西方國家與俄方開展聯合項目。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797439-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797439-20250326.htm)
-
----
-
-# 《環看天下》：葡、法外長本周訪華　分析：歐洲應與華重啟合作
-
-![王毅與蘭熱爾舉行中葡外長級戰略對話。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797430_2_20250326143520.jpg&q=90)
-  
-
-中共中央政治局委員、外交部長王毅昨日在北京，同葡萄牙外長蘭熱爾，舉行中葡第二次外長級戰略對話。王毅表示，中方願意與葡方共同打造更加穩定、更富成果、更具活力的中葡關係，推動中歐成為相互信賴、彼此成就的戰略伙伴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797430-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797430-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797430-20250326.htm)
 
 ---

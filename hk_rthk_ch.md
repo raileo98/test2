@@ -1,5 +1,29 @@
+# 澤連斯基籲各方制定在烏部署部隊計劃　馮德萊恩強調援烏重要性
+
+  
+
+援助烏克蘭的「志願者聯盟」峰會在巴黎閉幕。出席的烏克蘭總統澤連斯基在會上呼籲各方制定明確在烏克蘭部署部隊的計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797768-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797768-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797768-20250328.htm)
+
+---
+
 # 普京稱俄羅斯密切關注北極地區局勢　不允任何侵犯主權行為
 
+![普京說俄羅斯必須引進新一代破冰船，以進一步加強在北極地區的影響力。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797767_1_20250328025309.jpg&q=90)
   
 
 俄羅斯總統普京說，如果西方國家對北極地區的項目感到興趣，俄羅斯將允許西方國家與俄方開展聯合項目。
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797707-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797707-20250327.htm)
-
----
-
-# 外管局：繼續保持人民幣匯率在合理均衡水平上基本穩定
-
-![李斌稱發達經濟體貨幣政策外溢影響加大，對亞洲經濟體保持經濟平穩運行帶來新挑戰。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797704_1_20250327193119.jpg&q=90)
-  
-
-國家外管局副局長李斌表示，未來將繼續推動外匯領域深層次改革和高水平開放，深入推進區域經貿合作，完善外匯市場宏觀審慎管理，切實防範化解外部衝擊風險，保持人民幣匯率在合理均衡水平上基本穩定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797704-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797704-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797704-20250327.htm)
 
 ---
