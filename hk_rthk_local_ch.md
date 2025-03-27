@@ -1,3 +1,26 @@
+# 回應政府有否就港口交易事件接觸長和　李家超：上次已說過這件事
+
+  
+
+長和計劃出售巴拿馬港口的業務引起爭議。《南華日報》引述消息人士表示，政府在3月4日得知長和宣布將出售予美國貝萊德牽頭的財團之後，已立即與長和接觸，商討「合理的解決方案」。報道亦引述其他消息指，解決方案的選擇有限，因為退出交易可能會造成高昂的成本，並帶來嚴重的政治影響，但交易繼續進行，則會對公司和國家造成損害。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797673-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797673-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797673-20250327.htm)
+
+---
+
 # 港鐵第一城站與沙田圍站間信號設備故障　服務一度受阻已恢復正常
 
 ![港鐵表示，屯馬綫第一城站與沙田圍站一度受阻的服務已經恢復正常。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797670_1_20250327143226.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797510-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797510-20250326.htm)
-
----
-
-# 麥美娟：恆常化關愛隊　調整合約安排18區看齊
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797508_1_20250326162452.jpg&q=90)
-  
-
-民政及青年事務局局長麥美娟說，行政長官在去年《施政報告》宣布恆常化關愛隊配置，因應有關安排，將調整關愛隊合約安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797508-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797508-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797508-20250326.htm)
 
 ---
