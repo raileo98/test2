@@ -1,3 +1,27 @@
+# 嘉華國際去年盈利跌58%　呂耀東即日起出任主席
+
+![嘉華國際去年盈利3.35億元，按年減少58%，核心盈利3.61億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797656_1_20250327124544.jpg&q=90)
+  
+
+嘉華國際去年盈利3.35億元，按年減少58%，核心盈利3.61億元。派末期息每股5港仙，全年派息9港仙，按年均跌約44%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797656-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797656-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797656-20250327.htm)
+
+---
+
 # 蒙牛：行業需求恢復速度較預期慢
 
 ![張平（右二）表示對今年收入表現有信心，預計有低單位數增長。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797657_1_20250327125005.jpg&q=85)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm)
-
----
-
-# 何立峰與美國貿易代表格里爾舉行視像通話
-
-![國務院副總理何立峰與美國貿易代表格里爾舉行視像通話。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797574_1_20250326222954.jpg&q=90)
-  
-
-中美經貿中方牽頭人、國務院副總理何立峰應約與美國貿易代表格里爾舉行視像通話。雙方圍繞落實今年1月17日中美兩國元首通話達成的重要共識，就雙邊經貿領域重要問題坦誠、深入交換意見。中方就美方以芬太尼為由對華加徵關稅、有關301調查以及計劃出台「對等」關稅等表達嚴正關切。雙方認為保持穩定的中美經貿關係符合兩國利益，同意就彼此關心的問題繼續保持溝通。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm)
 
 ---
