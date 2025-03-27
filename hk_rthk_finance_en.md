@@ -22,30 +22,6 @@ Japan's government on Thursday warned of a "significant impact" on its economic 
 
 ---
 
-# Hang Seng opens slightly higher after latest tariffs
-
-![US President Donald Trump has suggested there may be room to cut tariffs on Chinese goods, if a deal can be reached on TikTok. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797635_1_20250327114100.jpg&q=90)
-  
-
-The Hang Seng Index rose 60.54 points, or 0.26 percent, to open at 23,543.86 points on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797635-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797635-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797635-20250327.htm)
-
----
-
 # Hang Seng bucks trend to open up
 
 ![Hang Seng bucks trend to open up](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797633_1_20250327105107.jpg&q=80)
@@ -1437,5 +1413,29 @@ China and the EU vowed on Wednesday to strike back and defend their economic int
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm)
+
+---
+
+# Wall Street regains some ground after inflation report
+
+![The shifts came after the consumer price index came in at a cooler than expected 2.8 percent for February. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795496_1_20250313063349.jpg&q=90)
+  
+
+Wall Street stocks regained some ground Wednesday helped by a rise in tech shares, as easing inflation assuaged some investor jitters about the world's biggest economy even as tariff worries lingered.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm)
 
 ---

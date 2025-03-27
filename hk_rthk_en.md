@@ -46,30 +46,6 @@ France's Arthur Fils upset top-seed Alexander Zverev with an outstanding display
 
 ---
 
-# Hang Seng opens slightly higher after latest tariffs
-
-![US President Donald Trump has suggested there may be room to cut tariffs on Chinese goods, if a deal can be reached on TikTok. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797635_1_20250327114100.jpg&q=90)
-  
-
-The Hang Seng Index rose 60.54 points, or 0.26 percent, to open at 23,543.86 points on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797635-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797635-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797635-20250327.htm)
-
----
-
 # South Korea battles worst ever wildfires
 
 ![The wildfires in South Korea have been moving rapidly eastward, spreading almost to the coast, carried by gusty winds. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_1_20250327105237.jpg&q=80)
@@ -1438,5 +1414,29 @@ The annual Art Central fair is returning to Central Harbourfront from Wednesday 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797322-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797322-20250325.htm)
+
+---
+
+# Red Army Faction fugitive faces trial at last
+
+![Daniela Klette is led away to a helicopter after a detention review hearing in Karlsruhe last March. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797316_1_20250325155616.jpg&q=90)
+  
+
+A former member of Germany's far-left Baader-Meinhof gang who was arrested last year after more than 30 years on the run will face trial on Tuesday for a series of armed robberies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm)
 
 ---

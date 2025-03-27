@@ -1,3 +1,27 @@
+# 特朗普：可能提出降低中國關稅換取中方批准出售TikTok
+
+![特朗普1月上任後簽署行政命令，將針對TikTok「不賣就禁」法例生效的最後期限推遲至4月初。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797647_1_20250327115115.jpg&q=90)
+  
+
+美國總統特朗普宣布向進口汽車徵收25%關稅時說，可能會提出降低對中國的關稅，以獲得中國政府批准出售短片分享程式TikTok。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm)
+
+---
+
 # 丁薛祥：擴大國內需求積極穩外貿穩外資　有信心實現發展目標
 
   
@@ -1403,29 +1427,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797273-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797273-20250325.htm)
-
----
-
-# 新西蘭里弗頓海岸地震　美國地質勘探局指強度為7級
-
-![新西蘭里弗頓海岸地震　美國地質勘探局指強度為7級](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797264_1_20250325104709.jpg&q=90)
-  
-
-新西蘭里弗頓海岸發生地震，美國地質勘探局指強度為黎克特制7級，震源深度為10公里。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797264-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797264-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797264-20250325.htm)
 
 ---

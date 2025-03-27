@@ -1,3 +1,27 @@
+# 特朗普：可能提出降低中國關稅換取中方批准出售TikTok
+
+![特朗普1月上任後簽署行政命令，將針對TikTok「不賣就禁」法例生效的最後期限推遲至4月初。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797647_1_20250327115115.jpg&q=90)
+  
+
+美國總統特朗普宣布向進口汽車徵收25%關稅時說，可能會提出降低對中國的關稅，以獲得中國政府批准出售短片分享程式TikTok。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm)
+
+---
+
 # 內地股市半日止跌回升　上證指數升0.3%
 
 ![內地股市扭轉早段跌勢，上證指數半日收報3379點，升10點，升幅0.31%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797643_1_20250327113620.jpg&q=85)
@@ -24,6 +48,7 @@
 
 # 冬季流感季節完結　衞生署料今年夏季有一半機會出現流感季節
 
+![徐樂堅指出，今年度冬季流感主要流行甲型H1病毒，甲型H3及乙型流感活程度處於低水平，季節性流感與本港流行的流感病毒吻合。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797644_1_20250327115157.jpg&q=80)
   
 
 衞生署宣布，本港今年度冬季流感季節已完結。
@@ -1401,29 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm)
-
----
-
-# 在岸人民幣微升5點子收市　結束5連跌
-
-![在岸人民幣收報7.2635兌1美元，較昨日收市微升5點子，結束5連跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797569_1_20250326212925.jpg&q=80)
-  
-
-在岸人民幣收報7.2635兌1美元，較昨日收市微升5點子，結束5連跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm)
 
 ---
