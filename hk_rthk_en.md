@@ -1,3 +1,27 @@
+# 'HK can act as Beijing's diplomatic super-connector'
+
+![Lam Tai-fai says Hong Kong must fully utilise its advantages and help Beijing rise on the international stage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_1_20250327192921.jpg&q=90)
+  
+
+The chairman of Polytechnic University (PolyU)'s governing council on Thursday said Hong Kong must make use of its super-connector role under One Country, Two Systems to support the nation's diplomatic efforts.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm)
+
+---
+
 # Australian PM says general election is 'imminent'
 
 ![Anthony Albanese, second right, leads party support for Treasurer Jim Chalmers after his fourth federal budget speech in Parliament House, Canberra. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797706_1_20250327172305.jpg&q=90)
@@ -1413,29 +1437,5 @@ The United States reached deals on Tuesday with Ukraine and Russia to pause atta
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm)
-
----
-
-# US stocks make minor gains on tariff hopes
-
-![Tuesday's market gains came despite US consumer confidence falling for a fourth straight month in March. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797399_1_20250326062321.jpg&q=90)
-  
-
-Wall Street stocks mostly closed higher on Tuesday, building on earlier gains amid hopes that US President Donald Trump might take a narrower approach to upcoming tariffs than originally expected.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797399-20250326.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 'HK can act as Beijing's diplomatic super-connector'
+
+![Lam Tai-fai says Hong Kong must fully utilise its advantages and help Beijing rise on the international stage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_1_20250327192921.jpg&q=90)
+  
+
+The chairman of Polytechnic University (PolyU)'s governing council on Thursday said Hong Kong must make use of its super-connector role under One Country, Two Systems to support the nation's diplomatic efforts.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm)
+
+---
+
 # HK to continue leveraging 'its unique position'
 
 ![John Lee meets FAO director-general Qu Dongyu in Hainan. Photo: John Lee's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797694_1_20250327162229.jpg&q=90)
@@ -1419,29 +1443,5 @@ Financial Secretary Paul Chan said on Friday a strategic partnership between the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796829-20250321.htm)
-
----
-
-# Govt to make room for private sector in high-tech park
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796807_2_20250321173255.jpg&q=90)
-  
-
-Chief Executive John Lee said the government will soon offer land for private development in Hong Kong-Shenzhen Innovation and Technology Park, now that the first three buildings in zone's Hong Kong Park have been completed.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm)
 
 ---

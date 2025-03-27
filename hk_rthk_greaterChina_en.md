@@ -1,3 +1,27 @@
+# 'HK can act as Beijing's diplomatic super-connector'
+
+![Lam Tai-fai says Hong Kong must fully utilise its advantages and help Beijing rise on the international stage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_1_20250327192921.jpg&q=90)
+  
+
+The chairman of Polytechnic University (PolyU)'s governing council on Thursday said Hong Kong must make use of its super-connector role under One Country, Two Systems to support the nation's diplomatic efforts.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm)
+
+---
+
 # Beijing warns of 'no winners' over new Trump tariffs
 
 ![BYD cars await loading onto one of the company's roll-on/roll-off export vessels in Suzhou this year. China says US tariffs on foreign-made cars won't help Washington solve its own problems. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797697_1_20250327163138.jpg&q=80)
@@ -1411,29 +1435,5 @@ A local deputy to the National People's Congress has stressed that Hong Kong is 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm)
-
----
-
-# New Canada PM 'should be pragmatic in China policy'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795162_1_20250310215514.jpg&q=90)
-  
-
-China hopes that the incoming government in Canada will adopt a positive and pragmatic approach towards Beijing, Foreign Ministry spokeswoman Mao Ning said on Monday after Mark Carney's victory in the leadership race for Canada's ruling party, paving the way for him to succeed Justin Trudeau as prime minister.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm](https://news.rthk.hk/rthk/en/component/k2/1795162-20250310.htm)
 
 ---

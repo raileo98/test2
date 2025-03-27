@@ -1,3 +1,75 @@
+# 中國人保去年多賺近89%
+
+![中國人保去年盈利421.5億元人民幣，按年急升近89%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797722_1_20250327191025.jpg&q=50)
+  
+
+中國人保去年盈利421.5億元人民幣，按年急升近89%。派末期息每股0.117元人民幣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797722-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797722-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797722-20250327.htm)
+
+---
+
+# 郵儲行去年盈利按年變動不大
+
+![郵儲行去年盈利864.8億元人民幣，按年微升0.24%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797729_1_20250327200354.jpg&q=85)
+  
+
+郵儲行去年盈利864.8億元人民幣，按年微升0.24%。派末期息每股0.1139元人民幣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797729-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797729-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797729-20250327.htm)
+
+---
+
+# 香港科技探索去年轉蝕6670萬元
+
+![香港科技探索稱內地主要電商將推出大型啟動及市場推廣活動，為本地零售商帶來壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797703_1_20250327171309.jpg&q=90)
+  
+
+香港科技探索去年業績盈轉虧，蝕6670萬元，前年同期則賺4532萬元，受新探索及科技業務經營虧損等影響。不派末期息，但派特別息每股0.38元，以慶祝HKTVmall成立十週年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797703-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797703-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797703-20250327.htm)
+
+---
+
 # 港澳辦網站轉載報道指長和出售港口不符商業邏輯
 
 ![中共中央港澳辦、國務院港澳辦轉載報道，內容提及長和計劃出售巴拿馬運河港口等資產。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797725_1_20250327192925.jpg&q=75)
@@ -144,7 +216,8 @@
 
 # 林大輝稱香港需配合國家外交工作　批評美國推行霸權及保護主義
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_1_20250327190150.jpg&q=90)
+![中國前駐捷克及羅馬尼亞大使霍玉珍指中國與中東歐國家應提升合作規模與質量，加強綠色能源、人工智能等新興領域合作。(施華駿攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_2_20250327202547.jpg&q=80)
+![中國前駐格魯吉亞及塔吉克斯坦大使岳斌指出，新時代中俄關係特點是堅持元首外交戰略引領，通過完備的交往機制，建立長期穩定，互利共贏的夥伴關係。(施華駿攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_3_20250327202547.jpg&q=80)
   
 
 理工大學舉辦《新時代中國外交的挑戰與機遇》專題講座，理大校董會主席林大輝致辭時表示，中國和平崛起，透過改革開放發展成為世界第二大經濟體系，在國際舞台上的地位越來越重要。在這個新時代，香港必須充分發揮「一國兩制」的優勢，擔當超級聯繫人的角色，配合國家做好外交工作，服務國家外交大局。
@@ -1362,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797603-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797603-20250327.htm)
-
----
-
-# 金價企穩3000美元　紐約期金低收0.1%
-
-![場持續關注特朗普政府的關稅措施，支持金價仍企穩3000美元以上。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797602_1_20250327061757.jpg&q=90)
-  
-
-美元及美債孳息率上升，不利金價表現，但市場持續關注特朗普政府的關稅措施，支持金價仍企穩3000美元以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797602-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797602-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797602-20250327.htm)
-
----
-
-# 英美期油升近1%或以上　紐約期油曾升穿70美元
-
-![紐約期油一度升穿70美元關口，觸及70.22美元，是逾3星期高位，收報69.65美元，升幅逾0.9%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797598_1_20250327060225.jpg&q=85)
-  
-
-國際油價造好，數據顯示美國上星期原油及燃料油庫存減少，加上美國威脅對購買委內瑞拉石油及天然氣的國家徵收關稅，市場對全球供應趨緊的擔憂加劇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797598-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797598-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797598-20250327.htm)
-
----
-
-# 英股靠穩　德法股市跌約1%或以上
-
-![歐洲股市普遍向下，英國股市靠穩，德法股市跌約1%或以上。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797596_1_20250327055337.jpg&q=90)
-  
-
-歐洲股市普遍向下，英國股市靠穩，富時100指數收報8689點，升25點，升幅0.3%，連升兩日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797596-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797596-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797596-20250327.htm)
 
 ---

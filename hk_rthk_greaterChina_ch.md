@@ -1,3 +1,75 @@
+# 特首政策組與全國港澳研究會合辦全國兩會精神研討會
+
+  
+
+特首政策組與全國港澳研究會聯合主辦全國「兩會」精神與「新時代香港融入國家發展大局」專題研討會，就今年全國兩會的重要內容及對香港未來發展的重要啓示，作深入交流和互動研討。共有近120名來自本地民間智庫、大學智庫、專業機構、商會、特首政策組專家組，以及全國港澳研究會副會長、理事及顧問等不同領域和界別的代表參加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm)
+
+---
+
+# 李強晤法國外長　冀法方為赴法投資中企營造公平發展環境
+
+![國務院總理李強在北京會見法國外長巴羅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797732_1_20250327203707.jpg&q=90)
+  
+
+國務院總理李強在北京會見法國外長巴羅時表示，中法雙方要共同抵制保護主義、單邊主義，繼續本著開放態度加強合作，充分發揮互補優勢，為兩國經濟發展不斷增添動力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm)
+
+---
+
+# 澳門與內地警方聯手破兩個犯罪集團共拘60多人
+
+![澳門司警展示在行動中檢獲的現金、電子設備和賬簿等證物。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797730_1_20250327202004.jpg&q=85)
+![涉案被捕的犯罪集團成員由司警押解往檢察院偵訊。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797730_2_20250327202004.jpg&q=80)
+  
+
+澳門司警與內地警方聯手破獲兩個涉及因賭博非法兌換款項的團伙，共拘捕60多人，在過去五個月涉及的不法兌換金額共7億9000萬港元，相信當中有2100萬港元是不法利潤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm)
+
+---
+
 # 陳子達先後與北京廣州及深圳海關交流並參觀當地設施
 
 ![陳子達（中）參觀北京大興國際機場。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797726_1_20250327193953.jpg&q=90)
@@ -120,7 +192,8 @@
 
 # 林大輝稱香港需配合國家外交工作　批評美國推行霸權及保護主義
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_1_20250327190150.jpg&q=90)
+![中國前駐捷克及羅馬尼亞大使霍玉珍指中國與中東歐國家應提升合作規模與質量，加強綠色能源、人工智能等新興領域合作。(施華駿攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_2_20250327202547.jpg&q=80)
+![中國前駐格魯吉亞及塔吉克斯坦大使岳斌指出，新時代中俄關係特點是堅持元首外交戰略引領，通過完備的交往機制，建立長期穩定，互利共贏的夥伴關係。(施華駿攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_3_20250327202547.jpg&q=80)
   
 
 理工大學舉辦《新時代中國外交的挑戰與機遇》專題講座，理大校董會主席林大輝致辭時表示，中國和平崛起，透過改革開放發展成為世界第二大經濟體系，在國際舞台上的地位越來越重要。在這個新時代，香港必須充分發揮「一國兩制」的優勢，擔當超級聯繫人的角色，配合國家做好外交工作，服務國家外交大局。
@@ -1364,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797321-20250325.htm)
-
----
-
-# 北京：加國執意對部分中國進口商品採取歧視性限制措施違世貿規則
-
-![郭嘉昆說，加拿大執意對部分中國進口商品採取歧視性限制措施，嚴重違反世貿組織規則。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797318_1_20250325162306.jpg&q=90)
-  
-
-對於有報道指，加拿大已在世界貿易組織提出申訴，反對中國對加拿大農產品和漁業產品加徵關稅，在北京，外交部發言人郭嘉昆回應， 加拿大方面不顧中方多次規勸，執意對部分中國進口商品採取歧視性限制措施，嚴重違反世貿組織規則，干擾正常的貿易秩序，嚴重損害了中方的合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797318-20250325.htm)
-
----
-
-# 外交部籲美方停止干涉委內瑞拉內政　廢除對委國的非法單邊制裁
-
-![郭嘉昆表示，中方堅決反對美國長期濫用非法單邊制裁和所謂「長臂管轄」，粗暴干涉其他國家內政。（外交部）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797314_1_20250325162332.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，中方堅決反對美國長期濫用非法單邊制裁和所謂「長臂管轄」，粗暴干涉其他國家內政。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797314-20250325.htm)
-
----
-
-# 李家超抵達海南海口準備出席博鰲論壇　下午致辭分享香港發展機遇
-
-![李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797294_1_20250325131305.jpg&q=90)
-  
-
-行政長官李家超抵達海南海口，準備出席博鰲亞洲論壇2025年年會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797294-20250325.htm)
 
 ---

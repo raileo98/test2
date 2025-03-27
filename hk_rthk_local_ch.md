@@ -1,3 +1,95 @@
+# 高拔陞稱普通科門診夜診服務需視乎實際需要每區各有不同
+
+  
+
+醫管局現時全港74間普通科門診，少於三分一提供夜診，診症時間最遲至晚上10時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797735-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797735-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797735-20250327.htm)
+
+---
+
+# 特首政策組與全國港澳研究會合辦全國兩會精神研討會
+
+  
+
+特首政策組與全國港澳研究會聯合主辦全國「兩會」精神與「新時代香港融入國家發展大局」專題研討會，就今年全國兩會的重要內容及對香港未來發展的重要啓示，作深入交流和互動研討。共有近120名來自本地民間智庫、大學智庫、專業機構、商會、特首政策組專家組，以及全國港澳研究會副會長、理事及顧問等不同領域和界別的代表參加。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm)
+
+---
+
+# 各決策局過去一年提出逾三十項與青年相關新措施
+
+  
+
+政務司司長陳國基主持青年發展委員會第18次會議。他表示，政府在過去兩年持續落實並動態更新《青年發展藍圖》內的措施，以行動印證政府對長期推動青年發展工作的重視和決心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797733-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797733-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797733-20250327.htm)
+
+---
+
+# 啟德體育園引進大型廢物分解系統將於國際七人欖球賽期間運作
+
+  
+
+啟德體育園引進首台大型廢物分解系統，經試驗後，將在今屆香港國際七人欖球賽期間正式投入運作，以處理活動期間收集的廚餘及紙類廢物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797731-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797731-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797731-20250327.htm)
+
+---
+
 # 陳子達先後與北京廣州及深圳海關交流並參觀當地設施
 
 ![陳子達（中）參觀北京大興國際機場。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797726_1_20250327193953.jpg&q=90)
@@ -240,7 +332,8 @@
 
 # 林大輝稱香港需配合國家外交工作　批評美國推行霸權及保護主義
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_1_20250327190150.jpg&q=90)
+![中國前駐捷克及羅馬尼亞大使霍玉珍指中國與中東歐國家應提升合作規模與質量，加強綠色能源、人工智能等新興領域合作。(施華駿攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_2_20250327202547.jpg&q=80)
+![中國前駐格魯吉亞及塔吉克斯坦大使岳斌指出，新時代中俄關係特點是堅持元首外交戰略引領，通過完備的交往機制，建立長期穩定，互利共贏的夥伴關係。(施華駿攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_3_20250327202547.jpg&q=80)
   
 
 理工大學舉辦《新時代中國外交的挑戰與機遇》專題講座，理大校董會主席林大輝致辭時表示，中國和平崛起，透過改革開放發展成為世界第二大經濟體系，在國際舞台上的地位越來越重要。在這個新時代，香港必須充分發揮「一國兩制」的優勢，擔當超級聯繫人的角色，配合國家做好外交工作，服務國家外交大局。
@@ -1340,102 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm)
-
----
-
-# 「裕澤香江」高峰論壇完成　陳茂波：香港成為家辦落戶理想地
-
-![陳茂波稱香港正大力推動創科發展，讓香港成為家辦落戶和實踐願景理想地。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797548_1_20250326191440.jpg&q=90)
-![許正宇認為家辦可善用香港獨特生態圈創造可持續影響力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797548_2_20250326192825.jpg&q=90)
-  
-
-「裕澤香江」高峰論壇圓滿完成。匯聚約360位在全球各地具影響力的家族辦公室決策人、領導者和業界，展示香港在創新、投資和跨文化合作方面的蓬勃發展，以及作為東西方橋樑的優勢。出席講者包括阿里巴巴主席蔡崇信、香港財富傳承學院主席鄭志剛、施華洛世奇副主席Robert Buchbauer等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm)
-
----
-
-# 港澳辦轉載報道引述各界提醒營商不顧國家利益終會自毀基石
-
-![港澳辦轉載《大公報》報道引述各界提醒，營商不顧國家利益，終究會自毀基石。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797551_1_20250326192832.jpg&q=75)
-  
-
-中共中央港澳辦公室、國務院港澳辦轉載《大公報》報道指，長和擬出售巴拿馬港口一事繼續熱議，社會各界人士提醒營商不顧國家利益，終究會自毀基石。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797551-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797551-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797551-20250326.htm)
-
----
-
-# 一名工程分判商時任「工頭」因受賄判囚18星期
-
-![兩名被告在西九龍裁判法院分別被判入獄18星期及社會服務令180小時。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797549_1_20250326191654.jpg&q=90)
-  
-
-廉政公署早前落案起訴一名工程分判商時任「工頭」及一名時任建築工人，他們在疫情期間興建一個大嶼山社區隔離設施時，涉嫌向四名經其介紹入職的釘板工人索取及收受賄款共約98000元。兩名被告今日在西九龍裁判法院分別被判入獄18星期及社會服務令180小時。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797549-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797549-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797549-20250326.htm)
-
----
-
-# 醫療費用減免機制優化　二人家庭資產低於38.7萬可獲減免
-
-![醫管局優化醫療費用減免機制，放寬收入和資產限額。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797547_1_20250326194156.jpg&q=80)
-  
-
-醫管局優化醫療費用減免機制，放寬收入和資產限額。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797547-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797547-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797547-20250326.htm)
 
 ---

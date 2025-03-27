@@ -1,3 +1,27 @@
+# 李強晤法國外長　冀法方為赴法投資中企營造公平發展環境
+
+![國務院總理李強在北京會見法國外長巴羅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797732_1_20250327203707.jpg&q=90)
+  
+
+國務院總理李強在北京會見法國外長巴羅時表示，中法雙方要共同抵制保護主義、單邊主義，繼續本著開放態度加強合作，充分發揮互補優勢，為兩國經濟發展不斷增添動力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm)
+
+---
+
 # 港澳辦網站轉載報道指長和出售港口不符商業邏輯
 
 ![中共中央港澳辦、國務院港澳辦轉載報道，內容提及長和計劃出售巴拿馬運河港口等資產。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797725_1_20250327192925.jpg&q=75)
@@ -48,7 +72,8 @@
 
 # 林大輝稱香港需配合國家外交工作　批評美國推行霸權及保護主義
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_1_20250327190150.jpg&q=90)
+![中國前駐捷克及羅馬尼亞大使霍玉珍指中國與中東歐國家應提升合作規模與質量，加強綠色能源、人工智能等新興領域合作。(施華駿攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_2_20250327202547.jpg&q=80)
+![中國前駐格魯吉亞及塔吉克斯坦大使岳斌指出，新時代中俄關係特點是堅持元首外交戰略引領，通過完備的交往機制，建立長期穩定，互利共贏的夥伴關係。(施華駿攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_3_20250327202547.jpg&q=80)
   
 
 理工大學舉辦《新時代中國外交的挑戰與機遇》專題講座，理大校董會主席林大輝致辭時表示，中國和平崛起，透過改革開放發展成為世界第二大經濟體系，在國際舞台上的地位越來越重要。在這個新時代，香港必須充分發揮「一國兩制」的優勢，擔當超級聯繫人的角色，配合國家做好外交工作，服務國家外交大局。
@@ -1411,31 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797378-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797378-20250325.htm)
-
----
-
-# 海南省加緊推進自由貿易港核心政策　確保今年底如期落實相關運作
-
-![劉小明說，海南自由貿易港與世界各地貿易投資自由便利程度將進一步提升。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_1_20250325214113.jpg&q=90)
-![周小川說，海南可以利用獨特優勢，大力發展高端服務業。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_2_20250325214113.jpg&q=90)
-![潘基文指出，自由貿易港有力證明貿易和開放將如何增進增長及可持續。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_3_20250325214113.jpg&q=90)
-  
-
-海南省省長劉小明說，正加緊落實封關運作方案，加緊推進自由貿易港核心政策落地，做好各項準備工作，確保今年底如期順利實現封關運作。封關運作後，海南自由貿易港與世界各地貿易投資自由便利程度將進一步提升，與中國內地超大規模市場的聯繫也將更加緊密。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm)
 
 ---
