@@ -1,3 +1,27 @@
+# 美股兩連跌　道指低收155點　汽車股大多下挫
+
+![美股反覆向下，連跌兩日，汽車股沽壓較大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797773_1_20250328054035.jpg&q=90)
+  
+
+美股反覆向下，連跌兩日。美國去年第4季經濟按季增長年率向上修訂至2.4%，企業盈利創新高，但市場憂慮關稅措施令經濟前景不確定，對企業造成挑戰。市場亦正評估美國總統特朗普宣布對進口汽車徵收25%關稅措施，並為即將公布的對等關稅做準備。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797773-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797773-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797773-20250328.htm)
+
+---
+
 # 埃及旅遊潛艇事故釀6名俄羅斯遊客死亡　當局調查事故原因
 
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm)
-
----
-
-# 衞生防護中心指今年有一半機會出現夏季流感季節
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797705_1_20250327180741.jpg&q=90)
-  
-
-衞生防護中心表示，最近呼吸道樣本的季節性流感病毒陽性比例，以及公立醫院入院率已低於基線水平，另外學校及院舍流感爆發宗數亦回落，宣布本港今年度冬季流感季節結束。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797705-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797705-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797705-20250327.htm)
 
 ---

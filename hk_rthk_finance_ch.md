@@ -1,3 +1,27 @@
+# 美股兩連跌　道指低收155點　汽車股大多下挫
+
+![美股反覆向下，連跌兩日，汽車股沽壓較大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797773_1_20250328054035.jpg&q=90)
+  
+
+美股反覆向下，連跌兩日。美國去年第4季經濟按季增長年率向上修訂至2.4%，企業盈利創新高，但市場憂慮關稅措施令經濟前景不確定，對企業造成挑戰。市場亦正評估美國總統特朗普宣布對進口汽車徵收25%關稅措施，並為即將公布的對等關稅做準備。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797773-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797773-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797773-20250328.htm)
+
+---
+
 # 永利澳門去年盈利近32億元　按年增逾1.7倍
 
 ![永利澳門去年盈利近32億元，按年增長逾1.7倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797753_1_20250327231556.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797621-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797621-20250327.htm)
-
----
-
-# 人民幣兌美元中間價跌9點子
-
-![人民幣中間價報7.1763兌1美元，較昨日中間價跌9點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797620_1_20250327091857.jpg&q=70)
-  
-
-人民幣中間價報7.1763兌1美元，較昨日中間價跌9點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797620-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797620-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797620-20250327.htm)
 
 ---
