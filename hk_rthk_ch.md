@@ -1,3 +1,27 @@
+# 九龍城警區打擊違規學習駕駛發出12張定額罰款通知書及2張傳票
+
+![警方打擊違規學習駕駛的導師和學習駕駛者。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797748_1_20250327224449.jpg&q=85)
+  
+
+九龍城警區聯同相關部門在區內展開行動，打擊與「違規學習駕駛」相關的違法行為，過去一周，共發出12張定額罰款通知書及2張傳票，票控違規學習駕駛的導師和學習駕駛者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797748-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797748-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797748-20250327.htm)
+
+---
+
 # 范鴻齡：醫管局未來一年有連串措施提高效率並加強節流
 
   
