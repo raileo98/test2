@@ -1,5 +1,52 @@
+# 黃大仙天主教博智小學將與教區屬校合併　博智學生下學年原校上學
+
+  
+
+2025/26學年被「派0班」的黃大仙的天主教博智小學，天主教教育事務處表示，學校將會與教區屬校合併，兩校會以2025/26年度進行籌備，博智的同學下學年仍會於原校繼續上學。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797698-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797698-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797698-20250327.htm)
+
+---
+
+# 3名旅客共被檢獲11萬支未完稅香煙　被判囚3至4個月兼罰款
+
+  
+
+3名旅客昨日在機場入境時，分別被海關搜出藏有未完稅香煙，今日在西九龍裁判法院分別被判囚3個月至4個月，罰款500至1000元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797695-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797695-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797695-20250327.htm)
+
+---
+
 # 乳癌患者住私院最初只獲賠12天費用　保險投訴局終裁定賠一個月
 
+![李紫蘭說，雖然投訴增加，但佔保單比例是有所減少。（陳菀禧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797693_1_20250327163429.jpg&q=80)
   
 
 保險投訴局去年共接獲646宗投訴個案，按年上升約5%。當中住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。投訴類别方面，保單條款的詮釋佔最多，有54%，不保事項及沒有披露事實分别佔16.5%及15.5%。
@@ -23,6 +70,7 @@
 
 # 張宇人指修正案騎劫故不動議檢視小班教學原議案　朱國強稱不合理
 
+![張宇人在會上以議案被教育界議員朱國強提出的修正案「騎劫」為由，決定不作動議。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797690_1_20250327162424.jpg&q=90)
   
 
 立法會今早續會，根據議程將辯論自由黨張宇人提出，「檢視中小學以小班模式教學的成效」的無約束力議員議案，但張宇人在會上以議案被教育界議員朱國強提出的修正案「騎劫」為由，決定不作動議。
@@ -70,6 +118,7 @@
 
 # 演練模擬多區樓宇坍塌　粵政府派60名隊員13輛消防車來港支援
 
+![香港消防處聯同廣東省消防救援總隊及澳門消防局，舉辦48小時粵港澳大灣區應急救援聯合演練。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797687_1_20250327162347.jpg&q=70)
   
 
 香港消防處聯同廣東省消防救援總隊及澳門消防局，舉辦48小時粵港澳大灣區應急救援聯合演練，測試《粵港澳大灣區應急救援行動方案》下應急動員協調機制的實施成效。
@@ -93,6 +142,7 @@
 
 # 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
 
+![李家超表示，丁薛祥發表主旨演講，就共創亞洲和世界更加美好的未來提出「四點建議」，及就國家經濟走勢提出「三點看法」。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797684_1_20250327162313.jpg&q=90)
   
 
 行政長官李家超說，「一國兩制」下，香港是全球唯一同時享有中國優勢及國際優勢的開放經濟體。面對地緣政治變化、保護主義和單邊主義冒起，香港始終倡導自由貿易及多邊主義，致力於增強應對挑戰的應變能力，亦是外國企業進軍內地以及內地企業「走出去」的最佳平台。在國家支持下，香港會進一步深化國際交往合作，並與國家及亞洲各國一道增進互信團結、開放融通、互利共贏、和平共處，促進亞洲經濟發展，推動全球經濟一體化。
@@ -1386,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797529-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797529-20250326.htm)
-
----
-
-# 醫管局：費用減免機制最長有效期將由12個月延長至18個月
-
-![醫管局將擴闊65歲以下人士的有限期醫療費用減免涵蓋範圍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797527_1_20250326185220.jpg&q=80)
-  
-
-公營醫療體系改革方案提出放寬費用減免的入息及資產資格。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797527-20250326.htm)
-
----
-
-# 大灣區救援演練模擬鯉魚門500名居民被洪水圍困　三地人員救援
-
-![演練模擬出現水浸，村內有500名居民被洪水圍困，要緊急撤離。（任浩鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797523_1_20250326183503.jpg&q=75)
-  
-
-本港消防處聯同廣東省消防救援總隊和澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。下午的演練，模擬鯉魚門沿海低窪地區因風災而出現水浸，並正值超級天文大潮，村內有500名居民被洪水圍困，要緊急撤離。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797523-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797523-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797523-20250326.htm)
 
 ---
