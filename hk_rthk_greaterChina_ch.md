@@ -1,3 +1,26 @@
+# 王毅：中法建交精神對中歐和世界都有現實借鑒意義
+
+  
+
+中共中央政治局委員、外長王毅在同法國外長巴羅共同會見記者時，闡述雙方達成的共識。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm)
+
+---
+
 # 丁薛祥：今年經濟運行起步平穩　努力完成全年經濟社會發展目標
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797263-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797263-20250325.htm)
-
----
-
-# 博鰲亞洲論壇報告料今年亞洲加權實際國內生產總值增長率4.5%
-
-![報告指，雖然世界經濟增長不確定性增大，但亞洲仍將成為世界經濟的主要引擎。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797259_1_20250325100833.jpg&q=90)
-  
-
-博鰲亞洲論壇發表亞洲經濟前景及一體化進程年度報告提及，當前全球經濟保持中低速增長，面臨貿易戰、地緣政治局勢複雜多變、持續通脹及主要經濟體增長放緩等重大風險挑戰。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm)
 
 ---

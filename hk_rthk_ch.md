@@ -1,5 +1,52 @@
+# 王毅：中法建交精神對中歐和世界都有現實借鑒意義
+
+  
+
+中共中央政治局委員、外長王毅在同法國外長巴羅共同會見記者時，闡述雙方達成的共識。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm)
+
+---
+
+# 7歲或以上香港永久居民下周一起持智能身份證可使用e-道
+
+  
+
+入境處公布，將於下星期一起，調整持有智能身份證的香港永久性居民使用e-道服務的合資格年齡至7歲或以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797714-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797714-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797714-20250327.htm)
+
+---
+
 # 數字辦將統籌推行全新計劃支援中小企應對網絡安全風險
 
+![數字政策辦公室舉行2025年網絡安全推廣計劃簡介會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797713_1_20250327184625.jpg&q=90)
   
 
 數字政策辦公室舉行2025年網絡安全推廣計劃簡介會，數字政策專員黃志光說，數字辦今年除了繼續與警方網罪科、香港互聯網註冊管理有限公司及香港網絡安全事故協調中心及不同持份者合作，為本地企業提供資訊保安事故應變支援、保安威脅警報、防禦指引和保安教育，以及繼續加強香港網絡安全攻防演練外，數字辦亦會統籌推行全新的計劃網絡防禦一站通及網絡安全供應商聯動計劃，進一步提高中小企對資訊保安的認知及支援業界應對網絡安全風險。
@@ -23,6 +70,7 @@
 
 # 保險投訴局去年接獲投訴個案按年升約5%
 
+![保險投訴局去年共接獲646宗投訴個案，按年升約5%。（陳菀禧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797712_1_20250327184555.jpg&q=90)
   
 
 保險投訴局去年共接獲646宗投訴個案，按年升約5%。在已審結的300多宗投訴個案中，住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。
@@ -69,6 +117,7 @@
 
 # 范鴻齡稱醫管局醫生及護士去年流失率收窄分別為5%及7.2%
 
+![范鴻齡稱，醫管局醫生及護士去年流失率收窄至分別為5%及7.2%。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797710_1_20250327184522.jpg&q=80)
   
   
 
