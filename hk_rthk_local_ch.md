@@ -1,3 +1,27 @@
+# 港澳辦網站轉載報道指長和出售港口不符商業邏輯
+
+![中共中央港澳辦、國務院港澳辦轉載報道，內容提及長和計劃出售巴拿馬運河港口等資產。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797725_1_20250327192925.jpg&q=75)
+  
+
+中共中央港澳辦、國務院港澳辦在網站轉載大公文匯報報道，標題為《急售運河港口予美資 專家質疑「非一般買賣」 「企業面對霸權霸凌，應與國家站在一起」》，內容提及長和計劃出售巴拿馬運河港口等資產。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm)
+
+---
+
 # 天文台：市區氣溫明日稍後由最高約29度顯著降至周六約17度
 
 ![天文台：市區氣溫明日稍後由最高約29度顯著降至周六約17度](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797723_1_20250327191207.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797545-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797545-20250326.htm)
-
----
-
-# 信保局法定最高彌償百分率由90%提升至95%
-
-![信保局法定最高彌償百分率提升至95%，有助為香港出口商，特別是中小企提供更全面保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797532_1_20250326180336.jpg&q=90)
-  
-
-香港出口信用保險局宣布，將信保局法定最高彌償百分率由90%提升至95%的立法會決議已獲通過，有助信保局為香港出口商，特別是中小企提供更全面保障，加強企業國際貿易競爭力，更好把握海外及內地市場龐大商機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797532-20250326.htm)
 
 ---

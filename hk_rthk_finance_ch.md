@@ -1,3 +1,27 @@
+# 港澳辦網站轉載報道指長和出售港口不符商業邏輯
+
+![中共中央港澳辦、國務院港澳辦轉載報道，內容提及長和計劃出售巴拿馬運河港口等資產。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797725_1_20250327192925.jpg&q=75)
+  
+
+中共中央港澳辦、國務院港澳辦在網站轉載大公文匯報報道，標題為《急售運河港口予美資 專家質疑「非一般買賣」 「企業面對霸權霸凌，應與國家站在一起」》，內容提及長和計劃出售巴拿馬運河港口等資產。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm)
+
+---
+
 # 在岸人民幣低收20點子
 
 ![在岸人民幣收市報7.2655兌1美元，較昨日收市跌20點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797716_1_20250327184509.jpg&q=80)
@@ -144,6 +168,7 @@
 
 # 祁斌：香港資本市場是帶動解決財政、房地產等問題重要抓手
 
+![祁斌又認為，要優化內地與香港金融監管協調機制，促進港股和A股市場良性互動及協同成長。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797707_1_20250327192801.jpg&q=90)
   
 
 中聯辦副主任祁斌表示，近期香港經濟社會發展良好，認為要搞好香港金融，關鍵要把資本市場發展好；香港資本市場不但對鞏固提升香港國際金融中心地位至關重要，亦是帶動解決消費、財政、房地產等各方面問題、推動香港由治及興重要抓手。
@@ -165,11 +190,12 @@
 
 ---
 
-# 外管局：繼續保持人民匯率在合理均衡水準上基本穩定
+# 外管局：繼續保持人民幣匯率在合理均衡水平上基本穩定
 
+![李斌稱發達經濟體貨幣政策外溢影響加大，對亞洲經濟體保持經濟平穩運行帶來新挑戰。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797704_1_20250327193119.jpg&q=90)
   
 
-國家外管局副局長李斌表示，未來將繼續推動外匯領域深層次改革和高水準開放，深入推進區域經貿合作，完善外匯市場宏觀審慎管理，切實防範化解外部衝擊風險，保持人民匯率在合理均衡水準上基本穩定。
+國家外管局副局長李斌表示，未來將繼續推動外匯領域深層次改革和高水平開放，深入推進區域經貿合作，完善外匯市場宏觀審慎管理，切實防範化解外部衝擊風險，保持人民幣匯率在合理均衡水平上基本穩定。
 
   
 
@@ -1408,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm)
-
----
-
-# 美股低收　納指挫2%　美國對進口汽車徵收25%關稅
-
-![美國對進口汽車徵收25%關稅，汽車股在美股收市後交易時段持續偏軟。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797595_1_20250327054824.jpg&q=90)
-  
-
-美股轉跌，結束3日升勢，投資者憂慮全球貿易戰升溫，汽車價格及生產受關稅影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797595-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797595-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797595-20250327.htm)
 
 ---
