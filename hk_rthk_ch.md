@@ -1,3 +1,51 @@
+# 李寧料內地今年居民消費增長潛力較大
+
+![李寧預期，在政策有力支持下，內地今年居民消費將有較大增長潛力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797787_1_20250328074822.jpg&q=85)
+  
+
+李寧表示，去年整體零售流水按年持平，線下新品零售流水在線下整體流水佔比85%，保持健康合理。公司指，渠道庫存有高單位數升幅，庫存周轉與庫齡結構保持健康水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797787-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797787-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797787-20250328.htm)
+
+---
+
+# 李寧去年盈利跌5.5%　全年派息比率升至50%
+
+![李寧去年盈利30.1億元人民幣，按年跌5.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797786_1_20250328074305.jpg&q=80)
+  
+
+李寧去年盈利30.1億元人民幣，按年跌5.5%。若扣除經營無關的一次性收益，盈利為30.5億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797786-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797786-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797786-20250328.htm)
+
+---
+
 # 澳洲總理阿爾巴內塞宣佈5月3日舉行聯邦議會選舉
 
 ![阿爾巴內塞宣佈，將於今年5月3日舉行聯邦議會選舉。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797784_1_20250328073351.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797716-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797716-20250327.htm)
-
----
-
-# 丘應樺稱政府致力建設香港成為區域知識產權貿易中心
-
-![丘應樺（左）拜會外交部港澳台司副司長冉波（右），介紹香港經貿的最新發展。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797721_1_20250327191021.jpg&q=45)
-  
-
-商務及經濟發展局局長丘應樺在北京展開訪問行程。他上午首先拜訪國家知識產權局，與副局長張志成會面，並表示，特區政府一直致力保護知識產權及推動知識產權貿易，建設香港成為區域知識產權貿易中心，協助推動新質生產力，尤其是促進大灣區創新科技及創意產業的進一步發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm)
-
----
-
-# 范鴻齡稱積極研究減少前線行政讓醫護多做臨床工作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797720_1_20250327193911.jpg&q=80)
-  
-
-醫管局下午舉行大會，主席范鴻齡會後表示，今年內會推出一系列措施，為自身進行改革，以提升服務效率，增加生產力。他表示，醫管局現時每年使用一千億元公帑，當中65%屬員工薪酬，這部分不能縮減，能夠做的是將生產力提高，若最終能節省0.1%，已是1億元，可以聘請到100名醫生，而最無痛苦的節流方法，就是減少浪費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797720-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797720-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797720-20250327.htm)
 
 ---

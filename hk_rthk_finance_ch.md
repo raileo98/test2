@@ -1,3 +1,51 @@
+# 李寧料內地今年居民消費增長潛力較大
+
+![李寧預期，在政策有力支持下，內地今年居民消費將有較大增長潛力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797787_1_20250328074822.jpg&q=85)
+  
+
+李寧表示，去年整體零售流水按年持平，線下新品零售流水在線下整體流水佔比85%，保持健康合理。公司指，渠道庫存有高單位數升幅，庫存周轉與庫齡結構保持健康水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797787-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797787-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797787-20250328.htm)
+
+---
+
+# 李寧去年盈利跌5.5%　全年派息比率升至50%
+
+![李寧去年盈利30.1億元人民幣，按年跌5.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797786_1_20250328074305.jpg&q=80)
+  
+
+李寧去年盈利30.1億元人民幣，按年跌5.5%。若扣除經營無關的一次性收益，盈利為30.5億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797786-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797786-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797786-20250328.htm)
+
+---
+
 # 美國10年期債息觸及4.4厘　創逾1個月新高
 
 ![美國10年期債息觸及4.4厘，創逾1個月新高，升6.2個基點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797783_1_20250328071200.jpg&q=85)
@@ -1388,52 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm)
-
----
-
-# 朱民：中國經濟改革要轉向消費　成為經濟主要動力
-
-  
-
-中國國際經濟交流中心副理事長、國際貨幣基金組織前副總裁朱民表示，2018年美國向中國加徵關稅，市場信心受挫，但其後企業開始出海，認為中國整體應對得不錯，當年中國對美國出口額約5000億美元，現時仍可保持相若水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm)
-
----
-
-# 日股半日跌約1%
-
-![日經指數半日跌353點，報37674點，跌幅0.93%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797632_1_20250327104659.jpg&q=90)
-  
-
-東京股市下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797632-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797632-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797632-20250327.htm)
 
 ---
