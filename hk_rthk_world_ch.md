@@ -1,3 +1,50 @@
+# 何立峰晤歐方經貿官員　稱中方願共同抵制單邊主義及保護主義
+
+  
+
+中共中央政治局委員、國務院副總理何立峰，昨晚在釣魚台國賓館會見歐盟委員會貿易和經濟安全委員謝夫喬維奇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm)
+
+---
+
+# 美國衞生與公共服務部宣布重組　總體削減四分之一人手
+
+![衞生與公共服務部外早前有集會，反對政府大規模裁減聯邦僱員。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797762_1_20250328012305.jpg&q=90)
+  
+
+美國衞生與公共服務部宣布將進行機構重組，裁減約一萬名全職員工，加上提前退休及政府買斷合約計劃的人員，該部門全職員工數量將從8萬2千人減至6萬2千人，相當於總體削減四分之一人手。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797762-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797762-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797762-20250328.htm)
+
+---
+
 # 援烏峰會於巴黎舉行　馬克龍稱法英將派人赴烏克蘭商烏軍建設事宜
 
 ![馬克龍表示31個國家的代表及北約、歐盟領導人出席今次峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797761_1_20250328011623.jpg&q=90)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797403-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797403-20250326.htm)
-
----
-
-# 澤連斯基：莫斯科已試圖扭曲黑海航運及能源設施停火協議
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797393_1_20250326042026.jpg&q=90)
-  
-
-美國白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全，並禁止俄烏兩國互相攻擊對方的能源設施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797393-20250326.htm)
-
----
-
-# 克宮稱俄美同意確保落實黑海倡議　將於撤銷部分對俄制裁後生效
-
-![克里姆林宮表示，俄美雙方同意確保黑海航行安全、不使用武力、防止把商船用於軍事目的。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797389_1_20250326032145.jpg&q=85)
-  
-
-美國白宮表示，已分別與俄羅斯及烏克蘭達成協議，以確保黑海航行安全，並禁止俄烏兩國互相攻擊對方的能源設施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797389-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797389-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797389-20250326.htm)
 
 ---

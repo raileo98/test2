@@ -1,3 +1,50 @@
+# 何立峰晤歐方經貿官員　稱中方願共同抵制單邊主義及保護主義
+
+  
+
+中共中央政治局委員、國務院副總理何立峰，昨晚在釣魚台國賓館會見歐盟委員會貿易和經濟安全委員謝夫喬維奇。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm)
+
+---
+
+# 美國衞生與公共服務部宣布重組　總體削減四分之一人手
+
+![衞生與公共服務部外早前有集會，反對政府大規模裁減聯邦僱員。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797762_1_20250328012305.jpg&q=90)
+  
+
+美國衞生與公共服務部宣布將進行機構重組，裁減約一萬名全職員工，加上提前退休及政府買斷合約計劃的人員，該部門全職員工數量將從8萬2千人減至6萬2千人，相當於總體削減四分之一人手。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797762-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797762-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797762-20250328.htm)
+
+---
+
 # 援烏峰會於巴黎舉行　馬克龍稱法英將派人赴烏克蘭商烏軍建設事宜
 
 ![馬克龍表示31個國家的代表及北約、歐盟領導人出席今次峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797761_1_20250328011623.jpg&q=90)
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm)
-
----
-
-# 黃大仙天主教博智小學將與教區屬校合併　博智學生下學年原校上學
-
-![博智的同學下學年仍會於原校繼續上學。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797698_1_20250327164920.jpg&q=75)
-  
-
-2025/26學年被「派0班」的黃大仙的天主教博智小學，天主教教育事務處表示，學校將會與教區屬校合併，兩校會以2025/26年度進行籌備，博智的同學下學年仍會於原校繼續上學。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797698-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797698-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797698-20250327.htm)
-
----
-
-# 3名旅客共被檢獲11萬支未完稅香煙　被判囚3至4個月兼罰款
-
-![海關共檢獲超過11萬支未完稅香煙，市值48萬多元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797695_1_20250327164954.jpg&q=90)
-  
-
-3名旅客昨日在機場入境時，分別被海關搜出藏有未完稅香煙，今日在西九龍裁判法院分別被判囚3個月至4個月，罰款500至1000元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797695-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797695-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797695-20250327.htm)
 
 ---
