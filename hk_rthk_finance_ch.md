@@ -1,3 +1,27 @@
+# 內地股市半日止跌回升　上證指數升0.3%
+
+![內地股市扭轉早段跌勢，上證指數半日收報3379點，升10點，升幅0.31%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797643_1_20250327113620.jpg&q=85)
+  
+
+內地股市扭轉早段跌勢，化學原料、光刻機、醫藥股造好，海工裝備、電力股向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797643-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797643-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797643-20250327.htm)
+
+---
+
 # 內地首兩個月工業企業利潤按年跌0.3%
 
 ![內地今年首兩個月工業企業利潤按年跌0.3%，跌幅較去年全年收窄3個百分點。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797636_1_20250327105906.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797481-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797481-20250326.htm)
-
----
-
-# 台股收市偏軟
-
-![台灣加權指數收市報22260點，跌12點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797479_1_20250326135623.jpg&q=90)
-  
-
-台灣股市偏軟，加權指數收市報22260點，跌12點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797479-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797479-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797479-20250326.htm)
 
 ---

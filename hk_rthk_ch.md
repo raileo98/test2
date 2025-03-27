@@ -1,3 +1,27 @@
+# 內地股市半日止跌回升　上證指數升0.3%
+
+![內地股市扭轉早段跌勢，上證指數半日收報3379點，升10點，升幅0.31%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797643_1_20250327113620.jpg&q=85)
+  
+
+內地股市扭轉早段跌勢，化學原料、光刻機、醫藥股造好，海工裝備、電力股向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797643-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797643-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797643-20250327.htm)
+
+---
+
 # 冬季流感季節完結　衞生署料今年夏季有一半機會出現流感季節
 
   
@@ -1401,29 +1425,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797569-20250326.htm)
-
----
-
-# 歐盟發布應急戰略應對新興威脅　包括鼓勵公眾儲72小時避難物資
-
-![馮德萊恩在公告中說，新的現實情況要求歐洲達到新的應急準備水平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797568_1_20250326212752.jpg&q=90)
-  
-
-歐盟委員會發布「應急準備歐盟戰略」，內容包括鼓勵公眾在緊急情況下，保持至少72小時的基本物資儲備，以及制定醫院、學校、交通和電信等關鍵服務的最低「應急準備」標準，目的是支持歐盟成員國，並增強歐洲預防和應對新興威脅的能力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm)
 
 ---

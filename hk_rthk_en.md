@@ -1,3 +1,27 @@
+# Hang Seng opens slightly higher after latest tariffs
+
+![US President Donald Trump has suggested there may be room to cut tariffs on Chinese goods, if a deal can be reached on TikTok. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797635_1_20250327114100.jpg&q=90)
+  
+
+The Hang Seng Index rose 60.54 points, or 0.26 percent, to open at 23,543.86 points on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797635-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797635-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797635-20250327.htm)
+
+---
+
 # South Korea battles worst ever wildfires
 
 ![The wildfires in South Korea have been moving rapidly eastward, spreading almost to the coast, carried by gusty winds. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_1_20250327105237.jpg&q=80)
@@ -1414,29 +1438,5 @@ Beijing is willing to work with Portugal to build a more stable, fruitful and dy
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797311-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797311-20250325.htm)
-
----
-
-# Abe assassination probe leads to church's dissolution
-
-![The Unification Church's Tokyo headquarters in Shibuya. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797307_1_20250325151020.jpg&q=85)
-  
-
-A court ordered the dissolution of the Unification Church in Japan, upholding a government request for a revocation spurred by the investigation into the 2022 assassination of former Prime Minister Shinzo Abe.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm)
 
 ---
