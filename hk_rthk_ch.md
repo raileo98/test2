@@ -1,3 +1,27 @@
+# 油價靠穩　市場評估供應收緊及貿易戰風險
+
+![國際油價延續上日升勢，英美期油分別升0.3%及約0.4%收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797775_1_20250328055102.jpg&q=90)
+  
+
+國際油價延續上日升勢，投資者評估原油供應收緊及貿易戰風險，憂慮關稅措施或令石油需求減少。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797775-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797775-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797775-20250328.htm)
+
+---
+
 # 德法股市連跌兩日　創兩星期新低
 
 ![德法股市同樣連跌兩日，創兩星期新低。德國DAX指數收報22678點，跌幅0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797774_1_20250328054612.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm)
-
----
-
-# 范鴻齡稱醫管局醫生及護士去年流失率收窄分別為5%及7.2%
-
-![范鴻齡稱，醫管局醫生及護士去年流失率收窄至分別為5%及7.2%。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797710_1_20250327184522.jpg&q=80)
-  
-
-醫管局下午舉行大會，主席范鴻齡表示，醫管局醫生及護士流失率一直在緩慢下降，在過去12個月，截至1月底醫生流失率，由去年同期的5.4%降至5%，過去12個月共聘請了731位全職醫生，另外有339位全職醫生離職，即目前全職醫生共有7204位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797710-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797710-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797710-20250327.htm)
 
 ---

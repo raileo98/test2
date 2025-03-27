@@ -1,3 +1,27 @@
+# 油價靠穩　市場評估供應收緊及貿易戰風險
+
+![國際油價延續上日升勢，英美期油分別升0.3%及約0.4%收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797775_1_20250328055102.jpg&q=90)
+  
+
+國際油價延續上日升勢，投資者評估原油供應收緊及貿易戰風險，憂慮關稅措施或令石油需求減少。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797775-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797775-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797775-20250328.htm)
+
+---
+
 # 德法股市連跌兩日　創兩星期新低
 
 ![德法股市同樣連跌兩日，創兩星期新低。德國DAX指數收報22678點，跌幅0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797774_1_20250328054612.jpg&q=90)
@@ -671,30 +695,6 @@
 
 ---
 
-# 金管局冀穩定幣相關法案未來幾個月獲立法會通過
-
-![陳維民形容，香港在發展穩定幣方面進展良好，相關法案正經立法會審議，期望在未來幾個月通過。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797685_1_20250327154514.jpg&q=80)
-  
-
-金管局副總裁陳維民表示，正就「穩定幣」發行建立監管框架，為加密貨幣生態系統的發展打下基礎。他形容，香港在發展穩定幣方面進展良好，相關法案正經立法會審議，期望在未來幾個月通過。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm)
-
----
-
 # 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
 
 ![李家超表示，丁薛祥發表主旨演講，就共創亞洲和世界更加美好的未來提出「四點建議」，及就國家經濟走勢提出「三點看法」。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797684_1_20250327162313.jpg&q=90)
@@ -716,6 +716,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
+
+---
+
+# 金管局冀穩定幣相關法案未來幾個月獲立法會通過
+
+![陳維民形容，香港在發展穩定幣方面進展良好，相關法案正經立法會審議，期望在未來幾個月通過。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797685_1_20250327154514.jpg&q=80)
+  
+
+金管局副總裁陳維民表示，正就「穩定幣」發行建立監管框架，為加密貨幣生態系統的發展打下基礎。他形容，香港在發展穩定幣方面進展良好，相關法案正經立法會審議，期望在未來幾個月通過。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm)
 
 ---
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797622-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797622-20250327.htm)
-
----
-
-# 滬深股市初段偏軟
-
-![內地股市初段偏軟，上證指數較早時報3365點，跌3點，跌幅0.09%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797624_1_20250327093222.jpg&q=90)
-  
-
-內地股市初段偏軟，上證指數較早時報3365點，跌3點，跌幅0.09%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797624-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797624-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797624-20250327.htm)
 
 ---
