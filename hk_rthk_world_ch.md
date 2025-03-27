@@ -1,3 +1,27 @@
+# 南韓東南部山火增至27死32傷
+
+![南韓東南部慶尚道地區山火仍未受控。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797699_1_20250327164457.jpg&q=90)
+  
+
+南韓東南部慶尚道地區山火持續，增至27人死亡，32人受傷，火場面積36000公頃創新高，大約37000人疏散。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm)
+
+---
+
 # 商務部：中方已在世貿爭端解決機制起訴美方加徵關稅措施
 
 ![商務部表示，中方已在世貿爭端解決機制起訴美方加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797686_1_20250327155129.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797358-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797358-20250325.htm)
-
----
-
-# 外交部：報告揭示美方多年來慣於在供應鏈安全問題「賊喊捉賊」
-
-![郭嘉昆指美方多年來慣於在供應鏈安全問題上「賊喊捉賊」，操弄雙重標準的。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797332_1_20250326104343.jpg&q=90)
-  
-
-中國網絡安全產業聯盟發佈報告，披露美國針對全球移動智能終端機、移動產供鏈、運營商等開展網絡攻擊和監聽竊密活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm)
 
 ---

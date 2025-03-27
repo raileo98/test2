@@ -1,3 +1,27 @@
+# 南韓東南部山火增至27死32傷
+
+![南韓東南部慶尚道地區山火仍未受控。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797699_1_20250327164457.jpg&q=90)
+  
+
+南韓東南部慶尚道地區山火持續，增至27人死亡，32人受傷，火場面積36000公頃創新高，大約37000人疏散。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm)
+
+---
+
 # 港股全日升幅收窄至95點　內需及醫藥股上升
 
 ![恒生指數最多升逾380點，收市報23578點，升95點，升幅0.41%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797696_1_20250327163031.jpg&q=85)
