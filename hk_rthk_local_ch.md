@@ -1,5 +1,29 @@
+# 酒吧業界料七欖賽事可帶來約2000萬元額外收益
+
+  
+
+香港國際七人欖球賽將於明日起，一連三日在啟德體育園舉行，香港酒吧業協會主席錢雋永說，預炓賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益，九龍城區的酒吧營業額有望較平日上升四至五成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm)
+
+---
+
 # 網上涉出售未標示受管制藥物成分減肥藥　衞生署籲市民停用
 
+![有關產品的包裝有泰文、中文和英文字，懷疑是未經註冊藥劑製品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797736_1_20250327212849.jpg&q=90)
   
 
 衞生署正調查一宗網上非法出售含有未標示受管制藥物成分的減肥藥個案，提醒市民切勿購買或服用該產品，已購買相關產品的市民應立即停止服用，如有疑問或服用後感到不適，應立即徵詢醫護人員的意見。
@@ -23,6 +47,7 @@
 
 # 高拔陞稱普通科門診夜診服務需視乎實際需要每區各有不同
 
+![高拔陞表示，醫管局每年會增加普通科門診服務量，日後做法需要視乎實際需要。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797735_1_20250327212826.jpg&q=90)
   
 
 醫管局現時全港74間普通科門診，少於三分一提供夜診，診症時間最遲至晚上10時。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797565-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797565-20250326.htm)
-
----
-
-# 醫管局料醫療費用減免優化申請流程　受惠人數將增至140萬
-
-![醫管局預計放寬後申請個案數目將上升，但方案同時減省醫務社工處理文件的時間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797558_1_20250326212153.jpg&q=90)
-  
-
-政府優化醫療費用減免機制，預計受惠人數由30萬增至140萬。醫管局總行政經理潘綺紅說，日後申請流程將優化，但難以預計未來申請減免的人數，將視乎推行情況，再探討調整人手和安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797558-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797558-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797558-20250326.htm)
 
 ---

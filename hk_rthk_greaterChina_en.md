@@ -1,6 +1,8 @@
 # 'HK can act as Beijing's diplomatic super-connector'
 
 ![Lam Tai-fai says Hong Kong must fully utilise its advantages and help Beijing rise on the international stage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_1_20250327192921.jpg&q=90)
+![Former Chinese ambassador to the Czech Republic and Romania Huo Yuzhen highlighted Beijing's successful efforts to boost ties with its central and eastern European counterparts. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_2_20250327213024.jpg&q=80)
+![Former Chinese ambassador to Georgia and Tajikistan Yue Bin said Sino-Russian ties are on the up and up. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_3_20250327213024.jpg&q=80)
   
 
 The chairman of Polytechnic University (PolyU)'s governing council on Thursday said Hong Kong must make use of its super-connector role under One Country, Two Systems to support the nation's diplomatic efforts.

@@ -1,3 +1,26 @@
+# 酒吧業界料七欖賽事可帶來約2000萬元額外收益
+
+  
+
+香港國際七人欖球賽將於明日起，一連三日在啟德體育園舉行，香港酒吧業協會主席錢雋永說，預炓賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益，九龍城區的酒吧營業額有望較平日上升四至五成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm)
+
+---
+
 # 美國上周新申領失業援助人數減少1千人
 
 ![美國上周新申領失業援助人數減少1千人，降至22.4萬人，市場原先預期會維持不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797739_1_20250327211901.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797614-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797614-20250327.htm)
-
----
-
-# 加拿大央行：關稅帶來不確定　目前不宜提供利率路徑指引
-
-![加拿大央行表示，關稅導致難以確定貨幣政策未來走向，目前不宜為政策利率未來路徑提供指引。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797609_1_20250327071319.jpg&q=30)
-  
-
-加拿大央行會議紀錄顯示，委員對通脹下行風險的關注有所下降，至於央行3月會議減息0.25厘，指標利率降至2.75厘，連續7次減息，以幫助當地應對美國關稅帶來的不確定性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797609-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797609-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797609-20250327.htm)
 
 ---

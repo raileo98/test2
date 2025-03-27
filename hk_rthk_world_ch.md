@@ -1,3 +1,50 @@
+# 酒吧業界料七欖賽事可帶來約2000萬元額外收益
+
+  
+
+香港國際七人欖球賽將於明日起，一連三日在啟德體育園舉行，香港酒吧業協會主席錢雋永說，預炓賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益，九龍城區的酒吧營業額有望較平日上升四至五成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm)
+
+---
+
+# 國防部：日方最沒有資格拿台灣說事
+
+![吳謙指出，台灣問題不關日本甚麼事，日方也最沒有資格拿台灣說事。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797740_1_20250327212745.jpg&q=90)
+  
+
+在北京，國防部新聞發言人吳謙指出，台灣問題不關日本甚麼事，日方也最沒有資格拿台灣說事。他說，只有堅持一個中國原則、堅決反對「台獨」，台海和平穩定才有保障。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm)
+
+---
+
 # 中方：奉勸美方反思對拉美和加勒比國家的霸權霸凌　停止抺黑中國
 
 ![外交部說，美方惡意散布虛假信息，目的是挑撥中國同其他國家關係，不會得逞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797737_1_20250327211131.jpg&q=80)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797385-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797385-20250326.htm)
-
----
-
-# 彭清華主持召開中俄議會合作委員會聯合工作組會議
-
-![彭清華主持召開中俄議會合作委員會聯合工作組會議](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797384_1_20250326001907.jpg&q=90)
-  
-
-全國人大常委會副委員長彭清華在北京與俄羅斯國家杜馬副主席巴巴科夫共同主持召開中俄議會合作委員會聯合工作組會議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797384-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797384-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797384-20250326.htm)
-
----
-
-# 丹麥首相：美國副總統夫人率團訪格陵蘭是不可接受的施壓
-
-![弗雷澤里克森說，美國副總統夫人及多位官員即將對格陵蘭島進行的訪問是一種不可接受的施壓。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797381_1_20250325225856.jpg&q=90)
-  
-
-丹麥首相弗雷澤里克森說，美國副總統夫人及多位官員即將對格陵蘭島進行的訪問是一種不可接受的施壓，丹麥政府將堅決抵制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797381-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797381-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797381-20250325.htm)
 
 ---

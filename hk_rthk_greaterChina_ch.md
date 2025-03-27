@@ -1,3 +1,27 @@
+# 國防部：日方最沒有資格拿台灣說事
+
+![吳謙指出，台灣問題不關日本甚麼事，日方也最沒有資格拿台灣說事。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797740_1_20250327212745.jpg&q=90)
+  
+
+在北京，國防部新聞發言人吳謙指出，台灣問題不關日本甚麼事，日方也最沒有資格拿台灣說事。他說，只有堅持一個中國原則、堅決反對「台獨」，台海和平穩定才有保障。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm)
+
+---
+
 # 中方：奉勸美方反思對拉美和加勒比國家的霸權霸凌　停止抺黑中國
 
 ![外交部說，美方惡意散布虛假信息，目的是挑撥中國同其他國家關係，不會得逞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797737_1_20250327211131.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797335-20250325.htm)
-
----
-
-# 外交部：報告揭示美方多年來慣於在供應鏈安全問題「賊喊捉賊」
-
-![郭嘉昆指美方多年來慣於在供應鏈安全問題上「賊喊捉賊」，操弄雙重標準的。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797332_1_20250326104343.jpg&q=90)
-  
-
-中國網絡安全產業聯盟發佈報告，披露美國針對全球移動智能終端機、移動產供鏈、運營商等開展網絡攻擊和監聽竊密活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797332-20250325.htm)
 
 ---
