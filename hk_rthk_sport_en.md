@@ -1,3 +1,27 @@
+# LeBron snaps Lakers' three-game slump with late tip-in
+
+![LeBron James (23) and the Lakers snapped a three-game losing streak. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797649_1_20250327120443.jpg&q=85)
+  
+
+LeBron James tipped in a buzzer-beating rebound with 0.1 seconds remaining as the Los Angeles Lakers halted their three-game losing streak with a pulsating 120-119 road victory over the Indiana Pacers.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm)
+
+---
+
 # Fils outplays top seed Zverev in Miami Open upset
 
 ![Alexander Zverev returns a shot against Arthur Fils in their fourth-round match at the Hard Rock Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797645_1_20250327114411.jpg&q=90)
@@ -1412,29 +1436,5 @@ Formula One boss Stefano Domenicali held talks with Thailand's prime minister on
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796287-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796287-20250318.htm)
-
----
-
-# SAR women's rugby squad 'keen to deliver on home soil'
-
-![The SAR women's rugby squad looks to build on last year's success, when they were runners-up in the Melrose Claymores competition. Photo courtesy of HKCR](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796233_4_20250318154756.jpg&q=90)
-  
-
-The Hong Kong, China women’s rugby team on Tuesday said they are ready to take their game to the next level at the upcoming Rugby Sevens, to be held at the Kai Tak Sports Park for the first time this month.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796233-20250318.htm)
 
 ---

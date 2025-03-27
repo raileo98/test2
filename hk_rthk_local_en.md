@@ -1,3 +1,51 @@
+# Govt 'pays almost all drug costs despite fee hike'
+
+![William Chui says the government will still be paying 90 percent of the costs of medication when the higher fees take effect in January. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797648_1_20250327115415.jpg&q=90)
+  
+
+The Hospital Authority's chief pharmacist said on Thursday the upcoming hike in medication fees will help to subsidise the purchase of new drugs, as well as those used to fight cancer or rare diseases.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797648-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797648-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797648-20250327.htm)
+
+---
+
+# 'Winter flu season over but summer poses new threat'
+
+![The Centre for Health Protection says this year's winter influenza season lasted about 11 weeks. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797642_1_20250327113342.jpg&q=90)
+  
+
+The Centre for Health Protection (CHP) says the winter influenza season has come to an end after about 11 weeks, but people should next get jabs to protect themselves against a possible summer flu season.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797642-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797642-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797642-20250327.htm)
+
+---
+
 # Online applications set for healthcare bills waivers
 
 ![The Hospital Authority’s chief manager of allied health, Priscilla Poon, says there are ways to ensure the expanded fee waiver mechanism will not overwhelm medical social workers. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797528_1_20250326180228.jpg&q=90)
@@ -1395,53 +1443,5 @@ A global pop culture festival ComplexCon has returned to Hong Kong for a second 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796791-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796791-20250321.htm)
-
----
-
-# HKMU launches Cantonese opera translation library
-
-![The team behind the Cantonese opera translations says they pay special attention to the culture and history behind the stories. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796790_1_20250321154817.jpg&q=90)
-  
-
-The Hong Kong Metropolitan University on Friday launched a new online library that features English translations of classic Cantonese opera scripts.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796790-20250321.htm)
-
----
-
-# Cathay Pacific cancels flights to London
-
-![Some Cathay passengers said they were frustrated with the airline's arrangements. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796782_2_20250321161341.jpg&q=90)
-  
-
-Cathay Pacific said on Friday it cancelled two flights from Hong Kong to London, due to the temporary closure of Heathrow Airport.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796782-20250321.htm)
 
 ---

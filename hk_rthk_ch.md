@@ -1,3 +1,27 @@
+# 港股半日升246點　蒙牛及中銀績後造好
+
+![港股連升兩日，恒生指數最多升逾380點，高見23865點，中午收市報23729點，升246點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797651_1_20250327121037.jpg&q=15)
+  
+
+港股連升兩日，恒生指數最多升逾380點，高見23865點，中午收市報23729點，升246點，升幅1.05%，半日主板成交額逾1416億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797651-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797651-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797651-20250327.htm)
+
+---
+
 # 特朗普：可能提出降低中國關稅換取中方批准出售TikTok
 
 ![特朗普1月上任後簽署行政命令，將針對TikTok「不賣就禁」法例生效的最後期限推遲至4月初。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797647_1_20250327115115.jpg&q=90)
@@ -48,7 +72,7 @@
 
 # 冬季流感季節完結　衞生署料今年夏季有一半機會出現流感季節
 
-![徐樂堅指出，今年度冬季流感主要流行甲型H1病毒，甲型H3及乙型流感活程度處於低水平，季節性流感與本港流行的流感病毒吻合。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797644_1_20250327115157.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797644_1_20250327115157.jpg&q=80)
   
 
 衞生署宣布，本港今年度冬季流感季節已完結。
@@ -1402,29 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797571-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797571-20250326.htm)
-
----
-
-# 男子涉網上違法銷售含有未標示受管制藥物成分濕疹外用產品
-
-![衞生署呼籲市民如懷疑已購買上述產品，應立即停止使用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797570_1_20250326213049.jpg&q=80)
-  
-
-一名男子涉嫌在網上違法銷售治療濕疹的外用產品被捕，有關產品沒有任何標籤，懷疑屬未經註冊藥劑製品，衞生署繼續調查，呼籲市民如懷疑已購買上述產品，應立即停止使用，如有疑問或用後感到不適，應徵詢醫護人員的意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797570-20250326.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Home prices drop to lowest level in nearly nine years
+
+![Home prices continued to decline last month. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797650_1_20250327120658.jpg&q=65)
+  
+
+Hong Kong home prices slumped for the third month in a row in February, dropping to their lowest level in almost nine years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm)
+
+---
+
 # Japan warns of 'significant impact' of US tariffs
 
 ![Japan says the Trump administration's decision to impose 25 percent tariffs on auto imports to the US was "extremely regrettable". File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797646_1_20250327114555.jpg&q=90)
@@ -1413,29 +1437,5 @@ China and the EU vowed on Wednesday to strike back and defend their economic int
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm)
-
----
-
-# Wall Street regains some ground after inflation report
-
-![The shifts came after the consumer price index came in at a cooler than expected 2.8 percent for February. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795496_1_20250313063349.jpg&q=90)
-  
-
-Wall Street stocks regained some ground Wednesday helped by a rise in tech shares, as easing inflation assuaged some investor jitters about the world's biggest economy even as tariff worries lingered.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795496-20250313.htm)
 
 ---

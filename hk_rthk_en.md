@@ -1,3 +1,75 @@
+# Govt 'pays almost all drug costs despite fee hike'
+
+![William Chui says the government will still be paying 90 percent of the costs of medication when the higher fees take effect in January. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797648_1_20250327115415.jpg&q=90)
+  
+
+The Hospital Authority's chief pharmacist said on Thursday the upcoming hike in medication fees will help to subsidise the purchase of new drugs, as well as those used to fight cancer or rare diseases.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797648-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797648-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797648-20250327.htm)
+
+---
+
+# LeBron snaps Lakers' three-game slump with late tip-in
+
+![LeBron James (23) and the Lakers snapped a three-game losing streak. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797649_1_20250327120443.jpg&q=85)
+  
+
+LeBron James tipped in a buzzer-beating rebound with 0.1 seconds remaining as the Los Angeles Lakers halted their three-game losing streak with a pulsating 120-119 road victory over the Indiana Pacers.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm)
+
+---
+
+# 'Winter flu season over but summer poses new threat'
+
+![The Centre for Health Protection says this year's winter influenza season lasted about 11 weeks. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797642_1_20250327113342.jpg&q=90)
+  
+
+The Centre for Health Protection (CHP) says the winter influenza season has come to an end after about 11 weeks, but people should next get jabs to protect themselves against a possible summer flu season.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797642-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797642-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797642-20250327.htm)
+
+---
+
 # Japan warns of 'significant impact' of US tariffs
 
 ![Japan says the Trump administration's decision to impose 25 percent tariffs on auto imports to the US was "extremely regrettable". File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797646_1_20250327114555.jpg&q=90)
@@ -1365,78 +1437,5 @@ Asia's economy is likely to continue its robust growth this year despite challen
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797323-20250325.htm)
-
----
-
-# Hang Seng Index closes down 2.3 percent
-
-![The Hang Seng Index falls to 23,344 on Tuesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797329_1_20250325170851.jpg&q=75)
-  
-
-Equities diverged on Tuesday, as investors struggled to extend Wall Street's rally despite easing fears over US president Donald Trump's planned tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797329-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797329-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797329-20250325.htm)
-
----
-
-# Art Central returns to Central Harbourfront
-
-![Art Central runs from Wednesday to Sunday at the Central Harbourfront. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797322_1_20250325164605.jpg&q=90)
-![The art fair features a new 'Legend' gallery to highlight lesser-known artists. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797322_2_20250325164605.jpg&q=90)
-  
-
-The annual Art Central fair is returning to Central Harbourfront from Wednesday with works from more than 100 galleries around the world.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797322-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797322-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797322-20250325.htm)
-
----
-
-# Red Army Faction fugitive faces trial at last
-
-![Daniela Klette is led away to a helicopter after a detention review hearing in Karlsruhe last March. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797316_1_20250325155616.jpg&q=90)
-  
-
-A former member of Germany's far-left Baader-Meinhof gang who was arrested last year after more than 30 years on the run will face trial on Tuesday for a series of armed robberies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm)
 
 ---
