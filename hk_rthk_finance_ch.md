@@ -1,3 +1,27 @@
+# 德法股市連跌兩日　創兩星期新低
+
+![德法股市同樣連跌兩日，創兩星期新低。德國DAX指數收報22678點，跌幅0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797774_1_20250328054612.jpg&q=90)
+  
+
+歐洲股市大多偏軟，受到汽車股下跌拖累，美國總統特朗普宣布對所有進口汽車徵收關稅，加劇市場對全球經濟放緩的擔憂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797774-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797774-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797774-20250328.htm)
+
+---
+
 # 美股兩連跌　道指低收155點　汽車股大多下挫
 
 ![美股反覆向下，連跌兩日，汽車股沽壓較大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797773_1_20250328054035.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797624-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797624-20250327.htm)
-
----
-
-# 港股競價時段升60點　新奧能源急升16%
-
-![恒生指數競價時段報23543點，升60點，升幅0.26%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797621_1_20250327092302.jpg&q=75)
-  
-
-港股高開，恒生指數競價時段報23543點，升60點，升幅0.26%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797621-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797621-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797621-20250327.htm)
 
 ---
