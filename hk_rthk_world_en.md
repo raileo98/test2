@@ -27,7 +27,7 @@ South Korea's auto sector is expected to face "considerable difficulties" when U
 ![Protesters rally near Government House in Bangkok against the casino-entertainment complex bill. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797665_1_20250327133509.jpg&q=90)
   
 
-Thailand's cabinet on Thursday approved a draft law for casinos and entertainment complexes, a spokesperson said, as the government looks to build a major gaming industry.
+Thailand's cabinet on Thursday approved a draft law for casinos and entertainment complexes, as the government looks to attract more tourists and build a major gaming industry.
 
   
 
