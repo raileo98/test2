@@ -1,3 +1,26 @@
+# 埃及旅遊潛艇事故釀6名俄羅斯遊客死亡　當局調查事故原因
+
+  
+
+埃及紅海省發表聲明指出，一艘旅遊潛艇於當地星期四，在省首府胡爾加達附近海域發生事故，6名俄羅斯遊客死亡，其餘39名外國遊客獲救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797772-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797772-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797772-20250328.htm)
+
+---
+
 # 墨西哥僱主聯合會指美國汽車關稅降低北美競爭力及致失業率上升
 
 ![聯合會指加徵關稅將影響數十年來建立起來的貿易與生產一體化。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797771_1_20250328042209.jpg&q=80)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797705-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797705-20250327.htm)
-
----
-
-# 中海油去年多賺逾11%　末期息每股0.66港元
-
-![中海油去年盈利1379.4億元人民幣，按年升逾11%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797700_1_20250327165258.jpg&q=90)
-  
-
-中海油去年盈利1379.4億元人民幣，按年升逾11%。末期息每股0.66港元，全年派息1.4元，按年升12%，派息比率44.7%。公司計劃今年起至2027年，全年派息比率提升至不低於45%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm)
 
 ---
