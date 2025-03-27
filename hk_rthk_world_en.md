@@ -73,7 +73,7 @@ Foreign Minister Wang Yi will meet top French diplomat Jean-Noel Barrot on Thurs
 
 # Canada PM dubs US auto tariffs 'direct attack'
 
-![Canada's Prime Minister Mark Carney attends a Liberal Party election campaign rally in Kitchener, Ontario. Carney has vowed to fight Trump's tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797616_1_20250327083849.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797616_1_20250327083849.jpg&q=90)
   
 
 Canadian Prime Minister Mark Carney reacted with anger on Wednesday to US President Donald Trump's imposition of import tariffs on cars, branding it a "direct attack" on his country.
