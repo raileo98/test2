@@ -96,7 +96,7 @@ An expert has said that ongoing art shows and upcoming auctions will give the ma
 
 # Innovation is driving China's economy: Ding Xuexiang
 
-![Vice Premier Ding Xuexiang says China ranks among the world's fastest growing major economies. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797653_2_20250327135305.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797653_2_20250327135305.jpg&q=80)
   
 
 Vice Premier Ding Xuexiang on Thursday said China's economy is remaking itself with the growing capacity to drive growth through innovation.

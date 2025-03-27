@@ -1,3 +1,27 @@
+# 人行宣昌能：貨幣政策有足夠空間　將擇機降準減息
+
+![宣昌能：中國實施適度寬鬆的貨幣政策立場明確，貨幣政策有足夠空間，將擇機降準減息。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797679_1_20250327152656.jpg&q=80)
+  
+
+人民銀行副行長宣昌能表示，中國實施適度寬鬆的貨幣政策立場明確，貨幣政策有足夠空間，將根據國內外經濟金融形勢和金融市場運行情況，擇機降準減息。他強調，人行需要加強溝通協調，以確定的政策取向，應對不確定性的環境，有效穩定預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797679-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797679-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797679-20250327.htm)
+
+---
+
 # 內地股市先跌後回穩
 
 ![上證指數收報3373點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797677_1_20250327150551.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797524-20250326.htm)
-
----
-
-# 電視廣播去年虧損收窄近36%　料今年業績扭虧
-
-![電視廣播去年度虧損收窄近36%至4.91億元，估計今年將實現正股東應佔淨溢利。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797525_1_20250326172337.jpg&q=90)
-  
-
-電視廣播公布，去年度虧損收窄近36%至4.91億元，維持不派息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797525-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797525-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797525-20250326.htm)
 
 ---
