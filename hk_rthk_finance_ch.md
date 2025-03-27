@@ -1,3 +1,26 @@
+# 林大輝稱香港需配合國家外交工作　批評美國推行霸權及保護主義
+
+  
+
+理工大學舉辦《新時代中國外交的挑戰與機遇》專題講座，理大校董會主席林大輝致辭時表示，中國和平崛起，透過改革開放發展成為世界第二大經濟體系，在國際舞台上的地位越來越重要。在這個新時代，香港必須充分發揮「一國兩制」的優勢，擔當超級聯繫人的角色，配合國家做好外交工作，服務國家外交大局。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm)
+
+---
+
 # 中海油去年多賺逾11%　末期息每股0.66港元
 
 ![中海油去年盈利1379.4億元人民幣，按年升逾11%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797700_1_20250327165258.jpg&q=90)
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm)
-
----
-
-# 祁斌稱中央全力支持瓊港兩地自由港平台與超級聯繫人雙向聯動
-
-![祁斌指出，海南自貿區零關稅低稅率政策，與香港自由港制度可以形成疊加效應。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797578_1_20250326225528.jpg&q=80)
-  
-
-在海南，瓊港簽署備忘錄，在多方面深化合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm)
 
 ---

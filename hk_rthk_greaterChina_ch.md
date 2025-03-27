@@ -1,3 +1,26 @@
+# 林大輝稱香港需配合國家外交工作　批評美國推行霸權及保護主義
+
+  
+
+理工大學舉辦《新時代中國外交的挑戰與機遇》專題講座，理大校董會主席林大輝致辭時表示，中國和平崛起，透過改革開放發展成為世界第二大經濟體系，在國際舞台上的地位越來越重要。在這個新時代，香港必須充分發揮「一國兩制」的優勢，擔當超級聯繫人的角色，配合國家做好外交工作，服務國家外交大局。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm)
+
+---
+
 # 國防部：堅決打掉一切「台獨」分裂圖謀
 
 ![吳謙說，人民軍隊堅決打掉一切「台獨」分裂圖謀。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797692_1_20250327160736.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm)
-
----
-
-# 王文濤晤蘋果行政總裁　支持外企產品公平參與以舊換新擴消費政策
-
-![商務部部長王文濤會見美國蘋果公司行政總裁庫克。（商務部網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797219_1_20250325001521.jpg&q=90)
-  
-
-在北京，商務部部長王文濤會見美國蘋果公司行政總裁庫克，就蘋果公司在華業務發展、中美經貿關係等議題交流。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797219-20250325.htm)
 
 ---

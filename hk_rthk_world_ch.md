@@ -1,3 +1,26 @@
+# 林大輝稱香港需配合國家外交工作　批評美國推行霸權及保護主義
+
+  
+
+理工大學舉辦《新時代中國外交的挑戰與機遇》專題講座，理大校董會主席林大輝致辭時表示，中國和平崛起，透過改革開放發展成為世界第二大經濟體系，在國際舞台上的地位越來越重要。在這個新時代，香港必須充分發揮「一國兩制」的優勢，擔當超級聯繫人的角色，配合國家做好外交工作，服務國家外交大局。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm)
+
+---
+
 # 王毅與法國外長會談　強調雙方要以互利共贏反對脫鉤斷鏈
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797363-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797363-20250325.htm)
-
----
-
-# 王毅：世界只能向前走　不能倒退回弱肉強食的叢林法則
-
-![王毅同葡萄牙國務部長兼外長蘭熱爾舉行中葡第二次外長級戰略對話。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797361_1_20250325204636.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅，同葡萄牙國務部長兼外長蘭熱爾舉行中葡第二次外長級戰略對話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm)
 
 ---

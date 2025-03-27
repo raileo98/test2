@@ -1,3 +1,46 @@
+# 范鴻齡稱醫管局醫生及護士去年流失率收窄分別為5%及7.2%
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797710-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797710-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797710-20250327.htm)
+
+---
+
+# 林大輝稱香港需配合國家外交工作　批評美國推行霸權及保護主義
+
+  
+
+理工大學舉辦《新時代中國外交的挑戰與機遇》專題講座，理大校董會主席林大輝致辭時表示，中國和平崛起，透過改革開放發展成為世界第二大經濟體系，在國際舞台上的地位越來越重要。在這個新時代，香港必須充分發揮「一國兩制」的優勢，擔當超級聯繫人的角色，配合國家做好外交工作，服務國家外交大局。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm)
+
+---
+
 # 衞生防護中心指今年有一半機會出現夏季流感季節
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797705_1_20250327180741.jpg&q=90)
@@ -1391,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797538-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797538-20250326.htm)
-
----
-
-# 鄭永年稱香港問題是發展問題　香港一定要與大灣區結合
-
-![鄭永年說，不要低估中國的開放政策，對全球貿易體系的重塑能力。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797537_2_20250326205139.jpg&q=80)
-  
-
-正在海南出席博鰲亞洲論壇的香港中文大學(深圳)公共政策學院院長、特首政策組專家組成員鄭永年，被問到香港財政情況時表示，香港的問題是發展問題，香港一定要與大灣區結合，共同發展，因為香港四大產業是服務業，服務對象主要為大灣區居民。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm)
-
----
-
-# 人才服務辦公室小紅書官方平台　提供實用資訊及提醒分辨假消息
-
-![孫玉菡在片段粉墨登場，介紹兩位虛擬代言人物。（社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797536_1_20250326182059.jpg&q=90)
-  
-
-香港人才服務辦公室在小紅書設立官方平台，協助人才融入香港，提醒他們分清虛假消息及謠言，以及向他們提供實用的生活攻略等資訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm)
 
 ---
