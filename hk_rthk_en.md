@@ -1,4 +1,4 @@
-# Thais give green light to casinos draft law
+# Thais give green light to draft law for casinos
 
 ![Protesters rally near Government House in Bangkok against the casino-entertainment complex bill. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797665_1_20250327133509.jpg&q=90)
   
