@@ -1,3 +1,26 @@
+# 王毅與法國外長會談　強調雙方要以互利共贏反對脫鉤斷鏈
+
+  
+
+中共中央政治局委員、外長王毅在北京同法國外長巴羅會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm)
+
+---
+
 # 南韓東南部山火增至27死32傷
 
 ![南韓東南部慶尚道地區山火仍未受控。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797699_1_20250327164457.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm)
-
----
-
-# 南韓首爾路陷造成一死一傷
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797358_1_20250325202247.jpg&q=60)
-  
-
-南韓首爾江東區昨日發生的道路塌陷造成1人死亡、1人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797358-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797358-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797358-20250325.htm)
 
 ---
