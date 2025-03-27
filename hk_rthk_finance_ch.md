@@ -1,3 +1,27 @@
+# 在岸人民幣低收20點子
+
+![在岸人民幣收市報7.2655兌1美元，較昨日收市跌20點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797716_1_20250327184509.jpg&q=80)
+  
+
+在岸人民幣收市報7.2655兌1美元，創逾3周新低，較昨日收市跌20點子。中間價亦跌9點子，與市場預測偏離擴大至近千點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797716-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797716-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797716-20250327.htm)
+
+---
+
 # 丘應樺稱政府致力建設香港成為區域知識產權貿易中心
 
 ![丘應樺（左）拜會外交部港澳台司副司長冉波（右），介紹香港經貿的最新發展。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797721_1_20250327191021.jpg&q=45)
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797595-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797595-20250327.htm)
-
----
-
-# 中美均形容經貿官員通話坦誠　何立峰就美對華徵關稅表達嚴正關切
-
-![何立峰就美方以芬太尼為由對華加徵關稅等問題，向美國貿易代表表達嚴正關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797590_1_20250327032925.jpg&q=90)
-  
-
-中美經貿官員通話。中方牽頭人、國務院副總理何立峰就美方以芬太尼為由對華加徵關稅、有關301調查以及計劃出台「對等」關稅等，向美國貿易代表格里爾表達嚴正關切。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm)
 
 ---
