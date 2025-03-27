@@ -1,3 +1,27 @@
+# Healthrow set for incentives to upgrade after closure
+
+![A sign is put up at King's Cross railway station in London after a fire at  an electrical substation wiped out power to Heathrow last Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797682_1_20250327153912.jpg&q=90)
+  
+
+Britain's Civil Aviation Authority said it plans to set incentives for London's Heathrow to invest in its operations and provide high-quality service as part of the regulator's periodic review, days after a closure at the airport rocked airlines.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm)
+
+---
+
 # S Korea braces for tariffs hit on auto sector
 
 ![Kia cars await shipment to overseas markets in Pyeongtaek, South Korea. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797671_1_20250327140201.jpg&q=90)
@@ -1413,29 +1437,5 @@ China's hopes of directly qualifying for the 2026 World Cup took a hit after suf
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm)
-
----
-
-# 'Coleman Wong's magical run inspires next generation'
-
-![The SAR's tennis chief Michael Cheng says he is impressed with Coleman Wong's achievements at the Miami Open. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797357_2_20250325210437.jpg&q=90)
-  
-
-Coleman Wong’s history-making performance at the Miami Open will serve as a huge morale boost for the SAR’s next generation of tennis players, Hong Kong, China’s tennis chief said on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm)
 
 ---

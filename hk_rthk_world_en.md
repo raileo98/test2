@@ -1,3 +1,27 @@
+# Healthrow set for incentives to upgrade after closure
+
+![A sign is put up at King's Cross railway station in London after a fire at  an electrical substation wiped out power to Heathrow last Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797682_1_20250327153912.jpg&q=90)
+  
+
+Britain's Civil Aviation Authority said it plans to set incentives for London's Heathrow to invest in its operations and provide high-quality service as part of the regulator's periodic review, days after a closure at the airport rocked airlines.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm)
+
+---
+
 # S Korea braces for tariffs hit on auto sector
 
 ![Kia cars await shipment to overseas markets in Pyeongtaek, South Korea. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797671_1_20250327140201.jpg&q=90)
@@ -1413,29 +1437,5 @@ Counter-terror police on Friday launched a probe into an electricity substation 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796855-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796855-20250321.htm)
-
----
-
-# 'Record number of deaths on migration routes in 2024'
-
-![The UN has recorded a total of 2,452 people dying in the Mediterranean Sea, the main gateway for those trying to reach Europe. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796832_1_20250321183806.jpg&q=90)
-  
-
-Last year was the deadliest year for migrants, with nearly 9,000 people dying worldwide, the United Nations said on Friday, calling the "tragedy... unacceptable and preventable".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796832-20250321.htm)
 
 ---
