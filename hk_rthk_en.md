@@ -1,3 +1,27 @@
+# HK to continue leveraging 'its unique position'
+
+![John Lee meets FAO director-general Qu Dongyu in Hainan. Photo: John Lee's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797694_1_20250327162229.jpg&q=90)
+  
+
+Hong Kong will continue to deepen international co-operation and integrate into national development despite a complex external environment, Chief Executive John Lee said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm)
+
+---
+
 # Beijing warns of 'no winners' over new Trump tariffs
 
 ![BYD cars await loading onto one of the company's roll-on/roll-off export vessels in Suzhou this year. China says US tariffs on foreign-made cars won't help Washington solve its own problems. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797697_1_20250327163138.jpg&q=80)
@@ -1413,29 +1437,5 @@ World Athletics said on Tuesday it had approved the introduction of a cheek swab
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797391-20250326.htm)
-
----
-
-# Trump, intel chiefs dismiss chat breach
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797390_1_20250326032257.jpg&q=90)
-  
-
-US President Donald Trump and his top intelligence officials raced on Tuesday to stem a growing scandal after a journalist was accidentally added to a group chat about air strikes on Yemen's Houthi rebels in a security breach.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm)
 
 ---

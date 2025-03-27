@@ -1,3 +1,27 @@
+# HK to continue leveraging 'its unique position'
+
+![John Lee meets FAO director-general Qu Dongyu in Hainan. Photo: John Lee's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797694_1_20250327162229.jpg&q=90)
+  
+
+Hong Kong will continue to deepen international co-operation and integrate into national development despite a complex external environment, Chief Executive John Lee said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm)
+
+---
+
 # Police probe alleged attack on elderly woman
 
 ![Police say an elderly woman was taken to hospital with injuries to her face and hands. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797689_1_20250327160355.jpg&q=60)
@@ -1419,29 +1443,5 @@ Chief Executive John Lee said the government will soon offer land for private de
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796807-20250321.htm)
-
----
-
-# Police launch citywide crackdown on careless driving
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796806_1_20250321165421.jpg&q=90)
-  
-
-Police on Friday said they will launch a citywide operation next week to tackle inattentive driving, following an increase in fatal traffic accidents in the first three months of this year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796806-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796806-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796806-20250321.htm)
 
 ---
