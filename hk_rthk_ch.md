@@ -1,3 +1,27 @@
+# 援烏峰會於巴黎舉行　馬克龍稱法英將派人赴烏克蘭商烏軍建設事宜
+
+![馬克龍表示31個國家的代表及北約、歐盟領導人出席今次峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797761_1_20250328011623.jpg&q=90)
+  
+
+法國總統馬克龍說，法國與英國兩軍參謀長，近期將派代表前往烏克蘭，討論與烏軍建設有關事宜。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797761-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797761-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797761-20250328.htm)
+
+---
+
 # 政府強烈譴責英國所謂半年報告　促停止干涉屬中國內政的香港事務
 
 ![特區政府再次強烈敦促英國認清事實，立即停止干涉純屬中國內政的香港事務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797759_1_20250328003430.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797695-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797695-20250327.htm)
-
----
-
-# 乳癌患者住私院最初只獲賠12天費用　保險投訴局終裁定賠一個月
-
-![李紫蘭說，雖然投訴增加，但佔保單比例是有所減少。（陳菀禧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797693_1_20250327163429.jpg&q=80)
-  
-
-保險投訴局去年共接獲646宗投訴個案，按年上升約5%。當中住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。投訴類别方面，保單條款的詮釋佔最多，有54%，不保事項及沒有披露事實分别佔16.5%及15.5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797693-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797693-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797693-20250327.htm)
 
 ---

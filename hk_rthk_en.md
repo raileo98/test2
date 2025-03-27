@@ -1,3 +1,27 @@
+# Beijing offices again question CK Hutchison ports deal
+
+![The latest Ta Kung Pao article reposted by Beijing offices in Hong Kong said CK Hutchison's ports deal didn't make business sense. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797760_1_20250328011558.jpg&q=75)
+  
+
+Central government bodies in charge of Hong Kong affairs on Thursday reposted another news article criticising a controversial deal by CK Hutchison’s to sell dozens of ports – including strategic assets along the Panama Canal – to a US consortium led by investment firm BlackRock.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797760-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797760-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797760-20250328.htm)
+
+---
+
 # Work under way to boost night-time services: HA
 
 ![HA chief executive Tony Ko says public hospitals are working closely with the primary healthcare sector and private practitioners to ramp up services. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797727_2_20250327205242.jpg&q=90)
@@ -1415,29 +1439,5 @@ A months-long investigation into the mysterious death of a French toddler took a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm)
-
----
-
-# Argentina qualify for 2026 World Cup in style
-
-![Brazil's midfielder Joao Gomes walks off the pitch downcast as Argentina's players celebrate their win over Brazil at the Mas Monumental stadium in Buenos Aires. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797405_2_20250326110003.jpg&q=90)
-  
-
-Argentina celebrated their 2026 World Cup qualification with a dazzling 4-1 thrashing of arch-rivals Brazil in Buenos Aires.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797405-20250326.htm)
 
 ---

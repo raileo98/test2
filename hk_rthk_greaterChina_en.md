@@ -1,3 +1,27 @@
+# Beijing offices again question CK Hutchison ports deal
+
+![The latest Ta Kung Pao article reposted by Beijing offices in Hong Kong said CK Hutchison's ports deal didn't make business sense. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797760_1_20250328011558.jpg&q=75)
+  
+
+Central government bodies in charge of Hong Kong affairs on Thursday reposted another news article criticising a controversial deal by CK Hutchison’s to sell dozens of ports – including strategic assets along the Panama Canal – to a US consortium led by investment firm BlackRock.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797760-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797760-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797760-20250328.htm)
+
+---
+
 # 'HK can act as Beijing's diplomatic super-connector'
 
 ![Lam Tai-fai says Hong Kong must fully utilise its advantages and help Beijing rise on the international stage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_1_20250327192921.jpg&q=90)
@@ -1413,29 +1437,5 @@ An entrepreneur who founded China's largest seed supplier Shandong Denghai Seeds
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795229-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795229-20250311.htm)
-
----
-
-# 'Snooker hiccup not a problem for National Games'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795203_1_20250311090834.jpg&q=90)
-  
-
-A local deputy to the National People's Congress has stressed that Hong Kong is ready to co-host its first National Games in November, despite a recent hiccup at a major snooker tournament in Kai Tak.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795203-20250311.htm)
 
 ---

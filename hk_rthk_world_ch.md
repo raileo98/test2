@@ -1,3 +1,27 @@
+# 援烏峰會於巴黎舉行　馬克龍稱法英將派人赴烏克蘭商烏軍建設事宜
+
+![馬克龍表示31個國家的代表及北約、歐盟領導人出席今次峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797761_1_20250328011623.jpg&q=90)
+  
+
+法國總統馬克龍說，法國與英國兩軍參謀長，近期將派代表前往烏克蘭，討論與烏軍建設有關事宜。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797761-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797761-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797761-20250328.htm)
+
+---
+
 # 南韓東南部山火增至28人死亡
 
 ![南韓當局出動直升機協助撲救山火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797750_1_20250327225531.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797389-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797389-20250326.htm)
-
----
-
-# 德國新一屆聯邦議院召開首次全體會議　基民盟的克勒克納當選議長
-
-![總統施泰因邁爾（右）解散現任政府，總理朔爾茨（左）將繼續履職，直至新一屆聯邦政府成立。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797388_1_20250326023615.jpg&q=90)
-  
-
-德國新一屆聯邦議院召開首次全體會議，隸屬基督教民主聯盟的克勒克納當選新一屆議長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797388-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797388-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797388-20250326.htm)
 
 ---
