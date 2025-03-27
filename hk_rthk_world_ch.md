@@ -1,3 +1,27 @@
+# 李在明視察南韓山火災情時遇襲無受傷　據報襲擊者為災民
+
+![李在明昨日視察慶尚北道山火災情。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797764_1_20250328013456.jpg&q=90)
+  
+
+南韓最大在野黨共同民主黨黨魁李在明昨日視察慶尚北道山火災情時，被一名男子用外套襲擊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797764-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797764-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797764-20250328.htm)
+
+---
+
 # 何立峰晤歐方經貿官員　稱中方願共同抵制單邊主義及保護主義
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797410-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797410-20250326.htm)
-
----
-
-# 特朗普稱華爾茲不需為記者加入通訊群組道歉　民主黨人促官員辭職
-
-![特朗普認為華爾茲不需要道歉。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797403_1_20250326063715.jpg&q=90)
-  
-
-美國一名記者無意中被加入華府高層討論打擊也門胡塞武裝行動的通訊群組的事件，引發外界對政府洩密的憂慮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797403-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797403-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797403-20250326.htm)
 
 ---
