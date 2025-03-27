@@ -1,3 +1,50 @@
+# 鴨脷洲街坊學校決定申請以私營方式自資開辦小一班級
+
+![學校法團校董會表示，不同持份者一致支持學校繼續營辦。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797688_1_20250327155622.jpg&q=90)
+  
+
+2025/26學年被「派0班」的鴨脷洲街坊學校，宣布將申請以私營方式自資開辦小一班級。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797688-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797688-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797688-20250327.htm)
+
+---
+
+# 演練模擬多區樓宇坍塌　粵政府派60名隊員13輛消防車來港支援
+
+  
+
+香港消防處聯同廣東省消防救援總隊及澳門消防局，舉辦48小時粵港澳大灣區應急救援聯合演練，測試《粵港澳大灣區應急救援行動方案》下應急動員協調機制的實施成效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797687-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797687-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797687-20250327.htm)
+
+---
+
 # 商務部：中方已在世貿爭端解決機制起訴美方加徵關稅措施
 
 ![商務部表示，中方已在世貿爭端解決機制起訴美方加徵關稅措施。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797686_1_20250327155129.jpg&q=75)

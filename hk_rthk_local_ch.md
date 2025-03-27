@@ -1,3 +1,50 @@
+# 鴨脷洲街坊學校決定申請以私營方式自資開辦小一班級
+
+![學校法團校董會表示，不同持份者一致支持學校繼續營辦。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797688_1_20250327155622.jpg&q=90)
+  
+
+2025/26學年被「派0班」的鴨脷洲街坊學校，宣布將申請以私營方式自資開辦小一班級。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797688-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797688-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797688-20250327.htm)
+
+---
+
+# 演練模擬多區樓宇坍塌　粵政府派60名隊員13輛消防車來港支援
+
+  
+
+香港消防處聯同廣東省消防救援總隊及澳門消防局，舉辦48小時粵港澳大灣區應急救援聯合演練，測試《粵港澳大灣區應急救援行動方案》下應急動員協調機制的實施成效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797687-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797687-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797687-20250327.htm)
+
+---
+
 # 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
 
   
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797521-20250326.htm)
-
----
-
-# 19歲男學生被捕　涉嫌與至少10宗假冒官員電話騙案有關
-
-![警方表示，被捕人涉嫌冒充香港警察，指示案中被騙的事主簽署保密協定，涉案金額超過300萬元。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797515_1_20250326170636.jpg&q=90)
-  
-
-一名19歲男學生被捕，他涉嫌與至少10宗假冒官員電話騙案有關，警方表示，被捕人涉嫌冒充香港警察，指示案中被騙的事主簽署保密協定，涉案金額超過300萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797515-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797515-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797515-20250326.htm)
-
----
-
-# 立法會三讀通過法院遙距聆訊條例草案　簡短法律程序優先採用
-
-![立法會三讀通過《法院遙距聆訊條例草案》。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797514_1_20250326170554.jpg&q=80)
-  
-
-立法會三讀通過《法院遙距聆訊條例草案》。條例提供清晰的法律依據，讓法官和司法人員在考慮所有相關情況，以及司法公開和聆訊公正兩大原則後，在認為合適的情況下，可於各級別法院及審裁處的法律程序命令進行遙距聆訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797514-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797514-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797514-20250326.htm)
 
 ---
