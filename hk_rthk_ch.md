@@ -1,3 +1,27 @@
+# 美元兌日圓升穿151　墨西哥披索及加拿大元兌美元受壓
+
+![美元兌日圓升穿151，高見151.15，創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797778_1_20250328062915.jpg&q=80)
+  
+
+美元指數窄幅波動，紐約尾市報104.27，跌約0.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797778-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797778-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797778-20250328.htm)
+
+---
+
 # 港股美國預託證券普遍上升　ATMXJ大多升逾1%
 
 ![港股美國預託證券普遍上升，ATMXJ除了小米微升，其餘都升逾1%，多隻金融股亦造好。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797777_1_20250328055832.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797714-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797714-20250327.htm)
-
----
-
-# 數字辦將統籌推行全新計劃支援中小企應對網絡安全風險
-
-![數字政策辦公室舉行2025年網絡安全推廣計劃簡介會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797713_1_20250327184625.jpg&q=90)
-  
-
-數字政策辦公室舉行2025年網絡安全推廣計劃簡介會，數字政策專員黃志光說，數字辦今年除了繼續與警方網罪科、香港互聯網註冊管理有限公司及香港網絡安全事故協調中心及不同持份者合作，為本地企業提供資訊保安事故應變支援、保安威脅警報、防禦指引和保安教育，以及繼續加強香港網絡安全攻防演練外，數字辦亦會統籌推行全新的計劃網絡防禦一站通及網絡安全供應商聯動計劃，進一步提高中小企對資訊保安的認知及支援業界應對網絡安全風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797713-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797713-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797713-20250327.htm)
 
 ---
