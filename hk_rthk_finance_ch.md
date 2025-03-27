@@ -1,3 +1,27 @@
+# 分析料本港上半年樓價跌2%至3%　下半年或會回升
+
+![王兆麒估計，短期市況仍較波動，上半年樓價累計或跌2%至3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797664_1_20250327132952.jpg&q=85)
+  
+
+差餉物業估價署數據顯示，本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm)
+
+---
+
 # 李家超與糧農組織總幹事會面　共享農業數據為制定政策提供依據
 
   
@@ -119,6 +143,7 @@
 
 # 差估署：上月私人住宅樓價跌幅擴大　創逾8年半新低
 
+![本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797654_1_20250327135943.jpg&q=85)
   
 
 差餉物業估價署數據顯示，本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm)
-
----
-
-# 國泰客機周日低飛至啟德上空　呈現昔日飛機穿梭鬧市集體回憶
-
-![國泰航空表示，屆時A350客機將會飛越維多利亞港，低飛至啟德主場館鄰近的上空。（國泰社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797493_1_20250326152424.jpg&q=90)
-  
-
-為紀念由啟德起航的香港百年航空歷史，適逢香港國際七人欖球賽首次於啟德體育園舉行，政府支持活動主辦機構周日下午進行一次飛越維多利亞港的飛行演示。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797493-20250326.htm)
 
 ---

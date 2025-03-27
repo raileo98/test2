@@ -1,3 +1,73 @@
+# 分析料本港上半年樓價跌2%至3%　下半年或會回升
+
+![王兆麒估計，短期市況仍較波動，上半年樓價累計或跌2%至3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797664_1_20250327132952.jpg&q=85)
+  
+
+差餉物業估價署數據顯示，本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm)
+
+---
+
+# 男子快餐店突大罵及襲擊食客　案件下月9日判刑被告須還柙
+
+  
+
+一名男子於2023年在上水一間快餐店大聲指罵食客，並以膠袋包著的剪刀插向食客，導致對方頭皮及頸部等受傷。涉案男子今日在區域法院承認有意圖傷人罪，暫委法官溫紹明將案件押後下月9日判刑，待索取被告精神科報告，以考慮醫院令是否合適，期間被告還柙候懲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797669-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797669-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797669-20250327.htm)
+
+---
+
+# 首3個月135宗諾如病毒爆發　徐樂堅料病毒活躍期開始完結
+
+  
+
+衞生防護中心總監徐樂堅表示，諾如病毒是冬季常見感染，去年12月開始發現香港諾如病毒活躍程度上升，今年首3個月本港有135宗諾如病毒爆發個案，當中三分之一涉及學校爆發。隨著進入夏季，諾如病毒活躍期開始完結，相信相關風險會慢慢降低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797668-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797668-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797668-20250327.htm)
+
+---
+
 # 李家超與糧農組織總幹事會面　共享農業數據為制定政策提供依據
 
   
@@ -69,6 +139,7 @@
 
 # 差估署：上月私人住宅樓價跌幅擴大　創逾8年半新低
 
+![本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797654_1_20250327135943.jpg&q=85)
   
 
 差餉物業估價署數據顯示，本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。
@@ -1362,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797507-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797507-20250326.htm)
-
----
-
-# 立法會首二讀相關草案　賦權立法會功能界別選舉用點票機點票
-
-![曾國衞說，相關修訂均體現特區政府在完善選舉制度後，希望不斷以穩中求進的態度，致力完善選舉的相關安排。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797503_1_20250326161850.jpg&q=90)
-  
-
-立法會首讀及二讀修訂選舉法例的條例草案，包括建議賦權選管會在立法會功能界別選舉中，可使用點票機點票、並整合有關界別的選票結算表，進一步優化點票流程和提升效率等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797503-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797503-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797503-20250326.htm)
-
----
-
-# 消防處清明及重陽期間利用無人機在指定航道偵測火警
-
-![楊恩健說，除使用無人機吊運，以加強救援效率，亦可使用無人機進行偵測工作。（周國安攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797497_1_20250326155117.jpg&q=90)
-  
-
-當局早前公布首批低空經濟「監管沙盒」試點項目，消防處有兩個項目獲批。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797497-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797497-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797497-20250326.htm)
-
----
-
-# 大灣區救援演練　模擬香港受特大颱風暴雨侵襲向廣東澳門提出要求
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797496_1_20250326155052.jpg&q=75)
-  
-
-香港消防處聯同廣東省消防救援總隊及澳門消防局，將一連三日聯合舉辦粵港澳大灣區應急救援聯合演練。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797496-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797496-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797496-20250326.htm)
 
 ---
