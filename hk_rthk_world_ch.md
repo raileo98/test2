@@ -1,3 +1,27 @@
+# 石破茂：在應對美國汽車關稅時將考慮所有選項
+
+![石破茂說，在應對美國徵收汽車關稅問題上，日本政府會把所有選項放在桌面上。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797626_1_20250327100102.jpg&q=90)
+  
+
+日本首相石破茂說，在應對美國向進口汽車徵收25%關稅的問題上，日本政府會把所有選項放在桌面上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm)
+
+---
+
 # 《環看天下》：美國針對委内瑞拉石油徵二級關稅　中方堅決反對
 
 ![美國政府宣布下月初起向任何進口委內瑞拉石油的國家，徵收25%「二級關稅」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797619_1_20250327091822.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797242-20250325.htm)
-
----
-
-# 《環看天下》：希斯路機場一度關閉　基建後備設施不足惹質疑
-
-![希斯路機場附近一個變電站日前發生火警，影響機場供電。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797241_1_20250325071115.jpg&q=90)
-  
-
-英國倫敦希斯路機場上星期五因附近一個變電站發生大火導致停電，一度暫停運作10多小時。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797241-20250325.htm)
 
 ---

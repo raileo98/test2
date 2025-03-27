@@ -1,3 +1,50 @@
+# 石破茂：在應對美國汽車關稅時將考慮所有選項
+
+![石破茂說，在應對美國徵收汽車關稅問題上，日本政府會把所有選項放在桌面上。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797626_1_20250327100102.jpg&q=90)
+  
+
+日本首相石破茂說，在應對美國向進口汽車徵收25%關稅的問題上，日本政府會把所有選項放在桌面上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm)
+
+---
+
+# 林正財：中產反映突患重病一夜致貧　收費封頂可協助長期住院人士
+
+  
+
+政府公布公營醫療服務收費改革方案，住院及門診收費上限每人每年1萬元，適用於自費藥械外收費項目。行政會議成員林正財表示，有關「封頂」機制過往從未做過，針對包括中產人士。他表示，過往曾有中產人士反映，患上突如其來的重病，例如中風及癌症年輕化等，或會「一夜致貧」，令醫療負擔加重，每年醫療費用或要數萬至10多萬元。新機制可以協助需要經常接受檢查、覆診或長期住院人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797625-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797625-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797625-20250327.htm)
+
+---
+
 # 人行逆回購2185億元人民幣　單日轉為淨回籠500億元
 
 ![人行公開市場開展2185億元人民幣7天期逆回購操作，單日轉為淨回籠500億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797622_1_20250327092635.jpg&q=75)
@@ -48,6 +95,7 @@
 
 # 醫管局澄清處方4周藥物屬計算單位　非要求病人4周後再配藥
 
+![崔俊明解釋每4個星期是計算的單位，並非要病人於4個星期後再到醫院或診所配藥。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797623_1_20250327100050.jpg&q=80)
   
 
 政府公布公營醫療服務收費改革方案，普通科及專科門診的藥物收費將會增加，醫管局總藥劑師崔俊明表示，最多處方4星期藥物的講法只是誤會，他解釋每4個星期是計算的單位，並非要病人於4個星期後再到醫院或診所配藥，否則會令藥劑部的工作壓力大增。
@@ -1386,54 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm)
-
----
-
-# 外交部：澳門特區將切實發揮中國與葡語國家「精準聯繫人」作用
-
-![外交部稱，澳門特區將切實發揮中國與葡語國家「精準聯繫人」的作用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797554_1_20250326195216.jpg&q=80)
-  
-
-在北京，外交部發言人郭嘉昆說，相信澳門特區將充分發揮「一國兩制」制度優勢，切實發揮作為中國與葡語國家「精準聯繫人」的作用，推動中國同葡語國家在經貿、金融、旅遊、高科技等領域合作取得更多成果。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm)
-
----
-
-# 「裕澤香江」高峰論壇完成　陳茂波：香港成為家辦落戶理想地
-
-![陳茂波稱香港正大力推動創科發展，讓香港成為家辦落戶和實踐願景理想地。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797548_1_20250326191440.jpg&q=90)
-![許正宇認為家辦可善用香港獨特生態圈創造可持續影響力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797548_2_20250326192825.jpg&q=90)
-  
-
-「裕澤香江」高峰論壇圓滿完成。匯聚約360位在全球各地具影響力的家族辦公室決策人、領導者和業界，展示香港在創新、投資和跨文化合作方面的蓬勃發展，以及作為東西方橋樑的優勢。出席講者包括阿里巴巴主席蔡崇信、香港財富傳承學院主席鄭志剛、施華洛世奇副主席Robert Buchbauer等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797548-20250326.htm)
 
 ---

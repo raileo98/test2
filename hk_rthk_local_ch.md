@@ -1,5 +1,29 @@
+# 林正財：中產反映突患重病一夜致貧　收費封頂可協助長期住院人士
+
+  
+
+政府公布公營醫療服務收費改革方案，住院及門診收費上限每人每年1萬元，適用於自費藥械外收費項目。行政會議成員林正財表示，有關「封頂」機制過往從未做過，針對包括中產人士。他表示，過往曾有中產人士反映，患上突如其來的重病，例如中風及癌症年輕化等，或會「一夜致貧」，令醫療負擔加重，每年醫療費用或要數萬至10多萬元。新機制可以協助需要經常接受檢查、覆診或長期住院人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797625-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797625-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797625-20250327.htm)
+
+---
+
 # 醫管局澄清處方4周藥物屬計算單位　非要求病人4周後再配藥
 
+![崔俊明解釋每4個星期是計算的單位，並非要病人於4個星期後再到醫院或診所配藥。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797623_1_20250327100050.jpg&q=80)
   
 
 政府公布公營醫療服務收費改革方案，普通科及專科門診的藥物收費將會增加，醫管局總藥劑師崔俊明表示，最多處方4星期藥物的講法只是誤會，他解釋每4個星期是計算的單位，並非要病人於4個星期後再到醫院或診所配藥，否則會令藥劑部的工作壓力大增。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797466-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797466-20250326.htm)
-
----
-
-# 蔡若蓮率代表團出席冰島雷克雅未克教學專業國際高峰會
-
-![蔡若蓮（第一排左三）出席在冰島雷克雅未克舉行的2025教學專業國際高峰會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797465_1_20250326131319.jpg&q=85)
-  
-
-教育局局長蔡若蓮率領香港校長和教育專家代表團，出席在冰島雷克雅未克舉行的教學專業國際高峰會，與其他地區代表一起探討全球教育發展的新趨勢，並藉此機會推廣香港作為國際專上教育樞紐的優勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797465-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797465-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797465-20250326.htm)
 
 ---
