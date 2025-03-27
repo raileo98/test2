@@ -1,3 +1,27 @@
+# Autos lead market losses after Trump's new tariffs
+
+![A line of Porsche cars is displayed outside a dealership in Edmonton, Canada. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797782_1_20250328071224.jpg&q=85)
+  
+
+Automakers were battered on Thursday as stock markets fell on both sides of the Atlantic after US President Donald Trump announced significant tariffs on imported vehicles and parts, pressing ahead with tough trade policies many fear will spark a recession.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797782-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797782-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797782-20250328.htm)
+
+---
+
 # Hong Kong stocks close higher
 
 ![The Hang Seng Index finished up 0.4 percent at 23,578. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797701_1_20250327165821.jpg&q=75)
@@ -1413,29 +1437,5 @@ Shares of CK Hutchison shed more than 6 percent on Friday, after the Beijing off
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm)
-
----
-
-# Hong Kong stocks open higher
-
-![The Hang Seng Index rose 0.8 percent, to open at 23,653. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795677_1_20250314094204.jpg&q=75)
-  
-
-Hong Kong stocks on Friday opened higher, after global markets slid, as US President Donald Trump launched a new volley in his trade war, while gold hit a new record high.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795677-20250314.htm)
 
 ---

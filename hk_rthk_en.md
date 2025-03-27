@@ -1,3 +1,51 @@
+# Autos lead market losses after Trump's new tariffs
+
+![A line of Porsche cars is displayed outside a dealership in Edmonton, Canada. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797782_1_20250328071224.jpg&q=85)
+  
+
+Automakers were battered on Thursday as stock markets fell on both sides of the Atlantic after US President Donald Trump announced significant tariffs on imported vehicles and parts, pressing ahead with tough trade policies many fear will spark a recession.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797782-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797782-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797782-20250328.htm)
+
+---
+
+# China, France pledge stronger ties amid global changes
+
+![The ministers also discussed China-EU relations, agreeing on the need for dialogue to resolve trade disputes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797766_1_20250328023251.jpg&q=85)
+  
+
+Foreign Minister Wang Yi met with French Foreign Minister Jean-Noel Barrot in Beijing on Thursday, vowing to deepen cooperation and strategic coordination.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm)
+
+---
+
 # Beijing offices again question CK Hutchison ports deal
 
 ![The latest Ta Kung Pao article reposted by Beijing offices in Hong Kong said CK Hutchison's ports deal didn't make business sense. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797760_1_20250328011558.jpg&q=75)
@@ -1391,53 +1439,5 @@ The Hang Seng Index rose 116.06 points or 0.5 percent to open at 23,460.31 point
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797435-20250326.htm)
-
----
-
-# Djokovic marches into Miami quarters; Ruud exits
-
-![Novak Djokovic breezed past Italy's Lorenzo Musetti to book his spot in the next round in Miami. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797434_1_20250326101120.jpg&q=90)
-  
-
-Novak Djokovic cruised into the quarter-finals of the Miami Open with a 6-2, 6-2 win over Italian Lorenzo Musetti in one hour 22 minutes.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797434-20250326.htm)
-
----
-
-# French police arrest four over toddler's death
-
-![Authorities stand outside the house of the grandparents of Emile Soleil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797420_1_20250326091733.jpg&q=80)
-  
-
-A months-long investigation into the mysterious death of a French toddler took a surprise turn on Tuesday when police arrested four people including the boy's grandparents on suspicion of murder and concealment of a body.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm)
 
 ---

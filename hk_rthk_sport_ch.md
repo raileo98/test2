@@ -1,3 +1,75 @@
+# 女子歐聯8強次回合巴塞6:1挫禾夫斯堡　車路士3:0曼城
+
+![巴塞女足兩回合10:2血洗禾夫斯堡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797781_1_20250328070857.jpg&q=90)
+  
+
+巴塞女足也傳來好消息，她們在女子歐聯8強次回合，6:1血洗德國的禾夫斯堡女足，兩回合計大勝10:2殺入4強。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797781-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797781-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797781-20250328.htm)
+
+---
+
+# 西甲巴塞羅那3球輕取奧沙辛拿
+
+![巴塞繼續排榜首，領先皇家馬德里3分。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797780_1_20250328070811.jpg&q=90)
+  
+
+西甲巴塞羅那3球輕取奧沙辛拿。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797780-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797780-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797780-20250328.htm)
+
+---
+
+# 邁亞密網球賽「一姐」莎芭蓮卡殺入女單決賽
+
+![邁亞密網球賽「一姐」莎芭蓮卡殺入女單決賽。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797779_1_20250328070326.jpg&q=90)
+  
+
+邁亞密網球賽女單4強，世界排名第一的莎芭蓮卡，面對6號種子意大利的柏奧莉妮，只用了71分鐘，就以直落兩盤6:2輕取對手，殺入決賽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797779-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797779-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797779-20250328.htm)
+
+---
+
 # 啟德體育園引進大型廢物分解系統將於國際七人欖球賽期間運作
 
 ![大型廢物分解系統每年可將逾200噸廚餘、紙杯及其他紙製容器轉化為堆肥。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797731_1_20250327210818.jpg&q=90)
@@ -1375,79 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795187-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795187-20250311.htm)
-
----
-
-# 西甲皇馬2:1挫華歷簡奴　馬體會1:2不敵基達菲
-
-![麥巴比為皇馬攻入一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795035_1_20250310071437.jpg&q=90)
-![基達菲把握多打一人下，2:1擊敗馬體會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795035_2_20250310071437.jpg&q=90)
-  
-
-西班牙甲組聯賽，皇家馬德里憑麥巴比及雲尼斯奧斯入球，主場2:1擊敗華歷簡奴，在馬體會落敗下，升上第二位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795035-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795035-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795035-20250310.htm)
-
----
-
-# 英超阿仙奴作客1:1逼和曼聯　落後利物浦15分
-
-![迪勤懷斯為兵工廠追平。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795034_1_20250310065425.jpg&q=90)
-![車路士的古古尼也（右）一箭定江山，為球隊全取3分。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795034_2_20250310065425.jpg&q=90)
-  
-
-英格蘭超級足球聯賽，排第二位的阿仙奴作客逼和曼聯1:1，在踢少一場下，落後榜首的利物浦15分。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795034-20250310.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795034-20250310.htm](https://news.rthk.hk/rthk/ch/component/k2/1795034-20250310.htm)
-
----
-
-# 羅拔臣奪世界格蘭披治桌球大獎賽冠軍
-
-![羅拔臣不失一局的情況下勝出賽事。（鍾家銘攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795016_1_20250309215337.jpg&q=90)
-  
-
-在啟德體藝館舉行的世界格蘭披治桌球大獎賽，澳洲球手羅拔臣於決賽以局數10:0擊敗英格蘭球手冰咸奪得冠軍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm](https://news.rthk.hk/rthk/ch/component/k2/1795016-20250309.htm)
 
 ---

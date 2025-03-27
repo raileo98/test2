@@ -1,3 +1,75 @@
+# 女子歐聯8強次回合巴塞6:1挫禾夫斯堡　車路士3:0曼城
+
+![巴塞女足兩回合10:2血洗禾夫斯堡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797781_1_20250328070857.jpg&q=90)
+  
+
+巴塞女足也傳來好消息，她們在女子歐聯8強次回合，6:1血洗德國的禾夫斯堡女足，兩回合計大勝10:2殺入4強。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797781-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797781-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797781-20250328.htm)
+
+---
+
+# 西甲巴塞羅那3球輕取奧沙辛拿
+
+![巴塞繼續排榜首，領先皇家馬德里3分。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797780_1_20250328070811.jpg&q=90)
+  
+
+西甲巴塞羅那3球輕取奧沙辛拿。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797780-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797780-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797780-20250328.htm)
+
+---
+
+# 邁亞密網球賽「一姐」莎芭蓮卡殺入女單決賽
+
+![邁亞密網球賽「一姐」莎芭蓮卡殺入女單決賽。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797779_1_20250328070326.jpg&q=90)
+  
+
+邁亞密網球賽女單4強，世界排名第一的莎芭蓮卡，面對6號種子意大利的柏奧莉妮，只用了71分鐘，就以直落兩盤6:2輕取對手，殺入決賽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797779-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797779-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797779-20250328.htm)
+
+---
+
 # 美元兌日圓升穿151　墨西哥披索及加拿大元兌美元受壓
 
 ![美元兌日圓升穿151，高見151.15，創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797778_1_20250328062915.jpg&q=80)
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797718-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797718-20250327.htm)
-
----
-
-# 銀行公會冀利率下調及經濟改善有助本港樓市回暖
-
-![禤惠儀表示，隨着利率逐步下調及經濟改善，期望有助本港樓市回暖，並利好樓價。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797717_1_20250327185121.jpg&q=90)
-  
-
-差餉物業估價署數據顯示，本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797717-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797717-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797717-20250327.htm)
-
----
-
-# 王毅：中法建交精神對中歐和世界都有現實借鑒意義
-
-![外長王毅在同法國外長巴羅共同會見記者。（外交部網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797715_1_20250327193641.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在同法國外長巴羅共同會見記者時，闡述雙方達成的共識。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm)
-
----
-
-# 7歲或以上香港永久居民下周一起持智能身份證可使用e-道
-
-![入境處下星期一起，調整持有智能身份證的香港永久性居民使用e-道服務的合資格年齡至7歲或以上。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797714_1_20250327193820.jpg&q=80)
-  
-
-入境處公布，將於下星期一起，調整持有智能身份證的香港永久性居民使用e-道服務的合資格年齡至7歲或以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797714-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797714-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797714-20250327.htm)
 
 ---

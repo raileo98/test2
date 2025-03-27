@@ -1,3 +1,27 @@
+# China, France pledge stronger ties amid global changes
+
+![The ministers also discussed China-EU relations, agreeing on the need for dialogue to resolve trade disputes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797766_1_20250328023251.jpg&q=85)
+  
+
+Foreign Minister Wang Yi met with French Foreign Minister Jean-Noel Barrot in Beijing on Thursday, vowing to deepen cooperation and strategic coordination.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm)
+
+---
+
 # Beijing offices again question CK Hutchison ports deal
 
 ![The latest Ta Kung Pao article reposted by Beijing offices in Hong Kong said CK Hutchison's ports deal didn't make business sense. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797760_1_20250328011558.jpg&q=75)
@@ -1413,29 +1437,5 @@ China said on Tuesday it hoped a "just and lasting solution" can be found to the
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795258-20250311.htm)
-
----
-
-# 'President Xi gave reassurance to private enterprises'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795229_1_20250311120021.jpg&q=90)
-  
-
-An entrepreneur who founded China's largest seed supplier Shandong Denghai Seeds said President Xi Jinping's speech at a symposium last month provided much-needed reassurance to the nation's private enterprises.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795229-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795229-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795229-20250311.htm)
 
 ---
