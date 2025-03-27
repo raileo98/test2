@@ -1,3 +1,26 @@
+# 保險投訴局去年接獲投訴個案按年升約5%
+
+  
+
+保險投訴局去年共接獲646宗投訴個案，按年升約5%。在已審結的300多宗投訴個案中，住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm)
+
+---
+
 # 范鴻齡稱醫管局醫生及護士去年流失率收窄分別為5%及7.2%
 
   
@@ -1409,30 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797539-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797539-20250326.htm)
-
----
-
-# 房協推售觀塘及粉嶺項目共1604個單位　下月起兩周接受申請
-
-![房協項目「峻然」的間格。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797538_1_20250326185611.jpg&q=90)
-![房協推售觀塘及粉嶺項目共1604個單位　下月起兩周接受申請](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797538_2_20250326185606.jpg&q=90)
-  
-
-房協推售觀塘安達臣道及粉嶺馬會道的資助出售房屋項目，合共提供1604個單位，售價介乎約230萬至636萬元，約為市價7折，下月1日至14日接受申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797538-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797538-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797538-20250326.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 保險投訴局去年接獲投訴個案按年升約5%
+
+  
+
+保險投訴局去年共接獲646宗投訴個案，按年升約5%。在已審結的300多宗投訴個案中，住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm)
+
+---
+
+# 丁薛祥：今年經濟運行起步平穩　努力完成全年經濟社會發展目標
+
+  
+
+中共中央政治局常委、國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式發表主旨演講。他指出，全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm)
+
+---
+
 # 范鴻齡稱醫管局醫生及護士去年流失率收窄分別為5%及7.2%
 
   

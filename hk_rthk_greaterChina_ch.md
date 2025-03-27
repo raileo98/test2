@@ -1,3 +1,26 @@
+# 丁薛祥：今年經濟運行起步平穩　努力完成全年經濟社會發展目標
+
+  
+
+中共中央政治局常委、國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式發表主旨演講。他指出，全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm)
+
+---
+
 # 林大輝稱香港需配合國家外交工作　批評美國推行霸權及保護主義
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797259-20250325.htm)
-
----
-
-# 委內瑞拉面對美方涉能源關稅　中國是委内瑞拉石油最大買家
-
-![委內瑞拉是石油輸出國組織成員國，石油是主要出口產品。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797254_1_20250325104323.jpg&q=90)
-  
-
-美國總統特朗普表示，汽車關稅即將來臨，但並非所有他打算要徵收的關稅，都要在4月2日實施，部分國家可獲減免，但他未有提供細節。市場認為特朗普對關稅措施展現靈活性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797254-20250325.htm)
 
 ---
