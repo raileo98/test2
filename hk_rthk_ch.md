@@ -1,3 +1,27 @@
+# 政府強烈譴責英國所謂半年報告　促停止干涉屬中國內政的香港事務
+
+![特區政府再次強烈敦促英國認清事實，立即停止干涉純屬中國內政的香港事務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797759_1_20250328003430.jpg&q=90)
+  
+
+特區政府強烈譴責英國發表所謂「香港半年報告」，指內容對香港特區各方面情況作出失實言論及污衊抹黑，必須嚴厲直斥其非。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797759-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797759-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797759-20250328.htm)
+
+---
+
 # 粵港澳大灣區律師顧問小組加入網紅　律政司冀制定措施更「貼地」
 
 ![謝承益表示，發現不少港人在內地遇到各式各樣問題或困難，但不懂處理。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_1_20250327235446.jpg&q=75)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797693-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797693-20250327.htm)
-
----
-
-# 新世界發展：加快香港與內地市場資金回籠
-
-![新世界發展稱啟德跑道區住宅項目柏蔚森暫套現近40億元；北角皇都套現逾33.7億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797691_1_20250327160602.jpg&q=90)
-  
-
-新世界發展表示，將把握機遇，加快香港與內地市場資金回籠。集團與遠東發展合作開發的啟德跑道區住宅項目柏蔚森，截至本周一合共售出約540個單位，套現近40億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm)
 
 ---

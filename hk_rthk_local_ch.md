@@ -1,3 +1,27 @@
+# 政府強烈譴責英國所謂半年報告　促停止干涉屬中國內政的香港事務
+
+![特區政府再次強烈敦促英國認清事實，立即停止干涉純屬中國內政的香港事務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797759_1_20250328003430.jpg&q=90)
+  
+
+特區政府強烈譴責英國發表所謂「香港半年報告」，指內容對香港特區各方面情況作出失實言論及污衊抹黑，必須嚴厲直斥其非。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797759-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797759-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797759-20250328.htm)
+
+---
+
 # 粵港澳大灣區律師顧問小組加入網紅　律政司冀制定措施更「貼地」
 
 ![謝承益表示，發現不少港人在內地遇到各式各樣問題或困難，但不懂處理。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_1_20250327235446.jpg&q=75)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797585-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797585-20250327.htm)
-
----
-
-# 黃澤林感謝團隊及外界支持給予動力　稱暫時目標打泥地賽提升排名
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797583_1_20250327002027.jpg&q=90)
-  
-
-創下本港網球手在ATP-1000分賽最佳成績的黃澤林昨晚返抵香港。他表示，雖然美國邁阿密網球公開賽很累，但很開心打得不錯。這類賽事每場都要百分百投入，但始終不是參加很多大滿貫或ATP-1000分賽，自己仍未習慣，需要時間適應和學習。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797583-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797583-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797583-20250327.htm)
 
 ---
