@@ -1,3 +1,75 @@
+# 美元兌日圓升穿151　墨西哥披索及加拿大元兌美元受壓
+
+![美元兌日圓升穿151，高見151.15，創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797778_1_20250328062915.jpg&q=80)
+  
+
+美元指數窄幅波動，紐約尾市報104.27，跌約0.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797778-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797778-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797778-20250328.htm)
+
+---
+
+# 港股美國預託證券普遍上升　ATMXJ大多升逾1%
+
+![港股美國預託證券普遍上升，ATMXJ除了小米微升，其餘都升逾1%，多隻金融股亦造好。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797777_1_20250328055832.jpg&q=90)
+  
+
+港股美國預託證券(ADR)普遍上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797777-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797777-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797777-20250328.htm)
+
+---
+
+# 金價升逾1%創新高　現貨金迫近3060美元
+
+![金價創新高，現貨金高見每盎司3059.3美元，升逾1.3%，較早時徘徊3056美元附近。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797776_1_20250328055409.jpg&q=75)
+  
+
+金價創新高，美國關稅措施引發全球貿易緊張局勢升級，資金流入避險資產。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797776-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797776-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797776-20250328.htm)
+
+---
+
 # 油價靠穩　市場評估供應收緊及貿易戰風險
 
 ![國際油價延續上日升勢，英美期油分別升0.3%及約0.4%收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797775_1_20250328055102.jpg&q=90)
@@ -695,30 +767,6 @@
 
 ---
 
-# 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
-
-![李家超表示，丁薛祥發表主旨演講，就共創亞洲和世界更加美好的未來提出「四點建議」，及就國家經濟走勢提出「三點看法」。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797684_1_20250327162313.jpg&q=90)
-  
-
-行政長官李家超說，「一國兩制」下，香港是全球唯一同時享有中國優勢及國際優勢的開放經濟體。面對地緣政治變化、保護主義和單邊主義冒起，香港始終倡導自由貿易及多邊主義，致力於增強應對挑戰的應變能力，亦是外國企業進軍內地以及內地企業「走出去」的最佳平台。在國家支持下，香港會進一步深化國際交往合作，並與國家及亞洲各國一道增進互信團結、開放融通、互利共贏、和平共處，促進亞洲經濟發展，推動全球經濟一體化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
-
----
-
 # 金管局冀穩定幣相關法案未來幾個月獲立法會通過
 
 ![陳維民形容，香港在發展穩定幣方面進展良好，相關法案正經立法會審議，期望在未來幾個月通過。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797685_1_20250327154514.jpg&q=80)
@@ -740,6 +788,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm)
+
+---
+
+# 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
+
+![李家超表示，丁薛祥發表主旨演講，就共創亞洲和世界更加美好的未來提出「四點建議」，及就國家經濟走勢提出「三點看法」。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797684_1_20250327162313.jpg&q=90)
+  
+
+行政長官李家超說，「一國兩制」下，香港是全球唯一同時享有中國優勢及國際優勢的開放經濟體。面對地緣政治變化、保護主義和單邊主義冒起，香港始終倡導自由貿易及多邊主義，致力於增強應對挑戰的應變能力，亦是外國企業進軍內地以及內地企業「走出去」的最佳平台。在國家支持下，香港會進一步深化國際交往合作，並與國家及亞洲各國一道增進互信團結、開放融通、互利共贏、和平共處，促進亞洲經濟發展，推動全球經濟一體化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
 
 ---
 
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm)
-
----
-
-# 差估署：本港2月樓價指數按月跌0.87%　創逾8年半新低
-
-![本港上月住宅樓價連跌3個月，創逾8年半新低。  （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797627_1_20250327102342.jpg&q=85)
-  
-
-本港上月住宅樓價連跌3個月，創逾8年半新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm)
-
----
-
-# 石破茂：在應對美國汽車關稅時將考慮所有選項
-
-![石破茂說，在應對美國徵收汽車關稅問題上，日本政府會把所有選項放在桌面上。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797626_1_20250327100102.jpg&q=90)
-  
-
-日本首相石破茂說，在應對美國向進口汽車徵收25%關稅的問題上，日本政府會把所有選項放在桌面上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm)
-
----
-
-# 人行逆回購2185億元人民幣　單日轉為淨回籠500億元
-
-![人行公開市場開展2185億元人民幣7天期逆回購操作，單日轉為淨回籠500億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797622_1_20250327092635.jpg&q=75)
-  
-
-人民銀行公開市場開展2185億元人民幣7天期逆回購操作，投標量與中標量相同，利率維持1.5厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797622-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797622-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797622-20250327.htm)
 
 ---

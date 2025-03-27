@@ -1,3 +1,51 @@
+# 港股美國預託證券普遍上升　ATMXJ大多升逾1%
+
+![港股美國預託證券普遍上升，ATMXJ除了小米微升，其餘都升逾1%，多隻金融股亦造好。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797777_1_20250328055832.jpg&q=90)
+  
+
+港股美國預託證券(ADR)普遍上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797777-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797777-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797777-20250328.htm)
+
+---
+
+# 金價升逾1%創新高　現貨金迫近3060美元
+
+![金價創新高，現貨金高見每盎司3059.3美元，升逾1.3%，較早時徘徊3056美元附近。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797776_1_20250328055409.jpg&q=75)
+  
+
+金價創新高，美國關稅措施引發全球貿易緊張局勢升級，資金流入避險資產。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797776-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797776-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797776-20250328.htm)
+
+---
+
 # 油價靠穩　市場評估供應收緊及貿易戰風險
 
 ![國際油價延續上日升勢，英美期油分別升0.3%及約0.4%收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797775_1_20250328055102.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797713-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797713-20250327.htm)
-
----
-
-# 保險投訴局去年接獲投訴個案按年升約5%
-
-![保險投訴局去年共接獲646宗投訴個案，按年升約5%。（陳菀禧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797712_1_20250327184555.jpg&q=90)
-  
-
-保險投訴局去年共接獲646宗投訴個案，按年升約5%。在已審結的300多宗投訴個案中，住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm)
-
----
-
-# 丁薛祥：今年經濟運行起步平穩　努力完成全年經濟社會發展目標
-
-![丁薛祥說，今年首兩個月，中國經濟運行起步平穩。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797711_1_20250327193831.jpg&q=80)
-  
-
-中共中央政治局常委、國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式發表主旨演講。他指出，全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm)
 
 ---
