@@ -1,5 +1,30 @@
+# 墨西哥僱主聯合會指美國汽車關稅降低北美競爭力及致失業率上升
+
+![聯合會指加徵關稅將影響數十年來建立起來的貿易與生產一體化。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797771_1_20250328042209.jpg&q=80)
+  
+
+美國政府推出汽車關稅措施。墨西哥是美國最大的汽車供應國，其次是南韓、日本、加拿大及德國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797771-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797771-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797771-20250328.htm)
+
+---
+
 # 德國指歐盟須堅定回應美國汽車關稅　加國總理稱若受威脅會反擊
 
+![卡尼形容加美之間原本的經濟與安全關係已經過去。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797770_1_20250328041415.jpg&q=90)
   
 
 美國的汽車關稅措施令全球貿易戰進一步蔓延。德國經濟和氣候保護部部長哈貝克表示，歐盟必須作出堅定回應，不可以向美國屈服，需要展現力量及自信。
@@ -1412,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm)
-
----
-
-# 王毅與法國外長會談　強調雙方要以互利共贏反對脫鉤斷鏈
-
-![外長王毅在北京同法國外長巴羅會談。（外交部網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797708_1_20250327193722.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在北京同法國外長巴羅會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm)
 
 ---
