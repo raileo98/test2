@@ -1,3 +1,26 @@
+# 朱民：中國經濟改革要轉向消費　成為經濟主要動力
+
+  
+
+中國國際經濟交流中心副理事長、國際貨幣基金組織前副總裁朱民表示，2018年美國向中國加徵關稅，市場信心受挫，但其後企業開始出海，認為中國整體應對得不錯，當年中國對美國出口額約5000億美元，現時仍可保持相若水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm)
+
+---
+
 # 中美均形容經貿官員通話坦誠　何立峰就美對華徵關稅表達嚴正關切
 
 ![何立峰就美方以芬太尼為由對華加徵關稅等問題，向美國貿易代表表達嚴正關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797590_1_20250327032925.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797167-20250324.htm)
-
----
-
-# 丁薛祥將出席博鰲亞洲論壇2025年年會
-
-![丁薛祥將出席博鰲亞洲論壇2025年年會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797159_1_20250324155151.jpg&q=90)
-  
-
-在北京，外交部表示，中共中央政治局常委、國務院副總理丁薛祥將於本星期四，應邀出席在海南舉行的博鰲亞洲論壇2025年年會開幕式並發表主旨演講。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm](https://news.rthk.hk/rthk/ch/component/k2/1797159-20250324.htm)
 
 ---

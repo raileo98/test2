@@ -1,3 +1,26 @@
+# 朱民：中國經濟改革要轉向消費　成為經濟主要動力
+
+  
+
+中國國際經濟交流中心副理事長、國際貨幣基金組織前副總裁朱民表示，2018年美國向中國加徵關稅，市場信心受挫，但其後企業開始出海，認為中國整體應對得不錯，當年中國對美國出口額約5000億美元，現時仍可保持相若水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm)
+
+---
+
 # 日股半日跌約1%
 
 ![日經指數半日跌353點，報37674點，跌幅0.93%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797632_1_20250327104659.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797469-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797469-20250326.htm)
-
----
-
-# 港股下午初段升近百點
-
-![恒生指數較早時報23427點，升82點，升幅0.36%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797470_1_20250326130905.jpg&q=10)
-  
-
-港股下午初段靠穩，恒生指數較早時報23427點，升82點，升幅0.36%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797470-20250326.htm)
 
 ---
