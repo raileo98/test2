@@ -1,3 +1,27 @@
+# 美國10年期債息觸及4.4厘　創逾1個月新高
+
+![美國10年期債息觸及4.4厘，創逾1個月新高，升6.2個基點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797783_1_20250328071200.jpg&q=85)
+  
+
+美國長債孳息率上升，投資者正衡量美國最新關稅措施對通脹的影響，至於較早時公布的數據顯示經濟繼續保持韌性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797783-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797783-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797783-20250328.htm)
+
+---
+
 # 女子歐聯8強次回合巴塞6:1挫禾夫斯堡　車路士3:0曼城
 
 ![巴塞女足兩回合10:2血洗禾夫斯堡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797781_1_20250328070857.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm)
-
----
-
-# 銀行公會：關稅促進其他貿易走廊發展　香港可以把握機遇
-
-![禤惠儀表示，銀行公會在日後出訪行程中，聯合商會幫助中小企把握新冒起貿易走廊的機遇。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797718_1_20250327185455.jpg&q=90)
-  
-
-銀行公會主席禤惠儀表示，香港作為外向型經濟，雖然面對關稅等不確定性，但市場已經做好分散風險的部署，而關稅亦涉及不同國家，反而促進其他貿易走廊的發展，認為香港可以把握相關機遇。她期望，銀行公會在日後出訪行程中，聯合商會幫助中小企把握新冒起貿易走廊的機遇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797718-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797718-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797718-20250327.htm)
 
 ---
