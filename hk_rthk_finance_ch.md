@@ -1,3 +1,27 @@
+# 美國10年期債息觸及4.4厘　創逾1個月新高
+
+![美國10年期債息觸及4.4厘，創逾1個月新高，升6.2個基點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797783_1_20250328071200.jpg&q=85)
+  
+
+美國長債孳息率上升，投資者正衡量美國最新關稅措施對通脹的影響，至於較早時公布的數據顯示經濟繼續保持韌性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797783-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797783-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797783-20250328.htm)
+
+---
+
 # 美元兌日圓升穿151　墨西哥披索及加拿大元兌美元受壓
 
 ![美元兌日圓升穿151，高見151.15，創近1個月新高。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797778_1_20250328062915.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797632-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797632-20250327.htm)
-
----
-
-# 本港2月住宅租金連升3個月
-
-![差餉物業估價署數據顯示，2月私人住宅租金指數升至193.5，創5個月新高，按月升逾0.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797630_1_20250327103802.jpg&q=85)
-  
-
-差餉物業估價署數據顯示，2月私人住宅租金指數升至193.5，創5個月新高，按月升逾0.3%，連升3個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm)
 
 ---
