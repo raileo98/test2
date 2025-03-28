@@ -1,3 +1,26 @@
+# 吳秋北稱國家機關介入審查順理成章　檢視有否壟斷國安發展範圍
+
+  
+
+長和本月初宣布，向美國貝萊德牽頭的財團出售巴拿馬運河港口等業務。國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm)
+
+---
+
 # 保安局向緬甸及泰國發出黃色外遊警示
 
 ![保安局向緬甸及泰國發外遊警示，表示有威脅跡象。（保安局網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797947_1_20250328230651.jpg&q=90)
@@ -1426,29 +1449,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm)
-
----
-
-# 高拔陞稱普通科門診夜診服務需視乎實際需要每區各有不同
-
-![高拔陞表示，醫管局每年會增加普通科門診服務量，日後做法需要視乎實際需要。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797735_1_20250327212826.jpg&q=90)
-  
-
-醫管局現時全港74間普通科門診，少於三分一提供夜診，診症時間最遲至晚上10時。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797735-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797735-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797735-20250327.htm)
 
 ---

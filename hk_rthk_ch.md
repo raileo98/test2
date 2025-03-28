@@ -1,3 +1,50 @@
+# 吳秋北稱國家機關介入審查順理成章　檢視有否壟斷國安發展範圍
+
+  
+
+長和本月初宣布，向美國貝萊德牽頭的財團出售巴拿馬運河港口等業務。國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm)
+
+---
+
+# 美國密歇根大學3月消費者信心指數終值低於預期
+
+![美國密歇根大學消費者調查顯示，美國3月消費者信心指數終值為57，低過初值及預期的57.9。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797946_1_20250328230517.jpg&q=75)
+  
+
+美國密歇根大學消費者調查顯示，美國3月消費者信心指數終值為57，低過初值及預期的57.9，亦低於2月的64.7。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797946-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797946-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797946-20250328.htm)
+
+---
+
 # 思捷環球：若下周一前無法刊發經審核年度業績　下周二起或停牌
 
 ![思捷環球表示，若無法於下周一或之前刊發經審核的年度業績，股份將於下周二早上9時正起停牌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797945_1_20250328225355.jpg&q=90)
