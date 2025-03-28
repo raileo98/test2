@@ -1,3 +1,27 @@
+# Cathay flight to Bangkok turned back after quake
+
+![Cathay Pacific says other flights operated by the airline to and from Bangkok are expected to experience delays. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797916_1_20250328190210.jpg&q=90)
+  
+
+A Cathay Pacific flight to Bangkok was forced to return to Hong Kong after take-off on Friday after a deadly earthquake that hit Thailand and Myanmar.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm)
+
+---
+
 # Praise for new stadium on day 1 of HK Sevens
 
 ![Fans gathered for day one of the Hong Kong Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797906_2_20250328181344.jpg&q=75)
@@ -1428,30 +1452,5 @@ The head of the Science Park called for a balanced approach in technological dev
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797006-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797006-20250323.htm)
-
----
-
-# Government demands action on Coldplay ticket errors
-
-![The British band is due to perform at the Kai Tak Sports Park next month. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796977_3_20250323055100.jpg&q=90)
-![In a statement issued late on Saturday, the Culture, Sports and Tourism Bureau said Cityline should deal with the matter swiftly. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796977_2_20250323043112.jpg&q=90)
-  
-
-The government is demanding that ticketing platform Cityline fix printing errors on some Coldplay concert tickets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm)
 
 ---

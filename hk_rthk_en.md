@@ -1,3 +1,27 @@
+# Cathay flight to Bangkok turned back after quake
+
+![Cathay Pacific says other flights operated by the airline to and from Bangkok are expected to experience delays. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797916_1_20250328190210.jpg&q=90)
+  
+
+A Cathay Pacific flight to Bangkok was forced to return to Hong Kong after take-off on Friday after a deadly earthquake that hit Thailand and Myanmar.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm)
+
+---
+
 # Xi urges global CEOs to protect trade as tariffs loom
 
 ![President Xi Jinping and representatives of the international business community pose for a group photo at the Great Hall of the People in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797914_1_20250328185208.jpg&q=80)
@@ -1429,29 +1453,5 @@ Asian shares mostly skidded with Wall Street on Thursday while the dollar hovere
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm)
-
----
-
-# Wang Yi to meet French counterpart Jean-Noel Barrot
-
-![Foreign Minister Wang Yi will meet the top diplomat from France, Jean-Noel Barrot. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797631_1_20250327104617.jpg&q=90)
-  
-
-Foreign Minister Wang Yi will meet top French diplomat Jean-Noel Barrot on Thursday for talks on topics like the war in Ukraine and trade between China and the European Union.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm)
 
 ---
