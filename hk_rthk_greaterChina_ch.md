@@ -1,3 +1,27 @@
+# 國新辦發表白皮書　強調西藏人權法治化水平持續提升
+
+![國務院新聞辦公室發布《新時代西藏人權事業的發展與進步》白皮書。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797882_1_20250328163412.jpg&q=90)
+  
+
+國務院新聞辦公室發布《新時代西藏人權事業的發展與進步》白皮書，強調新時代西藏人權事業取得的歷史性成就前所未有。在以中國式現代化全面推進中華民族偉大復興的新時代新征程上，中國共產黨和中國政府將繼續順應西藏各族人民對美好生活的期待，推動西藏人權事業實現更高質量的發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797882-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797882-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797882-20250328.htm)
+
+---
+
 # 外交部：中方堅決反對英方炮製所謂「半年報告」干涉中國內政
 
 ![郭嘉昆說，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797879_1_20250328162152.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm)
-
----
-
-# 湖北省委原書記蔣超良被提請罷免全國人大代表資格
-
-![湖北省委原書記蔣超良被提請罷免全國人大代表資格](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797499_1_20250326184221.jpg&q=90)
-  
-
-早前落馬的湖北省委原書記蔣超良，被提請罷免全國人大代表資格。湖北省人大常委會會議昨日在武昌舉行，湖北人大秘書長張愛國説明提請罷免蔣超良全國人大職務的議案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797499-20250326.htm)
 
 ---

@@ -1,3 +1,23 @@
+# 緬甸大地震　據報曼德勒一間清真寺倒塌10人死亡
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797883-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797883-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797883-20250328.htm)
+
+---
+
 # 外交部：中方堅決反對英方炮製所謂「半年報告」干涉中國內政
 
 ![郭嘉昆說，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797879_1_20250328162152.jpg&q=90)
@@ -1412,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm)
-
----
-
-# 卡尼：中國並不認同加拿大價值觀　加強雙邊貿易關係需非常謹慎
-
-![卡尼表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面需要非常謹慎。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797589_1_20250327023249.jpg&q=90)
-  
-
-加拿大總理卡尼表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面需要非常謹慎。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797589-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797589-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797589-20250327.htm)
 
 ---
