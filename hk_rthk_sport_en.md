@@ -1,3 +1,28 @@
+# Dream run ends for remarkable Eala
+
+![Alexandra Eala holds her head high even after Jessica Pegula ends her remarkable Miami Open run at the Hard Rock Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797850_1_20250328133508.jpg&q=90)
+![Jessica Pegula has a word with Alexandra Eala after squeezing through to the finals. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797850_2_20250328133508.jpg&q=90)
+  
+
+Philippines sensation Alexandra Eala's remarkable run at the Miami Open came to a brave end with a three-set loss to Jessica Pegula in the semi-finals on Friday Hong Kong time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm)
+
+---
+
 # Bulls score 6 points in 6 seconds in win over Lakers
 
 ![Late triples from Coby White (L) and Josh Giddey helped the Bulls to a win over the Lakers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797835_1_20250328123014.jpg&q=90)
@@ -1414,29 +1439,5 @@ The 2027 Tour de France will start in Edinburgh with the first three stages taki
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm)
-
----
-
-# Ohtani hits home run as Dodgers sweep Cubs in Tokyo
-
-![Shohei Ohtani scores a home run at the Tokyo Dome. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796480_1_20250319221213.jpg&q=90)
-  
-
-Shohei Ohtani hit a home run but Roki Sasaki had a wobbly Major League Baseball debut as the Los Angeles Dodgers beat the Chicago Cubs 6-3 in Tokyo on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm)
 
 ---

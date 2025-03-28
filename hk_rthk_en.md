@@ -1,3 +1,28 @@
+# Dream run ends for remarkable Eala
+
+![Alexandra Eala holds her head high even after Jessica Pegula ends her remarkable Miami Open run at the Hard Rock Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797850_1_20250328133508.jpg&q=90)
+![Jessica Pegula has a word with Alexandra Eala after squeezing through to the finals. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797850_2_20250328133508.jpg&q=90)
+  
+
+Philippines sensation Alexandra Eala's remarkable run at the Miami Open came to a brave end with a three-set loss to Jessica Pegula in the semi-finals on Friday Hong Kong time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm)
+
+---
+
 # Rallies set as Duterte marks 80th birthday in prison
 
 ![Relatives of drug war and extrajudicial killing victims in Quezon City watch a live telecast of the initial appearance of Rodrigo Duterte at the International Criminal Court in the Hague. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797846_1_20250328130849.jpg&q=80)
@@ -1422,29 +1447,5 @@ People who have financial difficulties would be able to apply online for waivers
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797528-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797528-20250326.htm)
-
----
-
-# New Zealand aim for HK Sevens three-peat
-
-![The Melrose Claymores, a tournament featuring Asian teams that runs alongside the Sevens, will be back this weekend. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797526_4_20250326175525.jpg&q=80)
-  
-
-The men’s and women’s squad from New Zealand are chasing their third straight Hong Kong Sevens title this weekend when they battle it out at the brand new Kai Tak Stadium.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm)
 
 ---

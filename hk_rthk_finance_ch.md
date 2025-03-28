@@ -1,3 +1,27 @@
+# 中國中信去年盈利升逾1%
+
+![中國中信去年盈利582億元人民幣，按年升1.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797847_1_20250328130950.jpg&q=90)
+  
+
+中國中信去年盈利582億元人民幣，按年升1.1%；末期息每股0.36元，全年股息0.55元，按年分別升7.5%及近7%。全年派息率27.5%，按年提高1.5個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797847-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797847-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797847-20250328.htm)
+
+---
+
 # 龍湖集團去年盈利跌19%　有息負債減至1763億元人民幣
 
 ![龍湖集團截至去年底，有息負債較去年初減少163億元人民幣，減至1763.2億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797843_1_20250328125815.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm)
-
----
-
-# 金管局冀穩定幣相關法案未來幾個月獲立法會通過
-
-![陳維民形容，香港在發展穩定幣方面進展良好，相關法案正經立法會審議，期望在未來幾個月通過。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797685_1_20250327154514.jpg&q=80)
-  
-
-金管局副總裁陳維民表示，正就「穩定幣」發行建立監管框架，為加密貨幣生態系統的發展打下基礎。他形容，香港在發展穩定幣方面進展良好，相關法案正經立法會審議，期望在未來幾個月通過。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797685-20250327.htm)
 
 ---
