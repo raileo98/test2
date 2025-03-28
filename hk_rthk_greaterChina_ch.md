@@ -1,5 +1,6 @@
 # 習近平在北京會見國際工商界代表
 
+![習近平上午在北京人民大會堂會見國際工商界代表。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797819_1_20250328111018.jpg&q=90)
   
 
 新華社報道，國家主席習近平上午在北京人民大會堂會見國際工商界代表。
