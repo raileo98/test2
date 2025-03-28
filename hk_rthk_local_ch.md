@@ -1,3 +1,26 @@
+# 男子攜500萬元歐羅遇劫反抗匪徒事敗　警拘4非華裔男子
+
+  
+
+警方以「企圖行劫」罪拘捕4名非華裔男子，涉嫌與昨日尖沙咀一宗行劫案有關，涉及約4200港萬元財物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797869-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797869-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797869-20250328.htm)
+
+---
+
 # 彩石邨3大廈9成單位租金每月2500元以下　每平方米74元
 
 ![房委會表示，今次租金釐定，超逾91%單位的租金水平定於每月2500元以下。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797859_1_20250328144517.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797670-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797670-20250327.htm)
-
----
-
-# 分析料本港上半年樓價跌2%至3%　下半年或會回升
-
-![王兆麒估計，短期市況仍較波動，上半年樓價累計或跌2%至3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797664_1_20250327132952.jpg&q=85)
-  
-
-差餉物業估價署數據顯示，本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm)
 
 ---

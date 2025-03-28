@@ -1,5 +1,29 @@
+# 男子攜500萬元歐羅遇劫反抗匪徒事敗　警拘4非華裔男子
+
+  
+
+警方以「企圖行劫」罪拘捕4名非華裔男子，涉嫌與昨日尖沙咀一宗行劫案有關，涉及約4200港萬元財物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797869-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797869-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797869-20250328.htm)
+
+---
+
 # 緬甸大地震　新華社據悉曼德勒省部分建築物倒塌　有道路斷裂
 
+![緬甸發生大地震，泰國曼谷有震感，民眾紛紛湧到街上。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797868_1_20250328153023.jpg&q=60)
   
 
 緬甸發生黎克特制7級以上猛烈地震，首都內比都和最大城市仰光震感強烈。央視新聞報道，雲南多地和泰國全國有震感，曼谷震感持續數分鐘，民眾紛紛離開高層建築物，湧到街上。
