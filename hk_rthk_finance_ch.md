@@ -1,3 +1,27 @@
+# 分析料配股集資潮持續　汽車及科技股集資壓力較大
+
+![溫傑預料大市仍未見今年高位，估計配股潮仍會持續，除了汽車股，科技股亦有較大的集資壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797852_1_20250328135547.jpg&q=90)
+  
+
+接連有汽車股配股集資，比亞迪股份、小米、蔚來在今個月合共集資逾901億元，當中，蔚來集資略多於40億元，遠低於其餘兩家車企的各自400幾億元，三家公司配股作價折讓幅度全部都不足一成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797852-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797852-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797852-20250328.htm)
+
+---
+
 # 中國中信去年盈利升逾1%
 
 ![中國中信去年盈利582億元人民幣，按年升1.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797847_1_20250328130950.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm)
-
----
-
-# 商務部：中方已在世貿爭端解決機制起訴美方加徵關稅措施
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797686_1_20250327155129.jpg&q=75)
-  
-
-在北京，商務部表示，針對美方加徵關稅措施，中方已在世貿組織爭端解決機制下起訴，將根據世貿組織規則推進後續程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm)
 
 ---
