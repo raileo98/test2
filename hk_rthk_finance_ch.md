@@ -1,3 +1,26 @@
+# 龔如心遺產受託人完成籌組理事會　開展準備工作管理慈善信託
+
+  
+
+就龔如心遺產案，龔如心慈善管理有限公司年初獲委任為已故龔如心遺產下的慈善信託的受託人，律政司表示，受託人已完成籌組理事會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm)
+
+---
+
 # 恒指半日轉跌210點　科指跌近1.7%
 
 ![恒指中午收市報23368點，跌210點，跌幅近0.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797828_1_20250328121259.jpg&q=75)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797672-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797672-20250327.htm)
-
----
-
-# 廖宜建：滙豐與香港關係密不可分　一定會繼續投資
-
-![廖宜建：香港與內地市場一向是集團增長和盈利中心，一定會繼續投資，同時優化配置資源。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797675_1_20250327144656.jpg&q=90)
-  
-
-滙豐亞洲及中東地區聯席行政總裁廖宜建表示，滙豐與香港關係密不可分，共通點之一是聯繫全球，認為香港是國家在全球化進程中重要部份，包括協助內地、東南亞等企業到港上市，為私募資本創造有系統的退出機制。他認為，需要確保生態圈能夠運作暢順，指出香港可以在兩方面更上一層樓，包括持續強化多幣種功能，如支付、結算、產品、風險管理等；而互聯互通機制仍屬於發展初期，在資產類別、市場參與者和管理規模等方面，仍有較大發展空間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm)
 
 ---

@@ -72,7 +72,7 @@ US President Donald Trump withdrew right-wing firebrand Elise Stefanik as his no
 
 # Light rain aids firefighters in South Korea
 
-![A firefighting helicopter drops water as it flies during an operation amidst a wildfire in Uiseong, South Korea. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797801_1_20250328093036.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797801_1_20250328093036.jpg&q=90)
   
 
 Light rain offered some relief to South Korean authorities tackling the country's worst wildfires on record, with exhausted firefighters making another push on Friday to contain blazes stretching 70 km.

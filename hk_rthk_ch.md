@@ -1,3 +1,96 @@
+# 習近平談外商投資遭政治干擾　稱吹滅別人的燈不會讓自己更光明
+
+![國家主席習近平在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797834_1_20250328122935.jpg&q=90)
+  
+
+國家主席習近平在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm)
+
+---
+
+# 七欖開鑼鄧竟成稱早上安排順暢　羅淑佩料稍後有更多人入場
+
+  
+
+一連3日的香港國際七人欖球賽在啟德主場館舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm)
+
+---
+
+# 龔如心遺產受託人完成籌組理事會　開展準備工作管理慈善信託
+
+  
+
+就龔如心遺產案，龔如心慈善管理有限公司年初獲委任為已故龔如心遺產下的慈善信託的受託人，律政司表示，受託人已完成籌組理事會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm)
+
+---
+
+# 加強打擊濫用公屋修例刊憲　下月2日交立法會首讀二讀
+
+  
+
+《2025年房屋（修訂）條例草案》刊憲，政府表示，條例草案將引入嚴重濫用公屋的新罪行；賦權獲授權人員要求可疑人士提供個人資料；及延長虛假陳述、拒絕提供資料及非法讓與罪行的檢控時效，令打擊濫用公屋的措施更具阻嚇力。根據建議，法例修訂將於明年3月底生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797831-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797831-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797831-20250328.htm)
+
+---
+
 # 恒指半日轉跌210點　科指跌近1.7%
 
 ![恒指中午收市報23368點，跌210點，跌幅近0.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797828_1_20250328121259.jpg&q=75)
@@ -1343,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm)
-
----
-
-# 國台辦：台艦與福建漁船碰撞無人傷亡　譴責台艦惡劣行徑
-
-![國台辦表示，今日凌晨，台灣「中和艦」與福建一艘正常作業的漁船發生碰撞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797754_1_20250327231615.jpg&q=90)
-  
-
-在北京，國台辦發言人陳斌華表示，今日凌晨，台灣「中和艦」與福建一艘正常作業的漁船發生碰撞，並未造成人員傷亡，但漁船受到損傷。大陸對台艦的惡劣行徑表示譴責，將對事件進行調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797754-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797754-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797754-20250327.htm)
-
----
-
-# 蔚來擬折讓逾9%配股集資最多40.3億元
-
-![蔚來計劃折讓逾9%配股集資最多40.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797751_1_20250327225635.jpg&q=90)
-  
-
-蔚來公布，計劃配售最多近1.37億股A類普通股股份，配股規模較最初公布的約1.2億股有所擴大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797751-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797751-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797751-20250327.htm)
-
----
-
-# 美國2月二手樓臨時買賣合約指數按月轉升2%
-
-![美國2月二手樓臨時買賣合約指數升至72，按月轉升2%，升幅高過預期的1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797749_1_20250327224419.jpg&q=90)
-  
-
-全美不動產協會(NAR)公布，美國2月二手樓臨時買賣合約指數升至72，按月轉升2%，升幅高過預期的1%。按年比較，2月指數下跌3.6%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm)
-
----
-
-# 南韓東南部山火增至28人死亡
-
-![南韓當局出動直升機協助撲救山火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797750_1_20250327225531.jpg&q=90)
-  
-
-南韓東南部慶尚道地區山火持續，增至28人死亡，超過30人受傷，火場面積超過38000公頃創新高，37800多人緊急撤離。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm)
 
 ---

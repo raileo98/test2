@@ -1,3 +1,51 @@
+# Bulls score 6 points in 6 seconds in win over Lakers
+
+![Late triples from Coby White (L) and Josh Giddey helped the Bulls to a win over the Lakers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797835_1_20250328123014.jpg&q=90)
+  
+
+Josh Giddey buried a miracle shot from beyond halfcourt at the final buzzer as the Chicago Bulls overturned an 18-point fourth-quarter deficit to beat the Los Angeles Lakers 119-117.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm)
+
+---
+
+# 'Use AI chatbots in triage system to avoid mistakes'
+
+![A patient rights group has proposed the use of AI chatbots in triage system at public hospitals to help patients gain a better understanding of their conditions. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797824_1_20250328114303.jpg&q=90)
+  
+
+A patient rights group says it hopes the government can use AI chatbots in its triage system at public hospitals to help patients gain a better understanding of their conditions and symptoms.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797824-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797824-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797824-20250328.htm)
+
+---
+
 # Xi meets heads of international business community
 
 ![Xi Jinping had also met with foreign business leaders after the China Development Forum last year. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797830_1_20250328121558.jpg&q=90)
@@ -273,7 +321,7 @@ It's unclear what next year's NBA All-Star Game will look like, but commissioner
 
 # Light rain aids firefighters in South Korea
 
-![A firefighting helicopter drops water as it flies during an operation amidst a wildfire in Uiseong, South Korea. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797801_1_20250328093036.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797801_1_20250328093036.jpg&q=90)
   
 
 Light rain offered some relief to South Korean authorities tackling the country's worst wildfires on record, with exhausted firefighters making another push on Friday to contain blazes stretching 70 km.
@@ -1399,53 +1447,5 @@ Lingering hopes that US president Donald Trump's planned tariff blitz next week 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797516-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797516-20250326.htm)
-
----
-
-# Investment migrant scheme could lure at least HK$27b
-
-![Christopher Hui says more than 900 capital investment migrant applications have been received. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797505_1_20250326155229.jpg&q=85)
-  
-
-The government on Wednesday said a renewed capital investment migrant scheme could bring investments worth HK$27 billion to Hong Kong.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797505-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797505-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797505-20250326.htm)
-
----
-
-# HK, Hainan to cooperate in promoting trade ties
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797500_1_20250326153447.jpg&q=85)
-  
-
-Chief Executive John Lee said on Wednesday a cooperation deal between Hong Kong and Hainan will contribute to the nation further opening up on the back of the free-trade advantages from the two regions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm)
 
 ---

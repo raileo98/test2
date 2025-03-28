@@ -1,3 +1,26 @@
+# 七欖開鑼鄧竟成稱早上安排順暢　羅淑佩料稍後有更多人入場
+
+  
+
+一連3日的香港國際七人欖球賽在啟德主場館舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm)
+
+---
+
 # 七欖開鑼現場氣氛熱烈　有球迷形容啟德場地宏偉漂亮如外國球場
 
 ![香港國際七人欖球賽首次在啟德主場館舉行。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797821_1_20250328113218.jpg&q=75)
@@ -1423,30 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795806-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795806-20250315.htm)
-
----
-
-# 歐霸盃曼聯與熱刺均晉級8強
-
-![般奴費蘭迪斯「連中三元」，帶領曼聯晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795661_1_20250314071839.jpg&q=90)
-![熱刺總比數反勝阿爾克馬爾晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795661_2_20250314071839.jpg&q=90)
-  
-
-歐霸盃16強次回合，兩支英超球隊曼聯和熱刺都晉級。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795661-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795661-20250314.htm](https://news.rthk.hk/rthk/ch/component/k2/1795661-20250314.htm)
 
 ---

@@ -1,3 +1,72 @@
+# 七欖開鑼鄧竟成稱早上安排順暢　羅淑佩料稍後有更多人入場
+
+  
+
+一連3日的香港國際七人欖球賽在啟德主場館舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm)
+
+---
+
+# 龔如心遺產受託人完成籌組理事會　開展準備工作管理慈善信託
+
+  
+
+就龔如心遺產案，龔如心慈善管理有限公司年初獲委任為已故龔如心遺產下的慈善信託的受託人，律政司表示，受託人已完成籌組理事會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm)
+
+---
+
+# 加強打擊濫用公屋修例刊憲　下月2日交立法會首讀二讀
+
+  
+
+《2025年房屋（修訂）條例草案》刊憲，政府表示，條例草案將引入嚴重濫用公屋的新罪行；賦權獲授權人員要求可疑人士提供個人資料；及延長虛假陳述、拒絕提供資料及非法讓與罪行的檢控時效，令打擊濫用公屋的措施更具阻嚇力。根據建議，法例修訂將於明年3月底生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797831-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797831-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797831-20250328.htm)
+
+---
+
 # 恒指半日轉跌210點　科指跌近1.7%
 
 ![恒指中午收市報23368點，跌210點，跌幅近0.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797828_1_20250328121259.jpg&q=75)
@@ -1368,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797654-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797654-20250327.htm)
-
----
-
-# 男子深圳抵港攜9粒太空油毒品煙彈及1支電子煙裝置被捕
-
-![關員在被捕男子身上及行李內搜出9粒懷疑「太空油毒品」煙彈及1支電子煙裝置。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797652_1_20250327122942.jpg&q=90)
-  
-
-海關在落馬洲支線管制站偵破涉及入境旅客管有屬《危險藥物條例》的依托咪酯案件，檢獲9粒懷疑「太空油毒品」煙彈及1支電子煙裝置。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797652-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797652-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797652-20250327.htm)
-
----
-
-# 港股半日升246點　蒙牛及中銀績後造好
-
-![港股連升兩日，恒生指數最多升逾380點，高見23865點，中午收市報23729點，升246點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797651_1_20250327121037.jpg&q=15)
-  
-
-港股連升兩日，恒生指數最多升逾380點，高見23865點，中午收市報23729點，升246點，升幅1.05%，半日主板成交額逾1416億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797651-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797651-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797651-20250327.htm)
-
----
-
-# 冬季流感季節完結　衞生署料今年夏季有一半機會出現流感季節
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797644_1_20250327115157.jpg&q=80)
-  
-
-衞生署宣布，本港今年度冬季流感季節已完結。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797644-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797644-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797644-20250327.htm)
 
 ---

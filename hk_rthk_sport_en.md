@@ -1,3 +1,27 @@
+# Bulls score 6 points in 6 seconds in win over Lakers
+
+![Late triples from Coby White (L) and Josh Giddey helped the Bulls to a win over the Lakers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797835_1_20250328123014.jpg&q=90)
+  
+
+Josh Giddey buried a miracle shot from beyond halfcourt at the final buzzer as the Chicago Bulls overturned an 18-point fourth-quarter deficit to beat the Los Angeles Lakers 119-117.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm)
+
+---
+
 # Yankees, Dodgers victorious in MLB season openers
 
 ![Carlos Rodon's pitching was key to the Yankees' win to open the new season. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797817_1_20250328105734.jpg&q=90)
@@ -1414,29 +1438,5 @@ Shohei Ohtani hit a home run but Roki Sasaki had a wobbly Major League Baseball 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796480-20250319.htm)
-
----
-
-# Snooker tournament slips spur Rugby Sevens resolve
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796411_1_20250319143132.jpg&q=70)
-  
-
-Sports chief Rosanna Law said on Wednesday that parties involved in the Hong Kong Rugby Sevens tournament to be held later this month have to liaise and communicate closely for the Kai Tak event to be considered a success.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm)
 
 ---

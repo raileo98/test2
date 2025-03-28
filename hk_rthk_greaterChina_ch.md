@@ -1,3 +1,27 @@
+# 習近平談外商投資遭政治干擾　稱吹滅別人的燈不會讓自己更光明
+
+![國家主席習近平在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797834_1_20250328122935.jpg&q=90)
+  
+
+國家主席習近平在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm)
+
+---
+
 # 習近平在北京會見國際工商界代表
 
 ![習近平上午在北京人民大會堂會見國際工商界代表。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797819_1_20250328111018.jpg&q=90)
@@ -1412,31 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797383-20250325.htm)
-
----
-
-# 海南省加緊推進自由貿易港核心政策　確保今年底如期落實相關運作
-
-![劉小明說，海南自由貿易港與世界各地貿易投資自由便利程度將進一步提升。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_1_20250325214113.jpg&q=90)
-![周小川說，海南可以利用獨特優勢，大力發展高端服務業。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_2_20250325214113.jpg&q=90)
-![潘基文指出，自由貿易港有力證明貿易和開放將如何增進增長及可持續。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797371_3_20250325214113.jpg&q=90)
-  
-
-海南省省長劉小明說，正加緊落實封關運作方案，加緊推進自由貿易港核心政策落地，做好各項準備工作，確保今年底如期順利實現封關運作。封關運作後，海南自由貿易港與世界各地貿易投資自由便利程度將進一步提升，與中國內地超大規模市場的聯繫也將更加緊密。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797371-20250325.htm)
 
 ---
