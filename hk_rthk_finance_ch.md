@@ -1,3 +1,26 @@
+# 根據票價調整機制　港鐵今年度凍結票價
+
+  
+
+政府今日公布運輸業名義工資指數最新數字，以港鐵票價調整機制方程式，計算出今年票價調整幅度較啟動加價的門檻1.5%為低，加上政府早前公布，去年的第4季家庭住戶每月入息中位數按年錄得跌幅，觸發封頂機制，港鐵將會於2025/26年度凍結票價。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm)
+
+---
+
 # 農行去年多賺近5%　末期息每股0.1255元人民幣
 
 ![農業銀行去年盈利2820.8億元人民幣，按年增長4.7%。派末期息每股0.1255元，派息比率維持於30%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797888_1_20250328165227.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm)
-
----
-
-# 在岸人民幣低收20點子
-
-![在岸人民幣收市報7.2655兌1美元，較昨日收市跌20點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797716_1_20250327184509.jpg&q=80)
-  
-
-在岸人民幣收市報7.2655兌1美元，創逾3周新低，較昨日收市跌20點子。中間價亦跌9點子，與市場預測偏離擴大至近千點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797716-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797716-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797716-20250327.htm)
 
 ---
