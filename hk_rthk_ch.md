@@ -1,3 +1,26 @@
+# 世貿證美國處於第一類拖欠費用狀態　已制定計劃維持運作
+
+  
+
+世界貿易組織發言人迪恩表示，世貿組織預算、財務與行政委員會主席，在2月舉行的總理事會會議上，向成員通報美國已處於第一類拖欠費用狀態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797956-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797956-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797956-20250329.htm)
+
+---
+
 # 萬斯專機降落格陵蘭島　行程包括探訪美軍基地駐軍
 
   
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797882-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797882-20250328.htm)
-
----
-
-# 仁安醫院稱不會因公立醫院調整收費而加價　成本上升才會上調收費
-
-![李繼堯表示，院方不會因公立醫院調整收費而乘機加價。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797880_1_20250328164752.jpg&q=80)
-  
-
-當局推行公營醫療服務收費改革，急症室收費由現時180元上調至400元，仁安醫院院長李繼堯表示，院方不會因公立醫院調整收費而乘機加價。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797880-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797880-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797880-20250328.htm)
 
 ---

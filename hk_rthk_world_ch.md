@@ -1,3 +1,26 @@
+# 世貿證美國處於第一類拖欠費用狀態　已制定計劃維持運作
+
+  
+
+世界貿易組織發言人迪恩表示，世貿組織預算、財務與行政委員會主席，在2月舉行的總理事會會議上，向成員通報美國已處於第一類拖欠費用狀態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797956-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797956-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797956-20250329.htm)
+
+---
+
 # 萬斯專機降落格陵蘭島　行程包括探訪美軍基地駐軍
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797681-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797681-20250327.htm)
-
----
-
-# 南韓東南部山火面積創新高　增至26死30傷
-
-![南韓當局出動直升機協助撲救山火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797678_1_20250327150945.jpg&q=90)
-  
-
-南韓東南部慶尚道地區山火持續，增至26人死亡，30人受傷，火場面積36000公頃創新高，大約37000人疏散。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797678-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797678-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797678-20250327.htm)
 
 ---
