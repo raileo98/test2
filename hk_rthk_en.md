@@ -1,3 +1,28 @@
+# Myanmar hospital 'a mass casualty area' after tremors
+
+![Healthcare workers treat a earthquake survivor on a bed in the compound of the hospital in Naypyidaw. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797887_1_20250328165127.jpg&q=85)
+![A road in Naypyidaw is left virtually unpassable in the wake of the earthquake. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797887_2_20250328165127.jpg&q=80)
+  
+
+A major hospital in the Myanmar capital Naypyidaw is a "mass casualty area" after the country was rocked by a huge earthquake, an official at the facility said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm)
+
+---
+
 # Thai PM declares state of emergency in Bangkok
 
 ![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797877_1_20250328163912.jpg&q=50)
@@ -1429,29 +1454,5 @@ The SAR's tennis star, Coleman Wong, said late Wednesday that he was more confid
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm)
-
----
-
-# US stocks close lower on tariff concerns
-
-![US automakers fell on the news, with Tesla closing down 5.6 percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797600_1_20250327061131.jpg&q=90)
-  
-
-US stocks veered off course on Wednesday after the White House said President Donald Trump would announce fresh tariffs on the auto sector after markets close.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm)
 
 ---

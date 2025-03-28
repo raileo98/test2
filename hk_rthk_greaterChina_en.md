@@ -1,3 +1,28 @@
+# Myanmar hospital 'a mass casualty area' after tremors
+
+![Healthcare workers treat a earthquake survivor on a bed in the compound of the hospital in Naypyidaw. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797887_1_20250328165127.jpg&q=85)
+![A road in Naypyidaw is left virtually unpassable in the wake of the earthquake. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797887_2_20250328165127.jpg&q=80)
+  
+
+A major hospital in the Myanmar capital Naypyidaw is a "mass casualty area" after the country was rocked by a huge earthquake, an official at the facility said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm)
+
+---
+
 # Thai PM declares state of emergency in Bangkok
 
 ![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797877_1_20250328163912.jpg&q=50)
@@ -1415,29 +1440,5 @@ Macau health authorities on Thursday said that a two-year-old girl from the SAR 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795531-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795531-20250313.htm)
-
----
-
-# China, EU vow countermeasures against US steel tariffs
-
-![The production line at a cold rolling plant at Baoshan Iron & Steel in Shanghai. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795512_1_20250313085844.jpg&q=90)
-  
-
-China and the EU vowed on Wednesday to strike back and defend their economic interests against sweeping new US steel and aluminium tariffs, moving Washington closer to an all-out trade war with two major partners.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm)
 
 ---

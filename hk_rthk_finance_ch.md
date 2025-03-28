@@ -1,3 +1,27 @@
+# 農行去年多賺近5%　末期息每股0.1255元人民幣
+
+![農業銀行去年盈利2820.8億元人民幣，按年增長4.7%。派末期息每股0.1255元，派息比率維持於30%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797888_1_20250328165227.jpg&q=90)
+  
+
+農業銀行去年盈利2820.8億元人民幣，按年增長4.7%。派末期息每股0.1255元，全年派息比率維持於30%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797888-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797888-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797888-20250328.htm)
+
+---
+
 # 港股低收152點　恒指本周累跌逾1%　連跌3星期
 
 ![總結全星期，恒指累計跌幅1.1%，科指累跌近2.4%，兩者都連跌3星期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797881_1_20250328163236.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797716-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797716-20250327.htm)
-
----
-
-# 丘應樺稱政府致力建設香港成為區域知識產權貿易中心
-
-![丘應樺（左）拜會外交部港澳台司副司長冉波（右），介紹香港經貿的最新發展。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797721_1_20250327191021.jpg&q=45)
-  
-
-商務及經濟發展局局長丘應樺在北京展開訪問行程。他上午首先拜訪國家知識產權局，與副局長張志成會面，並表示，特區政府一直致力保護知識產權及推動知識產權貿易，建設香港成為區域知識產權貿易中心，協助推動新質生產力，尤其是促進大灣區創新科技及創意產業的進一步發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm)
 
 ---

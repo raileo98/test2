@@ -1,3 +1,28 @@
+# Myanmar hospital 'a mass casualty area' after tremors
+
+![Healthcare workers treat a earthquake survivor on a bed in the compound of the hospital in Naypyidaw. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797887_1_20250328165127.jpg&q=85)
+![A road in Naypyidaw is left virtually unpassable in the wake of the earthquake. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797887_2_20250328165127.jpg&q=80)
+  
+
+A major hospital in the Myanmar capital Naypyidaw is a "mass casualty area" after the country was rocked by a huge earthquake, an official at the facility said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm)
+
+---
+
 # Thai PM declares state of emergency in Bangkok
 
 ![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797877_1_20250328163912.jpg&q=50)
@@ -1415,29 +1440,5 @@ A Turkish court formally placed Istanbul Mayor Ekrem Imamoglu under arrest as pa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm)
-
----
-
-# Protests continue in Turkey after mayor arrested
-
-![A protester in Istanbul waves Turkey's national flag. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796993_1_20250323083846.jpg&q=90)
-  
-
-Huge crowds gathered outside Istanbul City Hall late on Saturday for a fourth night of protests over the arrest of Mayor Ekrem Imamoglu, who has blasted official allegations against him as "immoral and baseless".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm)
 
 ---
