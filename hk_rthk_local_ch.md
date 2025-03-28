@@ -1,6 +1,33 @@
-# 旅議會估計約有6個旅行團在泰國　涉及旅客少於100人
+# 元朗攸壆路簡約公屋入伙　租戶稱省下金錢可以給子女讀書補習
 
   
+
+位於元朗攸壆路的首個簡約公屋項目2100多個單位，今日起陸續入伙，房屋局局長何永賢見證部份租戶辦理入伙手續，並向他們派發單位鎖匙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797911-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797911-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797911-20250328.htm)
+
+---
+
+# 旅議會估計約有6個旅行團在泰國　涉及旅客少於100人
+
+![旅議會估計約有6個旅行團在泰國　涉及旅客少於100人。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797910_1_20250328184014.jpg&q=80)
+  
+
+緬甸發生黎克特制7級以上地震，泰國全國亦有震感。本港的旅遊業議會表示，根據暫時估計約有6個旅行團在泰國，涉及旅客少於100人，暫時未收到有旅行團在緬甸，並引述入境處指暫時未有求助個案。
+
   
 
 
@@ -432,6 +459,7 @@
 # 胡英明籲勿分享涉及煽動他人不投票或投無效票內容
 
 ![胡英明呼籲公眾不要轉載和分享涉及煽動他人不投票或投無效票的內容，廉署會強硬執法。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797837_1_20250328123831.jpg&q=90)
+![立法會換屆選舉年底舉行，廉政專員胡英明呼籲公眾不要轉載和分享涉及煽動他人不投票或投無效票的內容，強調廉署會強硬執法。(劉澤浩攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797837_2_20250328181041.jpg&q=90)
   
 
 立法會換屆選舉年底舉行，廉政專員胡英明呼籲公眾不要轉載和分享涉及煽動他人不投票或投無效票的內容，強調廉署會強硬執法。
@@ -1416,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797705-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797705-20250327.htm)
-
----
-
-# 陳茂波：「裕澤香江」高峰論壇總體氣氛較去年正面
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797702_1_20250327180250.jpg&q=90)
-  
-
-財政司司長陳茂波表示，周三結束的「裕澤香江」高峰論壇，總體氣氛比去年更正面，期間進行非常具建設性的對話，與會者普遍要求政府擴展資產類別、促進更多跨境投資機會，部份有意來港定居的人士亦希望，投資門檻及合資格投資類別能更具彈性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm)
 
 ---
