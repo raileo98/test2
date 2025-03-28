@@ -1,3 +1,26 @@
+# 張國鈞冀大灣區律師顧問小組加入網紅令制訂措施更「貼地」
+
+  
+
+政府本月初宣布委任「粵港澳大灣區專責小組」及轄下大灣區律師顧問小組共7名新成員，當中包括居住在深圳的香港人、網紅「西DorSi」謝承益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797839-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797839-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797839-20250328.htm)
+
+---
+
 # 胡英明籲勿分享涉及煽動他人不投票或投無效票內容
 
 ![胡英明呼籲公眾不要轉載和分享涉及煽動他人不投票或投無效票的內容，廉署會強硬執法。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797837_1_20250328123831.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm)
-
----
-
-# 逾200萬劑流感疫苗接種創新高　衞防中心稱有重要保護作用
-
-![梁耀康說，數字反映接種季節性流感疫苗預防重症和死亡的重要保護作用。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797663_1_20250327140313.jpg&q=80)
-  
-
-衞生防護中心表示，去年9月開始，多個流感疫苗接種計劃共接種約207萬劑流感疫苗，比上季同期增加22萬6千劑，創下歷史新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797663-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797663-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797663-20250327.htm)
 
 ---

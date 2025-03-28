@@ -1,3 +1,26 @@
+# 張國鈞冀大灣區律師顧問小組加入網紅令制訂措施更「貼地」
+
+  
+
+政府本月初宣布委任「粵港澳大灣區專責小組」及轄下大灣區律師顧問小組共7名新成員，當中包括居住在深圳的香港人、網紅「西DorSi」謝承益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797839-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797839-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797839-20250328.htm)
+
+---
+
 # 胡英明籲勿分享涉及煽動他人不投票或投無效票內容
 
 ![胡英明呼籲公眾不要轉載和分享涉及煽動他人不投票或投無效票的內容，廉署會強硬執法。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797837_1_20250328123831.jpg&q=90)
@@ -22,7 +45,7 @@
 
 ---
 
-# 李寧：不會為維繫生意而犧牲部份專業屬性
+# 李寧：不會為維繫生意而犧牲部分專業屬性
 
 ![錢煒（左）稱中國體育用品賽道未來前景積極樂觀；李寧（中）稱國家推進體育強國建設，行業前景廣闊。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797836_1_20250328123702.jpg&q=90)
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797756-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797756-20250328.htm)
-
----
-
-# 外交部駐港公署強烈不滿英國涉港報告　促立即停止政治操弄
-
-![外交部駐港公署強烈不滿及堅決反對英國政府再次發布所謂「香港問題半年報告」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797755_1_20250327233719.jpg&q=85)
-  
-
-外交部駐港公署強烈不滿及堅決反對英國政府再次發布所謂「香港問題半年報告」，指有關內容對香港事務指手畫腳，抹黑香港人權法治，罔顧事實、顛倒黑白，公然踐踏包括「不干涉別國內政」在內的國際法與國際關係基本準則，敦促英方立即停止炮製涉港報告的政治操弄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm)
 
 ---
