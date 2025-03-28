@@ -1,5 +1,30 @@
+# 港股下午初段跌逾百點
+
+![恒生指數較早時報23409點，跌169點，跌幅0.72%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797848_1_20250328131339.jpg&q=40)
+  
+
+港股下午初段偏軟，恒生指數較早時報23409點，跌169點，跌幅0.72%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm)
+
+---
+
 # 鍾健禮辭任新界東醫院聯網總監及威爾斯醫院行政總監
 
+![醫管局發言人表示，鍾健禮因個人原因辭任新界東醫院聯網總監及威爾斯醫院行政總監。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797845_1_20250328131003.jpg&q=90)
   
 
 中大醫院宣布委任鍾健禮為新任行政總裁，於6月16日起擔任候任行政總裁，以便交接，8月1日正式履新。
@@ -71,6 +96,7 @@
 
 # 七欖開鑼鄧竟成稱早上安排順暢　羅淑佩料稍後有更多人入場
 
+![羅淑佩（左）指早上氣氛幾好，自己很期待；鄧竟成（右）表示，早上的安排順暢，港鐵站人流暢順，列車班次亦多，指示牌清晰。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797833_1_20250328130217.jpg&q=75)
   
 
 一連3日的香港國際七人欖球賽在啟德主場館舉行。
@@ -94,6 +120,7 @@
 
 # 龔如心遺產受託人完成籌組理事會　開展準備工作管理慈善信託
 
+![律政司相信，在管理機構的監督下，受託人理事會會隨即開展相關準備工作，盡心盡力管理慈善信託。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797832_1_20250328130241.jpg&q=80)
   
 
 就龔如心遺產案，龔如心慈善管理有限公司年初獲委任為已故龔如心遺產下的慈善信託的受託人，律政司表示，受託人已完成籌組理事會。
@@ -165,6 +192,7 @@
 
 # 冷鋒黃昏至晚間橫過珠江口　下午局部地區雷暴周末市區最低15度
 
+![天文台預測，下午稍後局部地區可能有雷暴，漸轉吹和緩至清勁東至東北風。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797829_1_20250328130310.jpg&q=75)
   
 
 天文台表示，現時位於廣東內陸至東部沿岸的一道冷鋒，會在今日黃昏至晚間橫過珠江口一帶，與其相關的驟雨正影響內陸地區。正午時分，本港港內的能見度維持在2000米以下。
@@ -1413,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797668-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797668-20250327.htm)
-
----
-
-# 李家超與糧農組織總幹事會面　共享農業數據為制定政策提供依據
-
-![李家超（左）在海南與聯合國糧食及農業組織總幹事屈冬玉博士（右）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797667_1_20250327140223.jpg&q=90)
-  
-
-正在海南的行政長官李家超早上與一同出席博鰲亞洲論壇年會的聯合國糧食及農業組織總幹事屈冬玉會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm)
 
 ---

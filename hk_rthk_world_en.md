@@ -1,3 +1,27 @@
+# Rallies set as Duterte marks 80th birthday in prison
+
+![Relatives of drug war and extrajudicial killing victims in Quezon City watch a live telecast of the initial appearance of Rodrigo Duterte at the International Criminal Court in the Hague. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797846_1_20250328130849.jpg&q=80)
+  
+
+Family and supporters of former Philippine president Rodrigo Duterte will rally on Friday to mark his 80th birthday and protest his detention in The Hague on a charge of crimes against humanity.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm)
+
+---
+
 # US' Rubio says too early for high-level Russia talks
 
 ![Marco Rubio says US President Donald Trump's administration would hold consultations to discuss the outcome of the meetings with Russia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797827_1_20250328115755.jpg&q=90)
@@ -1413,29 +1437,5 @@ At least three firefighters and a public servant have been killed in a wildfire 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm)
-
----
-
-# Girl among two killed in Israel strikes on Lebanon
-
-![Smoke rises after an Israeli strike on the southern Lebanese village of Touline. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796954_1_20250322202858.jpg&q=90)
-  
-
-Two people including a girl were killed in an Israeli attack on a southern Lebanese town on Saturday, state media reported, after Israel launched air strikes in response to cross-border rocket fire.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm)
 
 ---

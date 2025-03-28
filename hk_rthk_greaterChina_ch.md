@@ -1,3 +1,26 @@
+# 赫格塞斯：美菲必須並肩作戰　共同應對來自中國的威脅
+
+  
+
+到訪菲律賓的美國國防部長赫格塞斯，重申美國對與菲律賓共同防禦條約的堅定承諾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm)
+
+---
+
 # 周小川：不能即使賠錢亦要進行轉型金融相關工作
 
   
@@ -117,7 +140,7 @@
 
 ---
 
-# 《環看天下》：卡尼稱加中貿易關係須謹慎    中方：望加方相
+# 《環看天下》：卡尼稱加中貿易關係須謹慎    中方冀相向而行
 
 ![卡尼日前表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面，需要非常謹慎。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797796_1_20250328091436.jpg&q=90)
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm)
-
----
-
-# 港深西部鐵路目標2035年開通　料洪水橋到前海約15分鐘
-
-![文件交代，港深西部鐵路走線由正在興建的屯馬線洪水橋站西面出發，途經厦村和流浮山，並跨越后海灣經深圳灣口岸連接至前海。（立法會文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797441_1_20250326114103.jpg&q=90)
-  
-
-運輸及物流局提交立法會的最新文件表示，港深西部鐵路「專班」早前審議並通過次階段研究成果，兩地政府目標於2035年同步開通香港段和深圳段。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797441-20250326.htm)
 
 ---

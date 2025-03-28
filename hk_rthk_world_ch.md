@@ -1,3 +1,26 @@
+# 赫格塞斯：美菲必須並肩作戰　共同應對來自中國的威脅
+
+  
+
+到訪菲律賓的美國國防部長赫格塞斯，重申美國對與菲律賓共同防禦條約的堅定承諾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm)
+
+---
+
 # 習近平冀外資企業打消疑慮　放手來中國發展分享中國發展機遇
 
 ![國家主席習近平在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797842_1_20250328130113.jpg&q=85)
@@ -118,7 +141,7 @@
 
 ---
 
-# 《環看天下》：卡尼稱加中貿易關係須謹慎    中方：望加方相
+# 《環看天下》：卡尼稱加中貿易關係須謹慎    中方冀相向而行
 
 ![卡尼日前表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面，需要非常謹慎。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797796_1_20250328091436.jpg&q=90)
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm)
-
----
-
-# 南韓山火增至最少24死　學校及體育館成為災民臨時安置中心
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797530_1_20250326182823.jpg&q=85)
-  
-
-南韓東南部大型山火持續，增至最少24人死亡、12人重傷、14人輕傷；房屋、工廠、寺廟及文化遺產等超過200處地點受災。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797530-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797530-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797530-20250326.htm)
 
 ---

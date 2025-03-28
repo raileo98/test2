@@ -1,3 +1,27 @@
+# Rallies set as Duterte marks 80th birthday in prison
+
+![Relatives of drug war and extrajudicial killing victims in Quezon City watch a live telecast of the initial appearance of Rodrigo Duterte at the International Criminal Court in the Hague. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797846_1_20250328130849.jpg&q=80)
+  
+
+Family and supporters of former Philippine president Rodrigo Duterte will rally on Friday to mark his 80th birthday and protest his detention in The Hague on a charge of crimes against humanity.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm)
+
+---
+
 # HK stock swings propel derivatives trade to highs
 
 ![The number of outstanding futures and options contracts on the city's bourse has surpassed the record set last year by 70 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797841_1_20250328124759.jpg&q=80)
@@ -1422,29 +1446,5 @@ The men’s and women’s squad from New Zealand are chasing their third straigh
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797526-20250326.htm)
-
----
-
-# Seoul found responsible for abuse of adoptions process
-
-![International adoptions from South Korea began after the Korean War as a way to remove mixed-race children. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797520_2_20250326170321.jpg&q=90)
-  
-
-A South Korean official enquiry said on Wednesday the government was responsible for abuse in international adoptions of local children, including record fabrication and inadequate consent, and recommended an official state apology.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm)
 
 ---
