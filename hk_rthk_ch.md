@@ -1,3 +1,26 @@
+# 格陵蘭島組成新一屆自治政府　尼爾森出任自治政府總理
+
+  
+
+丹麥自治領地格陵蘭島在當地星期五組成新一屆自治政府。尼爾森出任自治政府總理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797954-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797954-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797954-20250329.htm)
+
+---
+
 # 特朗普與卡尼通話　稱成果極為豐碩並達成很多共識
 
   
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm)
-
----
-
-# 1.1億元走私金條案有紀錄最大宗　以7層包裝藏於付運日本貨物
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797878_1_20250328163004.jpg&q=90)
-  
-
-海關破獲懷疑走私金條案件，檢獲共重145公斤，市值高達1.1億港元，是海關有紀錄以來破獲最大宗的走私金條案件，數量比起三星期前破獲的走私金條案，數量超出一倍有多。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797878-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797878-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797878-20250328.htm)
 
 ---

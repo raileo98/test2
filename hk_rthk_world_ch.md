@@ -1,3 +1,26 @@
+# 格陵蘭島組成新一屆自治政府　尼爾森出任自治政府總理
+
+  
+
+丹麥自治領地格陵蘭島在當地星期五組成新一屆自治政府。尼爾森出任自治政府總理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797954-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797954-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797954-20250329.htm)
+
+---
+
 # 特朗普與卡尼通話　稱成果極為豐碩並達成很多共識
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm)
-
----
-
-# 4名美軍士兵在立陶宛訓練期間失蹤　搜索工作繼續
-
-![搜索失蹤美軍士兵的行動仍在進行。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797661_1_20250327131515.jpg&q=90)
-  
-
-4名美軍士兵在立陶宛演習期間失蹤，搜救行動仍在進行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797661-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797661-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797661-20250327.htm)
 
 ---
