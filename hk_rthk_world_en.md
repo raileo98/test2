@@ -1,3 +1,51 @@
+# ET model on auction block in New York
+
+![The model of ET the Extra-Terrestrial used in Steven Spielberg's 1982 film is pictured in New York. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797976_1_20250329071526.jpg&q=90)
+  
+
+An original animatronic model of the iconic alien created for Steven Spielberg's classic 1982 film "ET the Extra-Terrestrial" is for sale at Sotheby's and is estimated to fetch as much as US$900,000.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm)
+
+---
+
+# Trump, Carney hail 'extremely productive' call
+
+![During the call, Carney told Trump his government would impose retaliatory tariffs on American goods from April 2. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797975_1_20250329071156.jpg&q=90)
+  
+
+US President Donald Trump said he had an "extremely productive" first call Friday with Canada's new Prime Minister Mark Carney, after soaring tensions over tariffs and Trump's wish to annex his northern neighbour.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm)
+
+---
+
 # Vance accuses Denmark of underinvesting in Greenland
 
 ![US Vice President JD Vance demanded Denmark change its approach as President Trump pushes to take over the Danish territory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797969_1_20250329062730.jpg&q=90)
@@ -1392,53 +1440,5 @@ Venezuela on Monday received nearly 200 citizens deported from the United States
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm)
-
----
-
-# S Korea court dismisses impeachment of prime minister
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797103_1_20250324103248.jpg&q=90)
-  
-
-South Korea's Constitutional Court dismissed the impeachment of Prime Minister Han Duck-soo on Monday, reinstating him as acting president – a role he was given after the president was suspended for declaring martial law.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797103-20250324.htm)
-
----
-
-# Mark Carney calls snap Canadian election
-
-![Canadian Prime Minister Mark Carney announced the move at a news conference in Ottawa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797074_1_20250324055036.jpg&q=90)
-  
-
-New Canadian Prime Minister Mark Carney on Sunday called a snap election for April 28, saying he needed a strong mandate to deal with the threat posed by US President Donald Trump, who "wants to break us so America can own us."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm)
 
 ---

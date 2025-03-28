@@ -1,3 +1,51 @@
+# Trump, Carney hail 'extremely productive' call
+
+![During the call, Carney told Trump his government would impose retaliatory tariffs on American goods from April 2. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797975_1_20250329071156.jpg&q=90)
+  
+
+US President Donald Trump said he had an "extremely productive" first call Friday with Canada's new Prime Minister Mark Carney, after soaring tensions over tariffs and Trump's wish to annex his northern neighbour.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm)
+
+---
+
+# Wall Street tumbles over economy, inflation fears
+
+![All three major indices closed sharply lower, with the Dow tumbling 1.7 percent, the S&P 500 losing 2 percent and Nasdaq diving 2.7 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797974_1_20250329070631.jpg&q=75)
+  
+
+Stock markets plunged Friday as a closely watched US inflation reading heated up amid intensifying concerns over fallout from US President Donald Trump's incoming wave of tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm)
+
+---
+
 # Vance accuses Denmark of underinvesting in Greenland
 
 ![US Vice President JD Vance demanded Denmark change its approach as President Trump pushes to take over the Danish territory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797969_1_20250329062730.jpg&q=90)
@@ -1404,53 +1452,5 @@ Hong Kong home prices slumped for the third month in a row in February, dropping
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm)
-
----
-
-# Govt 'pays almost all drug costs despite fee hike'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797648_1_20250327115415.jpg&q=90)
-  
-
-The Hospital Authority's chief pharmacist said on Thursday the upcoming hike in medication fees will help to subsidise the purchase of new drugs, as well as those used to fight cancer or rare diseases.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797648-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797648-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797648-20250327.htm)
-
----
-
-# LeBron snaps Lakers' three-game slump with late tip-in
-
-![LeBron James (23) and the Lakers snapped a three-game losing streak. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797649_1_20250327120443.jpg&q=85)
-  
-
-LeBron James tipped in a buzzer-beating rebound with 0.1 seconds remaining as the Los Angeles Lakers halted their three-game losing streak with a pulsating 120-119 road victory over the Indiana Pacers.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm)
 
 ---

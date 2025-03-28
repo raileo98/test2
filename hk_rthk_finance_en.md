@@ -1,3 +1,27 @@
+# Wall Street tumbles over economy, inflation fears
+
+![All three major indices closed sharply lower, with the Dow tumbling 1.7 percent, the S&P 500 losing 2 percent and Nasdaq diving 2.7 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797974_1_20250329070631.jpg&q=75)
+  
+
+Stock markets plunged Friday as a closely watched US inflation reading heated up amid intensifying concerns over fallout from US President Donald Trump's incoming wave of tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm)
+
+---
+
 # MTR fares to freeze under adjustment mechanism
 
 ![While MTR fares will freeze for 2025-26, commuters could face a steep hike next year after 3.36 percent of adjustments are brought forward. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797892_1_20250328173801.jpg&q=90)
@@ -1413,29 +1437,5 @@ Mainland officials on Monday said a special action plan to boost consumption,wil
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm)
-
----
-
-# CK Hutchison ports deal questioned again
-
-![View of Port of Balboa, managed by CK Hutchison Holdings at the entrance of the Panama Canal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795930_1_20250316152201.jpg&q=90)
-  
-
-Beijing officials have shared a second article by the Ta Kung Pao newspaper criticising the sale by Hong Kong conglomerate CK Hutchison of its Panama Canal ports – and dozens of other ports across the globe – to a US consortium.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm)
 
 ---
