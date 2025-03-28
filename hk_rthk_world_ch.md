@@ -1,3 +1,26 @@
+# 緬甸大地震至少10死　軍政府籲國際社會援助　曼谷至少3人喪生
+
+  
+
+緬甸發生黎克特制7級以上大地震，雲南、泰國、老撾和越南都有震感。泰國曼谷一座興建中的30層高建築物倒塌，至少3人死亡，多人受傷。泰國總理佩通坦宣布，曼谷進入緊急狀態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797904-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797904-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797904-20250328.htm)
+
+---
+
 # 東瀛遊兩旅行團在泰國行程無受影響　旅議會暫未收到泰國求助個案
 
 ![東瀛遊其中一個身處泰國的旅行團示感到輕微震動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797886_1_20250328165905.jpg&q=40)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797601-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797601-20250327.htm)
-
----
-
-# 特朗普宣布對進口美國汽車徵收25%關稅
-
-![美國總統特朗普宣布，對所有進口汽車徵收25%關稅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797597_1_20250327060309.jpg&q=90)
-  
-
-美國總統特朗普宣布，對所有進口汽車徵收25%關稅，如果在美國製造的汽車則毋須繳交關稅，措施4月2日起生效，將是永久性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm)
 
 ---

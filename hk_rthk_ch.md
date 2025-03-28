@@ -1,5 +1,53 @@
+# 緬甸大地震至少10死　軍政府籲國際社會援助　曼谷至少3人喪生
+
+  
+
+緬甸發生黎克特制7級以上大地震，雲南、泰國、老撾和越南都有震感。泰國曼谷一座興建中的30層高建築物倒塌，至少3人死亡，多人受傷。泰國總理佩通坦宣布，曼谷進入緊急狀態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797904-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797904-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797904-20250328.htm)
+
+---
+
+# 習近平冀企業不盲從各種干擾全球產供鏈安全穩定行為
+
+![國家主席習近平在北京人民大會堂會見國際工商界代表。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797903_1_20250328175116.jpg&q=90)
+  
+
+國家主席習近平在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm)
+
+---
+
 # 永旺百貨去年虧損擴大79%　不派息
 
+![永旺百貨去年虧損擴大至3.38億元，香港業務分部業績錄得虧損2.88億元，按年擴大逾92%。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797901_1_20250328175030.jpg&q=85)
   
 
 永旺百貨去年虧損3.38億元，按年擴大逾79%，不派末期息。去年收益按年跌約7%至約80.95億元。
@@ -143,7 +191,7 @@
 
 # 美聯去年轉賺3.2億元　不派息
 
-![美聯集團去年盈利3.2億元，而前年為虧損約4200萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797895_1_20250328171611.jpg&q=80)
+![美聯集團去年盈利3.2億元，而前年為虧損約4200萬元。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797895_2_20250328174908.jpg&q=90)
   
 
 美聯集團去年由虧轉盈，錄盈利3.2億元，而前年為虧損約4200萬元，不派息。

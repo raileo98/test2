@@ -1,3 +1,27 @@
+# 習近平冀企業不盲從各種干擾全球產供鏈安全穩定行為
+
+![國家主席習近平在北京人民大會堂會見國際工商界代表。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797903_1_20250328175116.jpg&q=90)
+  
+
+國家主席習近平在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm)
+
+---
+
 # 西藏經濟總量近2765億元　城鄉居民收入連續10年居全國前列
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797531-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797531-20250326.htm)
-
----
-
-# 中方堅決反對美方濫施非法單邊制裁　予以強烈譴責
-
-![郭嘉昆說中方敦促美方停止泛化國家安全概念。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797511_1_20250326165323.jpg&q=90)
-  
-
-在北京，外交部指美方濫用實體清單等出口管制工具，以危害美國國家安全、違反美國外交政策為藉口，濫施非法單邊制裁，是典型的霸權主義行徑，嚴重違反國際法及國際關係基本準則，嚴重損害企業的合法權益，破壞全球產供鏈安全穩定，中方對此堅決反對，並予以強烈譴責。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797511-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797511-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797511-20250326.htm)
 
 ---
