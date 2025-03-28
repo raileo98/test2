@@ -1,3 +1,26 @@
+# 鍾健禮接替馮康出任中大醫院行政總裁　8月1日履新
+
+  
+
+中大醫院宣布委任鍾健禮為新任行政總裁，於8月1日履新，接替即將退休、於7月31日卸任的現任行政總裁馮康。鍾健禮將由6月16日起擔任候任行政總裁，以便交接。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797823-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797823-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797823-20250328.htm)
+
+---
+
 # 七欖開鑼現場氣氛熱烈　有球迷形容啟德場地宏偉漂亮如外國球場
 
 ![香港國際七人欖球賽首次在啟德主場館舉行。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797821_1_20250328113218.jpg&q=75)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm)
-
----
-
-# 載遊客潛艇在埃及紅海沿岸沉沒　據報6死19傷
-
-![事故中部分傷者被送到胡爾加達一間醫院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797745_1_20250327223805.jpg&q=85)
-  
-
-一艘載著遊客的潛艇在埃及旅遊城市胡爾加達附近海域沉沒，當地傳媒報道，有6人死亡，19人受傷。有關部門正在進行救援工作，事故原因仍在調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797745-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797745-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797745-20250327.htm)
 
 ---
