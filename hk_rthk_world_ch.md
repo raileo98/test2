@@ -1,3 +1,27 @@
+# 王毅下周一至周三訪問俄羅斯
+
+![王毅下周一至周三訪問俄羅斯。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797866_1_20250328151510.jpg&q=90)
+  
+
+在北京，外交部宣布，應俄羅斯外長拉夫羅夫邀請，中共中央政治局委員、外交部長王毅將於3月31日至4月2日對俄羅斯進行正式訪問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm)
+
+---
+
 # 緬甸發生強烈地震　雲南多地和泰國有震感
 
 ![緬甸發生強烈地震，泰國曼谷有震感，有民眾從建築物疏散。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797863_2_20250328150047.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm)
-
----
-
-# 歐盟發布應急戰略應對新興威脅　包括鼓勵公眾儲72小時避難物資
-
-![馮德萊恩在公告中說，新的現實情況要求歐洲達到新的應急準備水平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797568_1_20250326212752.jpg&q=90)
-  
-
-歐盟委員會發布「應急準備歐盟戰略」，內容包括鼓勵公眾在緊急情況下，保持至少72小時的基本物資儲備，以及制定醫院、學校、交通和電信等關鍵服務的最低「應急準備」標準，目的是支持歐盟成員國，並增強歐洲預防和應對新興威脅的能力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm)
 
 ---

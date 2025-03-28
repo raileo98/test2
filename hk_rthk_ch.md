@@ -1,3 +1,27 @@
+# 王毅下周一至周三訪問俄羅斯
+
+![王毅下周一至周三訪問俄羅斯。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797866_1_20250328151510.jpg&q=90)
+  
+
+在北京，外交部宣布，應俄羅斯外長拉夫羅夫邀請，中共中央政治局委員、外交部長王毅將於3月31日至4月2日對俄羅斯進行正式訪問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm)
+
+---
+
 # 港交所：致力提供ESG框架和標準　幫助上市公司實現淨零排放
 
 ![陳翊庭指出，港交所是較早強制要求披露氣候資訊的交易所之一。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797864_1_20250328145623.jpg&q=75)
@@ -384,6 +408,7 @@
 
 # 周小川：不能即使賠錢亦要進行轉型金融相關工作
 
+![周小川表示，不能說即使賠錢，亦要企業進行轉型金融相關工作，否則會帶來金融系統不穩定。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797844_1_20250328152146.jpg&q=90)
   
 
 人民銀行前行長易綱表示，轉型金融需要國際合作，及非常明確標準和披露要求。

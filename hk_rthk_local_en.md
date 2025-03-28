@@ -1,6 +1,7 @@
 # ICAC chief lays down law on calls for invalid votes
 
 ![Election workers get ballots out of boxes after the end of voting in the 2022 Legislative Council Election Committee constituency. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797856_1_20250328150342.jpg&q=90)
+![Danny Woo says the ICAC has started using an AI system to improve work efficiency. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797856_2_20250328151239.jpg&q=90)
   
 
 The city's top graft-buster, Danny Woo, on Friday warned that authorities will take tough action against those who call for invalid votes to be cast during the upcoming election for the city's legislature at the end of the year.

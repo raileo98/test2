@@ -1,3 +1,27 @@
+# 王毅下周一至周三訪問俄羅斯
+
+![王毅下周一至周三訪問俄羅斯。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797866_1_20250328151510.jpg&q=90)
+  
+
+在北京，外交部宣布，應俄羅斯外長拉夫羅夫邀請，中共中央政治局委員、外交部長王毅將於3月31日至4月2日對俄羅斯進行正式訪問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm)
+
+---
+
 # 習近平會見孟加拉臨時政府首席顧問尤努斯
 
 ![習近平在北京人民大會堂會見尤努斯。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797857_1_20250328142251.jpg&q=90)
@@ -48,6 +72,7 @@
 
 # 周小川：不能即使賠錢亦要進行轉型金融相關工作
 
+![周小川表示，不能說即使賠錢，亦要企業進行轉型金融相關工作，否則會帶來金融系統不穩定。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797844_1_20250328152146.jpg&q=90)
   
 
 人民銀行前行長易綱表示，轉型金融需要國際合作，及非常明確標準和披露要求。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797452-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797452-20250326.htm)
-
----
-
-# 國台辦︰賴清德在島内搞恐怖政治、綠色獨裁　徹底暴露醜惡面
-
-![陳斌華形容賴清德是「兩岸和平破壞者」、「台海危機製造者」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797446_2_20250326115402.jpg&q=75)
-  
-
-在北京，國台辦回應賴清德將大陸界定為「境外敵對勢力」，並提出17項因應策略。發言人陳斌華表示，兩岸關係不斷取得突破性進展，成果得來不易，批評賴清德大放厥詞，做法是把兩岸關係等同於敵對關係，形容對方是「兩岸和平破壞者」、「台海危機製造者」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797446-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797446-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797446-20250326.htm)
 
 ---
