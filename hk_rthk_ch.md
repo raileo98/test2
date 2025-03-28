@@ -1,3 +1,50 @@
+# 緬甸大地震　新華社據悉曼德勒省部分建築物倒塌　有道路斷裂
+
+  
+
+緬甸發生黎克特制7級以上猛烈地震，首都內比都和最大城市仰光震感強烈。央視新聞報道，雲南多地和泰國全國有震感，曼谷震感持續數分鐘，民眾紛紛離開高層建築物，湧到街上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797868-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797868-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797868-20250328.htm)
+
+---
+
+# 滬深股市連跌2星期　創業板指數本周累跌逾1%
+
+![滬深股市3大指數連跌2星期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797865_1_20250328151335.jpg&q=85)
+  
+
+內地股市低收近0.6%或以上，化工、風電設備、海工裝備股份下跌，貴金屬、創新藥、影視院線等股份造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797865-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797865-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797865-20250328.htm)
+
+---
+
 # 王毅下周一至周三訪問俄羅斯
 
 ![王毅下周一至周三訪問俄羅斯。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797866_1_20250328151510.jpg&q=90)

@@ -1,3 +1,27 @@
+# 滬深股市連跌2星期　創業板指數本周累跌逾1%
+
+![滬深股市3大指數連跌2星期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797865_1_20250328151335.jpg&q=85)
+  
+
+內地股市低收近0.6%或以上，化工、風電設備、海工裝備股份下跌，貴金屬、創新藥、影視院線等股份造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797865-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797865-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797865-20250328.htm)
+
+---
+
 # 港交所：致力提供ESG框架和標準　幫助上市公司實現淨零排放
 
 ![陳翊庭指出，港交所是較早強制要求披露氣候資訊的交易所之一。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797864_1_20250328145623.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm)
-
----
-
-# 中海油去年多賺逾11%　末期息每股0.66港元
-
-![中海油去年盈利1379.4億元人民幣，按年升逾11%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797700_1_20250327165258.jpg&q=90)
-  
-
-中海油去年盈利1379.4億元人民幣，按年升逾11%。末期息每股0.66港元，全年派息1.4元，按年升12%，派息比率44.7%。公司計劃今年起至2027年，全年派息比率提升至不低於45%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm)
 
 ---
