@@ -1,6 +1,5 @@
 # Praise for new stadium on day 1 of HK Sevens
 
-![The tournament has moved to a bigger and newer venue at Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797906_1_20250328181344.jpg&q=70)
 ![Fans gathered for day one of the Hong Kong Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797906_2_20250328181344.jpg&q=75)
   
 
