@@ -1,3 +1,27 @@
+# CK Hutchison ports deal 'won't be signed next week'
+
+![A source with close links to CK Hutchison suggests that the conglomerate will not sign a deal for the sale of its ports next week. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797942_1_20250328223502.jpg&q=65)
+  
+
+A controversial ports deal between CK Hutchison and a consortium led by US investment firm BlackRock won't be signed as expected next week – according to a source with close links to the Hong Kong conglomerate.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm)
+
+---
+
 # Hong Kong victorious on opening day of Rugby Sevens
 
 ![The Hong Kong, China men's squad (in white) comfortably saw off the national team 31-7 in the Melrose Claymores opener. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797928_1_20250328205342.jpg&q=90)
@@ -1428,29 +1452,5 @@ The Secretary for Health Lo Chung-mau has urged more individuals to register as 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797013-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797013-20250323.htm)
-
----
-
-# HK the place to be for creative firms, FS says
-
-![Financial Secretary Paul Chan said Hong Kong will continue to help mainland companies enter international markets. Photo courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797020_1_20250323141446.jpg&q=85)
-  
-
-Financial Secretary Paul Chan pledged his support for Hong Kong's cultural and creative industries, saying they will thrive under the city's unique east-meets-west and inclusive environment.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797020-20250323.htm)
 
 ---

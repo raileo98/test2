@@ -1,3 +1,94 @@
+# 元朗謀殺及傷人案　多三名男子被捕明日提堂
+
+![案發在今年一月，案中兩名事主在元朗喜業街喜業工廠大廈外，遭多人持刀襲擊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797944_1_20250328223845.jpg&q=85)
+  
+
+元朗一月發生的一宗謀殺及傷人案，警方拘捕多三名懷疑涉案男子，其中兩名分別20歲及42歲男子各被暫控一項謀殺罪及一項意圖傷人罪，餘下一名23歲男子則被暫控一項協助罪犯罪，案件明日在屯門裁判法院提堂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm)
+
+---
+
+# 緬甸大地震增至144死732傷
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm)
+
+---
+
+# 七欖首次移師啟德主場館舉行　開幕禮有激光投影等表演
+
+  
+
+香港國際七人欖球賽首次移師啟德體育園主場館舉行，有入場市民說有冷氣，較以往在大球場體驗為好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm)
+
+---
+
+# 王毅晤剛果共和國外長　強調推動中非合作高質量發展
+
+![王毅與剛果共和國外長加科索會面。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797940_1_20250328223208.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在北京會見剛果共和國外長加科索。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm)
+
+---
+
 # 入境處與警方拘捕7名非法勞工4名僱主及3名逾期居留人士
 
 ![懷疑非法勞工在行動中被捕。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797939_1_20250328222251.jpg&q=85)

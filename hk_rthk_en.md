@@ -1,3 +1,27 @@
+# CK Hutchison ports deal 'won't be signed next week'
+
+![A source with close links to CK Hutchison suggests that the conglomerate will not sign a deal for the sale of its ports next week. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797942_1_20250328223502.jpg&q=65)
+  
+
+A controversial ports deal between CK Hutchison and a consortium led by US investment firm BlackRock won't be signed as expected next week – according to a source with close links to the Hong Kong conglomerate.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm)
+
+---
+
 # Hong Kong victorious on opening day of Rugby Sevens
 
 ![The Hong Kong, China men's squad (in white) comfortably saw off the national team 31-7 in the Melrose Claymores opener. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797928_1_20250328205342.jpg&q=90)
@@ -1428,30 +1452,5 @@ France's Arthur Fils upset top-seed Alexander Zverev with an outstanding display
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm)
-
----
-
-# South Korea battles worst ever wildfires
-
-![The wildfires in South Korea have been moving rapidly eastward, spreading almost to the coast, carried by gusty winds. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_1_20250327105237.jpg&q=80)
-![A satellite image shows smoke from fires burning in Uiseong county, South Korea. Photo: Nasa via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_2_20250327105237.jpg&q=80)
-  
-
-Wildfires raging in South Korea doubled in size on Thursday from a day earlier, as authorities called the blazes the country's worst natural fire disaster with at least 26 people killed and historic temples incinerated.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm)
 
 ---

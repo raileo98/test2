@@ -1,3 +1,47 @@
+# 緬甸大地震增至144死732傷
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm)
+
+---
+
+# 王毅晤剛果共和國外長　強調推動中非合作高質量發展
+
+![王毅與剛果共和國外長加科索會面。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797940_1_20250328223208.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在北京會見剛果共和國外長加科索。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm)
+
+---
+
 # 丘應樺稱全力建設香港成為區域知識產權貿易中心
 
 ![丘應樺（前排右一）到訪一家內地著名的潮流文化娛樂公司，了解營運情況和內地知識產權產品的發展。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797932_1_20250328215451.jpg&q=85)
@@ -1391,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm)
-
----
-
-# 丁薛祥：擴大國內需求積極穩外貿穩外資　有信心實現發展目標
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797641_1_20250327123700.jpg&q=80)
-  
-
-國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式致辭表示，今年首兩個月，中國經濟運行起步平穩，有信心實現經濟社會發展目標，為亞洲和世界的發展作出新貢獻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm)
-
----
-
-# 丁薛祥出席博鰲亞洲論壇開幕式　稱亞洲命運共同體建設成績斐然
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797640_1_20250327122852.jpg&q=80)
-  
-
-國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式致辭表示，今年是國家主席習近平提出構建「亞洲命運共同體」 10周年，在各方的共同努力下，「亞洲命運共同體」建設成績斐然。他提出4點建議，共創亞洲和世界更加美好的未來。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm)
 
 ---

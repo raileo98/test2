@@ -1,3 +1,27 @@
+# 王毅晤剛果共和國外長　強調推動中非合作高質量發展
+
+![王毅與剛果共和國外長加科索會面。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797940_1_20250328223208.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅在北京會見剛果共和國外長加科索。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm)
+
+---
+
 # 林定國於北京講座分享「一國兩制」檢控及維護公共利益工作
 
 ![林定國（左）與最高人民法院副院長茅仲華（右）在專題講座上合照。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797937_1_20250328221222.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm)
-
----
-
-# 何立峰與美國貿易代表格里爾舉行視像通話
-
-![國務院副總理何立峰與美國貿易代表格里爾舉行視像通話。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797574_1_20250326222954.jpg&q=90)
-  
-
-中美經貿中方牽頭人、國務院副總理何立峰應約與美國貿易代表格里爾舉行視像通話。雙方圍繞落實今年1月17日中美兩國元首通話達成的重要共識，就雙邊經貿領域重要問題坦誠、深入交換意見。中方就美方以芬太尼為由對華加徵關稅、有關301調查以及計劃出台「對等」關稅等表達嚴正關切。雙方認為保持穩定的中美經貿關係符合兩國利益，同意就彼此關心的問題繼續保持溝通。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm)
 
 ---

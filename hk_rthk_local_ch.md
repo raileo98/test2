@@ -1,3 +1,50 @@
+# 元朗謀殺及傷人案　多三名男子被捕明日提堂
+
+![案發在今年一月，案中兩名事主在元朗喜業街喜業工廠大廈外，遭多人持刀襲擊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797944_1_20250328223845.jpg&q=85)
+  
+
+元朗一月發生的一宗謀殺及傷人案，警方拘捕多三名懷疑涉案男子，其中兩名分別20歲及42歲男子各被暫控一項謀殺罪及一項意圖傷人罪，餘下一名23歲男子則被暫控一項協助罪犯罪，案件明日在屯門裁判法院提堂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm)
+
+---
+
+# 七欖首次移師啟德主場館舉行　開幕禮有激光投影等表演
+
+  
+
+香港國際七人欖球賽首次移師啟德體育園主場館舉行，有入場市民說有冷氣，較以往在大球場體驗為好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm)
+
+---
+
 # 入境處與警方拘捕7名非法勞工4名僱主及3名逾期居留人士
 
 ![懷疑非法勞工在行動中被捕。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797939_1_20250328222251.jpg&q=85)
@@ -1400,53 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm)
-
----
-
-# 各決策局過去一年提出逾三十項與青年相關新措施
-
-![陳國基（前排中）主持青年發展委員會第18次會議。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797733_1_20250327210940.jpg&q=90)
-  
-
-政務司司長陳國基主持青年發展委員會第18次會議。他表示，政府在過去兩年持續落實並動態更新《青年發展藍圖》內的措施，以行動印證政府對長期推動青年發展工作的重視和決心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797733-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797733-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797733-20250327.htm)
-
----
-
-# 啟德體育園引進大型廢物分解系統將於國際七人欖球賽期間運作
-
-![大型廢物分解系統每年可將逾200噸廚餘、紙杯及其他紙製容器轉化為堆肥。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797731_1_20250327210818.jpg&q=90)
-  
-
-啟德體育園引進首台大型廢物分解系統，經試驗後，將在今屆香港國際七人欖球賽期間正式投入運作，以處理活動期間收集的廚餘及紙類廢物。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797731-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797731-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797731-20250327.htm)
 
 ---
