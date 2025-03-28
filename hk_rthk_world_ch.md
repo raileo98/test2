@@ -20,7 +20,7 @@
 
 # 緬甸大地震至少10死　軍政府籲國際社會援助　曼谷至少3人喪生
 
-![緬甸大地震，泰國曼谷有震感，一座興建中的建築物倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797904_1_20250328182805.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797904_1_20250328183310.jpg&q=90)
   
 
 緬甸發生黎克特制7級以上大地震，雲南、泰國、老撾和越南都有震感。泰國曼谷一座興建中的30層高建築物倒塌，至少3人死亡，多人受傷。泰國總理佩通坦宣布，曼谷進入緊急狀態。
