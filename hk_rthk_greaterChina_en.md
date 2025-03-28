@@ -1,3 +1,27 @@
+# Quake rocks Myanmar, Thailand and parts of China
+
+![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_1_20250328152242.jpg&q=75)
+  
+
+A strong 7.7 magnitude earthquake hit central Myanmar on Friday, the United States Geological Survey (USGS) said, buckling roads in the capital Naypyidaw and with tremors felt in China and Thailand.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm)
+
+---
+
 # Xi meets heads of international business community
 
 ![Xi Jinping had also met with foreign business leaders after the China Development Forum last year. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797830_1_20250328121558.jpg&q=90)
@@ -1413,29 +1437,5 @@ Zhao Leji, chairman of the National People's Congress (NPC) Standing Committee, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795469-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795469-20250312.htm)
-
----
-
-# China to host talks on Iranian nuclear issue
-
-![The Foreign Ministry says China, Russia and Iran will hold talks on Friday on the Iranian nuclear issue and other topics of mutual interest. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795432_1_20250312165659.jpg&q=80)
-  
-
-China will host Russia and Iran for trilateral talks on Tehran's nuclear programme on Friday, the Foreign Ministry said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795432-20250312.htm)
 
 ---

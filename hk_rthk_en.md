@@ -1,3 +1,27 @@
+# Quake rocks Myanmar, Thailand and parts of China
+
+![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_1_20250328152242.jpg&q=75)
+  
+
+A strong 7.7 magnitude earthquake hit central Myanmar on Friday, the United States Geological Survey (USGS) said, buckling roads in the capital Naypyidaw and with tremors felt in China and Thailand.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm)
+
+---
+
 # ICAC chief lays down law on calls for invalid votes
 
 ![Election workers get ballots out of boxes after the end of voting in the 2022 Legislative Council Election Committee constituency. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797856_1_20250328150342.jpg&q=90)
@@ -1424,29 +1448,5 @@ The Atlantic magazine on Wednesday published what it said was the entire text of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm)
-
----
-
-# UK slashes growth forecast, cuts public spending
-
-![UK finance minister Rachel Reeves delivers the Spring Statement spending update. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797575_1_20250326221849.jpg&q=90)
-  
-
-The UK government halved its 2025 growth forecast on Wednesday as it made billions of pounds of spendings cuts to shore up the public purse in the face of economic headwinds.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm)
 
 ---
