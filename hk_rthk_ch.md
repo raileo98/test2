@@ -1,3 +1,26 @@
+# 有立法會議員倡港鐵累積明年票價加幅回贈乘客或撤銷加幅
+
+  
+
+港鐵宣布，2025/26年度港鐵票價維持不變，有立法會議員建議，將累積到明年的票價加幅向乘客回贈甚至撤銷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm)
+
+---
+
 # 南韓山林廳稱慶尚北道山火已全部撲滅
 
 ![消防員繼續全力撲救持續一星期的山火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797919_1_20250328191549.jpg&q=45)
