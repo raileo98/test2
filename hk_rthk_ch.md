@@ -1,5 +1,52 @@
+# 鍾健禮辭任新界東醫院聯網總監及威爾斯醫院行政總監
+
+  
+
+中大醫院宣布委任鍾健禮為新任行政總裁，於6月16日起擔任候任行政總裁，以便交接，8月1日正式履新。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797845-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797845-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797845-20250328.htm)
+
+---
+
+# 周小川：不能即使賠錢亦要進行轉型金融相關工作
+
+  
+
+人民銀行前行長易綱表示，轉型金融需要國際合作，及非常明確標準和披露要求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797844-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797844-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797844-20250328.htm)
+
+---
+
 # 習近平冀外資企業打消疑慮　放手來中國發展分享中國發展機遇
 
+![國家主席習近平在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797842_1_20250328130113.jpg&q=85)
   
 
 國家主席習近平在北京人民大會堂會見國際工商界代表。

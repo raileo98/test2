@@ -1,3 +1,26 @@
+# 鍾健禮辭任新界東醫院聯網總監及威爾斯醫院行政總監
+
+  
+
+中大醫院宣布委任鍾健禮為新任行政總裁，於6月16日起擔任候任行政總裁，以便交接，8月1日正式履新。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797845-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797845-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797845-20250328.htm)
+
+---
+
 # 張國鈞冀大灣區律師顧問小組加入網紅令制訂措施更「貼地」
 
 ![張國鈞希望透過熟悉內地情況的港人，令當局在制訂措施時更加「貼地」。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797839_1_20250328125657.jpg&q=80)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm)
-
----
-
-# 丁薛祥：今年首兩個月中國經濟運行起步平穩
-
-![丁薛祥表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797666_1_20250327140247.jpg&q=80)
-  
-
-博鰲亞洲論壇年會舉行開幕式，國務院副總理丁薛祥發表主旨演講，表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm)
 
 ---

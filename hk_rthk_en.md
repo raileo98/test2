@@ -216,7 +216,6 @@ President Xi Jinping met Bangladesh leader Muhammad Yunus in Beijing on Friday, 
 
 # Lines, fire and hair: Art Basel 2025 kicks off
 
-![Artist Movana Chen transformed maps into large pieces of garment. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_1_20250328104141.jpg&q=85)
 ![Chen is performing at Art Basel with her partner, dancer Francisco Borges. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_2_20250328104141.jpg&q=90)
 ![The "Questioning the Line" art performance piece also explores the entanglement between human and nature. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_6_20250328105506.jpg&q=85)
 ![American painter Alec Egan's new works pays homage to the work he lost in the Los Angeles fire and captures the eerie beauty of ash-filled skies. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_3_20250328104141.jpg&q=90)

@@ -1,5 +1,29 @@
+# 周小川：不能即使賠錢亦要進行轉型金融相關工作
+
+  
+
+人民銀行前行長易綱表示，轉型金融需要國際合作，及非常明確標準和披露要求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797844-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797844-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797844-20250328.htm)
+
+---
+
 # 習近平冀外資企業打消疑慮　放手來中國發展分享中國發展機遇
 
+![國家主席習近平在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797842_1_20250328130113.jpg&q=85)
   
 
 國家主席習近平在北京人民大會堂會見國際工商界代表。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797680-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797680-20250327.htm)
-
----
-
-# 人行宣昌能：貨幣政策有足夠空間　將擇機降準減息
-
-![宣昌能：中國實施適度寬鬆的貨幣政策立場明確，貨幣政策有足夠空間，將擇機降準減息。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797679_1_20250327152656.jpg&q=80)
-  
-
-人民銀行副行長宣昌能表示，中國實施適度寬鬆的貨幣政策立場明確，貨幣政策有足夠空間，將根據國內外經濟金融形勢和金融市場運行情況，擇機降準減息。他強調，人行需要加強溝通協調，以確定的政策取向，應對不確定性的環境，有效穩定預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797679-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797679-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797679-20250327.htm)
 
 ---

@@ -1,5 +1,6 @@
 # 習近平冀外資企業打消疑慮　放手來中國發展分享中國發展機遇
 
+![國家主席習近平在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797842_1_20250328130113.jpg&q=85)
   
 
 國家主席習近平在北京人民大會堂會見國際工商界代表。
