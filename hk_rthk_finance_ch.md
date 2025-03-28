@@ -1,3 +1,51 @@
+# 石破茂：特朗普政府對進口汽車徵稅25%將衝擊日本經濟
+
+![石破茂承諾將採取全面措施保護日本就業。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797809_1_20250328100604.jpg&q=90)
+  
+
+日本首相石破茂表示，美國總統特朗普政府對進口汽車徵收25%關稅，將對日本經濟產生非常大的衝擊，他承諾將採取全面措施保護就業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797809-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797809-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797809-20250328.htm)
+
+---
+
+# 東京3月核心通脹率超出預期　大米價格飆升逾92%
+
+![東京3月核心通脹率升至2.4%，大米價格按年急升逾92%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797808_1_20250328095724.jpg&q=80)
+  
+
+東京3月核心消費物價指數 （CPI）按年升2.4%，市場原先預期增長維持於2月的2.2%。撇除生鮮食品及能源價格的指數按年升幅亦加快至2.2%，比2月快0.3個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797808-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797808-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797808-20250328.htm)
+
+---
+
 # 滬深股市初段變動不大
 
 ![內地股市初段變動不大，上證指數較早時報3368點，跌4點，跌幅0.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797803_1_20250328093654.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797658-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797658-20250327.htm)
-
----
-
-# 嘉華國際去年盈利跌58%　呂耀東即日起出任主席
-
-![嘉華國際去年盈利3.35億元，按年減少58%，核心盈利3.61億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797656_1_20250327124544.jpg&q=90)
-  
-
-嘉華國際去年盈利3.35億元，按年減少58%，核心盈利3.61億元。派末期息每股5港仙，全年派息9港仙，按年均跌約44%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797656-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797656-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797656-20250327.htm)
-
----
-
-# 蒙牛：行業需求恢復速度較預期慢
-
-![張平（右二）表示對今年收入表現有信心，預計有低單位數增長。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797657_1_20250327125005.jpg&q=85)
-  
-
-蒙牛總裁兼執行董事高飛表示，過去一年集團面對經濟大環境，加上行業挑戰仍大，未來會繼續強化品牌、研發創新和進行數字轉型，通過供應鏈增益管理和提質增效，務求令各項奶類產品成為剛性需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797657-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797657-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797657-20250327.htm)
 
 ---

@@ -48,7 +48,7 @@
 
 # 粵港澳大灣區律師顧問小組加入網紅　律政司冀制定措施更「貼地」
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_1_20250327235446.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_2_20250328100235.jpg&q=90)
   
 
 律政司兩年前成立「粵港澳大灣區專責小組」，以深化大灣區便利惠民的互利合作，以及推進大灣區發展和建設，去年再在專責小組之下成立「粵港澳大灣區律師顧問小組」。政府本月初委任兩個小組合共7名新成員，包括居住在深圳的香港人、網紅「西DorSi」謝承益，亦是專責小組唯一並非來自法律界又長居內地的港人成員。

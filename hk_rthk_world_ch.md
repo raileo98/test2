@@ -1,5 +1,30 @@
+# 石破茂：特朗普政府對進口汽車徵稅25%將衝擊日本經濟
+
+![石破茂承諾將採取全面措施保護日本就業。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797809_1_20250328100604.jpg&q=90)
+  
+
+日本首相石破茂表示，美國總統特朗普政府對進口汽車徵收25%關稅，將對日本經濟產生非常大的衝擊，他承諾將採取全面措施保護就業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797809-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797809-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797809-20250328.htm)
+
+---
+
 # 七欖開鑼　九龍城餐廳稱人流增兩至三成將延長營業時間
 
+![九龍城餐廳東主指感受到啟德體育園周邊的生意有增長，早前在測試賽及開幕禮時，已見到九龍城區內人流明顯增加大約兩至三成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797806_1_20250328101357.jpg&q=70)
   
 
 香港國際七人欖球賽一連3日在啟德體育園舉行，九龍城區議會提振地區經濟專責工作小組主席黃文莉表示，社會重視交通安排，港鐵與巴士公司有與區議會緊密聯繫，溝通後有改善特別巴士線和的士上落客區。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797511-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797511-20250326.htm)
-
----
-
-# 不信任動議被否決　泰總理佩通坦感謝各方充分履行人民代表職責
-
-![佩通坦說在今次表決中，不論投票取向，都會成為她與內閣團隊繼續為人民努力工作的動力。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797506_1_20250326155548.jpg&q=90)
-  
-
-泰國國會下議院經表決後，否決針對總理佩通坦的不信任動議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797506-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797506-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797506-20250326.htm)
 
 ---

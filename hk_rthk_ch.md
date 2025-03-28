@@ -1,5 +1,54 @@
+# 石破茂：特朗普政府對進口汽車徵稅25%將衝擊日本經濟
+
+![石破茂承諾將採取全面措施保護日本就業。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797809_1_20250328100604.jpg&q=90)
+  
+
+日本首相石破茂表示，美國總統特朗普政府對進口汽車徵收25%關稅，將對日本經濟產生非常大的衝擊，他承諾將採取全面措施保護就業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797809-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797809-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797809-20250328.htm)
+
+---
+
+# 東京3月核心通脹率超出預期　大米價格飆升逾92%
+
+![東京3月核心通脹率升至2.4%，大米價格按年急升逾92%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797808_1_20250328095724.jpg&q=80)
+  
+
+東京3月核心消費物價指數 （CPI）按年升2.4%，市場原先預期增長維持於2月的2.2%。撇除生鮮食品及能源價格的指數按年升幅亦加快至2.2%，比2月快0.3個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797808-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797808-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797808-20250328.htm)
+
+---
+
 # 七欖開鑼　九龍城餐廳稱人流增兩至三成將延長營業時間
 
+![九龍城餐廳東主指感受到啟德體育園周邊的生意有增長，早前在測試賽及開幕禮時，已見到九龍城區內人流明顯增加大約兩至三成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797806_1_20250328101357.jpg&q=70)
   
 
 香港國際七人欖球賽一連3日在啟德體育園舉行，九龍城區議會提振地區經濟專責工作小組主席黃文莉表示，社會重視交通安排，港鐵與巴士公司有與區議會緊密聯繫，溝通後有改善特別巴士線和的士上落客區。
@@ -477,12 +526,12 @@
 
 ---
 
-# 邁亞密網球賽「一姐」莎芭蓮卡殺入女單決賽
+# 邁阿密網球賽「一姐」莎芭蓮卡殺入女單決賽
 
-![邁亞密網球賽「一姐」莎芭蓮卡殺入女單決賽。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797779_1_20250328070326.jpg&q=90)
+![邁阿密網球賽「一姐」莎芭蓮卡殺入女單決賽。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797779_1_20250328070326.jpg&q=90)
   
 
-邁亞密網球賽女單4強，世界排名第一的莎芭蓮卡，面對6號種子意大利的柏奧莉妮，只用了71分鐘，就以直落兩盤6:2輕取對手，殺入決賽。
+邁阿密網球賽女單4強，世界排名第一的莎芭蓮卡，面對6號種子意大利的柏奧莉妮，只用了71分鐘，就以直落兩盤6:2輕取對手，殺入決賽。
 
   
 
@@ -911,7 +960,7 @@
 
 # 粵港澳大灣區律師顧問小組加入網紅　律政司冀制定措施更「貼地」
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_1_20250327235446.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_2_20250328100235.jpg&q=90)
   
 
 律政司兩年前成立「粵港澳大灣區專責小組」，以深化大灣區便利惠民的互利合作，以及推進大灣區發展和建設，去年再在專責小組之下成立「粵港澳大灣區律師顧問小組」。政府本月初委任兩個小組合共7名新成員，包括居住在深圳的香港人、網紅「西DorSi」謝承益，亦是專責小組唯一並非來自法律界又長居內地的港人成員。
@@ -1386,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797739-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797739-20250327.htm)
-
----
-
-# 美國去年第4季GDP按季年率增長2.4%　略高於前值及預期
-
-![美國去年第4季國內生產總值(GDP)按季年率修訂為增長2.4%，略高於前值和市場預期的2.3%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797738_1_20250327211320.jpg&q=80)
-  
-
-美國去年第4季國內生產總值(GDP)按季年率修訂為增長2.4%，略高於前值和市場預期的2.3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm)
-
----
-
-# 中方：奉勸美方反思對拉美和加勒比國家的霸權霸凌　停止抺黑中國
-
-![外交部說，美方惡意散布虛假信息，目的是挑撥中國同其他國家關係，不會得逞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797737_1_20250327211131.jpg&q=80)
-  
-
-在北京，外交部發言人郭嘉昆表示，中方同世界各國開展投資合作，有力地促進各國經濟發展和民生改善。奉勸美方好好反思自身對拉美和加勒比發展中國家的霸權霸凌和巧取豪奪，停止對中國的歪曲抹黑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm)
 
 ---
