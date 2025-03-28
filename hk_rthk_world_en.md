@@ -1,7 +1,7 @@
 # 43 trapped after quake brings down Bangkok high-rise
 
-![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_1_20250328152242.jpg&q=75)
-![Office workers flee a building through the stairwell in Bangkok. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_2_20250328152713.jpg&q=90)
+![Rescue workers at the scene after the 30-storey building under construction collapsed in Bangkok. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_3_20250328161031.jpg&q=60)
+![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_4_20250328161031.jpg&q=75)
   
 
 A strong 7.7 magnitude earthquake hit central Myanmar on Friday, the United States Geological Survey (USGS) said, buckling roads in the capital Naypyidaw and with tremors felt in China and Thailand.
