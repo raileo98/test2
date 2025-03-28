@@ -1,3 +1,75 @@
+# 巴爾金：車企面對兩難局面　料消費者不會承受關稅全部影響
+
+![巴爾金表示，車企面臨兩難局面，考慮到市場競爭、匯率等問題，估計消費者不會承受徵收關稅帶來的全部影響。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797788_1_20250328080438.jpg&q=90)
+  
+
+里奇蒙聯邦儲備銀行總裁巴爾金表示，密切關注企業及消費者對關稅的反應，車企面臨將關稅轉嫁給消費者的挑戰，但車企的定價能力可能比想像中低，並且面臨兩難局面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797788-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797788-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797788-20250328.htm)
+
+---
+
+# 韓股早段跌逾1%　失守2600點
+
+![首爾綜合指數跌穿2600點水平，較早時報2569點，跌38點，跌幅1.46%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797790_1_20250328080642.jpg&q=85)
+  
+
+南韓股市早段受壓，首爾綜合指數跌穿2600點水平，較早時報2569點，跌38點，跌幅1.46%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797790-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797790-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797790-20250328.htm)
+
+---
+
+# 日股初段跌近600點
+
+![日經指數較早時報37236點，跌563點，跌幅1.49%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797789_1_20250328080541.jpg&q=85)
+  
+
+日股初段下挫，日經指數較早時報37236點，跌563點，跌幅1.49%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797789-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797789-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797789-20250328.htm)
+
+---
+
 # 李寧料內地今年居民消費增長潛力較大
 
 ![李寧預期，在政策有力支持下，內地今年居民消費將有較大增長潛力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797787_1_20250328074822.jpg&q=85)
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm)
-
----
-
-# 內地首兩個月工業企業利潤按年跌0.3%
-
-![內地今年首兩個月工業企業利潤按年跌0.3%，跌幅較去年全年收窄3個百分點。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797636_1_20250327105906.jpg&q=90)
-  
-
-內地今年首兩個月工業企業利潤總額9109.9億元人民幣，按年跌0.3%，跌幅較去年全年收窄3個百分點，但表現差過去年首兩個月的增長10.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm)
-
----
-
-# 丁薛祥出席博鰲亞洲論壇開幕式　稱亞洲命運共同體建設成績斐然
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797640_1_20250327122852.jpg&q=80)
-  
-
-國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式致辭表示，今年是國家主席習近平提出構建「亞洲命運共同體」 10周年，在各方的共同努力下，「亞洲命運共同體」建設成績斐然。他提出4點建議，共創亞洲和世界更加美好的未來。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm)
-
----
-
-# 保險投訴局去年接646宗投訴升約5%　111人獲賠償逾千萬元
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797639_1_20250327112511.jpg&q=85)
-  
-
-保險投訴局去年共接獲646宗投訴個案，按年上升約5%。在已審結的356宗與索償相關投訴個案中，111名投訴人獲得保險公司賠償，涉及總賠償金額達1050萬港元。住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm)
 
 ---

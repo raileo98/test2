@@ -1,3 +1,75 @@
+# 巴爾金：車企面對兩難局面　料消費者不會承受關稅全部影響
+
+![巴爾金表示，車企面臨兩難局面，考慮到市場競爭、匯率等問題，估計消費者不會承受徵收關稅帶來的全部影響。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797788_1_20250328080438.jpg&q=90)
+  
+
+里奇蒙聯邦儲備銀行總裁巴爾金表示，密切關注企業及消費者對關稅的反應，車企面臨將關稅轉嫁給消費者的挑戰，但車企的定價能力可能比想像中低，並且面臨兩難局面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797788-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797788-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797788-20250328.htm)
+
+---
+
+# 韓股早段跌逾1%　失守2600點
+
+![首爾綜合指數跌穿2600點水平，較早時報2569點，跌38點，跌幅1.46%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797790_1_20250328080642.jpg&q=85)
+  
+
+南韓股市早段受壓，首爾綜合指數跌穿2600點水平，較早時報2569點，跌38點，跌幅1.46%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797790-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797790-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797790-20250328.htm)
+
+---
+
+# 日股初段跌近600點
+
+![日經指數較早時報37236點，跌563點，跌幅1.49%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797789_1_20250328080541.jpg&q=85)
+  
+
+日股初段下挫，日經指數較早時報37236點，跌563點，跌幅1.49%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797789-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797789-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797789-20250328.htm)
+
+---
+
 # 李寧料內地今年居民消費增長潛力較大
 
 ![李寧預期，在政策有力支持下，內地今年居民消費將有較大增長潛力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797787_1_20250328074822.jpg&q=85)
@@ -624,7 +696,7 @@
 
 # 立法會選舉胡英明稱勿煽動他人不投票或投無效票　廉署將強硬執法
 
-![胡英明表示，有向來港勞工講解要遵守本港法律。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797756_1_20250327235356.jpg&q=75)
+![胡英明表示，任何人如透過公開活動煽動他人不投票或投無效票，均屬違法，公眾不要轉載和分享有關言論。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797756_2_20250328083530.jpg&q=80)
   
 
 立法會換屆選舉年底舉行，廉政專員胡英明表示，法例清楚寫明，任何人如透過公開活動煽動他人不投票或投無效票，均屬違法，公眾不要轉載和分享有關言論。胡英明強調，廉署會強硬執法，「見一宗拉一宗」，公眾不要存有僥倖心態。
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm)
-
----
-
-# 港澳辦網站轉載報道指長和出售港口不符商業邏輯
-
-![中共中央港澳辦、國務院港澳辦轉載報道，內容提及長和計劃出售巴拿馬運河港口等資產。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797725_1_20250327192925.jpg&q=75)
-  
-
-中共中央港澳辦、國務院港澳辦在網站轉載大公文匯報報道，標題為《急售運河港口予美資 專家質疑「非一般買賣」 「企業面對霸權霸凌，應與國家站在一起」》，內容提及長和計劃出售巴拿馬運河港口等資產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm)
-
----
-
-# 天文台：市區氣溫明日稍後由最高約29度顯著降至周六約17度
-
-![天文台：市區氣溫明日稍後由最高約29度顯著降至周六約17度](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797723_1_20250327191207.jpg&q=90)
-  
-
-天文台表示，位於華中的低壓槽會逐漸發展為一道冷鋒，並會在明日移近華南沿岸。本港明日有幾陣驟雨，日間短暫時間有陽光及炎熱。隨著冷鋒在明日稍後橫過廣東沿岸，屆時局部地區亦可能有雷暴。受隨後的東北季候風影響，市區氣溫會於明日稍後由最高約29度顯著下降至星期六約17度，新界再低兩三度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797723-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797723-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797723-20250327.htm)
-
----
-
-# 在岸人民幣低收20點子
-
-![在岸人民幣收市報7.2655兌1美元，較昨日收市跌20點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797716_1_20250327184509.jpg&q=80)
-  
-
-在岸人民幣收市報7.2655兌1美元，創逾3周新低，較昨日收市跌20點子。中間價亦跌9點子，與市場預測偏離擴大至近千點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797716-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797716-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797716-20250327.htm)
 
 ---
