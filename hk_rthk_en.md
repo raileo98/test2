@@ -1,4 +1,4 @@
-# Hong Kong Rugby 7s action kicks off at Kai Tak
+# Hong Kong Rugby Sevens premieres at Kai Tak
 
 ![More people are expected to be at the stadium later as about 130,000 tickets were sold. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_1_20250328154507.jpg&q=85)
 ![Organisers say rugby fans will find it easy to travel to the stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_2_20250328154507.jpg&q=75)
@@ -28,7 +28,7 @@ The Hong Kong Sevens tournament kicked off with a bang at Kai Tak Stadium on Fri
 # 43 trapped after quake brings down Bangkok high-rise
 
 ![Rescue workers at the scene after the 30-storey building under construction collapsed in Bangkok. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_3_20250328161031.jpg&q=60)
-![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_4_20250328161031.jpg&q=75)
+![The trauma of the building's collapse takes its toll on one of the construction worker who managed to get out. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_5_20250328163235.jpg&q=85)
   
 
 A strong 7.7 magnitude earthquake hit central Myanmar on Friday, the United States Geological Survey (USGS) said, buckling roads in the capital Naypyidaw and with tremors felt in China and Thailand.

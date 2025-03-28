@@ -1,8 +1,8 @@
-# 易綱：轉型金融須國際合作　周小川：不能說賠錢亦要企業轉型
+# 仁安醫院稱不會因公立醫院調整收費而加價　成本上升才會上調收費
 
   
 
-人民銀行前行長，中國金融學會理事會會長易綱表示，轉型金融需要國際合作、非常明確標準及披露要求。他在博鰲亞洲論壇一個分論壇上表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確，以防止綠「綠漂」，同時亦提供奬勵。
+當局推行公營醫療服務收費改革，急症室收費由現時180元上調至400元，仁安醫院院長李繼堯表示，院方不會因公立醫院調整收費而乘機加價。
 
   
 
@@ -10,19 +10,69 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1797880-20250328.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797880-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797880-20250328.htm)
+
+---
+
+# 外交部：中方堅決反對英方炮製所謂「半年報告」干涉中國內政
+
+![郭嘉昆說，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797879_1_20250328162152.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆回應英國政府再次發布「香港問題半年報告」時表示，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm)
+
+---
+
+# 1.1億元走私金條案有紀錄最大宗　以7層包裝藏於付運日本貨物
+
+![海關表示，在發現這批懷疑金條前，要打開7層包裝，形容不法分子的收藏手法費盡心思。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797878_1_20250328163004.jpg&q=90)
+  
+
+海關破獲懷疑走私金條案件，檢獲共重145公斤，市值高達1.1億港元，是海關有紀錄以來破獲最大宗的走私金條案件，數量比起三星期前破獲的走私金條案，數量超出一倍有多。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797878-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797878-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797878-20250328.htm)
 
 ---
 
 # 元朗攸壆路簡約公屋入伙　有租戶稱租金較劏房平但位置較遠
 
+![元朗攸壆路首個簡約公屋即日起入伙，整個項目分為南北兩區，住在南區的居民陸續到邨內辦事處領取鎖匙。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797873_2_20250328162257.jpg&q=85)
+![單位設獨立洗手間，淋浴間，開放式煮食空間等。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797873_3_20250328162659.jpg&q=90)
   
 
 元朗攸壆路首個簡約公屋即日起入伙，整個項目分為南北兩區，住在南區的居民陸續到邨內辦事處領取鎖匙，首個星期每日處理50戶，之後每星期增至100戶，房屋局期望4月可以完成整個南區共1046個單位的入伙手續。
@@ -69,6 +119,7 @@
 
 # 男子攜500萬元歐羅遇劫反抗匪徒事敗　警拘4非華裔男子
 
+![警方翻看大量閉路電視，並鎖定4名男子的身份，分別在佐敦及旺角拘捕他們，年齡介乎17至31歲。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797869_1_20250328162323.jpg&q=85)
   
 
 警方以「企圖行劫」罪拘捕4名非華裔男子，涉嫌與昨日尖沙咀一宗行劫案有關，涉及約4200港萬元財物。
@@ -1389,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797687-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797687-20250327.htm)
-
----
-
-# 李家超：丁薛祥三點看法進一步加強外界對中國經濟未來發展信心
-
-![李家超表示，丁薛祥發表主旨演講，就共創亞洲和世界更加美好的未來提出「四點建議」，及就國家經濟走勢提出「三點看法」。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797684_1_20250327162313.jpg&q=90)
-  
-
-行政長官李家超說，「一國兩制」下，香港是全球唯一同時享有中國優勢及國際優勢的開放經濟體。面對地緣政治變化、保護主義和單邊主義冒起，香港始終倡導自由貿易及多邊主義，致力於增強應對挑戰的應變能力，亦是外國企業進軍內地以及內地企業「走出去」的最佳平台。在國家支持下，香港會進一步深化國際交往合作，並與國家及亞洲各國一道增進互信團結、開放融通、互利共贏、和平共處，促進亞洲經濟發展，推動全球經濟一體化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797684-20250327.htm)
-
----
-
-# 市建局山東街/地士道街項目邀請28家發展商入標
-
-![市建局山東街/地士道街發展計劃招標。市場對項目估值約6.4億至9.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797680_1_20250327153215.jpg&q=90)
-  
-
-市區重建局邀請28家發展商入標競投合作發展九龍山東街/地士道街發展計劃，5月13日中午截標。項目本月初截收意向書，合共收到28份。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797680-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797680-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797680-20250327.htm)
 
 ---

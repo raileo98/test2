@@ -1,4 +1,4 @@
-# Hong Kong Rugby 7s action kicks off at Kai Tak
+# Hong Kong Rugby Sevens premieres at Kai Tak
 
 ![More people are expected to be at the stadium later as about 130,000 tickets were sold. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_1_20250328154507.jpg&q=85)
 ![Organisers say rugby fans will find it easy to travel to the stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_2_20250328154507.jpg&q=75)

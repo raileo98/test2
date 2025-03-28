@@ -1,3 +1,51 @@
+# 外交部：中方堅決反對英方炮製所謂「半年報告」干涉中國內政
+
+![郭嘉昆說，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797879_1_20250328162152.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆回應英國政府再次發布「香港問題半年報告」時表示，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm)
+
+---
+
+# 外交部：美方應停止在南海挑事生非　奉勸菲方勿「倚美鬧海」
+
+![郭嘉昆說，美方應停止在南海挑事生非，不要做南海的攪局者和肇事方。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797876_1_20250328161658.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆表示，美方應摒棄冷戰思維，停止挑動意識形態對抗，停止在南海挑事生非、在地區挑撥離間，不要做南海的攪局者和肇事方。中方也奉勸菲方，不要「倚美鬧海」，更不要試圖挑起軍事對抗。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm)
+
+---
+
 # 緬甸大地震　據報曼谷有建築物倒塌1死43人失蹤
 
 ![曼谷有建築物倒塌，救援人員在瓦礫中搜救。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797875_1_20250328161024.jpg&q=90)
@@ -24,6 +72,7 @@
 
 # 易綱：轉型金融須國際合作　周小川：不能說賠錢亦要企業轉型
 
+![易綱（右）表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確。周小川（左）支持轉型金融過程中，需要注意價格機制。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797874_1_20250328163029.jpg&q=90)
   
 
 人民銀行前行長，中國金融學會理事會會長易綱表示，轉型金融需要國際合作、非常明確標準及披露要求。他在博鰲亞洲論壇一個分論壇上表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確，以防止綠「綠漂」，同時亦提供奬勵。
@@ -1387,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797589-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797589-20250327.htm)
-
----
-
-# 日本巴西領袖會談　石破茂稱將在外交安保等領域深化兩國關係
-
-![日本首相石破茂（右）在東京與到訪的巴西總統盧拉舉行會談。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797588_1_20250327015211.jpg&q=90)
-  
-
-日本首相石破茂在東京與到訪的巴西總統盧拉舉行會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797588-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797588-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797588-20250327.htm)
-
----
-
-# 中印舉行外交部官員磋商　中方形容氣氛坦誠務實、富建設性
-
-![中國與印度在北京舉行外交部官員磋商。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797587_1_20250327013533.jpg&q=90)
-  
-
-中國與印度在北京舉行外交部官員磋商。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm)
 
 ---
