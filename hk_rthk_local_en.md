@@ -24,10 +24,10 @@ Public transport operators are boosting services to accommodate the large crowds
 
 # 'Use AI chatbots in triage system to avoid mistakes'
 
-![A patient rights group has proposed the use of AI chatbots in triage system at public hospitals to help patients gain a better understanding of their conditions. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797824_1_20250328114303.jpg&q=90)
+![A patients' rights group has proposed the use of AI chatbots in triage system at public hospitals to help patients gain a better understanding of their conditions. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797824_1_20250328114303.jpg&q=90)
   
 
-A patient rights group says it hopes the government can use AI chatbots in its triage system at public hospitals to help patients gain a better understanding of their conditions and symptoms.
+A patients' rights group says it hopes the government can use AI chatbots in its triage system at public hospitals to help patients gain a better understanding of their conditions and symptoms.
 
   
 
