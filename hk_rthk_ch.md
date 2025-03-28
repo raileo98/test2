@@ -1,3 +1,27 @@
+# 入境處與警方拘捕7名非法勞工4名僱主及3名逾期居留人士
+
+![懷疑非法勞工在行動中被捕。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797939_1_20250328222251.jpg&q=85)
+  
+
+入境處本星期一起，連續四日在全港多區展開反非法勞工行動，又聯同警方執法，共拘捕7名懷疑非法勞工、4名涉嫌聘用非法勞工的僱主及3名逾期逗留人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm)
+
+---
+
 # 菲律賓旅客走私63隻瀕危龜隻被判監30個月
 
 ![部銹檢獲的瀕危龜隻。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797938_1_20250328221255.jpg&q=85)
