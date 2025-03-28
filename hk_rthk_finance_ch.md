@@ -1,3 +1,27 @@
+# 美的去年多賺逾14%　末期息每股3.5元人民幣
+
+![美的集團去年盈利按年升14.3%。末期息每股3.5元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797933_1_20250328212442.jpg&q=90)
+  
+
+美的集團去年盈利385.4億元人民幣，按年升14.3%。末期息每股3.5元人民幣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797933-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797933-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797933-20250328.htm)
+
+---
+
 # 美股初段向下　投資者憂慮關稅推高物價
 
 ![美股初段向下，市場憂慮總統特朗普提高關稅的措施再次推高物價。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797935_1_20250328214029.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797786-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797786-20250328.htm)
-
----
-
-# 美國10年期債息觸及4.4厘　創逾1個月新高
-
-![美國10年期債息觸及4.4厘，創逾1個月新高，升6.2個基點。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797783_1_20250328071200.jpg&q=85)
-  
-
-美國長債孳息率上升，投資者正衡量美國最新關稅措施對通脹的影響，至於較早時公布的數據顯示經濟繼續保持韌性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797783-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797783-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797783-20250328.htm)
 
 ---
