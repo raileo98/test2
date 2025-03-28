@@ -1,3 +1,51 @@
+# 港股美國預託證券普遍偏軟　長和跌約4%
+
+![長和ADR比本港昨日收市價跌約4%，以港元計折合報43.4元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797970_1_20250329065027.jpg&q=65)
+  
+
+港股美國預託證券(ADR)普遍偏軟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797970-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797970-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797970-20250329.htm)
+
+---
+
+# 積金局就強積金「全自由行」諮詢公眾1個月
+
+![積金局就強積金「全自由行」展開為期1個月的公眾諮詢。（積金局圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797977_1_20250329071935.jpg&q=90)
+  
+
+積金局就強積金「全自由行」展開為期1個月的公眾諮詢，公眾可於4月28日前提交回應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm)
+
+---
+
 # 巴西足總宣布解僱國家隊教練杜利華
 
 ![巴西足總宣布解僱國家隊教練杜利華。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797972_1_20250329070202.jpg&q=90)
@@ -1393,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797901-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797901-20250328.htm)
-
----
-
-# 順豐控股去年多賺近24%　派息比率升至40%
-
-![順豐控股去年盈利101.7億元人民幣，按年升23.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797898_1_20250328172652.jpg&q=90)
-  
-
-順豐控股公布，去年盈利101.7億元人民幣，按年升23.5%。派末期息每股0.44元人民幣，派息比率升至40%，按年升5個百分點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797898-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797898-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797898-20250328.htm)
-
----
-
-# 工行去年盈利微升0.5%
-
-![工商銀行去年盈利3658.63億元人民幣，按年增長0.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797899_1_20250328172747.jpg&q=80)
-  
-
-工商銀行去年盈利3658.63億元人民幣，按年增長0.5%。每10股派末期息1.646元，每10股全年派息合計3.08元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm)
 
 ---

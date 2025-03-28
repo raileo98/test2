@@ -1,3 +1,27 @@
+# 積金局就強積金「全自由行」諮詢公眾1個月
+
+![積金局就強積金「全自由行」展開為期1個月的公眾諮詢。（積金局圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797977_1_20250329071935.jpg&q=90)
+  
+
+積金局就強積金「全自由行」展開為期1個月的公眾諮詢，公眾可於4月28日前提交回應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm)
+
+---
+
 # 長和擬售港口將被國家監管當局審查　多名議員支持以保護公平競爭
 
 ![多名立法會議員發文支持國家市場監督管理總局依法審查。圖為巴拿馬運河港口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797958_1_20250329024031.jpg&q=75)
@@ -1426,29 +1450,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm)
-
----
-
-# 酒吧業料七欖帶來2千萬額外收益　旺角尖沙咀營業額或升三至四成
-
-![錢雋永說，球迷村提早關閉，場館設有完善交通配套接駁港島、九龍各區，方便觀眾散場後繼續消遣，有利刺激九龍及港島各區酒吧的生意。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797741_2_20250328094421.jpg&q=75)
-  
-
-香港國際七人欖球賽將於明日起，一連三日在啟德體育園舉行，香港酒吧業協會主席錢雋永說，預料賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益，九龍城區的酒吧營業額有望較平日上升四至五成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm)
 
 ---
