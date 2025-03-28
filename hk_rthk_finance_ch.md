@@ -1,3 +1,27 @@
+# 卡尼與特朗普通話　揚言美方額外貿易行動後加方會實施報復式關稅
+
+![卡尼（圖）與特朗普討論兩國關係及關稅等問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797961_1_20250329031747.jpg&q=90)
+  
+
+加拿大總理卡尼與美國總統特朗普通話，討論兩國關係及關稅等問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm)
+
+---
+
 # 長和擬售港口將被國家監管當局審查　多名議員支持以保護公平競爭
 
 ![多名立法會議員發文支持國家市場監督管理總局依法審查。圖為巴拿馬運河港口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797958_1_20250329024031.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797798-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797798-20250328.htm)
-
----
-
-# 台股初段跌約0.8%
-
-![台灣加權指數較早時報21778點，跌173點，跌幅0.79%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797795_1_20250328090233.jpg&q=90)
-  
-
-台股初段下跌，加權指數較早時報21778點，跌173點，跌幅0.79%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797795-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797795-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797795-20250328.htm)
 
 ---

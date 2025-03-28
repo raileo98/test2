@@ -1,3 +1,27 @@
+# 卡尼與特朗普通話　揚言美方額外貿易行動後加方會實施報復式關稅
+
+![卡尼（圖）與特朗普討論兩國關係及關稅等問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797961_1_20250329031747.jpg&q=90)
+  
+
+加拿大總理卡尼與美國總統特朗普通話，討論兩國關係及關稅等問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm)
+
+---
+
 # 以軍襲貝魯特建築物指真主黨存放無人機　馬克龍批評違反停火協議
 
 ![貝魯特一處社區遇襲，民防組織在現場善後。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797957_1_20250329023920.jpg&q=85)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm)
-
----
-
-# 回應美國對進口汽車徵收25%關稅　中方：做法損害多邊貿易體制
-
-![外交部重申，沒有哪個國家的發展繁榮是靠加徵關稅實現。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797683_1_20250327154428.jpg&q=80)
-  
-
-在北京，外交部在例行記者會回應有關美國總統特朗普宣布美國對所有進口汽車徵收25%關稅的提問，發言人郭嘉昆說，中方注意到美國的主要貿易夥伴已經紛紛做出回應。他重申，貿易戰關稅戰沒有贏家，沒有哪個國家的發展繁榮是靠加徵關稅實現。美方的做法違反世貿組織規則，損害以規則為基礎的多邊貿易體制和各國人民的共同利益，也無益於解決自身的問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm)
 
 ---

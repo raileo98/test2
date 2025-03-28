@@ -1,3 +1,27 @@
+# 卡尼與特朗普通話　揚言美方額外貿易行動後加方會實施報復式關稅
+
+![卡尼（圖）與特朗普討論兩國關係及關稅等問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797961_1_20250329031747.jpg&q=90)
+  
+
+加拿大總理卡尼與美國總統特朗普通話，討論兩國關係及關稅等問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm)
+
+---
+
 # 雲南瑞麗多處房屋受損涉1700人　德宏州停電區域已全恢復供電
 
 ![雲南瑞麗財富廣場在緬甸地震後的情況。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797960_1_20250329024506.jpg&q=85)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm)
-
----
-
-# 東瀛遊兩旅行團在泰國行程無受影響　旅議會暫未收到泰國求助個案
-
-![東瀛遊其中一個身處泰國的旅行團示感到輕微震動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797886_1_20250328165905.jpg&q=40)
-  
-
-緬甸發生黎克特制7級以上地震，泰國全國亦有震感。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm)
 
 ---
