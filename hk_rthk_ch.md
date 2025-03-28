@@ -1,3 +1,27 @@
+# 美股初段向下　投資者憂慮關稅推高物價
+
+![美股初段向下，市場憂慮總統特朗普提高關稅的措施再次推高物價。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797935_1_20250328214029.jpg&q=90)
+  
+
+美股初段向下。美國上月核心通脹高於預期，市場憂慮美國總統特朗普提高關稅的措施再次推高物價。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797935-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797935-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797935-20250328.htm)
+
+---
+
 # 建造業「油漆工」「砌磚工」訂定灣區標準推展「一試多證」安排
 
   

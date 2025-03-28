@@ -1,3 +1,27 @@
+# Hong Kong victorious on opening day of Rugby Sevens
+
+![The Hong Kong, China men's squad (in white) comfortably saw off the national team 31-7 in the Melrose Claymores opener. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797928_1_20250328205342.jpg&q=90)
+  
+
+There were winning starts for the Hong Kong, China men's and women's squads on Friday as the Rugby Sevens got underway to much fanfare at the Kai Tak Sports Park.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm)
+
+---
+
 # Cathay flight to Bangkok turned back after quake
 
 ![Cathay Pacific says other flights operated by the airline to and from Bangkok are expected to experience delays. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797916_1_20250328190210.jpg&q=90)
@@ -1429,29 +1453,5 @@ Wildfires raging in South Korea doubled in size on Thursday from a day earlier, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm)
-
----
-
-# Hang Seng bucks trend to open up
-
-![Hang Seng bucks trend to open up](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797633_1_20250327105107.jpg&q=80)
-  
-
-Asian shares mostly skidded with Wall Street on Thursday while the dollar hovered near a three-week high after US President Donald Trump announced new tariffs on all auto imports, ratcheting up a global trade war that risks fuelling inflation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797633-20250327.htm)
 
 ---

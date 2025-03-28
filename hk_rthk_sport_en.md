@@ -1,3 +1,27 @@
+# Hong Kong victorious on opening day of Rugby Sevens
+
+![The Hong Kong, China men's squad (in white) comfortably saw off the national team 31-7 in the Melrose Claymores opener. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797928_1_20250328205342.jpg&q=90)
+  
+
+There were winning starts for the Hong Kong, China men's and women's squads on Friday as the Rugby Sevens got underway to much fanfare at the Kai Tak Sports Park.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm)
+
+---
+
 # Dream run ends for remarkable Eala
 
 ![Alexandra Eala holds her head high even after Jessica Pegula ends her remarkable Miami Open run at the Hard Rock Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797850_1_20250328133508.jpg&q=90)
@@ -1415,29 +1439,5 @@ Australian Nick Kyrgios came from behind to defeat Mackenzie McDonald 3-6 6-3 6-
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm)
-
----
-
-# Edinburgh to host start of 2027 Tour de France
-
-![The Red Bull–BORA–hansgrohe team at the 2024 Tour de France. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796524_1_20250320071819.jpg&q=90)
-  
-
-The 2027 Tour de France will start in Edinburgh with the first three stages taking place in Scotland, England and Wales, the organisers ASO announced at a ceremony in the Scottish capital.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796524-20250320.htm)
 
 ---
