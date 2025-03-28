@@ -1,3 +1,28 @@
+# Modi offers 'all possible assistance'
+
+![Office and retail workers gather outside a shopping mall in Bangkok after fleeing to the streets. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_1_20250328170355.jpg&q=70)
+![An earthquake survivor is carried to a hospital in Naypyidaw, Myanmar. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_2_20250328170355.jpg&q=85)
+  
+
+India was ready to offer "all possible assistance" to Myanmar and Thailand, Prime Minister Narendra Modi said on Friday, after both countries were hit by a powerful 7.7-magnitude earthquake.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm)
+
+---
+
 # Myanmar hospital 'a mass casualty area' after tremors
 
 ![Healthcare workers treat a earthquake survivor on a bed in the compound of the hospital in Naypyidaw. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797887_1_20250328165127.jpg&q=85)
@@ -1416,29 +1441,5 @@ Pope Francis called on Sunday for an "immediate" end to Israeli strikes on the G
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm)
-
----
-
-# Istanbul court formally arrests mayor amid protests
-
-![Turkish people take to the streets to protest the arrest of Ekrem Imamoglu, Istanbul mayor and CHP's presidential race candidate, in Kayseri, Turkey. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797031_1_20250323164214.jpg&q=75)
-  
-
-A Turkish court formally placed Istanbul Mayor Ekrem Imamoglu under arrest as part of a graft investigation on Sunday, after a fourth night of mass protests sparked heavy clashes with riot police.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797031-20250323.htm)
 
 ---

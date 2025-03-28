@@ -1,3 +1,28 @@
+# Modi offers 'all possible assistance'
+
+![Office and retail workers gather outside a shopping mall in Bangkok after fleeing to the streets. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_1_20250328170355.jpg&q=70)
+![An earthquake survivor is carried to a hospital in Naypyidaw, Myanmar. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_2_20250328170355.jpg&q=85)
+  
+
+India was ready to offer "all possible assistance" to Myanmar and Thailand, Prime Minister Narendra Modi said on Friday, after both countries were hit by a powerful 7.7-magnitude earthquake.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm)
+
+---
+
 # Hong Kong stocks close lower
 
 ![The Hang Seng Index finished down 0.7 percent at 23,426. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797890_1_20250328170005.jpg&q=80)
@@ -1430,29 +1455,5 @@ Denmark welcomed on Wednesday Washington's decision to limit an American delegat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797564-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797564-20250327.htm)
-
----
-
-# Netanyahu threatens to seize parts of Gaza
-
-![Israeli Prime Minister Benjamin Netanyahu has threatened to seize more of Gaza if the remaining hostages are not released. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797593_1_20250327035155.jpg&q=90)
-  
-
-Israeli Prime Minister Benjamin Netanyahu threatened on Wednesday to seize parts of Gaza if Hamas does not release hostages, while the militant group warned they would return "in coffins" if Israel does not stop bombing the Palestinian territory.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm)
 
 ---
