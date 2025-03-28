@@ -1,3 +1,27 @@
+# 萬斯指對格陵蘭島人民來說丹麥辦事不力　美國需介入
+
+![萬斯表示美國毋須動用軍事力量擴大在格陵蘭島的存在，因為當地人會選擇與美國同一陣營。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797962_1_20250329041630.jpg&q=90)
+  
+
+美國副總統萬斯到丹麥自治領地格陵蘭島，探訪美軍基地駐軍。他發表演說時表示，美國毋須動用軍事力量擴大在格陵蘭島的存在，因為當地人會選擇與美國同一陣營，而不是丹麥。他指對格陵蘭島人民來說，丹麥辦事不力，美國需要介入，又指俄羅斯與中國正擴大在區內的足印，形容世界對此不能視而不見，將頭埋在白雪中。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797962-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797962-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797962-20250329.htm)
+
+---
+
 # 卡尼與特朗普通話　揚言美方額外貿易行動後加方會實施報復式關稅
 
 ![卡尼（圖）與特朗普討論兩國關係及關稅等問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797961_1_20250329031747.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797888-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797888-20250328.htm)
-
----
-
-# 港股低收152點　恒指本周累跌逾1%　連跌3星期
-
-![總結全星期，恒指累計跌幅1.1%，科指累跌近2.4%，兩者都連跌3星期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797881_1_20250328163236.jpg&q=85)
-  
-
-期指結算日，港股先高後低，恒生指數初段一度升近200點，其後最多轉跌逾320點，收市報23426點，跌152點，跌幅0.65%，主板成交額逾2296億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm)
 
 ---

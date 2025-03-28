@@ -1,3 +1,27 @@
+# 萬斯指對格陵蘭島人民來說丹麥辦事不力　美國需介入
+
+![萬斯表示美國毋須動用軍事力量擴大在格陵蘭島的存在，因為當地人會選擇與美國同一陣營。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797962_1_20250329041630.jpg&q=90)
+  
+
+美國副總統萬斯到丹麥自治領地格陵蘭島，探訪美軍基地駐軍。他發表演說時表示，美國毋須動用軍事力量擴大在格陵蘭島的存在，因為當地人會選擇與美國同一陣營，而不是丹麥。他指對格陵蘭島人民來說，丹麥辦事不力，美國需要介入，又指俄羅斯與中國正擴大在區內的足印，形容世界對此不能視而不見，將頭埋在白雪中。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797962-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797962-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797962-20250329.htm)
+
+---
+
 # 卡尼與特朗普通話　揚言美方額外貿易行動後加方會實施報復式關稅
 
 ![卡尼（圖）與特朗普討論兩國關係及關稅等問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797961_1_20250329031747.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm)
-
----
-
-# 商務部：中方已在世貿爭端解決機制起訴美方加徵關稅措施
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797686_1_20250327155129.jpg&q=75)
-  
-
-在北京，商務部表示，針對美方加徵關稅措施，中方已在世貿組織爭端解決機制下起訴，將根據世貿組織規則推進後續程序。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797686-20250327.htm)
 
 ---
