@@ -1,3 +1,26 @@
+# 長和擬售港口將被國家監管當局審查　多名議員支持以保護公平競爭
+
+  
+
+多名立法會議員在社交專頁發文，支持國家市場監督管理總局依法對長和計劃出售巴拿馬港口進行審查，以保護市場公平競爭，維護社會公共利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm)
+
+---
+
 # 以軍襲貝魯特建築物指真主黨存放無人機　馬克龍批評違反停火協議
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm)
-
----
-
-# 緬甸大地震　據報曼德勒一間清真寺倒塌10人死亡
-
-![緬甸發生7級以上猛烈地震，泰國曼谷有震感，有建築物倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797883_1_20250328165116.jpg&q=55)
-  
-
-緬甸發生黎克特制7級以上猛烈地震，當地傳媒報道，曼德勒一座清真寺倒塌，造成至少10人死亡。另外，曼德勒有民眾在社交媒體表示，當地一座建築倒塌，多人被困。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797883-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797883-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797883-20250328.htm)
 
 ---

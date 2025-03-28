@@ -1,3 +1,26 @@
+# 長和擬售港口將被國家監管當局審查　多名議員支持以保護公平競爭
+
+  
+
+多名立法會議員在社交專頁發文，支持國家市場監督管理總局依法對長和計劃出售巴拿馬港口進行審查，以保護市場公平競爭，維護社會公共利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm)
+
+---
+
 # 當局更新外遊警示網頁涉緬甸泰國附加資料　入境處接48宗查詢
 
 ![保安局網頁有關緬甸及泰國的外遊警示。（保安局網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797951_1_20250328235500.jpg&q=90)
@@ -1426,29 +1449,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm)
-
----
-
-# 網上涉出售未標示受管制藥物成分減肥藥　衞生署籲市民停用
-
-![有關產品的包裝有泰文、中文和英文字，懷疑是未經註冊藥劑製品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797736_1_20250327212849.jpg&q=90)
-  
-
-衞生署正調查一宗網上非法出售含有未標示受管制藥物成分的減肥藥個案，提醒市民切勿購買或服用該產品，已購買相關產品的市民應立即停止服用，如有疑問或服用後感到不適，應立即徵詢醫護人員的意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm)
 
 ---

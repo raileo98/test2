@@ -1,3 +1,26 @@
+# 長和擬售港口將被國家監管當局審查　多名議員支持以保護公平競爭
+
+  
+
+多名立法會議員在社交專頁發文，支持國家市場監督管理總局依法對長和計劃出售巴拿馬港口進行審查，以保護市場公平競爭，維護社會公共利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm)
+
+---
+
 # 長城汽車去年多賺近81%
 
 ![長城汽車去年盈利126.9億元人民幣，按年增長80.8%。派末期息每股0.45元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797950_1_20250328233125.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797795-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797795-20250328.htm)
-
----
-
-# 巴爾金：車企面對兩難局面　料消費者不會承受關稅全部影響
-
-![巴爾金表示，車企面臨兩難局面，考慮到市場競爭、匯率等問題，估計消費者不會承受徵收關稅帶來的全部影響。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797788_1_20250328080438.jpg&q=90)
-  
-
-里奇蒙聯邦儲備銀行總裁巴爾金表示，密切關注企業及消費者對關稅的反應，車企面臨將關稅轉嫁給消費者的挑戰，但車企的定價能力可能比想像中低，並且面臨兩難局面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797788-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797788-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797788-20250328.htm)
 
 ---
