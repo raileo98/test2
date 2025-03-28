@@ -1,3 +1,27 @@
+# Xi urges global CEOs to protect trade as tariffs loom
+
+![President Xi Jinping and representatives of the international business community pose for a group photo at the Great Hall of the People in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797914_1_20250328185208.jpg&q=80)
+  
+
+President Xi Jinping on Friday urged a gathering of multinational CEOs to protect global industry and supply chains, amid threats of more US tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm)
+
+---
+
 # Praise for new stadium on day 1 of HK Sevens
 
 ![The tournament has moved to a bigger and newer venue at Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797906_1_20250328181344.jpg&q=70)
@@ -1430,29 +1454,5 @@ Foreign Minister Wang Yi will meet top French diplomat Jean-Noel Barrot on Thurs
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm)
-
----
-
-# Canada PM dubs US auto tariffs 'direct attack'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797616_1_20250327083849.jpg&q=90)
-  
-
-Canadian Prime Minister Mark Carney reacted with anger on Wednesday to US President Donald Trump's imposition of import tariffs on cars, branding it a "direct attack" on his country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm)
 
 ---

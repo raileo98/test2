@@ -1,3 +1,27 @@
+# Xi urges global CEOs to protect trade as tariffs loom
+
+![President Xi Jinping and representatives of the international business community pose for a group photo at the Great Hall of the People in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797914_1_20250328185208.jpg&q=80)
+  
+
+President Xi Jinping on Friday urged a gathering of multinational CEOs to protect global industry and supply chains, amid threats of more US tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm)
+
+---
+
 # Quake causes injuries and property damage in Ruili
 
 ![Chinese residents flee as building debris shaken loose by the earthquake in Myanmar falls. Photo: taken from online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797900_1_20250328181242.jpg&q=90)
@@ -1415,29 +1439,5 @@ Two Japanese tourists in their 20s were detained for two weeks in China then dep
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm)
-
----
-
-# China urges diplomatic Iran nuclear solution
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795572_1_20250313155832.jpg&q=90)
-  
-
-China called on Thursday for a "diplomatic" resolution to the Iran nuclear issue as it prepared to host diplomats from Tehran and Moscow for talks in Beijing.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795572-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795572-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795572-20250313.htm)
 
 ---
