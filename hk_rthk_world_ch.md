@@ -1,3 +1,28 @@
+# 羅淑佩視察七欖賽事　稱新場館座位空調舒適氣氛熾熱
+
+![羅淑佩與姚錦成拍照留念並詢問對場地觀感，形容對方反應很正面。（羅淑佩社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797931_1_20250328210638.jpg&q=90)
+![羅淑佩說，新場館燈光及氣氛都非常亮麗熾熱。（羅淑佩社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797931_2_20250328210638.jpg&q=70)
+  
+
+國際七人欖球賽揭幕，文化體育及旅遊局局長羅淑佩說，早上去了啟德主場館接受海外傳媒直播訪問，同時視察七欖開打的實況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm)
+
+---
+
 # 緬甸7.7級地震　據報已造成逾50死300傷
 
 ![緬甸今次大地震在泰國曼谷都有震感，曼谷有建築物倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797922_1_20250328200849.jpg&q=65)
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797637-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797637-20250327.htm)
-
----
-
-# 中國常駐聯合國代表：歡迎俄美烏利雅得談判取得積極進展
-
-![傅聰說，中方希望達成一個公平、持久、有約束力並被各方所接受的和平協議。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797628_1_20250327103232.jpg&q=90)
-  
-
-中國常駐聯合國代表傅聰表示，中方歡迎近日俄美、烏美在沙特首都利雅得舉行的談判中就黑海安全航行、對能源基礎設施停火、俄羅斯農產品和化肥出口等取得積極進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797628-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797628-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797628-20250327.htm)
 
 ---

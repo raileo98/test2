@@ -1,3 +1,28 @@
+# 羅淑佩視察七欖賽事　稱新場館座位空調舒適氣氛熾熱
+
+![羅淑佩與姚錦成拍照留念並詢問對場地觀感，形容對方反應很正面。（羅淑佩社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797931_1_20250328210638.jpg&q=90)
+![羅淑佩說，新場館燈光及氣氛都非常亮麗熾熱。（羅淑佩社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797931_2_20250328210638.jpg&q=70)
+  
+
+國際七人欖球賽揭幕，文化體育及旅遊局局長羅淑佩說，早上去了啟德主場館接受海外傳媒直播訪問，同時視察七欖開打的實況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm)
+
+---
+
 # 接近長和高層消息：下周不會簽署任何有關出售巴拿馬運河港口協議
 
 ![接近長和高層消息稱，下周不會簽署任何有關出售巴拿馬運河港口業務協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797923_1_20250328201653.jpg&q=80)
@@ -1423,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm)
-
----
-
-# 7歲或以上香港永久居民下周一起持智能身份證可使用e-道
-
-![入境處下星期一起，調整持有智能身份證的香港永久性居民使用e-道服務的合資格年齡至7歲或以上。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797714_1_20250327193820.jpg&q=80)
-  
-
-入境處公布，將於下星期一起，調整持有智能身份證的香港永久性居民使用e-道服務的合資格年齡至7歲或以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797714-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797714-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797714-20250327.htm)
 
 ---
