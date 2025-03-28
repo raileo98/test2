@@ -1,3 +1,26 @@
+# 特朗普與卡尼通話　稱成果極為豐碩並達成很多共識
+
+  
+
+美國總統特朗普與加拿大總理通卡尼通話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797953-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797953-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797953-20250329.htm)
+
+---
+
 # 長城汽車去年多賺近81%
 
 ![長城汽車去年盈利126.9億元人民幣，按年增長80.8%。派末期息每股0.45元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797950_1_20250328233125.jpg&q=85)
@@ -1419,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797878-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797878-20250328.htm)
-
----
-
-# 外交部：美方應停止在南海挑事生非　奉勸菲方勿「倚美鬧海」
-
-![郭嘉昆說，美方應停止在南海挑事生非，不要做南海的攪局者和肇事方。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797876_1_20250328161658.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，美方應摒棄冷戰思維，停止挑動意識形態對抗，停止在南海挑事生非、在地區挑撥離間，不要做南海的攪局者和肇事方。中方也奉勸菲方，不要「倚美鬧海」，更不要試圖挑起軍事對抗。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm)
 
 ---
