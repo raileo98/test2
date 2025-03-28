@@ -1,3 +1,51 @@
+# 赫格塞斯：美菲必須並肩作戰　共同應對來自中國的威脅
+
+![赫格塞斯重申美國對與菲律賓共同防禦條約的堅定承諾。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797849_1_20250328131740.jpg&q=90)
+  
+
+到訪菲律賓的美國國防部長赫格塞斯，重申美國對與菲律賓共同防禦條約的堅定承諾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm)
+
+---
+
+# 港股下午初段跌逾百點
+
+![恒生指數較早時報23409點，跌169點，跌幅0.72%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797848_1_20250328131339.jpg&q=40)
+  
+
+港股下午初段偏軟，恒生指數較早時報23409點，跌169點，跌幅0.72%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm)
+
+---
+
 # 鍾健禮辭任新界東醫院聯網總監及威爾斯醫院行政總監
 
 ![醫管局發言人表示，鍾健禮因個人原因辭任新界東醫院聯網總監及威爾斯醫院行政總監。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797845_1_20250328131003.jpg&q=90)
