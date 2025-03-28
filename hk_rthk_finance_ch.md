@@ -1,3 +1,51 @@
+# 韓股急挫近2%收市　本周累跌逾3%
+
+![韓股本周累跌逾3%，結束3星期升勢。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797862_1_20250328143936.jpg&q=90)
+  
+
+韓股急挫近2%收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797862-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797862-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797862-20250328.htm)
+
+---
+
+# 日股急挫近2%收市　本周累跌近1.5%
+
+![日股本周累跌近1.5%，結束2星期升勢。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797860_1_20250328143709.jpg&q=90)
+  
+
+日股急挫近2%收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797860-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797860-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797860-20250328.htm)
+
+---
+
 # 台股低收近1.6%　創逾半年新低
 
 ![加權指數收報21602點，跌348點，跌幅1.59%，創逾半年新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797858_1_20250328142914.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797707-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797707-20250327.htm)
-
----
-
-# 外管局：繼續保持人民幣匯率在合理均衡水平上基本穩定
-
-![李斌稱發達經濟體貨幣政策外溢影響加大，對亞洲經濟體保持經濟平穩運行帶來新挑戰。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797704_1_20250327193119.jpg&q=90)
-  
-
-國家外管局副局長李斌表示，未來將繼續推動外匯領域深層次改革和高水平開放，深入推進區域經貿合作，完善外匯市場宏觀審慎管理，切實防範化解外部衝擊風險，保持人民幣匯率在合理均衡水平上基本穩定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797704-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797704-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797704-20250327.htm)
-
----
-
-# 陳茂波：「裕澤香江」高峰論壇總體氣氛較去年正面
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797702_1_20250327180250.jpg&q=90)
-  
-
-財政司司長陳茂波表示，周三結束的「裕澤香江」高峰論壇，總體氣氛比去年更正面，期間進行非常具建設性的對話，與會者普遍要求政府擴展資產類別、促進更多跨境投資機會，部份有意來港定居的人士亦希望，投資門檻及合資格投資類別能更具彈性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm)
 
 ---

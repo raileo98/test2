@@ -1,6 +1,78 @@
-# 緬甸7.3級地震　泰國曼谷有震感
+# 緬甸發生強烈地震　雲南多地和泰國有震感
 
   
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797863-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797863-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797863-20250328.htm)
+
+---
+
+# 韓股急挫近2%收市　本周累跌逾3%
+
+![韓股本周累跌逾3%，結束3星期升勢。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797862_1_20250328143936.jpg&q=90)
+  
+
+韓股急挫近2%收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797862-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797862-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797862-20250328.htm)
+
+---
+
+# 日股急挫近2%收市　本周累跌近1.5%
+
+![日股本周累跌近1.5%，結束2星期升勢。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797860_1_20250328143709.jpg&q=90)
+  
+
+日股急挫近2%收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797860-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797860-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797860-20250328.htm)
+
+---
+
+# 緬甸7.3級地震　泰國曼谷有震感
+
+![緬甸7.3級地震　泰國曼谷有震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797861_1_20250328144824.jpg&q=90)
+  
+
+緬甸發生黎克特制7.3級地震，最大城市仰光震感強烈，泰國曼谷都感受到震動，曼谷有建築物搖晃，當地有辦公室和商舖需要疏散。
+
   
 
 
@@ -42,8 +114,9 @@
 
 ---
 
-# 彩石邨3大廈九成單位租金每月2500元以下　每平方米74元
+# 彩石邨3大廈9成單位租金每月2500元以下　每平方米74元
 
+![房委會表示，今次租金釐定，超逾91%單位的租金水平定於每月2500元以下。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797859_1_20250328144517.jpg&q=90)
   
 
 房委會表示，新建公屋上水彩石邨的三幢非標準型大廈，租金將以所屬地區的最佳租金水平釐定。上水區公屋單位的最佳租金為每月每平方米74元，適用於彩石邨玥石樓、耀石樓和榮石樓共1431個單位。

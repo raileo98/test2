@@ -1,6 +1,30 @@
-# 緬甸7.3級地震　泰國曼谷有震感
+# 緬甸發生強烈地震　雲南多地和泰國有震感
 
   
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797863-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797863-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797863-20250328.htm)
+
+---
+
+# 緬甸7.3級地震　泰國曼谷有震感
+
+![緬甸7.3級地震　泰國曼谷有震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797861_1_20250328144824.jpg&q=90)
+  
+
+緬甸發生黎克特制7.3級地震，最大城市仰光震感強烈，泰國曼谷都感受到震動，曼谷有建築物搖晃，當地有辦公室和商舖需要疏散。
+
   
 
 
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797568-20250326.htm)
-
----
-
-# 以色列議會批准2025年度國家預算　其中國防預算創新高
-
-![分析人士認為，預算案通過表明以色列執政聯盟繼續獲得議會多數支持，內塔尼亞胡政府得以繼續執政。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797563_1_20250326210135.jpg&q=90)
-  
-
-以色列議會批准2025年度國家預算，避免議會自動解散並觸發提前選舉，其中國防預算創新高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797563-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797563-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797563-20250326.htm)
 
 ---
