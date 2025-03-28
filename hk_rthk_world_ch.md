@@ -1,5 +1,26 @@
+# 旅議會估計約有6個旅行團在泰國　涉及旅客少於100人
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm)
+
+---
+
 # 緬甸大地震至少10死　軍政府籲國際社會援助　曼谷至少3人喪生
 
+![緬甸大地震，泰國曼谷有震感，一座興建中的建築物倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797904_1_20250328182805.jpg&q=75)
   
 
 緬甸發生黎克特制7級以上大地震，雲南、泰國、老撾和越南都有震感。泰國曼谷一座興建中的30層高建築物倒塌，至少3人死亡，多人受傷。泰國總理佩通坦宣布，曼谷進入緊急狀態。
@@ -242,7 +263,7 @@
 
 # 緬甸發生強烈地震　雲南多地和泰國有震感
 
-![緬甸發生強烈地震，泰國曼谷有震感，有民眾從建築物疏散。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797863_2_20250328150047.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797863_2_20250328150047.jpg&q=90)
   
 
 緬甸發生黎克特制7.3級地震，最大城市仰光震感強烈。中國地震台網測定，地震強度是7.9級。央視新聞報道，雲南多地和泰國全國有震感，曼谷震感持續數分鐘，民眾紛紛離開高層建築物，湧到街上。
@@ -1414,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797615-20250327.htm)
-
----
-
-# 華府高層通訊群組討論軍事行動　資深共和黨參議員要求獨立調查
-
-![共和黨籍的國會參議院軍事委員會主席威克表示，有關聊天信息非常敏感。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797601_1_20250327063816.jpg&q=90)
-  
-
-美國一名記者被加入華府高層討論打擊也門胡塞武裝行動的通訊群組，引發外界對政府洩密的憂慮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797601-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797601-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797601-20250327.htm)
 
 ---

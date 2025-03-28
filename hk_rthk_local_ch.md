@@ -1,3 +1,46 @@
+# 旅議會估計約有6個旅行團在泰國　涉及旅客少於100人
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm)
+
+---
+
+# 港鐵稱每年票價調整幅度低於通脹率　去年票價優惠投入逾31億元
+
+  
+
+港鐵宣布，按票價調整機制，2025/26年度的港鐵票價維持不變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797907-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797907-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797907-20250328.htm)
+
+---
+
 # 兩隻貓疑高處墮下　34歲女子被捕涉嫌殘酷對待動物
 
 ![警方調查後，拘捕一名34歲女子，她涉嫌「殘酷對待動物」，正被扣查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797897_1_20250328173011.jpg&q=40)
@@ -1397,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm)
-
----
-
-# 港股全日升幅收窄至95點　內需及醫藥股上升
-
-![恒生指數最多升逾380點，收市報23578點，升95點，升幅0.41%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797696_1_20250327163031.jpg&q=85)
-  
-
-港股連升兩日，但下午升幅收窄。恒生指數最多升逾380點，高見23865點，收市報23578點，升95點，升幅0.41%。主板成交額逾2396億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm)
-
----
-
-# 黃大仙天主教博智小學將與教區屬校合併　博智學生下學年原校上學
-
-![博智的同學下學年仍會於原校繼續上學。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797698_1_20250327164920.jpg&q=75)
-  
-
-2025/26學年被「派0班」的黃大仙的天主教博智小學，天主教教育事務處表示，學校將會與教區屬校合併，兩校會以2025/26年度進行籌備，博智的同學下學年仍會於原校繼續上學。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797698-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797698-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797698-20250327.htm)
 
 ---

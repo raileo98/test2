@@ -1,3 +1,27 @@
+# Quake causes injuries and property damage in Ruili
+
+![Chinese residents flee as building debris shaken loose by the earthquake in Myanmar falls. Photo: taken from online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797900_1_20250328181242.jpg&q=90)
+  
+
+The earthquake in Myanmar was felt in China's Yunnan and Sichuan provinces and caused injuries and damage to houses in the city of Ruili on the border with northern Myanmar, according to Chinese media reports.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm)
+
+---
+
 # Quake-hit Myanmar junta appeals for international aid
 
 ![An earthquake survivor is carried to a hospital in Naypyidaw, Myanmar. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_2_20250328170355.jpg&q=85)
@@ -1416,29 +1440,5 @@ An Israeli airstrike in southern Gaza killed a Hamas political leader, Salah al-
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm)
-
----
-
-# Pope calls for 'immediate' end to Israeli strikes
-
-![Pope Francis waving to the crowd from a window of the Gemelli hospital in Rome before being discharged following a five weeks hospitalization for pneumonia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797050_1_20250323194641.jpg&q=85)
-  
-
-Pope Francis called on Sunday for an "immediate" end to Israeli strikes on the Gaza Strip, and for the resumption of dialogue for the release of hostages and a "definitive ceasefire".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797050-20250323.htm)
 
 ---

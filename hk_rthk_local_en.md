@@ -1,3 +1,28 @@
+# Praise for new stadium on day 1 of HK Sevens
+
+![The tournament has moved to a bigger and newer venue at Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797906_1_20250328181344.jpg&q=70)
+![Fans gathered for day one of the Hong Kong Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797906_2_20250328181344.jpg&q=75)
+  
+
+Rugby fans from around the world showered praise on the brand new stadium in Kai Tak as this year's Hong Kong Sevens got underway on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797906-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797906-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797906-20250328.htm)
+
+---
+
 # MTR fares to freeze under adjustment mechanism
 
 ![While MTR fares will freeze for 2025-26, commuters could face a steep hike next year after 3.36 percent of adjustments are brought forward. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797892_1_20250328173801.jpg&q=90)
@@ -51,7 +76,6 @@ The Hong Kong Sevens tournament kicked off with a bang at Kai Tak Stadium on Fri
 
 # ICAC chief lays down law on calls for invalid votes
 
-![Election workers get ballots out of boxes after the end of voting in the 2022 Legislative Council Election Committee constituency. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797856_1_20250328150342.jpg&q=90)
 ![Danny Woo says the ICAC has started using an AI system to improve work efficiency. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797856_2_20250328151239.jpg&q=90)
   
 
@@ -1430,29 +1454,5 @@ The government is demanding that ticketing platform Cityline fix printing errors
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796977-20250323.htm)
-
----
-
-# FS encourages mainland firms to use city's advantages
-
-![Paul Chan encouraged one AI firm to utilise Hong Kong's capital, talent, and professional services to expand internationally. Photo: GIS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796969_1_20250322222525.jpg&q=90)
-  
-
-Financial Secretary Paul Chan visited two mainland firms in Beijing on Friday, highlighting Hong Kong's role as a gateway for business expansion and global market access.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm)
 
 ---

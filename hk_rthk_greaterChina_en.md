@@ -1,3 +1,27 @@
+# Quake causes injuries and property damage in Ruili
+
+![Chinese residents flee as building debris shaken loose by the earthquake in Myanmar falls. Photo: taken from online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797900_1_20250328181242.jpg&q=90)
+  
+
+The earthquake in Myanmar was felt in China's Yunnan and Sichuan provinces and caused injuries and damage to houses in the city of Ruili on the border with northern Myanmar, according to Chinese media reports.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm)
+
+---
+
 # Myanmar hospital 'a mass casualty area' after tremors
 
 ![Healthcare workers treat a earthquake survivor on a bed in the compound of the hospital in Naypyidaw. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797887_1_20250328165127.jpg&q=85)
@@ -1415,29 +1439,5 @@ China called on Thursday for a "diplomatic" resolution to the Iran nuclear issue
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795572-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795572-20250313.htm)
-
----
-
-# Macau girl injured in Taiwan mall blast dies
-
-![The suspected gas explosion on February 13 hit the food court of the Shin Kong Mitsukoshi department store in Taichung. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795531_1_20250313114111.jpg&q=90)
-  
-
-Macau health authorities on Thursday said that a two-year-old girl from the SAR who was seriously injured in a shopping mall blast in Taichung has died.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795531-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795531-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795531-20250313.htm)
 
 ---

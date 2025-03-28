@@ -1,3 +1,52 @@
+# Praise for new stadium on day 1 of HK Sevens
+
+![The tournament has moved to a bigger and newer venue at Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797906_1_20250328181344.jpg&q=70)
+![Fans gathered for day one of the Hong Kong Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797906_2_20250328181344.jpg&q=75)
+  
+
+Rugby fans from around the world showered praise on the brand new stadium in Kai Tak as this year's Hong Kong Sevens got underway on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797906-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797906-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797906-20250328.htm)
+
+---
+
+# Quake causes injuries and property damage in Ruili
+
+![Chinese residents flee as building debris shaken loose by the earthquake in Myanmar falls. Photo: taken from online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797900_1_20250328181242.jpg&q=90)
+  
+
+The earthquake in Myanmar was felt in China's Yunnan and Sichuan provinces and caused injuries and damage to houses in the city of Ruili on the border with northern Myanmar, according to Chinese media reports.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm)
+
+---
+
 # MTR fares to freeze under adjustment mechanism
 
 ![While MTR fares will freeze for 2025-26, commuters could face a steep hike next year after 3.36 percent of adjustments are brought forward. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797892_1_20250328173801.jpg&q=90)
@@ -174,7 +223,6 @@ A strong 7.7 magnitude earthquake hit central Myanmar on Friday, the United Stat
 
 # ICAC chief lays down law on calls for invalid votes
 
-![Election workers get ballots out of boxes after the end of voting in the 2022 Legislative Council Election Committee constituency. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797856_1_20250328150342.jpg&q=90)
 ![Danny Woo says the ICAC has started using an AI system to improve work efficiency. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797856_2_20250328151239.jpg&q=90)
   
 
@@ -1406,53 +1454,5 @@ Canadian Prime Minister Mark Carney reacted with anger on Wednesday to US Presid
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm)
-
----
-
-# Trump hints at lower tariffs for China over TikTok
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
-  
-
-US President Donald Trump said on Wednesday he would be willing to reduce tariffs to get a deal done with TikTok's Chinese parent ByteDance to sell the short video app used by 170 million Americans.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm)
-
----
-
-# Teenage Filipino Eala stuns Swiatek at Miami Open
-
-![Alexandra Eala is the first player from the Philippines to reach the semi-finals of a WTP 1000 tournament. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797607_1_20250327071056.jpg&q=90)
-  
-
-Alexandra Eala, a 19-year-old wildcard from the Philippines, produced a huge upset at the Miami Open on Wednesday, defeating world number two Iga Swiatek 6-2 7-5 to reach the semi-finals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm)
 
 ---
