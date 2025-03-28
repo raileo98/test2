@@ -1,3 +1,49 @@
+# 建造業「油漆工」「砌磚工」訂定灣區標準推展「一試多證」安排
+
+  
+
+當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排，有關標準已上載香港建造學院的網頁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm)
+
+---
+
+# 丘應樺稱全力建設香港成為區域知識產權貿易中心
+
+  
+
+商務及經濟發展局局長丘應樺表示，特區政府正透過一系列措施保障創新和創意成果，推動知識產權貿易，並會加強知識產權人才培訓，全力建設香港成為區域知識產權貿易中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm)
+
+---
+
 # 緬甸大地震導致雲南德宏2人輕傷
 
 ![緬甸大地震導致雲南德宏2人輕傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797929_1_20250328205841.jpg&q=90)
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm)
-
----
-
-# 李家超稱港商樂見香港與海南簽署合作備忘錄帶來新機遇
-
-![李家超（左二）、卓永興（左一）、海南省委書記馮飛（右二）和海南省常務副省長巴特爾（右一）在簽約儀式合照。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797556_1_20250326203707.jpg&q=85)
-  
-
-香港與海南省簽署《合作備忘錄》，在經貿投資、金融、數據安全流動、旅遊以及人才交流共五個領域深化合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797556-20250326.htm)
-
----
-
-# 外交部：澳門特區將切實發揮中國與葡語國家「精準聯繫人」作用
-
-![外交部稱，澳門特區將切實發揮中國與葡語國家「精準聯繫人」的作用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797554_1_20250326195216.jpg&q=80)
-  
-
-在北京，外交部發言人郭嘉昆說，相信澳門特區將充分發揮「一國兩制」制度優勢，切實發揮作為中國與葡語國家「精準聯繫人」的作用，推動中國同葡語國家在經貿、金融、旅遊、高科技等領域合作取得更多成果。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm)
 
 ---

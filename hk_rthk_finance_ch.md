@@ -1,3 +1,49 @@
+# 建造業「油漆工」「砌磚工」訂定灣區標準推展「一試多證」安排
+
+  
+
+當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排，有關標準已上載香港建造學院的網頁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm)
+
+---
+
+# 丘應樺稱全力建設香港成為區域知識產權貿易中心
+
+  
+
+商務及經濟發展局局長丘應樺表示，特區政府正透過一系列措施保障創新和創意成果，推動知識產權貿易，並會加強知識產權人才培訓，全力建設香港成為區域知識產權貿易中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm)
+
+---
+
 # 融創中國去年虧損擴大逾2.2倍
 
 ![融創中國去年虧損257億元人民幣，按年擴大逾2.2倍。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797930_1_20250328210615.jpg&q=90)
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797778-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797778-20250328.htm)
-
----
-
-# 港股美國預託證券普遍上升　ATMXJ大多升逾1%
-
-![港股美國預託證券普遍上升，ATMXJ除了小米微升，其餘都升逾1%，多隻金融股亦造好。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797777_1_20250328055832.jpg&q=90)
-  
-
-港股美國預託證券(ADR)普遍上升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797777-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797777-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797777-20250328.htm)
-
----
-
-# 金價升逾1%創新高　現貨金迫近3060美元
-
-![金價創新高，現貨金高見每盎司3059.3美元，升逾1.3%，較早時徘徊3056美元附近。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797776_1_20250328055409.jpg&q=75)
-  
-
-金價創新高，美國關稅措施引發全球貿易緊張局勢升級，資金流入避險資產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797776-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797776-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797776-20250328.htm)
 
 ---

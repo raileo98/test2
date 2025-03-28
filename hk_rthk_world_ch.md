@@ -1,3 +1,26 @@
+# 丘應樺稱全力建設香港成為區域知識產權貿易中心
+
+  
+
+商務及經濟發展局局長丘應樺表示，特區政府正透過一系列措施保障創新和創意成果，推動知識產權貿易，並會加強知識產權人才培訓，全力建設香港成為區域知識產權貿易中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm)
+
+---
+
 # 羅淑佩視察七欖賽事　稱新場館座位空調舒適氣氛熾熱
 
 ![羅淑佩與姚錦成拍照留念並詢問對場地觀感，形容對方反應很正面。（羅淑佩社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797931_1_20250328210638.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm)
-
----
-
-# 俄羅斯新任駐美大使據報抵達華盛頓
-
-![俄羅斯傳媒報道，俄羅斯新任駐美大使達爾奇耶夫已於周三抵達華盛頓。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797637_2_20250327112822.jpg&q=90)
-  
-
-俄羅斯傳媒報道，俄羅斯新任駐美大使達爾奇耶夫已於周三抵達美國首都華盛頓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797637-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797637-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797637-20250327.htm)
 
 ---
