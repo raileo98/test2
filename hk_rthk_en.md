@@ -1,3 +1,27 @@
+# US' Rubio says too early for high-level Russia talks
+
+![Marco Rubio says US President Donald Trump's administration would hold consultations to discuss the outcome of the meetings with Russia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797827_1_20250328115755.jpg&q=90)
+  
+
+US Secretary of State Marco Rubio warned on Thursday it was premature to expect high-level talks with Russia, while the United States weighs Moscow's response to Washington's efforts to end the Ukraine war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797827-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797827-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797827-20250328.htm)
+
+---
+
 # 'Innovation the way to go for China'
 
 ![Speakers at the Boao Forum for Asia highlighted China's continued efforts at technological innovation. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797826_1_20250328115333.jpg&q=90)
@@ -1423,29 +1447,5 @@ The Housing Society on Wednesday announced two subsidised flat projects in Fanli
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm)
-
----
-
-# Certify your subdivided flat early or pay more: govt
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797475_1_20250326133032.jpg&q=90)
-  
-
-Discounts will be offered to landlords who get their subdivided homes certified early under a proposed certification system, according to housing minister Winnie Ho.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm)
 
 ---

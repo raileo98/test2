@@ -1,3 +1,27 @@
+# US' Rubio says too early for high-level Russia talks
+
+![Marco Rubio says US President Donald Trump's administration would hold consultations to discuss the outcome of the meetings with Russia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797827_1_20250328115755.jpg&q=90)
+  
+
+US Secretary of State Marco Rubio warned on Thursday it was premature to expect high-level talks with Russia, while the United States weighs Moscow's response to Washington's efforts to end the Ukraine war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797827-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797827-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797827-20250328.htm)
+
+---
+
 # Rubio warns Venezuela against Guyana attacks
 
 ![Guyanese President Mohamed Irfaan Ali, left, with Marco Rubio in Georgetown, Guyana. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797818_1_20250328105815.jpg&q=90)
@@ -1413,29 +1437,5 @@ Two people including a girl were killed in an Israeli attack on a southern Leban
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796954-20250322.htm)
-
----
-
-# Pope to make first public appearance since illness
-
-![The pontiff was admitted to Rome's Gemelli Hospital on February 14 with breathing difficulties. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796947_1_20250322191242.jpg&q=85)
-  
-
-Pope Francis will make his first public appearance on Sunday with a blessing and a wave from a window at Rome's Gemelli Hospital where he was admitted on February 14.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm)
 
 ---
