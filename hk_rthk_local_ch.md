@@ -1,3 +1,26 @@
+# 國家市監局稱注意到長和將與貝萊德簽署巴拿馬港口的交易協議
+
+  
+
+國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm)
+
+---
+
 # 有立法會議員倡港鐵累積明年票價加幅回贈乘客或撤銷加幅
 
   
@@ -1419,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797713-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797713-20250327.htm)
-
----
-
-# 保險投訴局去年接獲投訴個案按年升約5%
-
-![保險投訴局去年共接獲646宗投訴個案，按年升約5%。（陳菀禧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797712_1_20250327184555.jpg&q=90)
-  
-
-保險投訴局去年共接獲646宗投訴個案，按年升約5%。在已審結的300多宗投訴個案中，住院/醫療保險及旅遊保險是去年最常引發索償糾紛的兩類保單。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm)
 
 ---

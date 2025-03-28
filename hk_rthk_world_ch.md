@@ -1,3 +1,26 @@
+# 國家市監局稱注意到長和將與貝萊德簽署巴拿馬港口的交易協議
+
+  
+
+國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm)
+
+---
+
 # 南韓山林廳稱慶尚北道山火已全部撲滅
 
 ![消防員繼續全力撲救持續一星期的山火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797919_1_20250328191549.jpg&q=45)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797626-20250327.htm)
-
----
-
-# 《環看天下》：美國針對委内瑞拉石油徵二級關稅　中方堅決反對
-
-![美國政府宣布下月初起向任何進口委內瑞拉石油的國家，徵收25%「二級關稅」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797619_1_20250327091822.jpg&q=90)
-  
-
-美國總統特朗普政府日前宣布，下月初開始會向任何進口委內瑞拉石油及天然氣的國家，徵收25%的「二級關稅」，理由是委內瑞拉對美國採取敵對態度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797619-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797619-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797619-20250327.htm)
 
 ---

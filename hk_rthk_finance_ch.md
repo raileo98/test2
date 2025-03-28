@@ -1,3 +1,26 @@
+# 國家市監局稱注意到長和將與貝萊德簽署巴拿馬港口的交易協議
+
+  
+
+國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm)
+
+---
+
 # 有立法會議員倡港鐵累積明年票價加幅回贈乘客或撤銷加幅
 
   
@@ -1407,29 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm)
-
----
-
-# 歐洲央行：與美國貿易戰對經濟增長極不利　須格外小心調整政策
-
-![歐洲央行副總裁德金多斯表示，與美國的貿易戰對經濟增長的不利影響大得多，有必要格外小心和謹慎地調整政策。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797752_1_20250327230701.jpg&q=85)
-  
-
-歐洲央行副總裁德金多斯出席一次金融會議時表示，與美國的貿易戰可能會對歐元區的通脹產生短暫影響，但對經濟增長的不利影響會大得多，認為歐洲央行有必要格外小心和謹慎地調整政策。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm)
 
 ---
