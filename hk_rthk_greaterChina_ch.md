@@ -1,3 +1,26 @@
+# 習近平會見孟加拉臨時政府首席顧問尤努斯
+
+  
+
+國家主席習近平在北京人民大會堂會見孟加拉臨時政府首席顧問尤努斯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm)
+
+---
+
 # 赫格塞思：美菲必須並肩作戰　共同應對來自中國的威脅
 
 ![赫格塞思重申美國對與菲律賓共同防禦條約的堅定承諾。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797849_1_20250328131740.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797446-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797446-20250326.htm)
-
----
-
-# 李家超：瓊港合作備忘錄涵蓋五個領域深度合作　體現兩地優秀疊加
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797442_1_20250326112907.jpg&q=80)
-  
-
-行政長官李家超展開在海南的第二日行程，出席瓊港合作備忘錄簽約儀式。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797442-20250326.htm)
 
 ---

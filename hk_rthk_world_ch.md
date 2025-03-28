@@ -1,3 +1,26 @@
+# 習近平會見孟加拉臨時政府首席顧問尤努斯
+
+  
+
+國家主席習近平在北京人民大會堂會見孟加拉臨時政府首席顧問尤努斯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm)
+
+---
+
 # 普京：可討論在烏克蘭實行臨時管理的可能性
 
 ![普京說，可以討論在烏克蘭實行臨時管理的可能性，以便在烏克蘭舉行民主選舉。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797855_1_20250328141144.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797559-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797559-20250326.htm)
-
----
-
-# 中國駐韓使館：中方黃海深海漁業養殖設施不影響韓方權益
-
-![使館發言人說，中方做法不違反《中韓漁業協定》，也不影響韓方依據《協定》享有的權益。（中國駐南韓大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797557_1_20250326201302.jpg&q=90)
-  
-
-中國駐南韓大使館發言人說，近日南韓個別媒體和有關方面就中方黃海深海漁業養殖設施表達關切，其中很多說法不符合事實。事實是，中方設置的相關設施是深海漁業養殖設施，位於中國近海，是中方對近海海洋資源的合理利用。中方做法符合中國國內法和國際法，不違反《中韓漁業協定》，也不影響韓方依據《協定》享有的權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm)
 
 ---

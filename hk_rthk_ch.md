@@ -1,3 +1,26 @@
+# 習近平會見孟加拉臨時政府首席顧問尤努斯
+
+  
+
+國家主席習近平在北京人民大會堂會見孟加拉臨時政府首席顧問尤努斯。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm)
+
+---
+
 # 普京：可討論在烏克蘭實行臨時管理的可能性
 
 ![普京說，可以討論在烏克蘭實行臨時管理的可能性，以便在烏克蘭舉行民主選舉。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797855_1_20250328141144.jpg&q=90)
