@@ -1,3 +1,27 @@
+# 七欖開鑼現場氣氛熱烈　有球迷形容啟德場地宏偉漂亮如外國球場
+
+![香港國際七人欖球賽首次在啟德主場館舉行。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797821_1_20250328113218.jpg&q=75)
+  
+
+一連3日的香港國際七人欖球賽，首次在啟德主場館舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797821-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797821-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797821-20250328.htm)
+
+---
+
 # 「超級三月」帶動旅客人數升　羅淑佩稱重視為旅客打造優質體驗
 
 ![羅淑佩認為，「香港盛匯超級三月」聚焦體育、藝術及旅遊活動，已成功帶動旅客人數顯著上升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797815_1_20250328110405.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797639-20250327.htm)
-
----
-
-# 本港2月住宅租金連升3個月
-
-![差餉物業估價署數據顯示，2月私人住宅租金指數升至193.5，創5個月新高，按月升逾0.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797630_1_20250327103802.jpg&q=85)
-  
-
-差餉物業估價署數據顯示，2月私人住宅租金指數升至193.5，創5個月新高，按月升逾0.3%，連升3個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm)
 
 ---

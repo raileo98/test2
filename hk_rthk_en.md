@@ -1,3 +1,34 @@
+# Lines, fire and hair: Art Basel 2025 kicks off
+
+![Artist Movana Chen transformed maps into large pieces of garment. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_1_20250328104141.jpg&q=85)
+![Chen is performing at Art Basel with her partner, dancer Francisco Borges. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_2_20250328104141.jpg&q=90)
+![The "Questioning the Line" art performance piece also explores the entanglement between human and nature. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_6_20250328105506.jpg&q=85)
+![American painter Alec Egan's new works pays homage to the work he lost in the Los Angeles fire and captures the eerie beauty of ash-filled skies. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_3_20250328104141.jpg&q=90)
+![The gallery representing Egan says they hope that audiences will feel "hopefulness" after viewing his work. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_7_20250328112516.jpg&q=80)
+![Shin Min says her "Ew! There is hair in the food!!" exhibition highlights misogyny in Korea. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_4_20250328104141.jpg&q=90)
+![Shin's work also challenges the notion of never saying no to customers. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_8_20250328112516.jpg&q=85)
+![The SAR's largest international art fair brings together more than 240 galleries from around the world this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_5_20250328104141.jpg&q=85)
+  
+
+When Hong Kong artist Movana Chen moved to Lisbon in 2021, she started knitting together maps collected during Covid isolation in an attempt to unravel physical boundaries.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797813-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797813-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797813-20250328.htm)
+
+---
+
 # Rubio warns Venezuela against Guyana attacks
 
 ![Guyanese President Mohamed Irfaan Ali, left, with Marco Rubio in Georgetown, Guyana. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797818_1_20250328105815.jpg&q=90)
@@ -290,7 +321,7 @@ Automakers were battered on Thursday as stock markets fell on both sides of the 
 
 # China, France pledge stronger ties amid global changes
 
-![The ministers also discussed China-EU relations, agreeing on the need for dialogue to resolve trade disputes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797766_1_20250328023251.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797766_1_20250328023251.jpg&q=85)
   
 
 Foreign Minister Wang Yi met with French Foreign Minister Jean-Noel Barrot in Beijing on Thursday, vowing to deepen cooperation and strategic coordination.
@@ -1416,29 +1447,5 @@ The NBA is to review a proposal to create a European basketball league, a spokes
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm)
-
----
-
-# Thai PM beats no-confidence motion handily
-
-![Paetongtarn Shinawatra with members of the government after surviving the no-confidence vote. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797488_1_20250326144940.jpg&q=90)
-  
-
-Thai Prime Minister Paetongtarn Shinawatra survived a no-confidence vote in parliament on Wednesday, defeating a challenge from opposition parties who accused her of being a puppet of her father, billionaire ex-premier Thaksin Shinawatra.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm)
 
 ---

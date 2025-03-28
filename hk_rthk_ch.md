@@ -1,3 +1,27 @@
+# 七欖開鑼現場氣氛熱烈　有球迷形容啟德場地宏偉漂亮如外國球場
+
+![香港國際七人欖球賽首次在啟德主場館舉行。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797821_1_20250328113218.jpg&q=75)
+  
+
+一連3日的香港國際七人欖球賽，首次在啟德主場館舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797821-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797821-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797821-20250328.htm)
+
+---
+
 # 習近平在北京會見國際工商界代表
 
 ![習近平上午在北京人民大會堂會見國際工商界代表。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797819_1_20250328111018.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797745-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797745-20250327.htm)
-
----
-
-# 美國2月貿易逆差收窄近5%　分析：逆差仍居高不下
-
-![美國2月商品貿易逆差收窄4.9%至1479億美元，仍在紀錄高位居高不下。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797742_1_20250327213559.jpg&q=85)
-  
-
-美國商務部公布，美國2月商品貿易逆差收窄4.9%至1479億美元。出口增長4%至1786億美元；進口微跌至3265億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm)
 
 ---

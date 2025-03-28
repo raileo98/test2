@@ -24,7 +24,7 @@ Top US diplomat Marco Rubio bluntly warned Venezuela against attacking its oil-r
 
 # China, France pledge stronger ties amid global changes
 
-![The ministers also discussed China-EU relations, agreeing on the need for dialogue to resolve trade disputes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797766_1_20250328023251.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797766_1_20250328023251.jpg&q=85)
   
 
 Foreign Minister Wang Yi met with French Foreign Minister Jean-Noel Barrot in Beijing on Thursday, vowing to deepen cooperation and strategic coordination.
