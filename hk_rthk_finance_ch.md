@@ -1,3 +1,27 @@
+# 美元指數曾失守104　美國10年期債息創1星期新低
+
+![美元指數一度跌穿104水平，低見103.89，是今個星期低位，跌逾0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797973_1_20250329070239.jpg&q=85)
+  
+
+憂慮經濟增長前景，美股、美元、美債孳息率都跌，資金流入日圓等避險資產。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797973-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797973-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797973-20250329.htm)
+
+---
+
 # 港股美國預託證券普遍偏軟　長和跌約4%
 
 ![長和ADR比本港昨日收市價跌約4%，以港元計折合報43.4元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797970_1_20250329065027.jpg&q=65)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm)
-
----
-
-# 日股曾失守37000點　半日跌逾2%
-
-![日經指數一度失守37000點水平，半日收報37011點，跌788點，跌幅2.09%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797811_1_20250328103344.jpg&q=90)
-  
-
-日股沽壓大，日經指數一度失守37000點水平，低見36961點，創兩星期新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797811-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797811-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797811-20250328.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 美元指數曾失守104　美國10年期債息創1星期新低
+
+![美元指數一度跌穿104水平，低見103.89，是今個星期低位，跌逾0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797973_1_20250329070239.jpg&q=85)
+  
+
+憂慮經濟增長前景，美股、美元、美債孳息率都跌，資金流入日圓等避險資產。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797973-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797973-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797973-20250329.htm)
+
+---
+
 # 港股美國預託證券普遍偏軟　長和跌約4%
 
 ![長和ADR比本港昨日收市價跌約4%，以港元計折合報43.4元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797970_1_20250329065027.jpg&q=65)
@@ -72,7 +96,7 @@
 
 # 祖高域晉身邁亞密網賽男單決賽
 
-![祖高域以37歲10個月，成為ATP1000分賽事，年齡最大的決賽球手。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797971_1_20250329070045.jpg&q=90)
+![祖高域以37歲10個月，成為ATP1000分賽事，年齡最大的決賽球手。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797971_1_20250329070045.jpg&q=90)
   
 
 邁亞密網球公開賽，37歲的祖高域晉身男單決賽，只差一步就能拿下職業生涯第100個ATP錦標。
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm)
-
----
-
-# 永旺百貨去年虧損擴大79%　不派息
-
-![永旺百貨去年虧損擴大至3.38億元，香港業務分部業績錄得虧損2.88億元，按年擴大逾92%。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797901_1_20250328175030.jpg&q=85)
-  
-
-永旺百貨去年虧損3.38億元，按年擴大逾79%，不派末期息。去年收益按年跌約7%至約80.95億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797901-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797901-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797901-20250328.htm)
 
 ---
