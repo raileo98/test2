@@ -1,3 +1,26 @@
+# 永旺百貨去年虧損擴大79%　不派息
+
+  
+
+永旺百貨去年虧損3.38億元，按年擴大逾79%，不派末期息。去年收益按年跌約7%至約80.95億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797901-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797901-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797901-20250328.htm)
+
+---
+
 # 順豐控股去年多賺近24%　派息比率升至40%
 
 ![順豐控股去年盈利101.7億元人民幣，按年升23.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797898_1_20250328172652.jpg&q=90)
