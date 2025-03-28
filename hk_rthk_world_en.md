@@ -96,7 +96,7 @@ Arctic sea ice had its weakest winter buildup since record-keeping began 47 year
 
 # Australian PM calls general election for May 3
 
-![Prime Minister Anthony Albanese announces the election date at a press conference at Parliament House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797791_1_20250328083609.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797791_1_20250328083609.jpg&q=90)
   
 
 Australia will hold a general election on May 3, Prime Minister Anthony Albanese said on Friday, locking in a showdown over climate action, nuclear power and a runaway housing market.

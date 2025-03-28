@@ -1,3 +1,27 @@
+# 滬股半日跌0.7%　深證成指及創業板跌逾0.5%
+
+![內地股市偏軟，上證指數半日報3349點，跌24點，跌幅0.71%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797822_1_20250328113348.jpg&q=90)
+  
+
+內地股市半日偏軟，化工、油氣、海洋經濟相關股份向下，汽車整車、黃金、醫藥股造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797822-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797822-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797822-20250328.htm)
+
+---
+
 # 鍾健禮接替馮康出任中大醫院行政總裁　8月1日履新
 
   
@@ -24,9 +48,14 @@
 # 七欖開鑼現場氣氛熱烈　有球迷形容啟德場地宏偉漂亮如外國球場
 
 ![香港國際七人欖球賽首次在啟德主場館舉行。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797821_1_20250328113218.jpg&q=75)
+![部分人身穿球衣、手持所屬國家國旗和打氣棒，為球員打氣。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797821_2_20250328114336.jpg&q=75)
+![首場賽事10時半上演，大約過千名本地和海外人士入場。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797821_3_20250328114336.jpg&q=70)
+![有市民表示，啟德場地宏偉和漂亮，有如外國的球場。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797821_4_20250328114336.jpg&q=85)
   
 
 一連3日的香港國際七人欖球賽，首次在啟德主場館舉行。
+  
+![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1797821_2_L_20250328114336.jpg)
 
   
 
@@ -1410,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797747-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797747-20250327.htm)
-
----
-
-# 蔡若蓮稱香港於教學與研究追求卓越成就是理想升學目的地
-
-![蔡若蓮說，香港擁有五所名列世界百強的公帑資助大學，整個城市充滿活力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797746_1_20250327220329.jpg&q=85)
-  
-
-教育局局長蔡若蓮在亞太國際教育協會年會以「留學香港」為題作演講，她表示，香港着力發展成為國際專上教育樞紐，擁有五所名列世界百強的公帑資助大學，整個城市充滿活力、重視生活質素和安全，在教學與研究均追求卓越成就，是理想的升學目的地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm)
 
 ---

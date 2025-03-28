@@ -1,3 +1,27 @@
+# Xi meets Bangladesh leader Yunus in Beijing
+
+![Foreign Minister Wang Yi (right) met Bangladesh leader Muhammad Yunus on the sidelines of the UN General Assembly in New York, September 25, 2024. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797825_1_20250328114316.jpg&q=90)
+  
+
+President Xi Jinping met Bangladesh leader Muhammad Yunus in Beijing on Friday, state media reported, as Dhaka's relations with neighbouring India remains shaky.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm)
+
+---
+
 # Rubio warns Venezuela against Guyana attacks
 
 ![Guyanese President Mohamed Irfaan Ali, left, with Marco Rubio in Georgetown, Guyana. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797818_1_20250328105815.jpg&q=90)
@@ -1413,29 +1437,5 @@ A senior member of a leading national think tank on Tuesday said the annual "Two
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm)
-
----
-
-# NPC concludes annual session with call for unity
-
-![Nearly 2,900 NPC delegates attended the closing ceremony at the Great Hall of the People, and approved seven draft resolutions. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795263_2_20250311163103.jpg&q=75)
-  
-
-The third annual session of the 14th National People’s Congress (NPC) concluded in Beijing on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795263-20250311.htm)
 
 ---

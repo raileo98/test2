@@ -1,3 +1,27 @@
+# 'Kowloon City won't be congested during the Sevens'
+
+![A restaurant operator, Mark Lam, says pedestrian traffic had surged by 20 to 30 percent during stress tests and the opening ceremony at Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797820_1_20250328112333.jpg&q=70)
+  
+
+A Kowloon City district councillor believes the area will not be congested when Hong Kong Rugby Sevens tournament games end every evening.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm)
+
+---
+
 # Lines, fire and hair: Art Basel 2025 kicks off
 
 ![Artist Movana Chen transformed maps into large pieces of garment. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_1_20250328104141.jpg&q=85)
@@ -1427,29 +1451,5 @@ Commissioner for primary healthcare Pang Fei-chau said on Saturday that it is ex
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796918-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796918-20250322.htm)
-
----
-
-# SAR government preparing WTO complaint
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796905_1_20250322103943.jpg&q=90)
-  
-
-Secretary for Commerce and Economic Development Algernon Yau said on Saturday that the government is preparing to file a complaint to the World Trade Organization (WTO) regarding US tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796905-20250322.htm)
 
 ---

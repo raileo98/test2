@@ -1,3 +1,51 @@
+# 'Kowloon City won't be congested during the Sevens'
+
+![A restaurant operator, Mark Lam, says pedestrian traffic had surged by 20 to 30 percent during stress tests and the opening ceremony at Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797820_1_20250328112333.jpg&q=70)
+  
+
+A Kowloon City district councillor believes the area will not be congested when Hong Kong Rugby Sevens tournament games end every evening.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm)
+
+---
+
+# Xi meets Bangladesh leader Yunus in Beijing
+
+![Foreign Minister Wang Yi (right) met Bangladesh leader Muhammad Yunus on the sidelines of the UN General Assembly in New York, September 25, 2024. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797825_1_20250328114316.jpg&q=90)
+  
+
+President Xi Jinping met Bangladesh leader Muhammad Yunus in Beijing on Friday, state media reported, as Dhaka's relations with neighbouring India remains shaky.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm)
+
+---
+
 # Lines, fire and hair: Art Basel 2025 kicks off
 
 ![Artist Movana Chen transformed maps into large pieces of garment. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_1_20250328104141.jpg&q=85)
@@ -249,7 +297,7 @@ The SAR’s men’s basketball team have made history by qualifying for the FIBA
 
 # Australian PM calls general election for May 3
 
-![Prime Minister Anthony Albanese announces the election date at a press conference at Parliament House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797791_1_20250328083609.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797791_1_20250328083609.jpg&q=90)
   
 
 Australia will hold a general election on May 3, Prime Minister Anthony Albanese said on Friday, locking in a showdown over climate action, nuclear power and a runaway housing market.
@@ -1399,53 +1447,5 @@ The Ta Kung Pao newspaper on Wednesday renewed its criticism of the sale by CK H
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797495-20250326.htm)
-
----
-
-# Seoul court clears opposition leader for top job run
-
-![Lee Jae-myung appeals for patience outside the court in Seoul. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797498_1_20250326152240.jpg&q=90)
-  
-
-A South Korean appeals court reversed on Wednesday a lower court's ruling and found main opposition leader Lee Jae-myung not guilty of violating the election law, removing a barrier that could have blocked him from running for president.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm)
-
----
-
-# NBA mulls over creation of a 10-strong European league
-
-![Elias Harris, left, goes for a shot against Jabari Parker during a match between Barcelona and Bayern Munich in the Spanish city. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797489_1_20250326150704.jpg&q=90)
-  
-
-The NBA is to review a proposal to create a European basketball league, a spokesperson has confirmed, after a report detailed a new competition that could feature up to 10 teams.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797489-20250326.htm)
 
 ---

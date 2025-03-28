@@ -24,9 +24,14 @@
 # 七欖開鑼現場氣氛熱烈　有球迷形容啟德場地宏偉漂亮如外國球場
 
 ![香港國際七人欖球賽首次在啟德主場館舉行。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797821_1_20250328113218.jpg&q=75)
+![部分人身穿球衣、手持所屬國家國旗和打氣棒，為球員打氣。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797821_2_20250328114336.jpg&q=75)
+![首場賽事10時半上演，大約過千名本地和海外人士入場。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797821_3_20250328114336.jpg&q=70)
+![有市民表示，啟德場地宏偉和漂亮，有如外國的球場。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797821_4_20250328114336.jpg&q=85)
   
 
 一連3日的香港國際七人欖球賽，首次在啟德主場館舉行。
+  
+![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1797821_2_L_20250328114336.jpg)
 
   
 

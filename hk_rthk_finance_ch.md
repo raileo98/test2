@@ -1,3 +1,27 @@
+# 滬股半日跌0.7%　深證成指及創業板跌逾0.5%
+
+![內地股市偏軟，上證指數半日報3349點，跌24點，跌幅0.71%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797822_1_20250328113348.jpg&q=90)
+  
+
+內地股市半日偏軟，化工、油氣、海洋經濟相關股份向下，汽車整車、黃金、醫藥股造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797822-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797822-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797822-20250328.htm)
+
+---
+
 # 習近平在北京會見國際工商界代表
 
 ![習近平上午在北京人民大會堂會見國際工商界代表。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797819_1_20250328111018.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797673-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797673-20250327.htm)
-
----
-
-# 分析料本港上半年樓價跌2%至3%　下半年或會回升
-
-![王兆麒估計，短期市況仍較波動，上半年樓價累計或跌2%至3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797664_1_20250327132952.jpg&q=85)
-  
-
-差餉物業估價署數據顯示，本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm)
 
 ---
