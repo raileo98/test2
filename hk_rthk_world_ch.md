@@ -1,3 +1,26 @@
+# 易綱：轉型金融須國際合作　周小川：不能說賠錢亦要企業轉型
+
+  
+
+人民銀行前行長，中國金融學會理事會會長易綱表示，轉型金融需要國際合作、非常明確標準及披露要求。他在博鰲亞洲論壇一個分論壇上表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確，以防止綠「綠漂」，同時亦提供奬勵。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm)
+
+---
+
 # 緬甸大地震　新華社據悉曼德勒省部分建築物倒塌　有道路斷裂
 
 ![緬甸發生大地震，泰國曼谷有震感，民眾紛紛湧到街上。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797868_1_20250328153023.jpg&q=60)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm)
-
----
-
-# 商務部：中方堅決反對美國將多家中國實體列入出口管制實體清單
-
-![商務部稱，中方敦促美方立即停止錯誤做法，並將採取必要措施，堅決維護中國實體的合法權益。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797579_1_20250326225129.jpg&q=75)
-  
-
-在北京，商務部新聞發言人說，美國持續泛化國家安全概念，濫用出口管制措施，將多家中國實體列入出口管制「實體清單」，中方對此堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm)
 
 ---

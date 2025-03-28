@@ -1,3 +1,26 @@
+# 易綱：轉型金融須國際合作　周小川：不能說賠錢亦要企業轉型
+
+  
+
+人民銀行前行長，中國金融學會理事會會長易綱表示，轉型金融需要國際合作、非常明確標準及披露要求。他在博鰲亞洲論壇一個分論壇上表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確，以防止綠「綠漂」，同時亦提供奬勵。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm)
+
+---
+
 # 博鰲亞洲論壇年會閉幕　大會稱堅定維護多邊主義
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797718-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797718-20250327.htm)
-
----
-
-# 銀行公會冀利率下調及經濟改善有助本港樓市回暖
-
-![禤惠儀表示，隨着利率逐步下調及經濟改善，期望有助本港樓市回暖，並利好樓價。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797717_1_20250327185121.jpg&q=90)
-  
-
-差餉物業估價署數據顯示，本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797717-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797717-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797717-20250327.htm)
 
 ---

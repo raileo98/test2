@@ -1,3 +1,26 @@
+# 易綱：轉型金融須國際合作　周小川：不能說賠錢亦要企業轉型
+
+  
+
+人民銀行前行長，中國金融學會理事會會長易綱表示，轉型金融需要國際合作、非常明確標準及披露要求。他在博鰲亞洲論壇一個分論壇上表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確，以防止綠「綠漂」，同時亦提供奬勵。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm)
+
+---
+
 # 博鰲亞洲論壇年會閉幕　大會稱堅定維護多邊主義
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797492-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797492-20250326.htm)
-
----
-
-# 黃益平：仍有很大宏觀政策空間可以支持中國經濟
-
-![黃益平指出，收入及信心對提振消費需求至關重要。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797483_1_20250326141202.jpg&q=85)
-  
-
-人民銀行貨幣政策委員黃益平表示，仍有很大宏觀政策空間可以支持中國經濟，指出收入及信心對提振消費需求至關重要，又認為除近期的政策舉措，還需要採取改革措施提振消費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm)
 
 ---

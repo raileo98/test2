@@ -1,3 +1,26 @@
+# 易綱：轉型金融須國際合作　周小川：不能說賠錢亦要企業轉型
+
+  
+
+人民銀行前行長，中國金融學會理事會會長易綱表示，轉型金融需要國際合作、非常明確標準及披露要求。他在博鰲亞洲論壇一個分論壇上表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確，以防止綠「綠漂」，同時亦提供奬勵。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm)
+
+---
+
 # 元朗攸壆路簡約公屋入伙　有租戶稱租金較劏房平但位置較遠
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797680-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797680-20250327.htm)
-
----
-
-# 廖宜建：滙豐與香港關係密不可分　一定會繼續投資
-
-![廖宜建：香港與內地市場一向是集團增長和盈利中心，一定會繼續投資，同時優化配置資源。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797675_1_20250327144656.jpg&q=90)
-  
-
-滙豐亞洲及中東地區聯席行政總裁廖宜建表示，滙豐與香港關係密不可分，共通點之一是聯繫全球，認為香港是國家在全球化進程中重要部份，包括協助內地、東南亞等企業到港上市，為私募資本創造有系統的退出機制。他認為，需要確保生態圈能夠運作暢順，指出香港可以在兩方面更上一層樓，包括持續強化多幣種功能，如支付、結算、產品、風險管理等；而互聯互通機制仍屬於發展初期，在資產類別、市場參與者和管理規模等方面，仍有較大發展空間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm)
 
 ---
