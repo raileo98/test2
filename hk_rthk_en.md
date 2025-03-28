@@ -25,7 +25,7 @@ There is relief for MTR passengers after fares will freeze in the coming year un
 # Quake-hit Myanmar junta appeals for international aid
 
 ![An earthquake survivor is carried to a hospital in Naypyidaw, Myanmar. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_2_20250328170355.jpg&q=85)
-![Myanmar's military chief Min Aung Hlaing arrives at the main hospital in Naypyidaw that was hit by the temblors. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_3_20250328172753.jpg&q=90)
+![Myanmar's military chief Min Aung Hlaing arrives at the main hospital in Naypyidaw that was hit by the temblors. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_4_20250328173219.jpg&q=90)
   
 
 Myanmar's ruling junta made a rare request for international humanitarian aid and declared a state of emergency across six regions after a powerful quake hit the country on Friday.
