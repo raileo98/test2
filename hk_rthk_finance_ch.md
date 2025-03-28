@@ -1,3 +1,75 @@
+# 金價再創新高　紐約期金升穿3100美元
+
+![金價再創新高，現貨金高見每盎司3086.7美元，升幅1%；紐約期金升穿3100美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797968_1_20250329060757.jpg&q=80)
+  
+
+金價再創新高，美國關稅措施引發全球貿易戰擔憂，資金流向黃金避險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797968-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797968-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797968-20250329.htm)
+
+---
+
+# 油價低收　全周累計連升3星期
+
+![憂慮美國關稅措施引發全球經濟衰退，英美期油分別低收0.5%及0.8%，但全周累計連升3星期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797967_1_20250329060156.jpg&q=90)
+  
+
+國際油價轉跌，由於憂慮美國關稅措施引發全球經濟衰退，但美國加大對委內瑞拉及伊朗施壓，以致油價全周累計連升3星期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797967-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797967-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797967-20250329.htm)
+
+---
+
+# 歐洲股市普遍低收近1%　英股全日跌7點
+
+![德國、法國、意大利、西班牙股市都跌近1%，德國DAX指數收報22461點，創近3星期新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797966_1_20250329055625.jpg&q=90)
+  
+
+歐洲股市低收，德國、法國、意大利、西班牙股市都跌近1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797966-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797966-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797966-20250329.htm)
+
+---
+
 # 美股低收近2%或以上　數據加劇通脹升溫及經濟疲弱擔憂
 
 ![美股連續3日低收，3大指數跌近2%或以上，跌至近兩星期或以上的低位。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797965_1_20250329054907.jpg&q=90)
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797808-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797808-20250328.htm)
-
----
-
-# 滬深股市初段變動不大
-
-![內地股市初段變動不大，上證指數較早時報3368點，跌4點，跌幅0.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797803_1_20250328093654.jpg&q=90)
-  
-
-內地股市初段變動不大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797803-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797803-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797803-20250328.htm)
-
----
-
-# 人行逆回購785億元人民幣　本周淨回籠1464億元
-
-![人行公開市場逆回購785億元人民幣，單日淨回籠145億元，全星期累計淨回籠1464億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797802_1_20250328093511.jpg&q=80)
-  
-
-人民銀行公開市場開展785億元人民幣7天期逆回購操作，規模低於昨日，利率維持1.5厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797802-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797802-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797802-20250328.htm)
-
----
-
-# 期指結算日　港股競價時段升94點　李寧績後升逾3%
-
-![期指結算日，港股開市靠穩，恒生指數競價時段報23672點，升94點，升幅0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797800_1_20250328092409.jpg&q=10)
-  
-
-期指結算日，港股開市靠穩，恒生指數競價時段報23672點，升94點，升幅0.4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797800-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797800-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797800-20250328.htm)
 
 ---

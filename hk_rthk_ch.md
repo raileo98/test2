@@ -1,3 +1,75 @@
+# 金價再創新高　紐約期金升穿3100美元
+
+![金價再創新高，現貨金高見每盎司3086.7美元，升幅1%；紐約期金升穿3100美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797968_1_20250329060757.jpg&q=80)
+  
+
+金價再創新高，美國關稅措施引發全球貿易戰擔憂，資金流向黃金避險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797968-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797968-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797968-20250329.htm)
+
+---
+
+# 油價低收　全周累計連升3星期
+
+![憂慮美國關稅措施引發全球經濟衰退，英美期油分別低收0.5%及0.8%，但全周累計連升3星期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797967_1_20250329060156.jpg&q=90)
+  
+
+國際油價轉跌，由於憂慮美國關稅措施引發全球經濟衰退，但美國加大對委內瑞拉及伊朗施壓，以致油價全周累計連升3星期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797967-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797967-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797967-20250329.htm)
+
+---
+
+# 歐洲股市普遍低收近1%　英股全日跌7點
+
+![德國、法國、意大利、西班牙股市都跌近1%，德國DAX指數收報22461點，創近3星期新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797966_1_20250329055625.jpg&q=90)
+  
+
+歐洲股市低收，德國、法國、意大利、西班牙股市都跌近1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797966-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797966-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797966-20250329.htm)
+
+---
+
 # 美股低收近2%或以上　數據加劇通脹升溫及經濟疲弱擔憂
 
 ![美股連續3日低收，3大指數跌近2%或以上，跌至近兩星期或以上的低位。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797965_1_20250329054907.jpg&q=90)
@@ -1368,77 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm)
-
----
-
-# 中人壽原總裁楊超涉嫌嚴重違紀違法接受調查
-
-![中紀委：中國人壽保險原黨委書記、總裁楊超涉嫌嚴重違紀違法，目前正接受監察調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797896_1_20250328171925.jpg&q=80)
-  
-
-中紀委表示，中國人壽保險原黨委書記、總裁楊超涉嫌嚴重違紀違法，目前正接受監察調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797896-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797896-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797896-20250328.htm)
-
----
-
-# 美聯去年轉賺3.2億元　不派息
-
-![美聯集團去年盈利3.2億元，而前年為虧損約4200萬元。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797895_2_20250328174908.jpg&q=90)
-  
-
-美聯集團去年由虧轉盈，錄盈利3.2億元，而前年為虧損約4200萬元，不派息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797895-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797895-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797895-20250328.htm)
-
----
-
-# 西藏經濟總量近2765億元　城鄉居民收入連續10年居全國前列
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797893_1_20250328210806.jpg&q=90)
-  
-
-今年是西藏自治區成立60周年，國新辦發布《新時代西藏人權事業的發展與進步》白皮書，當中提到西藏曾是全國貧困發生率最高、脫貧難度最大的深度貧困地區，在黨中央堅強領導下，西藏精準扶貧及脫貧，去年西藏脫貧人口人均純收入同比增長12.5%以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm)
 
 ---
