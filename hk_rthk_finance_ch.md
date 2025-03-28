@@ -1,3 +1,27 @@
+# 證監會就首次公開招股個案及上市後事宜提出多項優化建議
+
+![證監會就首次公開招股個案及上市後事宜，對《證券市場上市規則》提出多項優化建議，今日起至5月23日諮詢市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797917_1_20250328190717.jpg&q=90)
+  
+
+證監會就首次公開招股個案及上市後事宜，對《證券市場上市規則》提出多項優化建議，目的為提升香港上市市場監管效率及更廣泛保障投資大眾免受財務損失。證監會今日起至5月23日就建議措施諮詢市場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm)
+
+---
+
 # 國泰航空有原定飛往曼谷航班需折返起飛機場
 
   
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm)
-
----
-
-# 美國2月貿易逆差收窄近5%　分析：逆差仍居高不下
-
-![美國2月商品貿易逆差收窄4.9%至1479億美元，仍在紀錄高位居高不下。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797742_1_20250327213559.jpg&q=85)
-  
-
-美國商務部公布，美國2月商品貿易逆差收窄4.9%至1479億美元。出口增長4%至1786億美元；進口微跌至3265億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm)
 
 ---

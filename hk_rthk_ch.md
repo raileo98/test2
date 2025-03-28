@@ -1,3 +1,27 @@
+# 證監會就首次公開招股個案及上市後事宜提出多項優化建議
+
+![證監會就首次公開招股個案及上市後事宜，對《證券市場上市規則》提出多項優化建議，今日起至5月23日諮詢市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797917_1_20250328190717.jpg&q=90)
+  
+
+證監會就首次公開招股個案及上市後事宜，對《證券市場上市規則》提出多項優化建議，目的為提升香港上市市場監管效率及更廣泛保障投資大眾免受財務損失。證監會今日起至5月23日就建議措施諮詢市場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm)
+
+---
+
 # 西藏稱對外開放步伐會愈來愈快　為遊客提供更多便利條件
 
   
@@ -527,7 +551,6 @@
 
 # 七欖入座率下午明顯增加　球迷盛裝打扮載歌載舞氣氛熱鬧
 
-![香港國際七人欖球賽在啟德主場館舉行，下午入座率明顯增加。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_1_20250328165144.jpg&q=75)
 ![英國隊隊長Harry Glover表示，啟德主場館是到過的最好球場之一。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_2_20250328165144.jpg&q=90)
 ![姚錦成相信傍晚港隊出場後，氣氛會更好。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_3_20250328165144.jpg&q=85)
 ![場外設有球迷村，不少家長帶同子女參與活動。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_4_20250328165144.jpg&q=80)
