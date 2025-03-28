@@ -1,5 +1,77 @@
+# 七欖開鑼　九龍城餐廳稱人流增兩至三成將延長營業時間
+
+  
+
+香港國際七人欖球賽一連3日在啟德體育園舉行，九龍城區議會提振地區經濟專責工作小組主席黃文莉表示，社會重視交通安排，港鐵與巴士公司有與區議會緊密聯繫，溝通後有改善特別巴士線和的士上落客區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm)
+
+---
+
+# 七欖開鑼　港鐵屯馬綫將加強服務　離場安排「空載列車」候命
+
+![屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797805_1_20250328094806.jpg&q=85)
+  
+
+港鐵表示，為配合一連3日在啟德體育園舉行的香港國際七人欖球賽活動，屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm)
+
+---
+
+# 天水圍兩隻貓疑高處墮下一死一傷　列殘酷對待動物案暫未有人被捕
+
+![警方表示，接獲保安報案，指發現有兩隻貓懷疑從高處墮下。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797804_1_20250328094738.jpg&q=90)
+  
+
+天水圍天恒邨恒健樓對開，凌晨2時許發現一隻貓隻屍體及一隻貓受傷。警方經初步調查，案件列作殘酷對待動物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797804-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797804-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797804-20250328.htm)
+
+---
+
 # 衞生防護中心：冬季流感嚴重個案減少料與市民願意接種疫苗有關
 
+![徐樂堅說，成人及兒童嚴重個案，分別較疫情前減少兩成及六成，相信與市民願意接種疫苗有關。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797797_1_20250328094716.jpg&q=80)
   
 
 衞生署宣布本港今年度冬季流感季節已結束。衞生防護中心總監徐樂堅表示，回顧呼吸道陽性樣本比例、入院率、學校或院舍爆發數字等，都較基線水平為低，並出現持續下降趨勢，加上病毒株沒有改變，因此有信心冬季流感季節已完結。
@@ -237,9 +309,9 @@
 
 ---
 
-# 酒吧業界料七欖賽事可帶來約2000萬元額外收益
+# 酒吧業料七欖帶來2千萬額外收益　旺角尖沙咀營業額或升三至四成
 
-![錢雋永預料賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797741_1_20250327215731.jpg&q=90)
+![錢雋永說，球迷村提早關閉，場館設有完善交通配套接駁港島、九龍各區，方便觀眾散場後繼續消遣，有利刺激九龍及港島各區酒吧的生意。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797741_2_20250328094421.jpg&q=75)
   
 
 香港國際七人欖球賽將於明日起，一連三日在啟德體育園舉行，香港酒吧業協會主席錢雋永說，預料賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益，九龍城區的酒吧營業額有望較平日上升四至五成。
@@ -1363,78 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm)
-
----
-
-# 林正財：中產反映突患重病一夜致貧　收費封頂可協助長期住院人士
-
-![林正財指新機制可以協助需要經常接受檢查、覆診或長期住院人士。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797625_1_20250327102621.jpg&q=90)
-  
-
-政府公布公營醫療服務收費改革方案，住院及門診收費上限每人每年1萬元，適用於自費藥械外收費項目。行政會議成員林正財表示，有關「封頂」機制過往從未做過，針對包括中產人士。他表示，過往曾有中產人士反映，患上突如其來的重病，例如中風及癌症年輕化等，或會「一夜致貧」，令醫療負擔加重，每年醫療費用或要數萬至10多萬元。新機制可以協助需要經常接受檢查、覆診或長期住院人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797625-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797625-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797625-20250327.htm)
-
----
-
-# 醫管局澄清處方4周藥物屬計算單位　非要求病人4周後再配藥
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797623_1_20250327100050.jpg&q=80)
-  
-
-政府公布公營醫療服務收費改革方案，普通科及專科門診的藥物收費將會增加，醫管局總藥劑師崔俊明表示，最多處方4星期藥物的講法只是誤會，他解釋每4個星期是計算的單位，並非要病人於4個星期後再到醫院或診所配藥，否則會令藥劑部的工作壓力大增。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797623-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797623-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797623-20250327.htm)
-
----
-
-# 網球未來兩年續成精英運動A級項目　黃澤林稱感謝政府及網球總會
-
-![黃澤林說，感謝團隊背後的一直支持，亦要多謝所有香港支持自己的人。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797611_1_20250327072355.jpg&q=90)
-![創下本港網球手在ATP-1000分賽最佳成績的黃澤林昨晚返抵香港，他表示，美國邁阿密網球公開賽很累但很開心打得不錯，但始終不是參加很多大滿貫或ATP-1000分賽，自己仍未習慣，需要時間適應和學習。(孔令輝攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797611_2_20250327175057.jpg&q=90)
-  
-
-創下本港網球手在ATP-1000分賽最佳成績的黃澤林昨晚返抵香港，他表示，美國邁阿密網球公開賽很累但很開心打得不錯，但始終不是參加很多大滿貫或ATP-1000分賽，自己仍未習慣，需要時間適應和學習。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm)
 
 ---

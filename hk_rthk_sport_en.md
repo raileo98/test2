@@ -1,3 +1,27 @@
+# New NBA All-Star Game format was 'a miss', says Silver
+
+![The NBA said the four-team mini-tournament for this year's All-Star Game will be scrapped. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797807_1_20250328094751.jpg&q=85)
+  
+
+It's unclear what next year's NBA All-Star Game will look like, but commissioner Adam Silver said the league is "a bit back to the drawing board" as it moves away from the three-game mini-tournament that was implemented this season.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm)
+
+---
+
 # HK's men's 3x3 basketball team make Asia Cup history
 
 ![The SAR's men's 3x3 basketball team qualified for the Asia Cup for the first time ever. Photo courtesy of FIBA](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797793_1_20250328085214.jpg&q=90)
@@ -1412,29 +1436,5 @@ Armand 'Mondo' Duplantis headlines a stellar cast in Nanjing for a world indoor 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796377-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796377-20250319.htm)
-
----
-
-# Ohtani leads Dodgers to MLB season-opener win in Tokyo
-
-![Ohtani shook off the nerves to deliver two crucial hits during the Dodgers' season-opening win. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796342_1_20250319070737.jpg&q=90)
-  
-
-Shohei Ohtani admitted he was "nervous" playing in front of a packed Tokyo crowd as the Los Angeles Dodgers started the new Major League Baseball season with a win.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm)
 
 ---

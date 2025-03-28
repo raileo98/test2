@@ -1,3 +1,51 @@
+# 滬深股市初段變動不大
+
+![內地股市初段變動不大，上證指數較早時報3368點，跌4點，跌幅0.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797803_1_20250328093654.jpg&q=90)
+  
+
+內地股市初段變動不大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797803-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797803-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797803-20250328.htm)
+
+---
+
+# 人行逆回購785億元人民幣　本周淨回籠1464億元
+
+![人行公開市場逆回購785億元人民幣，單日淨回籠145億元，全星期累計淨回籠1464億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797802_1_20250328093511.jpg&q=80)
+  
+
+人民銀行公開市場開展785億元人民幣7天期逆回購操作，規模低於昨日，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797802-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797802-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797802-20250328.htm)
+
+---
+
 # 期指結算日　港股競價時段升94點　李寧績後升逾3%
 
 ![期指結算日，港股開市靠穩，恒生指數競價時段報23672點，升94點，升幅0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797800_1_20250328092409.jpg&q=10)
@@ -406,12 +454,12 @@
 
 ---
 
-# 蔚來折讓逾9%配股集資最多40.3億元
+# 蔚來擬折讓逾9%配股集資最多40.3億元
 
-![蔚來計劃配售最多近1.19億股A類普通股股份，集資最多40.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797751_1_20250327225635.jpg&q=90)
+![蔚來計劃折讓逾9%配股集資最多40.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797751_1_20250327225635.jpg&q=90)
   
 
-蔚來公布，計劃配售最多近1.19億股A類普通股股份，配售價每股29.46元，較今日收市價折讓逾9%，集資最多40.3億元。
+蔚來公布，計劃配售最多近1.37億股A類普通股股份，配股規模較最初公布的約1.2億股有所擴大。
 
   
 
@@ -502,9 +550,9 @@
 
 ---
 
-# 酒吧業界料七欖賽事可帶來約2000萬元額外收益
+# 酒吧業料七欖帶來2千萬額外收益　旺角尖沙咀營業額或升三至四成
 
-![錢雋永預料賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797741_1_20250327215731.jpg&q=90)
+![錢雋永說，球迷村提早關閉，場館設有完善交通配套接駁港島、九龍各區，方便觀眾散場後繼續消遣，有利刺激九龍及港島各區酒吧的生意。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797741_2_20250328094421.jpg&q=75)
   
 
 香港國際七人欖球賽將於明日起，一連三日在啟德體育園舉行，香港酒吧業協會主席錢雋永說，預料賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益，九龍城區的酒吧營業額有望較平日上升四至五成。
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797657-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797657-20250327.htm)
-
----
-
-# 差估署：上月私人住宅樓價跌幅擴大　創逾8年半新低
-
-![本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797654_1_20250327135943.jpg&q=85)
-  
-
-差餉物業估價署數據顯示，本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797654-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797654-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797654-20250327.htm)
-
----
-
-# 港股半日升246點　蒙牛及中銀績後造好
-
-![港股連升兩日，恒生指數最多升逾380點，高見23865點，中午收市報23729點，升246點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797651_1_20250327121037.jpg&q=15)
-  
-
-港股連升兩日，恒生指數最多升逾380點，高見23865點，中午收市報23729點，升246點，升幅1.05%，半日主板成交額逾1416億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797651-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797651-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797651-20250327.htm)
 
 ---

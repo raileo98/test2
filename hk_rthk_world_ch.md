@@ -1,3 +1,50 @@
+# 七欖開鑼　九龍城餐廳稱人流增兩至三成將延長營業時間
+
+  
+
+香港國際七人欖球賽一連3日在啟德體育園舉行，九龍城區議會提振地區經濟專責工作小組主席黃文莉表示，社會重視交通安排，港鐵與巴士公司有與區議會緊密聯繫，溝通後有改善特別巴士線和的士上落客區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm)
+
+---
+
+# 七欖開鑼　港鐵屯馬綫將加強服務　離場安排「空載列車」候命
+
+![屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797805_1_20250328094806.jpg&q=85)
+  
+
+港鐵表示，為配合一連3日在啟德體育園舉行的香港國際七人欖球賽活動，屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm)
+
+---
+
 # 《環看天下》：卡尼稱加中貿易關係須謹慎    中方：望加方相
 
 ![卡尼日前表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面，需要非常謹慎。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797796_1_20250328091436.jpg&q=90)
@@ -379,30 +426,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797745-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797745-20250327.htm)
-
----
-
-# 酒吧業界料七欖賽事可帶來約2000萬元額外收益
-
-![錢雋永預料賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797741_1_20250327215731.jpg&q=90)
-  
-
-香港國際七人欖球賽將於明日起，一連三日在啟德體育園舉行，香港酒吧業協會主席錢雋永說，預料賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益，九龍城區的酒吧營業額有望較平日上升四至五成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm)
 
 ---
 
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797506-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797506-20250326.htm)
-
----
-
-# 李在明涉嫌違反南韓《公職選舉法》案二審獲判無罪
-
-![二審判決推翻一審判決結果，李在明（揮手者）獲判無罪。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797504_1_20250326155748.jpg&q=90)
-  
-
-南韓首爾高等法院對最大在野黨共同民主黨黨魁李在明涉嫌違反《公職選舉法》案作出二審判決，推翻一審判決結果，李在明獲判無罪。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797504-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797504-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797504-20250326.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Light rain aids firefighters in South Korea
+
+![A firefighting helicopter drops water as it flies during an operation amidst a wildfire in Uiseong, South Korea. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797801_1_20250328093036.jpg&q=90)
+  
+
+Light rain offered some relief to South Korean authorities tackling the country's worst wildfires on record, with exhausted firefighters making another push on Friday to contain blazes stretching 70 km.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm)
+
+---
+
 # Arctic sea ice hits record low, says US agency
 
 ![A polar bear is seen on ice floes in the Franz Josef Land archipelago in 2021. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797792_1_20250328084339.jpg&q=90)
@@ -1413,29 +1437,5 @@ Foreign Minister Wang Yi said on Saturday that China, Japan and the South Korea 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm)
-
----
-
-# French film star Depardieu to go on trial next week
-
-![Depardieu has faced a growing number of sexual assault allegations in recent years. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796836_1_20250321191832.jpg&q=90)
-  
-
-French actor Gerard Depardieu faces trial on Monday over alleged sexual assaults of two women on a film set, a case placing one of the world's best known movie stars at the heart of France's broader reckoning over sexual violence.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm)
 
 ---

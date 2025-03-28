@@ -1,3 +1,51 @@
+# New NBA All-Star Game format was 'a miss', says Silver
+
+![The NBA said the four-team mini-tournament for this year's All-Star Game will be scrapped. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797807_1_20250328094751.jpg&q=85)
+  
+
+It's unclear what next year's NBA All-Star Game will look like, but commissioner Adam Silver said the league is "a bit back to the drawing board" as it moves away from the three-game mini-tournament that was implemented this season.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm)
+
+---
+
+# Light rain aids firefighters in South Korea
+
+![A firefighting helicopter drops water as it flies during an operation amidst a wildfire in Uiseong, South Korea. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797801_1_20250328093036.jpg&q=90)
+  
+
+Light rain offered some relief to South Korean authorities tackling the country's worst wildfires on record, with exhausted firefighters making another push on Friday to contain blazes stretching 70 km.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm)
+
+---
+
 # Government strongly condemns UK report on HK
 
 ![The SAR government urged the UK to "respect international law" and "immediately stop interfering in Hong Kong matters." File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797769_1_20250328093204.jpg&q=90)
@@ -1391,53 +1439,5 @@ The Kai Tak Sports Park said it's ready to host the Hong Kong Rugby Sevens tourn
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm)
-
----
-
-# Malls set to get more room for business
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797456_1_20250326120826.jpg&q=80)
-  
-
-Secretary for Development Bernadette Linn said on Wednesday officials will soon come up with measures to allow shopping malls to host more business activities within their public open spaces.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm)
-
----
-
-# New A&E fee to bring timely treatment in urgent cases
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797455_1_20250326115900.jpg&q=80)
-  
-
-The Secretary for Health says the new fee for people seeking help at accident and emergency wards in public hospitals can result in quicker treatment for more serious cases.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm)
 
 ---

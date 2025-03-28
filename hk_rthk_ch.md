@@ -1,3 +1,122 @@
+# 七欖開鑼　九龍城餐廳稱人流增兩至三成將延長營業時間
+
+  
+
+香港國際七人欖球賽一連3日在啟德體育園舉行，九龍城區議會提振地區經濟專責工作小組主席黃文莉表示，社會重視交通安排，港鐵與巴士公司有與區議會緊密聯繫，溝通後有改善特別巴士線和的士上落客區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm)
+
+---
+
+# 滬深股市初段變動不大
+
+![內地股市初段變動不大，上證指數較早時報3368點，跌4點，跌幅0.14%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797803_1_20250328093654.jpg&q=90)
+  
+
+內地股市初段變動不大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797803-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797803-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797803-20250328.htm)
+
+---
+
+# 人行逆回購785億元人民幣　本周淨回籠1464億元
+
+![人行公開市場逆回購785億元人民幣，單日淨回籠145億元，全星期累計淨回籠1464億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797802_1_20250328093511.jpg&q=80)
+  
+
+人民銀行公開市場開展785億元人民幣7天期逆回購操作，規模低於昨日，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797802-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797802-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797802-20250328.htm)
+
+---
+
+# 七欖開鑼　港鐵屯馬綫將加強服務　離場安排「空載列車」候命
+
+![屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797805_1_20250328094806.jpg&q=85)
+  
+
+港鐵表示，為配合一連3日在啟德體育園舉行的香港國際七人欖球賽活動，屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm)
+
+---
+
+# 天水圍兩隻貓疑高處墮下一死一傷　列殘酷對待動物案暫未有人被捕
+
+![警方表示，接獲保安報案，指發現有兩隻貓懷疑從高處墮下。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797804_1_20250328094738.jpg&q=90)
+  
+
+天水圍天恒邨恒健樓對開，凌晨2時許發現一隻貓隻屍體及一隻貓受傷。警方經初步調查，案件列作殘酷對待動物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797804-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797804-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797804-20250328.htm)
+
+---
+
 # 期指結算日　港股競價時段升94點　李寧績後升逾3%
 
 ![期指結算日，港股開市靠穩，恒生指數競價時段報23672點，升94點，升幅0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797800_1_20250328092409.jpg&q=10)
@@ -48,6 +167,7 @@
 
 # 衞生防護中心：冬季流感嚴重個案減少料與市民願意接種疫苗有關
 
+![徐樂堅說，成人及兒童嚴重個案，分別較疫情前減少兩成及六成，相信與市民願意接種疫苗有關。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797797_1_20250328094716.jpg&q=80)
   
 
 衞生署宣布本港今年度冬季流感季節已結束。衞生防護中心總監徐樂堅表示，回顧呼吸道陽性樣本比例、入院率、學校或院舍爆發數字等，都較基線水平為低，並出現持續下降趨勢，加上病毒株沒有改變，因此有信心冬季流感季節已完結。
@@ -957,12 +1077,12 @@
 
 ---
 
-# 蔚來折讓逾9%配股集資最多40.3億元
+# 蔚來擬折讓逾9%配股集資最多40.3億元
 
-![蔚來計劃配售最多近1.19億股A類普通股股份，集資最多40.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797751_1_20250327225635.jpg&q=90)
+![蔚來計劃折讓逾9%配股集資最多40.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797751_1_20250327225635.jpg&q=90)
   
 
-蔚來公布，計劃配售最多近1.19億股A類普通股股份，配售價每股29.46元，較今日收市價折讓逾9%，集資最多40.3億元。
+蔚來公布，計劃配售最多近1.37億股A類普通股股份，配股規模較最初公布的約1.2億股有所擴大。
 
   
 
@@ -1197,9 +1317,9 @@
 
 ---
 
-# 酒吧業界料七欖賽事可帶來約2000萬元額外收益
+# 酒吧業料七欖帶來2千萬額外收益　旺角尖沙咀營業額或升三至四成
 
-![錢雋永預料賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797741_1_20250327215731.jpg&q=90)
+![錢雋永說，球迷村提早關閉，場館設有完善交通配套接駁港島、九龍各區，方便觀眾散場後繼續消遣，有利刺激九龍及港島各區酒吧的生意。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797741_2_20250328094421.jpg&q=75)
   
 
 香港國際七人欖球賽將於明日起，一連三日在啟德體育園舉行，香港酒吧業協會主席錢雋永說，預料賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益，九龍城區的酒吧營業額有望較平日上升四至五成。
@@ -1314,125 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm)
-
----
-
-# 網上涉出售未標示受管制藥物成分減肥藥　衞生署籲市民停用
-
-![有關產品的包裝有泰文、中文和英文字，懷疑是未經註冊藥劑製品。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797736_1_20250327212849.jpg&q=90)
-  
-
-衞生署正調查一宗網上非法出售含有未標示受管制藥物成分的減肥藥個案，提醒市民切勿購買或服用該產品，已購買相關產品的市民應立即停止服用，如有疑問或服用後感到不適，應立即徵詢醫護人員的意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm)
-
----
-
-# 高拔陞稱普通科門診夜診服務需視乎實際需要每區各有不同
-
-![高拔陞表示，醫管局每年會增加普通科門診服務量，日後做法需要視乎實際需要。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797735_1_20250327212826.jpg&q=90)
-  
-
-醫管局現時全港74間普通科門診，少於三分一提供夜診，診症時間最遲至晚上10時。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797735-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797735-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797735-20250327.htm)
-
----
-
-# 特首政策組與全國港澳研究會合辦全國兩會精神研討會
-
-![特首政策組與全國港澳研究會聯合主辦全國「兩會」精神與「新時代香港融入國家發展大局」專題研討會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797734_1_20250327211837.jpg&q=90)
-  
-
-特首政策組與全國港澳研究會聯合主辦全國「兩會」精神與「新時代香港融入國家發展大局」專題研討會，就今年全國兩會的重要內容及對香港未來發展的重要啓示，作深入交流和互動研討。共有近120名來自本地民間智庫、大學智庫、專業機構、商會、特首政策組專家組，以及全國港澳研究會副會長、理事及顧問等不同領域和界別的代表參加。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm)
-
----
-
-# 各決策局過去一年提出逾三十項與青年相關新措施
-
-![陳國基（前排中）主持青年發展委員會第18次會議。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797733_1_20250327210940.jpg&q=90)
-  
-
-政務司司長陳國基主持青年發展委員會第18次會議。他表示，政府在過去兩年持續落實並動態更新《青年發展藍圖》內的措施，以行動印證政府對長期推動青年發展工作的重視和決心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797733-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797733-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797733-20250327.htm)
-
----
-
-# 中國人保去年多賺近89%
-
-![中國人保去年盈利421.5億元人民幣，按年急升近89%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797722_1_20250327191025.jpg&q=50)
-  
-
-中國人保去年盈利421.5億元人民幣，按年急升近89%。派末期息每股0.117元人民幣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797722-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797722-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797722-20250327.htm)
 
 ---

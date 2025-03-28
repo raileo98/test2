@@ -1,3 +1,50 @@
+# 七欖開鑼　九龍城餐廳稱人流增兩至三成將延長營業時間
+
+  
+
+香港國際七人欖球賽一連3日在啟德體育園舉行，九龍城區議會提振地區經濟專責工作小組主席黃文莉表示，社會重視交通安排，港鐵與巴士公司有與區議會緊密聯繫，溝通後有改善特別巴士線和的士上落客區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm)
+
+---
+
+# 七欖開鑼　港鐵屯馬綫將加強服務　離場安排「空載列車」候命
+
+![屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797805_1_20250328094806.jpg&q=85)
+  
+
+港鐵表示，為配合一連3日在啟德體育園舉行的香港國際七人欖球賽活動，屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm)
+
+---
+
 # 女子歐聯8強次回合巴塞6:1挫禾夫斯堡　車路士3:0曼城
 
 ![巴塞女足兩回合10:2血洗禾夫斯堡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797781_1_20250328070857.jpg&q=90)
@@ -67,6 +114,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797779-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797779-20250328.htm)
+
+---
+
+# 酒吧業料七欖帶來2千萬額外收益　旺角尖沙咀營業額或升三至四成
+
+![錢雋永說，球迷村提早關閉，場館設有完善交通配套接駁港島、九龍各區，方便觀眾散場後繼續消遣，有利刺激九龍及港島各區酒吧的生意。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797741_2_20250328094421.jpg&q=75)
+  
+
+香港國際七人欖球賽將於明日起，一連三日在啟德體育園舉行，香港酒吧業協會主席錢雋永說，預料賽事將吸引大量海外旅客來港觀賽，為酒吧業界帶來可觀收益，九龍城區的酒吧營業額有望較平日上升四至五成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm)
 
 ---
 
@@ -1374,78 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795498-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795498-20250313.htm)
-
----
-
-# 歐聯16強次回合　利物浦互射12碼被巴黎聖日耳門淘汰
-
-![利物浦互射12碼被巴黎聖日耳門，歐聯16強出局。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795351_1_20250312070830.jpg&q=90)
-![拜仁強勢殺入歐聯8強。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795351_2_20250312071003.jpg&q=75)
-  
-
-歐聯16強次回合，利物浦0:1不敵巴黎聖日耳門，奧斯文丹比利12分鐘射入全場唯一入球。兩回合計踢成1:1，兩隊加時亦無法分出勝負，要互射12碼。利物浦只有沙拿射入，紐尼斯和居迪斯鍾斯射失，巴黎聖日耳門首四輪全部射入，以4:1淘汰利物浦晉級。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795351-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795351-20250312.htm](https://news.rthk.hk/rthk/ch/component/k2/1795351-20250312.htm)
-
----
-
-# 全國兩會｜高志丹：要在2035年建成體育強國目標再接再厲
-
-![高志丹表示，要在2035年建成體育強國的目標再接再厲。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795273_1_20250311180915.jpg&q=90)
-  
-
-在北京，國家體育總局局長高志丹表示，國家隊在巴黎奧運會上取得境外參與最好成績，運動員亦展現優異的體育精神文化素養和個人魅力，印證出國運興則體育興、國家強則體育強。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795273-20250311.htm)
-
----
-
-# 英超紐卡素挫韋斯咸　西甲愛斯賓奴與基羅納和氣收場
-
-![般奴古馬雷斯近門撞射入網。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795187_1_20250311072445.jpg&q=85)
-  
-
-英超紐卡素作客一球小勝韋斯咸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795187-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795187-20250311.htm](https://news.rthk.hk/rthk/ch/component/k2/1795187-20250311.htm)
 
 ---
