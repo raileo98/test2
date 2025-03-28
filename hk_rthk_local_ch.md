@@ -1,5 +1,30 @@
+# 54歲女子李忠離開觀塘雲漢街住所後失蹤　警方呼籲提供消息
+
+![失蹤女子身高約1.63米，體重約55公斤，瘦身材，尖面型，黃皮膚及蓄短黑髮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797936_1_20250328215419.jpg&q=90)
+  
+
+54歲女子李忠，本星期三下午離開位於觀塘雲漢街的住所後失蹤，家人昨日向警方報案，警方呼籲市民提供消息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797936-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797936-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797936-20250328.htm)
+
+---
+
 # 建造業「油漆工」「砌磚工」訂定灣區標準推展「一試多證」安排
 
+![當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797934_1_20250328215518.jpg&q=75)
   
 
 當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排，有關標準已上載香港建造學院的網頁。
@@ -23,6 +48,7 @@
 
 # 丘應樺稱全力建設香港成為區域知識產權貿易中心
 
+![丘應樺（前排右一）到訪一家內地著名的潮流文化娛樂公司，了解營運情況和內地知識產權產品的發展。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797932_1_20250328215451.jpg&q=85)
   
 
 商務及經濟發展局局長丘應樺表示，特區政府正透過一系列措施保障創新和創意成果，推動知識產權貿易，並會加強知識產權人才培訓，全力建設香港成為區域知識產權貿易中心。
@@ -1422,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797723-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797723-20250327.htm)
-
----
-
-# 丘應樺稱政府致力建設香港成為區域知識產權貿易中心
-
-![丘應樺（左）拜會外交部港澳台司副司長冉波（右），介紹香港經貿的最新發展。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797721_1_20250327191021.jpg&q=45)
-  
-
-商務及經濟發展局局長丘應樺在北京展開訪問行程。他上午首先拜訪國家知識產權局，與副局長張志成會面，並表示，特區政府一直致力保護知識產權及推動知識產權貿易，建設香港成為區域知識產權貿易中心，協助推動新質生產力，尤其是促進大灣區創新科技及創意產業的進一步發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm)
 
 ---

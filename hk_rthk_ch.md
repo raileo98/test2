@@ -1,3 +1,27 @@
+# 54歲女子李忠離開觀塘雲漢街住所後失蹤　警方呼籲提供消息
+
+![失蹤女子身高約1.63米，體重約55公斤，瘦身材，尖面型，黃皮膚及蓄短黑髮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797936_1_20250328215419.jpg&q=90)
+  
+
+54歲女子李忠，本星期三下午離開位於觀塘雲漢街的住所後失蹤，家人昨日向警方報案，警方呼籲市民提供消息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797936-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797936-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797936-20250328.htm)
+
+---
+
 # 美的去年多賺逾14%　末期息每股3.5元人民幣
 
 ![美的集團去年盈利按年升14.3%。末期息每股3.5元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797933_1_20250328212442.jpg&q=90)
@@ -48,6 +72,7 @@
 
 # 建造業「油漆工」「砌磚工」訂定灣區標準推展「一試多證」安排
 
+![當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797934_1_20250328215518.jpg&q=75)
   
 
 當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排，有關標準已上載香港建造學院的網頁。
@@ -71,6 +96,7 @@
 
 # 丘應樺稱全力建設香港成為區域知識產權貿易中心
 
+![丘應樺（前排右一）到訪一家內地著名的潮流文化娛樂公司，了解營運情況和內地知識產權產品的發展。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797932_1_20250328215451.jpg&q=85)
   
 
 商務及經濟發展局局長丘應樺表示，特區政府正透過一系列措施保障創新和創意成果，推動知識產權貿易，並會加強知識產權人才培訓，全力建設香港成為區域知識產權貿易中心。
