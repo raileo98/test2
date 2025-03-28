@@ -1,3 +1,27 @@
+# 融創中國去年虧損擴大逾2.2倍
+
+![融創中國去年虧損257億元人民幣，按年擴大逾2.2倍。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797930_1_20250328210615.jpg&q=90)
+  
+
+融創中國公布，去年虧損257億元人民幣，按年擴大逾2.2倍，主要是前年錄得境外債務重組收益的基數影響。不派末期息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797930-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797930-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797930-20250328.htm)
+
+---
+
 # 美國2月核心PCE按月升0.4%　略高於預期
 
 ![美國2月撇除食品和能源的核心PCE物價指數，按月升0.4%，略高於預期；按年升2.8%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797926_1_20250328204234.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797776-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797776-20250328.htm)
-
----
-
-# 油價靠穩　市場評估供應收緊及貿易戰風險
-
-![國際油價延續上日升勢，英美期油分別升0.3%及約0.4%收市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797775_1_20250328055102.jpg&q=90)
-  
-
-國際油價延續上日升勢，投資者評估原油供應收緊及貿易戰風險，憂慮關稅措施或令石油需求減少。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797775-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797775-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797775-20250328.htm)
 
 ---

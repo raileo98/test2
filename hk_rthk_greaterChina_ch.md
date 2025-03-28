@@ -1,3 +1,27 @@
+# 緬甸大地震導致雲南德宏2人輕傷
+
+![緬甸大地震導致雲南德宏2人輕傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797929_1_20250328205841.jpg&q=90)
+  
+
+緬甸發生7級以上地震。新華社引述雲南省地震局表示，緬甸今次地震已導致雲南省德宏傣族景頗族自治州2人輕傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797929-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797929-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797929-20250328.htm)
+
+---
+
 # 台中新光三越百貨上月爆炸事故　調查報告判定是天然氣爆炸
 
 ![台中新光三越百貨爆炸事故上月13日發生，造成5死37傷。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797927_1_20250328204623.jpg&q=80)
@@ -144,6 +168,7 @@
 
 # 西藏經濟總量近2765億元　城鄉居民收入連續10年居全國前列
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797893_1_20250328210806.jpg&q=90)
   
 
 今年是西藏自治區成立60周年，國新辦發布《新時代西藏人權事業的發展與進步》白皮書，當中提到西藏曾是全國貧困發生率最高、脫貧難度最大的深度貧困地區，在黨中央堅強領導下，西藏精準扶貧及脫貧，去年西藏脫貧人口人均純收入同比增長12.5%以上。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm)
-
----
-
-# 湖北省委原書記蔣超良被罷免全國人大代表資格
-
-![湖北省委原書記蔣超良被罷免全國人大代表資格](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797552_1_20250326192308.jpg&q=90)
-  
-
-早前落馬的湖北省委原書記蔣超良，被罷免全國人大代表資格。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797552-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797552-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797552-20250326.htm)
 
 ---
