@@ -3,7 +3,7 @@
 ![香港國際七人欖球賽在啟德主場館舉行，下午入座率明顯增加。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_1_20250328165144.jpg&q=75)
 ![英國隊隊長Harry Glover表示，啟德主場館是到過的最好球場之一。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_2_20250328165144.jpg&q=90)
 ![姚錦成相信傍晚港隊出場後，氣氛會更好。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_3_20250328165144.jpg&q=85)
-![場外設有球迷村，不少家長帶動子女參與活動。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_4_20250328165144.jpg&q=80)
+![場外設有球迷村，不少家長帶同子女參與活動。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_4_20250328165144.jpg&q=80)
   
 
 一連3日的香港國際七人欖球賽在啟德主場館舉行，下午入座率明顯增加，其中「南看台」有不少外籍球迷盛裝打扮，載歌載舞，氣氛熱鬧。

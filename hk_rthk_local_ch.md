@@ -23,6 +23,9 @@
 
 # 元朗攸壆路簡約公屋入伙　租戶稱省下金錢可以給子女讀書補習
 
+![攸壆路的簡約公屋項目，南北兩區合共有2156個單位。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797911_1_20250328184755.jpg&q=90)
+![已有兩條巴士及1條專線小巴路線，為居民提供服務。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797911_2_20250328184755.jpg&q=85)
+![簡約公屋項目亦設有超市，便利店，自助洗衣店等設施。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797911_3_20250328184755.jpg&q=85)
   
 
 位於元朗攸壆路的首個簡約公屋項目2100多個單位，今日起陸續入伙，房屋局局長何永賢見證部份租戶辦理入伙手續，並向他們派發單位鎖匙。
@@ -70,6 +73,7 @@
 
 # 港鐵稱每年票價調整幅度低於通脹率　去年票價優惠投入逾31億元
 
+![港鐵表示，自兩鐵合併以來，平均每年的票價調整幅度低於同期平均每年通脹率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797907_1_20250328184539.jpg&q=80)
   
 
 港鐵宣布，按票價調整機制，2025/26年度的港鐵票價維持不變。
@@ -192,7 +196,7 @@
 ![香港國際七人欖球賽在啟德主場館舉行，下午入座率明顯增加。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_1_20250328165144.jpg&q=75)
 ![英國隊隊長Harry Glover表示，啟德主場館是到過的最好球場之一。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_2_20250328165144.jpg&q=90)
 ![姚錦成相信傍晚港隊出場後，氣氛會更好。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_3_20250328165144.jpg&q=85)
-![場外設有球迷村，不少家長帶動子女參與活動。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_4_20250328165144.jpg&q=80)
+![場外設有球迷村，不少家長帶同子女參與活動。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_4_20250328165144.jpg&q=80)
   
 
 一連3日的香港國際七人欖球賽在啟德主場館舉行，下午入座率明顯增加，其中「南看台」有不少外籍球迷盛裝打扮，載歌載舞，氣氛熱鬧。
