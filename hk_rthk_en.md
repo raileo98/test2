@@ -1,3 +1,27 @@
+# Hong Kong stocks close lower
+
+![The Hang Seng Index finished down 0.7 percent at 23,426. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797890_1_20250328170005.jpg&q=80)
+  
+
+Hong Kong stocks ended lower on Friday, with the benchmark Hang Seng Index down 0.7 percent at 23,426.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797890-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797890-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797890-20250328.htm)
+
+---
+
 # Myanmar hospital 'a mass casualty area' after tremors
 
 ![Healthcare workers treat a earthquake survivor on a bed in the compound of the hospital in Naypyidaw. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797887_1_20250328165127.jpg&q=85)
@@ -1430,29 +1454,5 @@ Israeli Prime Minister Benjamin Netanyahu threatened on Wednesday to seize parts
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm)
-
----
-
-# Coleman Wong ready to climb up world tennis rankings
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797605_1_20250327063121.jpg&q=90)
-  
-
-The SAR's tennis star, Coleman Wong, said late Wednesday that he was more confident about cracking the top 100 in the men's singles world rankings, following his historic success at the Miami Open.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797605-20250327.htm)
 
 ---
