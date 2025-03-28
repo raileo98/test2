@@ -311,7 +311,7 @@
 
 # 習近平：冀外資企業不盲從各種干擾全球產供鏈安全穩定行為
 
-![國家主席習近平上午在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797840_1_20250328124654.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797840_1_20250328124654.jpg&q=80)
   
 
 國家主席習近平上午在北京人民大會堂會見國際工商界代表。
