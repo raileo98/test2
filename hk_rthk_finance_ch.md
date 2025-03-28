@@ -1,3 +1,51 @@
+# 美國密歇根大學3月消費者信心指數終值低於預期
+
+![美國密歇根大學消費者調查顯示，美國3月消費者信心指數終值為57，低過初值及預期的57.9。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797946_1_20250328230517.jpg&q=75)
+  
+
+美國密歇根大學消費者調查顯示，美國3月消費者信心指數終值為57，低過初值及預期的57.9，亦低於2月的64.7。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797946-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797946-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797946-20250328.htm)
+
+---
+
+# 思捷環球：若下周一前無法刊發經審核年度業績　下周二起或停牌
+
+![思捷環球表示，若無法於下周一或之前刊發經審核的年度業績，股份將於下周二早上9時正起停牌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797945_1_20250328225355.jpg&q=90)
+  
+
+思捷環球公布，有可能延遲刊發去年的年度業績，若無法於下周一或之前刊發經審核的年度業績，股份將於下周二早上9時正起停牌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797945-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797945-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797945-20250328.htm)
+
+---
+
 # 美的去年多賺逾14%　末期息每股3.5元人民幣
 
 ![美的集團去年盈利按年升14.3%。末期息每股3.5元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797933_1_20250328212442.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797789-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797789-20250328.htm)
-
----
-
-# 李寧料內地今年居民消費增長潛力較大
-
-![李寧預期，在政策有力支持下，內地今年居民消費將有較大增長潛力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797787_1_20250328074822.jpg&q=85)
-  
-
-李寧表示，去年整體零售流水按年持平，線下新品零售流水在線下整體流水佔比85%，保持健康合理。公司指，渠道庫存有高單位數升幅，庫存周轉與庫齡結構保持健康水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797787-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797787-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797787-20250328.htm)
-
----
-
-# 李寧去年盈利跌5.5%　全年派息比率升至50%
-
-![李寧去年盈利30.1億元人民幣，按年跌5.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797786_1_20250328074305.jpg&q=80)
-  
-
-李寧去年盈利30.1億元人民幣，按年跌5.5%。若扣除經營無關的一次性收益，盈利為30.5億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797786-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797786-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797786-20250328.htm)
 
 ---

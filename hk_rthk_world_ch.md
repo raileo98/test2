@@ -1,3 +1,27 @@
+# 保安局向緬甸及泰國發出黃色外遊警示
+
+![保安局向緬甸及泰國發外遊警示，表示有威脅跡象。（保安局網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797947_1_20250328230651.jpg&q=90)
+  
+
+保安局向緬甸及泰國發出黃色外遊警示，表示有威脅跡象。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797947-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797947-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797947-20250328.htm)
+
+---
+
 # 緬甸地震增至144死732傷　曼谷有建築物倒塌5死逾百人失蹤
 
 ![緬甸發生大地震，曼德勒有建築物倒塌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797943_1_20250328225226.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797661-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797661-20250327.htm)
-
----
-
-# 特朗普：可能提出降低中國關稅換取中方批准出售TikTok
-
-![特朗普1月上任後簽署行政命令，將針對TikTok「不賣就禁」法例生效的最後期限推遲至4月初。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797647_1_20250327115115.jpg&q=90)
-  
-
-美國總統特朗普宣布向進口汽車徵收25%關稅時說，可能會提出降低對中國的關稅，以獲得中國政府批准出售短片分享程式TikTok。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm)
 
 ---
