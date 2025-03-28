@@ -1,3 +1,26 @@
+# 緬甸及泰國當局徹夜於地震災區尋找倖存者
+
+  
+
+緬甸中部大地震後，緬甸及有強烈震感的泰國，徹夜在災區尋找倖存者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797964-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797964-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797964-20250329.htm)
+
+---
+
 # 萬斯指對格陵蘭島人民來說丹麥辦事不力　美國需介入
 
 ![萬斯表示美國毋須動用軍事力量擴大在格陵蘭島的存在，因為當地人會選擇與美國同一陣營。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797962_1_20250329041630.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm)
-
----
-
-# 農行去年多賺近5%　末期息每股0.1255元人民幣
-
-![農業銀行去年盈利2820.8億元人民幣，按年增長4.7%。派末期息每股0.1255元，派息比率維持於30%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797888_1_20250328165227.jpg&q=90)
-  
-
-農業銀行去年盈利2820.8億元人民幣，按年增長4.7%。派末期息每股0.1255元，全年派息比率維持於30%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797888-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797888-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797888-20250328.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 緬甸及泰國當局徹夜於地震災區尋找倖存者
+
+  
+
+緬甸中部大地震後，緬甸及有強烈震感的泰國，徹夜在災區尋找倖存者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797964-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797964-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797964-20250329.htm)
+
+---
+
 # 萬斯指對格陵蘭島人民來說丹麥辦事不力　美國需介入
 
 ![萬斯表示美國毋須動用軍事力量擴大在格陵蘭島的存在，因為當地人會選擇與美國同一陣營。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797962_1_20250329041630.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm)
-
----
-
-# 南韓東南部山火增至27死32傷
-
-![南韓東南部慶尚道地區山火仍未受控。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797699_1_20250327164457.jpg&q=90)
-  
-
-南韓東南部慶尚道地區山火持續，增至27人死亡，32人受傷，火場面積36000公頃創新高，大約37000人疏散。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797699-20250327.htm)
 
 ---
