@@ -1,3 +1,27 @@
+# ICAC chief lays down law on calls for invalid votes
+
+![Election workers get ballots out of boxes after the end of voting in the 2022 Legislative Council Election Committee constituency. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797856_1_20250328150342.jpg&q=90)
+  
+
+The city's top graft-buster, Danny Woo, on Friday warned that authorities will take tough action against those who call for invalid votes to be cast during the upcoming election for the city's legislature at the end of the year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm)
+
+---
+
 # Myanmar junta chief courts region in rare Thai trip
 
 ![Myanmar's military chief Min Aung Hlaing marks Armed Forces Day in Naypyidaw on Thursday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797854_1_20250328135837.jpg&q=90)
@@ -1423,29 +1447,5 @@ The UK government halved its 2025 growth forecast on Wednesday as it made billio
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm)
-
----
-
-# World Club Cup winner to score up to US$125 million
-
-![This year's Club World Cup will take place from June 14 to July 13 in the United States. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797561_1_20250326204658.jpg&q=90)
-  
-
-The winner of this year's expanded Club World Cup in the United States will receive up to US$125 million in prize money, Fifa announced on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm)
 
 ---

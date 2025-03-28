@@ -1,3 +1,27 @@
+# ICAC chief lays down law on calls for invalid votes
+
+![Election workers get ballots out of boxes after the end of voting in the 2022 Legislative Council Election Committee constituency. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797856_1_20250328150342.jpg&q=90)
+  
+
+The city's top graft-buster, Danny Woo, on Friday warned that authorities will take tough action against those who call for invalid votes to be cast during the upcoming election for the city's legislature at the end of the year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm)
+
+---
+
 # Public transport enhanced for Rugby Sevens
 
 ![Public transport operators are stepping up services during the Hong Kong Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797838_1_20250328123606.jpg&q=85)
@@ -1426,29 +1450,5 @@ The Department of Health said on Saturday that a 35-year-old woman remains in a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796933-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796933-20250322.htm)
-
----
-
-# Fans excited to see Ying Ying appear with panda twins
-
-![People who collect an entry ticket can see the pandas for three minutes. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796927_2_20250322155956.jpg&q=90)
-  
-
-Thousands of people flocked to Ocean Park on Saturday as they can now see the panda twins and their mother, Ying Ying, all in one go.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796927-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796927-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796927-20250322.htm)
 
 ---
