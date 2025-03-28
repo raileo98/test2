@@ -1,8 +1,31 @@
+# 萬斯專機降落格陵蘭島　行程包括探訪美軍基地駐軍
+
+  
+
+美國副總統萬斯乘坐的專機在格陵蘭島降落。他與夫人烏莎在當地的行程，包括探訪美軍基地的駐軍，並視察安全狀況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797955-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797955-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797955-20250329.htm)
+
+---
+
 # 格陵蘭島組成新一屆自治政府　尼爾森出任自治政府總理
 
   
 
-丹麥自治領地格陵蘭島在當地星期五組成新一屆自治政府。尼爾森出任自治政府總理。
+丹麥自治領地格陵蘭島在當地星期五，組成新一屆自治政府。尼爾森出任自治政府總理。
 
   
 
@@ -25,7 +48,7 @@
 
   
 
-美國總統特朗普與加拿大總理通卡尼通話。
+美國總統特朗普與加拿大總理卡尼通話。
 
   
 
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797880-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797880-20250328.htm)
-
----
-
-# 外交部：中方堅決反對英方炮製所謂「半年報告」干涉中國內政
-
-![郭嘉昆說，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797879_1_20250328162152.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆回應英國政府再次發布「香港問題半年報告」時表示，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm)
 
 ---

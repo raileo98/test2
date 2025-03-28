@@ -1,8 +1,31 @@
+# 萬斯專機降落格陵蘭島　行程包括探訪美軍基地駐軍
+
+  
+
+美國副總統萬斯乘坐的專機在格陵蘭島降落。他與夫人烏莎在當地的行程，包括探訪美軍基地的駐軍，並視察安全狀況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797955-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797955-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797955-20250329.htm)
+
+---
+
 # 格陵蘭島組成新一屆自治政府　尼爾森出任自治政府總理
 
   
 
-丹麥自治領地格陵蘭島在當地星期五組成新一屆自治政府。尼爾森出任自治政府總理。
+丹麥自治領地格陵蘭島在當地星期五，組成新一屆自治政府。尼爾森出任自治政府總理。
 
   
 
@@ -25,7 +48,7 @@
 
   
 
-美國總統特朗普與加拿大總理通卡尼通話。
+美國總統特朗普與加拿大總理卡尼通話。
 
   
 
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797678-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797678-20250327.htm)
-
----
-
-# 丁薛祥：今年首兩個月中國經濟運行起步平穩
-
-![丁薛祥表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797666_1_20250327140247.jpg&q=80)
-  
-
-博鰲亞洲論壇年會舉行開幕式，國務院副總理丁薛祥發表主旨演講，表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm)
 
 ---
