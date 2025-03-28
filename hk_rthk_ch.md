@@ -22,7 +22,7 @@
 
 ---
 
-# 緬甸大地震增至144死732傷
+# 緬甸地震增至144死732傷　曼谷有建築物倒塌5死逾百人失蹤
 
 ![緬甸發生大地震，曼德勒有建築物倒塌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797943_1_20250328225226.jpg&q=90)
   
