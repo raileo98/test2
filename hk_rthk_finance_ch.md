@@ -1,5 +1,29 @@
+# 習近平在北京會見國際工商界代表
+
+  
+
+新華社報道，國家主席習近平上午在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797819-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797819-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797819-20250328.htm)
+
+---
+
 # 「超級三月」帶動旅客人數升　羅淑佩稱重視為旅客打造優質體驗
 
+![羅淑佩認為，「香港盛匯超級三月」聚焦體育、藝術及旅遊活動，已成功帶動旅客人數顯著上升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797815_1_20250328110405.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩認為「香港盛匯超級三月」聚焦體育、藝術及旅遊活動，已成功帶動旅客人數顯著上升，但當局並非單純追求人數，更重視為旅客打造優質體驗，其中一項新策略是善用海岸線和離島，重塑旅遊產業面貌，吸引高消費旅客來港。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm)
-
----
-
-# 李家超與糧農組織總幹事會面　共享農業數據為制定政策提供依據
-
-![李家超（左）在海南與聯合國糧食及農業組織總幹事屈冬玉博士（右）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797667_1_20250327140223.jpg&q=90)
-  
-
-正在海南的行政長官李家超早上與一同出席博鰲亞洲論壇年會的聯合國糧食及農業組織總幹事屈冬玉會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm)
 
 ---

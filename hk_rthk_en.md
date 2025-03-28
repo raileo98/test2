@@ -1,3 +1,52 @@
+# Rubio warns Venezuela against Guyana attacks
+
+![Guyanese President Mohamed Irfaan Ali, left, with Marco Rubio in Georgetown, Guyana. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797818_1_20250328105815.jpg&q=90)
+  
+
+Top US diplomat Marco Rubio bluntly warned Venezuela against attacking its oil-rich neighbour Guyana, brandishing the power of the US military to protect the small South American nation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm)
+
+---
+
+# Yankees, Dodgers victorious in MLB season openers
+
+![Carlos Rodon's pitching was key to the Yankees' win to open the new season. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797817_1_20250328105734.jpg&q=90)
+![Shohei Ohtani and the Los Angeles Dodgers were also winners to start the new campaign. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797817_2_20250328105734.jpg&q=90)
+  
+
+Carlos Rodon pitched effectively into the sixth inning and was backed by two early homers as the host New York Yankees hung on for a 4-2 victory over the Milwaukee Brewers in the season opener for both teams.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm)
+
+---
+
 # Trump pulls UN envoy nomination amid Congress fears
 
 ![Donald Trump with US Representative Elise Stefanik last year. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797812_1_20250328104043.jpg&q=90)
@@ -1391,54 +1440,5 @@ Thai Prime Minister Paetongtarn Shinawatra survived a no-confidence vote in parl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm)
-
----
-
-# GBA cities need to maximise tourism synergy: survey
-
-![The study, led by the Polytechnic University, suggests cities in the Greater Bay Area work together to grow the tourism market together. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797477_1_20250326142939.jpg&q=85)
-  
-
-Findings from a study led by the Polytechnic University’s School of Hotel and Tourism Management have indicated there’s great potential for cities within the Greater Bay Area (GBA) to collaborate further in their tourism strategies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm)
-
----
-
-# Art Basel 'to strengthen HK's cultural hub status'
-
-![Art Basel runs from Friday to Sunday at the Convention and Exhibition Centre in Wan Chai. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797472_1_20250326131100.jpg&q=90)
-![Angelle Siyang-Le, right, says she expects a good turnout particularly from Southeast Asia. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797472_2_20250326131100.jpg&q=90)
-  
-
-The organiser of Art Basel Hong Kong said on Wednesday this year's edition aims to strengthen Hong Kong's position as an arts and cultural hub while connecting creative ecosystems across the globe.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm)
 
 ---

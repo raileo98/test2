@@ -1,5 +1,53 @@
+# 習近平在北京會見國際工商界代表
+
+  
+
+新華社報道，國家主席習近平上午在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797819-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797819-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797819-20250328.htm)
+
+---
+
+# 馬斯克稱有信心任期完結前完成削減聯邦政府支出工作
+
+![馬斯克首次率政府效率部高層接受訪問。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797816_1_20250328110116.jpg&q=90)
+  
+
+領導美國政府效率部的富商馬斯克表示，有信心任命結束前，完成削減1萬億美元聯邦支出的大部分工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797816-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797816-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797816-20250328.htm)
+
+---
+
 # 「超級三月」帶動旅客人數升　羅淑佩稱重視為旅客打造優質體驗
 
+![羅淑佩認為，「香港盛匯超級三月」聚焦體育、藝術及旅遊活動，已成功帶動旅客人數顯著上升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797815_1_20250328110405.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩認為「香港盛匯超級三月」聚焦體育、藝術及旅遊活動，已成功帶動旅客人數顯著上升，但當局並非單純追求人數，更重視為旅客打造優質體驗，其中一項新策略是善用海岸線和離島，重塑旅遊產業面貌，吸引高消費旅客來港。
@@ -1385,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm)
-
----
-
-# 林定國稱香港普通法制度具備「國際化、高水平、信譽好」優勢
-
-![林定國在北京出席「人民法院涉外涉港澳系列專題講座」。（林定國社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797744_1_20250327215754.jpg&q=90)
-  
-
-律政司司長林定國在北京出席「人民法院涉外涉港澳系列專題講座」，分享在「一國兩制」下香港普通法制度的歷史脈絡、特點、發展，以及其獨特優勢如何助力國家發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm)
-
----
-
-# 美股初段向下　納指跌近0.8%
-
-![納斯達克指數報17760點，跌138點，跌幅0.78%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797743_1_20250327214011.jpg&q=90)
-  
-
-美股初段向下。美國總統特朗普宣布對進口汽車徵收25%關稅，打擊市場投資信心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797743-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797743-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797743-20250327.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Rubio warns Venezuela against Guyana attacks
+
+![Guyanese President Mohamed Irfaan Ali, left, with Marco Rubio in Georgetown, Guyana. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797818_1_20250328105815.jpg&q=90)
+  
+
+Top US diplomat Marco Rubio bluntly warned Venezuela against attacking its oil-rich neighbour Guyana, brandishing the power of the US military to protect the small South American nation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm)
+
+---
+
 # Trump pulls UN envoy nomination amid Congress fears
 
 ![Donald Trump with US Representative Elise Stefanik last year. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797812_1_20250328104043.jpg&q=90)
@@ -1413,29 +1437,5 @@ Pope Francis will make his first public appearance on Sunday with a blessing and
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796947-20250322.htm)
-
----
-
-# Heathrow 'fully operational' again after fire shutdown
-
-![Delays and cancellations are expected on Saturday as airlines scramble to clear a backlog of flights. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796942_1_20250322182905.jpg&q=90)
-  
-
-Heathrow Airport said it was "fully operational" on Saturday but delays and cancellations were expected as Europe's busiest air hub resumed operations after a power station fire caused travel mayhem.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796942-20250322.htm)
 
 ---

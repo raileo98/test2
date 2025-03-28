@@ -1,3 +1,28 @@
+# Yankees, Dodgers victorious in MLB season openers
+
+![Carlos Rodon's pitching was key to the Yankees' win to open the new season. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797817_1_20250328105734.jpg&q=90)
+![Shohei Ohtani and the Los Angeles Dodgers were also winners to start the new campaign. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797817_2_20250328105734.jpg&q=90)
+  
+
+Carlos Rodon pitched effectively into the sixth inning and was backed by two early homers as the host New York Yankees hung on for a 4-2 victory over the Milwaukee Brewers in the season opener for both teams.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm)
+
+---
+
 # Djokovic, teenager Mensik make Miami Open semi-finals
 
 ![Novak Djokovic became the oldest player to make an ATP Masters 1000 semi-final. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797810_1_20250328102853.jpg&q=90)
@@ -1413,29 +1438,5 @@ Sports chief Rosanna Law said on Wednesday that parties involved in the Hong Kon
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796411-20250319.htm)
-
----
-
-# HK men's rugby squad unfazed by pressure at Sevens
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796409_1_20250319143004.jpg&q=90)
-  
-
-The Hong Kong, China men’s rugby team on Wednesday said they are looking forward to feed off the energy from the home crowd when the Rugby Sevens are held for the first time later this month at Kai Tak Sports Park.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796409-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796409-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796409-20250319.htm)
 
 ---
