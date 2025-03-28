@@ -1,3 +1,27 @@
+# ET model on auction block in New York
+
+![The model of ET the Extra-Terrestrial used in Steven Spielberg's 1982 film is pictured in New York. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797976_1_20250329071526.jpg&q=90)
+  
+
+An original animatronic model of the iconic alien created for Steven Spielberg's classic 1982 film "ET the Extra-Terrestrial" is for sale at Sotheby's and is estimated to fetch as much as US$900,000.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm)
+
+---
+
 # Trump, Carney hail 'extremely productive' call
 
 ![During the call, Carney told Trump his government would impose retaliatory tariffs on American goods from April 2. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797975_1_20250329071156.jpg&q=90)
@@ -1428,29 +1452,5 @@ Vice Premier Ding Xuexiang on Thursday said China's economy is remaking itself w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797653-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797653-20250327.htm)
-
----
-
-# Home prices drop to lowest level in nearly nine years
-
-![Home prices continued to decline last month. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797650_1_20250327120658.jpg&q=65)
-  
-
-Hong Kong home prices slumped for the third month in a row in February, dropping to their lowest level in almost nine years.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797650-20250327.htm)
 
 ---
