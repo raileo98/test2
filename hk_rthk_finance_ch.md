@@ -1,3 +1,51 @@
+# 工行去年盈利微升0.5%
+
+![工商銀行去年盈利3658.63億元人民幣，按年增長0.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797899_1_20250328172747.jpg&q=80)
+  
+
+工商銀行去年盈利3658.63億元人民幣，按年增長0.5%。每10股派末期息1.646元，每10股全年派息合計3.08元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm)
+
+---
+
+# 建行去年盈利升近1%
+
+![建設銀行去年盈利3355.8億元人民幣，按年升0.88%。派末期息每股0.206元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797894_1_20250328171540.jpg&q=90)
+  
+
+建設銀行公布，去年盈利3355.8億元人民幣，按年升0.88%。派末期息每股0.206元人民幣，全年派息0.403元，按年升近0.8%，派息比率30%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm)
+
+---
+
 # 中人壽原總裁楊超涉嫌嚴重違紀違法接受調查
 
 ![中紀委：中國人壽保險原黨委書記、總裁楊超涉嫌嚴重違紀違法，目前正接受監察調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797896_1_20250328171925.jpg&q=80)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm)
-
----
-
-# 中國人保去年多賺近89%
-
-![中國人保去年盈利421.5億元人民幣，按年急升近89%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797722_1_20250327191025.jpg&q=50)
-  
-
-中國人保去年盈利421.5億元人民幣，按年急升近89%。派末期息每股0.117元人民幣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797722-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797722-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797722-20250327.htm)
-
----
-
-# 郵儲行去年盈利按年變動不大
-
-![郵儲行去年盈利864.8億元人民幣，按年微升0.24%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797729_1_20250327200354.jpg&q=85)
-  
-
-郵儲行去年盈利864.8億元人民幣，按年微升0.24%。派末期息每股0.1139元人民幣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797729-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797729-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797729-20250327.htm)
 
 ---

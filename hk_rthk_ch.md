@@ -1,3 +1,75 @@
+# 工行去年盈利微升0.5%
+
+![工商銀行去年盈利3658.63億元人民幣，按年增長0.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797899_1_20250328172747.jpg&q=80)
+  
+
+工商銀行去年盈利3658.63億元人民幣，按年增長0.5%。每10股派末期息1.646元，每10股全年派息合計3.08元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm)
+
+---
+
+# 兩隻貓疑高處墮下　34歲女子被捕涉嫌殘酷對待動物
+
+![警方調查後，拘捕一名34歲女子，她涉嫌「殘酷對待動物」，正被扣查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797897_1_20250328173011.jpg&q=40)
+  
+
+天水圍天恒邨恒健樓對開，凌晨發現一隻貓隻屍體及一隻貓受傷。警方調查後，拘捕上址一名34歲女子，她涉嫌「殘酷對待動物」，正被扣查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797897-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797897-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797897-20250328.htm)
+
+---
+
+# 建行去年盈利升近1%
+
+![建設銀行去年盈利3355.8億元人民幣，按年升0.88%。派末期息每股0.206元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797894_1_20250328171540.jpg&q=90)
+  
+
+建設銀行公布，去年盈利3355.8億元人民幣，按年升0.88%。派末期息每股0.206元人民幣，全年派息0.403元，按年升近0.8%，派息比率30%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm)
+
+---
+
 # 中人壽原總裁楊超涉嫌嚴重違紀違法接受調查
 
 ![中紀委：中國人壽保險原黨委書記、總裁楊超涉嫌嚴重違紀違法，目前正接受監察調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797896_1_20250328171925.jpg&q=80)

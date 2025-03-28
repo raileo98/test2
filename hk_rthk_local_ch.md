@@ -1,3 +1,27 @@
+# 兩隻貓疑高處墮下　34歲女子被捕涉嫌殘酷對待動物
+
+![警方調查後，拘捕一名34歲女子，她涉嫌「殘酷對待動物」，正被扣查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797897_1_20250328173011.jpg&q=40)
+  
+
+天水圍天恒邨恒健樓對開，凌晨發現一隻貓隻屍體及一隻貓受傷。警方調查後，拘捕上址一名34歲女子，她涉嫌「殘酷對待動物」，正被扣查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797897-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797897-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797897-20250328.htm)
+
+---
+
 # 根據票價調整機制　港鐵今年度凍結票價
 
 ![港鐵將會於2025/26年度凍結票價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797889_1_20250328170231.jpg&q=85)
@@ -1421,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797698-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797698-20250327.htm)
-
----
-
-# 3名旅客共被檢獲11萬支未完稅香煙　被判囚3至4個月兼罰款
-
-![海關共檢獲超過11萬支未完稅香煙，市值48萬多元。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797695_1_20250327164954.jpg&q=90)
-  
-
-3名旅客昨日在機場入境時，分別被海關搜出藏有未完稅香煙，今日在西九龍裁判法院分別被判囚3個月至4個月，罰款500至1000元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797695-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797695-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797695-20250327.htm)
 
 ---

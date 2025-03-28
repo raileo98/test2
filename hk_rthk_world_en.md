@@ -1,10 +1,10 @@
-# Modi offers 'all possible assistance'
+# Quake-hit Myanmar junta appeals for international aid
 
-![Office and retail workers gather outside a shopping mall in Bangkok after fleeing to the streets. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_1_20250328170355.jpg&q=70)
 ![An earthquake survivor is carried to a hospital in Naypyidaw, Myanmar. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_2_20250328170355.jpg&q=85)
+![Myanmar's military chief Min Aung Hlaing arrives at the main hospital in Naypyidaw that was hit by the temblors. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_3_20250328172753.jpg&q=90)
   
 
-India was ready to offer "all possible assistance" to Myanmar and Thailand, Prime Minister Narendra Modi said on Friday, after both countries were hit by a powerful 7.7-magnitude earthquake.
+Myanmar's ruling junta made a rare request for international humanitarian aid and declared a state of emergency across six regions after a powerful quake hit the country on Friday.
 
   
 
