@@ -1,3 +1,27 @@
+# 順豐控股去年多賺近24%　派息比率升至40%
+
+![順豐控股去年盈利101.7億元人民幣，按年升23.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797898_1_20250328172652.jpg&q=90)
+  
+
+順豐控股公布，去年盈利101.7億元人民幣，按年升23.5%。派末期息每股0.44元人民幣，派息比率升至40%，按年升5個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797898-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797898-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797898-20250328.htm)
+
+---
+
 # 工行去年盈利微升0.5%
 
 ![工商銀行去年盈利3658.63億元人民幣，按年增長0.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797899_1_20250328172747.jpg&q=80)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797739-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797739-20250327.htm)
-
----
-
-# 美國去年第4季GDP按季年率增長2.4%　略高於前值及預期
-
-![美國去年第4季國內生產總值(GDP)按季年率修訂為增長2.4%，略高於前值和市場預期的2.3%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797738_1_20250327211320.jpg&q=80)
-  
-
-美國去年第4季國內生產總值(GDP)按季年率修訂為增長2.4%，略高於前值和市場預期的2.3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797738-20250327.htm)
 
 ---

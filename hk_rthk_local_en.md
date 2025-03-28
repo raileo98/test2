@@ -1,9 +1,9 @@
 # MTR fares to freeze under adjustment mechanism
 
-![While MTR fares will freeze for 2025/26, commuters face a steep hike next year after 3.36 percent of adjustments are brought forward. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797892_1_20250328171442.jpg&q=90)
+![While MTR fares will freeze for 2025-26, commuters could face a steep hike next year after 3.36 percent of adjustments are brought forward. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797892_1_20250328173801.jpg&q=90)
   
 
-There is relief for MTR passengers after fares will freeze in the coming year under a fare adjustment formula which takes into account a basket of factors, including inflation and median household income.
+There is relief for MTR passengers after the fare adjustment formula – which takes into account factors such as inflation and median household income – showed that fares would freeze for the coming year.
 
   
 

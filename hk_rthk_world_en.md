@@ -75,7 +75,6 @@ Thai authorities have declared a state of emergency in Bangkok, Prime Minister P
 
 # 43 trapped after quake brings down Bangkok high-rise
 
-![Rescue workers at the scene after the 30-storey building under construction collapsed in Bangkok. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_3_20250328161031.jpg&q=60)
 ![The trauma of the building's collapse takes its toll on one of the construction worker who managed to get out. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_5_20250328163235.jpg&q=85)
   
 
