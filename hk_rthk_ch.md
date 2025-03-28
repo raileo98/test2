@@ -1,3 +1,26 @@
+# 元朗攸壆路簡約公屋入伙　有租戶稱租金較劏房平但位置較遠
+
+  
+
+元朗攸壆路首個簡約公屋即日起入伙，整個項目分為南北兩區，住在南區的居民陸續到邨內辦事處領取鎖匙，首個星期每日處理50戶，之後每星期增至100戶，房屋局期望4月可以完成整個南區共1046個單位的入伙手續。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797873-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797873-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797873-20250328.htm)
+
+---
+
 # 梁君彥稱張宇人非撤回議案　如議員不動議議案不能讓會議繼續辯論
 
   
