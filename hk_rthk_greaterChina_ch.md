@@ -1,3 +1,26 @@
+# 中方高度關注緬甸地震災情並誠摯慰問　願提供緊急救援及支持
+
+  
+
+在北京，外交部就緬甸地震回應傳媒查詢時表示，緬甸是中國的友好鄰邦，中方高度關注緬甸地震災情，表示誠摯慰問，希望並相信緬甸政府及人民將早日克服困難，重建家園。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797959-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797959-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797959-20250329.htm)
+
+---
+
 # 王毅晤剛果共和國外長　強調推動中非合作高質量發展
 
 ![王毅與剛果共和國外長加科索會面。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797940_1_20250328223208.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm)
-
----
-
-# 海南省委書記馮飛稱瓊港合作備忘錄必將共創輝煌新篇章
-
-![馮飛說，兩地合作不斷邁上新台階，打造香港與內地省份合作的典範。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797577_1_20250326222754.jpg&q=80)
-  
-
-行政長官李家超與海南省委書記馮飛會面，並見證海南省人民政府與香港特區政府簽署《合作備忘錄》。馮飛致辭時表示，近年香港與海南兩地經貿合作，日益頻繁，不斷深化，相信今次簽約，必將開啟兩地攜手共進，共創輝煌的新篇章。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797577-20250326.htm)
 
 ---
