@@ -1,3 +1,27 @@
+# 'Innovation the way to go for China'
+
+![Speakers at the Boao Forum for Asia highlighted China's continued efforts at technological innovation. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797826_1_20250328115333.jpg&q=90)
+  
+
+At the official opening of the Boao Forum for Asia on Thursday, Vice Premier Ding Xuexiang said China's economy was remaking itself with the growing capacity to drive growth through innovation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797826-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797826-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797826-20250328.htm)
+
+---
+
 # Xi meets Bangladesh leader Yunus in Beijing
 
 ![Foreign Minister Wang Yi (right) met Bangladesh leader Muhammad Yunus on the sidelines of the UN General Assembly in New York, September 25, 2024. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797825_1_20250328114316.jpg&q=90)
@@ -1413,29 +1437,5 @@ An economist at a leading investment bank on Wednesday said the main takeaways f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795377-20250312.htm)
-
----
-
-# 'China changing course of economic development'
-
-![Lau Siu-kai says Hong Kong should help Beijing build connections beyond Western countries. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795279_1_20250311172739.jpg&q=75)
-  
-
-A senior member of a leading national think tank on Tuesday said the annual "Two Sessions" which just wrapped up in Beijing showed China's emphasis on the economy and innovation amid Sino-US tensions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm](https://news.rthk.hk/rthk/en/component/k2/1795279-20250311.htm)
 
 ---
