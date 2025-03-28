@@ -1,3 +1,27 @@
+# 習近平：冀外資企業不盲從各種干擾全球產供鏈安全穩定行為
+
+![國家主席習近平上午在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797840_1_20250328124654.jpg&q=80)
+  
+
+國家主席習近平上午在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797840-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797840-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797840-20250328.htm)
+
+---
+
 # 張國鈞冀大灣區律師顧問小組加入網紅令制訂措施更「貼地」
 
   
@@ -141,6 +165,7 @@
 
 # 加強打擊濫用公屋修例刊憲　下月2日交立法會首讀二讀
 
+![政府發言人表示，會加強及持續宣傳，確保公屋居民及市民理解一系列加強打撃濫用公屋新措施的內容。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797831_1_20250328124440.jpg&q=90)
   
 
 《2025年房屋（修訂）條例草案》刊憲，政府表示，條例草案將引入嚴重濫用公屋的新罪行；賦權獲授權人員要求可疑人士提供個人資料；及延長虛假陳述、拒絕提供資料及非法讓與罪行的檢控時效，令打擊濫用公屋的措施更具阻嚇力。根據建議，法例修訂將於明年3月底生效。
