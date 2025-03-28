@@ -1,3 +1,27 @@
+# 緬甸地震災區大量基礎設施遭受破壞　中國派出救援醫療隊救災
+
+![中國雲南救援醫療隊共37人早上從昆明長水國際機場乘坐包機趕赴震區。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797978_1_20250329074902.jpg&q=80)
+  
+
+緬甸中部7級以上強烈地震，至少144人死亡，732人受傷，暫時未有中國公民死亡報告，緬甸當局已經請求國際社會提供援助。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797978-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797978-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797978-20250329.htm)
+
+---
+
 # 緬甸及泰國當局徹夜於地震災區尋找倖存者
 
 ![當局出動犬隻及挖掘機器在樓宇倒塌現場搜尋生命跡象。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797964_1_20250329065408.jpg&q=55)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm)
-
----
-
-# 王毅與法國外長會談　強調雙方要以互利共贏反對脫鉤斷鏈
-
-![外長王毅在北京同法國外長巴羅會談。（外交部網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797708_1_20250327193722.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在北京同法國外長巴羅會談。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm)
 
 ---

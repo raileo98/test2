@@ -1,3 +1,27 @@
+# 緬甸地震災區大量基礎設施遭受破壞　中國派出救援醫療隊救災
+
+![中國雲南救援醫療隊共37人早上從昆明長水國際機場乘坐包機趕赴震區。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797978_1_20250329074902.jpg&q=80)
+  
+
+緬甸中部7級以上強烈地震，至少144人死亡，732人受傷，暫時未有中國公民死亡報告，緬甸當局已經請求國際社會提供援助。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797978-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797978-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797978-20250329.htm)
+
+---
+
 # 美元指數曾失守104　美國10年期債息創1星期新低
 
 ![美元指數一度跌穿104水平，低見103.89，是今個星期低位，跌逾0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797973_1_20250329070239.jpg&q=85)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797904-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797904-20250328.htm)
-
----
-
-# 習近平冀企業不盲從各種干擾全球產供鏈安全穩定行為
-
-![國家主席習近平在北京人民大會堂會見國際工商界代表。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797903_1_20250328175116.jpg&q=90)
-  
-
-國家主席習近平在北京人民大會堂會見國際工商界代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm)
 
 ---
