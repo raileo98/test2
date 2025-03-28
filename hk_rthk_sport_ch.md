@@ -1,5 +1,8 @@
 # 國際七人欖球賽開幕　現場激光投影與啦啦隊表演
 
+![飛龍連繫著寫有旅發局字句的氣球在館場上空盤旋。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_1_20250328201031.jpg&q=40)
+![南韓冠軍級棒球隊啦啦隊在南看台表演應援舞。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_2_20250328201031.jpg&q=85)
+![現場上演長約3分鐘的激光投影。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_3_20250328201031.jpg&q=85)
   
 
 一連三日的香港國際七人欖球賽首度移師啟德主場館舉行，旅發局主席彭耀佳晚上在開幕禮為飛龍點睛，飛龍連繫著寫有旅發局字句的氣球在館場上空盤旋。

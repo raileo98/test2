@@ -1,4 +1,28 @@
-# 國家市監局稱注意到長和將與貝萊德簽署巴拿馬港口的交易協議
+# 接近長和高層消息：下周不會出售巴拿馬運河港口業務
+
+![接近長和高層消息稱，下周不會出售巴拿馬運河港口業務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797923_1_20250328201653.jpg&q=80)
+  
+
+長和本月初宣布，向美國貝萊德牽頭的財團出售巴拿馬運河港口等業務。港澳辦及中聯辦多次轉載文章，批評有關交易損害國家利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797923-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797923-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797923-20250328.htm)
+
+---
+
+# 國家市場監督管理總局稱將依法對長和港口交易進行審查
 
   
 
@@ -46,6 +70,9 @@
 
 # 國際七人欖球賽開幕　現場激光投影與啦啦隊表演
 
+![飛龍連繫著寫有旅發局字句的氣球在館場上空盤旋。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_1_20250328201031.jpg&q=40)
+![南韓冠軍級棒球隊啦啦隊在南看台表演應援舞。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_2_20250328201031.jpg&q=85)
+![現場上演長約3分鐘的激光投影。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_3_20250328201031.jpg&q=85)
   
 
 一連三日的香港國際七人欖球賽首度移師啟德主場館舉行，旅發局主席彭耀佳晚上在開幕禮為飛龍點睛，飛龍連繫著寫有旅發局字句的氣球在館場上空盤旋。
@@ -1406,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797773-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797773-20250328.htm)
-
----
-
-# 永利澳門去年盈利近32億元　按年增逾1.7倍
-
-![永利澳門去年盈利近32億元，按年增長逾1.7倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797753_1_20250327231556.jpg&q=80)
-  
-
-永利澳門公布，去年盈利近32億元，按年增長逾1.7倍。派末期息每股0.185元，按年升近1.5倍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm)
 
 ---
