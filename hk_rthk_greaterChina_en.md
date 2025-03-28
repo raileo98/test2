@@ -1,6 +1,6 @@
 # Xi meets heads of international business community
 
-![Xi Jinping had also met with foreign business leaders after the China Development Forum last year. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797830_1_20250328121558.jpg&q=90)
+![Xi Jinping had also met with foreign business leaders after the China Development Forum last year. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797830_1_20250328121558.jpg&q=90)
   
 
 President Xi Jinping met with representatives of the international business community in Beijing following last weekend's China Development Forum (CDF), Xinhua News Agency reported on Friday.

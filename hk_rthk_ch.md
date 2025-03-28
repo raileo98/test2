@@ -1,3 +1,51 @@
+# 胡英明籲勿分享涉及煽動他人不投票或投無效票內容
+
+![胡英明呼籲公眾不要轉載和分享涉及煽動他人不投票或投無效票的內容，廉署會強硬執法。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797837_1_20250328123831.jpg&q=90)
+  
+
+立法會換屆選舉年底舉行，廉政專員胡英明呼籲公眾不要轉載和分享涉及煽動他人不投票或投無效票的內容，強調廉署會強硬執法。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797837-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797837-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797837-20250328.htm)
+
+---
+
+# 李寧：不會為維繫生意而犧牲部份專業屬性
+
+![錢煒（左）稱中國體育用品賽道未來前景積極樂觀；李寧（中）稱國家推進體育強國建設，行業前景廣闊。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797836_1_20250328123702.jpg&q=90)
+  
+
+李寧去年淨利潤率10.5%，收入按年升約4%至286.8億元人民幣。集團預計，今年全年收入按年持平，全年淨利潤率料於高單位數水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797836-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797836-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797836-20250328.htm)
+
+---
+
 # 習近平談外商投資遭政治干擾　稱吹滅別人的燈不會讓自己更光明
 
 ![國家主席習近平在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797834_1_20250328122935.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm)
-
----
-
-# 永利澳門去年盈利近32億元　按年增逾1.7倍
-
-![永利澳門去年盈利近32億元，按年增長逾1.7倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797753_1_20250327231556.jpg&q=80)
-  
-
-永利澳門公布，去年盈利近32億元，按年增長逾1.7倍。派末期息每股0.185元，按年升近1.5倍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797753-20250327.htm)
-
----
-
-# 歐洲央行：與美國貿易戰對經濟增長極不利　須格外小心調整政策
-
-![歐洲央行副總裁德金多斯表示，與美國的貿易戰對經濟增長的不利影響大得多，有必要格外小心和謹慎地調整政策。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797752_1_20250327230701.jpg&q=85)
-  
-
-歐洲央行副總裁德金多斯出席一次金融會議時表示，與美國的貿易戰可能會對歐元區的通脹產生短暫影響，但對經濟增長的不利影響會大得多，認為歐洲央行有必要格外小心和謹慎地調整政策。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm)
 
 ---

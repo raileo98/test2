@@ -1,3 +1,27 @@
+# 李寧：不會為維繫生意而犧牲部份專業屬性
+
+![錢煒（左）稱中國體育用品賽道未來前景積極樂觀；李寧（中）稱國家推進體育強國建設，行業前景廣闊。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797836_1_20250328123702.jpg&q=90)
+  
+
+李寧去年淨利潤率10.5%，收入按年升約4%至286.8億元人民幣。集團預計，今年全年收入按年持平，全年淨利潤率料於高單位數水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797836-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797836-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797836-20250328.htm)
+
+---
+
 # 龔如心遺產受託人完成籌組理事會　開展準備工作管理慈善信託
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797674-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797674-20250327.htm)
-
----
-
-# 台股低收近1.4%　創逾半年低位
-
-![台灣加權指數收報21951點，跌308點，跌幅1.39%，創逾半年低位收市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797672_1_20250327143702.jpg&q=90)
-  
-
-台股受壓，創逾半年低位收市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797672-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797672-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797672-20250327.htm)
 
 ---

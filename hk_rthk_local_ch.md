@@ -1,3 +1,27 @@
+# 胡英明籲勿分享涉及煽動他人不投票或投無效票內容
+
+![胡英明呼籲公眾不要轉載和分享涉及煽動他人不投票或投無效票的內容，廉署會強硬執法。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797837_1_20250328123831.jpg&q=90)
+  
+
+立法會換屆選舉年底舉行，廉政專員胡英明呼籲公眾不要轉載和分享涉及煽動他人不投票或投無效票的內容，強調廉署會強硬執法。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797837-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797837-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797837-20250328.htm)
+
+---
+
 # 七欖開鑼鄧竟成稱早上安排順暢　羅淑佩料稍後有更多人入場
 
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797663-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797663-20250327.htm)
-
----
-
-# 差估署：上月私人住宅樓價跌幅擴大　創逾8年半新低
-
-![本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797654_1_20250327135943.jpg&q=85)
-  
-
-差餉物業估價署數據顯示，本港上月私人住宅樓價創超過8年半新低，按月跌幅擴大至近0.9%，連跌3個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797654-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797654-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797654-20250327.htm)
 
 ---

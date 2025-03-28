@@ -48,7 +48,7 @@ A patient rights group says it hopes the government can use AI chatbots in its t
 
 # Xi meets heads of international business community
 
-![Xi Jinping had also met with foreign business leaders after the China Development Forum last year. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797830_1_20250328121558.jpg&q=90)
+![Xi Jinping had also met with foreign business leaders after the China Development Forum last year. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797830_1_20250328121558.jpg&q=90)
   
 
 President Xi Jinping met with representatives of the international business community in Beijing following last weekend's China Development Forum (CDF), Xinhua News Agency reported on Friday.
@@ -120,7 +120,7 @@ At the official opening of the Boao Forum for Asia on Thursday, Vice Premier Din
 
 # 'Kowloon City won't be congested during the Sevens'
 
-![A restaurant operator, Mark Lam, says pedestrian traffic had surged by 20 to 30 percent during stress tests and the opening ceremony at Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797820_1_20250328112333.jpg&q=70)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797820_1_20250328112333.jpg&q=70)
   
 
 A Kowloon City district councillor believes the area will not be congested when Hong Kong Rugby Sevens tournament games end every evening.

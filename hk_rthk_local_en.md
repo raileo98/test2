@@ -24,7 +24,7 @@ A patient rights group says it hopes the government can use AI chatbots in its t
 
 # 'Kowloon City won't be congested during the Sevens'
 
-![A restaurant operator, Mark Lam, says pedestrian traffic had surged by 20 to 30 percent during stress tests and the opening ceremony at Kai Tak Sports Park. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797820_1_20250328112333.jpg&q=70)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797820_1_20250328112333.jpg&q=70)
   
 
 A Kowloon City district councillor believes the area will not be congested when Hong Kong Rugby Sevens tournament games end every evening.
