@@ -46,6 +46,7 @@
 
 # 萬斯專機降落格陵蘭島　行程包括探訪美軍基地駐軍
 
+![萬斯行程包括探訪美軍基地的駐軍。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797955_1_20250329023326.jpg&q=90)
   
 
 美國副總統萬斯乘坐的專機在格陵蘭島降落。他與夫人烏莎在當地的行程，包括探訪美軍基地的駐軍，並視察安全狀況。
@@ -69,6 +70,7 @@
 
 # 格陵蘭島組成新一屆自治政府　尼爾森出任自治政府總理
 
+![四個政黨在格陵蘭島首府努克的文化中心簽署聯合執政協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797954_1_20250329023507.jpg&q=90)
   
 
 丹麥自治領地格陵蘭島在當地星期五，組成新一屆自治政府。尼爾森出任自治政府總理。
@@ -92,6 +94,7 @@
 
 # 特朗普與卡尼通話　稱成果極為豐碩並達成很多共識
 
+![特朗普說這次通話的成果極為豐碩。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797953_1_20250329023126.jpg&q=90)
   
 
 美國總統特朗普與加拿大總理卡尼通話。

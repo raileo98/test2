@@ -1,3 +1,26 @@
+# 雲南瑞麗多處房屋受損涉1700人　德宏州停電區域已全恢復供電
+
+  
+
+緬甸大地震導致位於中緬邊境的雲南省瑞麗市內多處房屋受損，截至昨晚7時，已發現有450多戶受損，涉及超過1700人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797960-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797960-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797960-20250329.htm)
+
+---
+
 # 中方高度關注緬甸地震災情並誠摯慰問　願提供緊急救援及支持
 
   
@@ -92,6 +115,7 @@
 
 # 萬斯專機降落格陵蘭島　行程包括探訪美軍基地駐軍
 
+![萬斯行程包括探訪美軍基地的駐軍。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797955_1_20250329023326.jpg&q=90)
   
 
 美國副總統萬斯乘坐的專機在格陵蘭島降落。他與夫人烏莎在當地的行程，包括探訪美軍基地的駐軍，並視察安全狀況。
@@ -115,6 +139,7 @@
 
 # 格陵蘭島組成新一屆自治政府　尼爾森出任自治政府總理
 
+![四個政黨在格陵蘭島首府努克的文化中心簽署聯合執政協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797954_1_20250329023507.jpg&q=90)
   
 
 丹麥自治領地格陵蘭島在當地星期五，組成新一屆自治政府。尼爾森出任自治政府總理。
@@ -138,6 +163,7 @@
 
 # 特朗普與卡尼通話　稱成果極為豐碩並達成很多共識
 
+![特朗普說這次通話的成果極為豐碩。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797953_1_20250329023126.jpg&q=90)
   
 
 美國總統特朗普與加拿大總理卡尼通話。
@@ -1410,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm)
-
----
-
-# 本港二手樓價反彈約0.3%　全面撤辣以來累跌逾5%
-
-![中原城市領先指數（CCL）最新報135.31點，按周升0.31%，結束2星期跌勢。年初至今，樓價累跌1.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797885_1_20250328164552.jpg&q=85)
-  
-
-反映本港二手樓價走勢的中原城市領先指數（CCL）最新報135.31點，按周升0.31%，結束2星期跌勢，但指數仍屬超過8年半以來次低，反映財政預算案放寬印花稅後首周，以及全國兩會召開後，恒指重上24000點的市況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797885-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797885-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797885-20250328.htm)
 
 ---

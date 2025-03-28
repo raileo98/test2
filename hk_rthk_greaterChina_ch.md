@@ -1,3 +1,26 @@
+# 雲南瑞麗多處房屋受損涉1700人　德宏州停電區域已全恢復供電
+
+  
+
+緬甸大地震導致位於中緬邊境的雲南省瑞麗市內多處房屋受損，截至昨晚7時，已發現有450多戶受損，涉及超過1700人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797960-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797960-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797960-20250329.htm)
+
+---
+
 # 中方高度關注緬甸地震災情並誠摯慰問　願提供緊急救援及支持
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797579-20250326.htm)
-
----
-
-# 祁斌稱中央全力支持瓊港兩地自由港平台與超級聯繫人雙向聯動
-
-![祁斌指出，海南自貿區零關稅低稅率政策，與香港自由港制度可以形成疊加效應。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797578_1_20250326225528.jpg&q=80)
-  
-
-在海南，瓊港簽署備忘錄，在多方面深化合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797578-20250326.htm)
 
 ---
