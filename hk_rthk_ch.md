@@ -1,9 +1,33 @@
-# 赫格塞斯：美菲必須並肩作戰　共同應對來自中國的威脅
+# 龍湖集團去年盈利跌19%　有息負債減至1763億元人民幣
 
-![赫格塞斯重申美國對與菲律賓共同防禦條約的堅定承諾。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797849_1_20250328131740.jpg&q=90)
+![龍湖集團截至去年底，有息負債較去年初減少163億元人民幣，減至1763.2億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797843_1_20250328125815.jpg&q=90)
   
 
-到訪菲律賓的美國國防部長赫格塞斯，重申美國對與菲律賓共同防禦條約的堅定承諾。
+龍湖集團去年盈利104億元人民幣，按年跌19%；撇除投資物業及其他衍生金融工具公平值變動影響，核心盈利69.7億元。末期期每股0.1元，可以以股代息，或者部分收取新股份及部分收取現金，全年派息0.32元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797843-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797843-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797843-20250328.htm)
+
+---
+
+# 赫格塞斯：美菲必須並肩作戰　共同應對來自中國的威脅
+
+![赫格塞思重申美國對與菲律賓共同防禦條約的堅定承諾。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797849_1_20250328131740.jpg&q=90)
+  
+
+到訪菲律賓的美國國防部長赫格塞思，重申美國對與菲律賓共同防禦條約的堅定承諾。
 
   
 
