@@ -1,3 +1,26 @@
+# 梁君彥稱張宇人非撤回議案　如議員不動議議案不能讓會議繼續辯論
+
+  
+
+自由黨立法會議員張宇人原本在昨日的立法會大會會議上，動議一項有關小班教學的議員議案，但他認為教育界議員朱國強提出的修正案，改變議案原意，在辯論前提出不動議議案。議事規則委員會主席謝偉俊提出規程問題，指出根據《議事規則》第35條，撤回動議需要得到批准。立法會主席梁君彥表示，張宇人並非撤回動議，又指據《議事規則》，如果議員不動議議案，他不能夠讓會議繼續辯論。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797872-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797872-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797872-20250328.htm)
+
+---
+
 # 男子攜500萬元歐羅遇劫反抗匪徒事敗　警拘4非華裔男子
 
   
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797673-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797673-20250327.htm)
-
----
-
-# 港鐵第一城站與沙田圍站間信號設備故障　服務一度受阻已恢復正常
-
-![港鐵表示，屯馬綫第一城站與沙田圍站一度受阻的服務已經恢復正常。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797670_1_20250327143226.jpg&q=90)
-  
-
-港鐵表示，屯馬綫第一城站與沙田圍站一度受阻的服務已經恢復正常。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797670-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797670-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797670-20250327.htm)
 
 ---

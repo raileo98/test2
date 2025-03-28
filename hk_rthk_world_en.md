@@ -1,4 +1,4 @@
-# Quake rocks Myanmar, Thailand and parts of China
+# High-rise collapses after quake rocks region
 
 ![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_1_20250328152242.jpg&q=75)
 ![Office workers flee a building through the stairwell in Bangkok. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_2_20250328152713.jpg&q=90)
