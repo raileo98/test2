@@ -1,3 +1,27 @@
+# 習近平：希望外資企業打消疑慮　放手到中國發展
+
+![國家主席習近平在北京人民大會堂會見國際工商界代表。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797905_1_20250328175350.jpg&q=90)
+  
+
+國家主席習近平在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm)
+
+---
+
 # 習近平冀企業不盲從各種干擾全球產供鏈安全穩定行為
 
 ![國家主席習近平在北京人民大會堂會見國際工商界代表。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797903_1_20250328175116.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm)
-
----
-
-# 中國科學院自動化研究所高層稱AI不應替代醫生判斷和決策
-
-![中國科學院自動化研究所高層稱AI不應替代醫生判斷和決策](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797531_1_20250326185425.jpg&q=90)
-  
-
-中國科學院自動化研究所、人工智能倫理與治理研究中心主任曾毅表示，人工智能(AI)應用於教育及醫療過程當中，如果全面的替代決策，問題非常多，AI不應替代決策，在教育領域，可以輔助教師。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797531-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797531-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797531-20250326.htm)
 
 ---

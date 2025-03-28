@@ -1,3 +1,27 @@
+# 習近平：希望外資企業打消疑慮　放手到中國發展
+
+![國家主席習近平在北京人民大會堂會見國際工商界代表。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797905_1_20250328175350.jpg&q=90)
+  
+
+國家主席習近平在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm)
+
+---
+
 # 緬甸大地震至少10死　軍政府籲國際社會援助　曼谷至少3人喪生
 
   
@@ -385,7 +409,7 @@
 
 # 緬甸大地震　據報曼德勒一間清真寺倒塌10人死亡
 
-![緬甸有建築物在大地震後倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797883_1_20250328165116.jpg&q=55)
+![緬甸發生7級以上猛烈地震，泰國曼谷有震感，有建築物倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797883_1_20250328165116.jpg&q=55)
   
 
 緬甸發生黎克特制7級以上猛烈地震，當地傳媒報道，曼德勒一座清真寺倒塌，造成至少10人死亡。另外，曼德勒有民眾在社交媒體表示，當地一座建築倒塌，多人被困。
