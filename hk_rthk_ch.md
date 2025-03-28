@@ -1,3 +1,73 @@
+# 東瀛遊兩旅行團在泰國行程無受影響　旅議會稱未有旅行團在緬甸
+
+  
+
+緬甸發生黎克特制7級以上地震，泰國全國亦有震感。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm)
+
+---
+
+# 本港二手樓價反彈約0.3%　全面撤辣以來累跌逾5%
+
+![中原城市領先指數（CCL）最新報135.31點，按周升0.31%，結束2星期跌勢。年初至今，樓價累跌1.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797885_1_20250328164552.jpg&q=85)
+  
+
+反映本港二手樓價走勢的中原城市領先指數（CCL）最新報135.31點，按周升0.31%，結束2星期跌勢，但指數仍屬超過8年半以來次低，反映財政預算案放寬印花稅後首周，以及全國兩會召開後，恒指重上24000點的市況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797885-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797885-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797885-20250328.htm)
+
+---
+
+# 七欖入座率下午明顯增加　球迷盛裝打扮載歌載舞氣氛熱鬧
+
+  
+
+一連3日的香港國際七人欖球賽在啟德主場館舉行，下午入座率明顯增加，其中「南看台」有不少外籍球迷盛裝打扮，載歌載舞，氣氛熱鬧。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm)
+
+---
+
 # 緬甸大地震　據報曼德勒一間清真寺倒塌10人死亡
 
   
@@ -44,6 +114,7 @@
 
 # 仁安醫院稱不會因公立醫院調整收費而加價　成本上升才會上調收費
 
+![李繼堯表示，院方不會因公立醫院調整收費而乘機加價。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797880_1_20250328164752.jpg&q=80)
   
 
 當局推行公營醫療服務收費改革，急症室收費由現時180元上調至400元，仁安醫院院長李繼堯表示，院方不會因公立醫院調整收費而乘機加價。

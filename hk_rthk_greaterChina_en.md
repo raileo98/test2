@@ -1,3 +1,28 @@
+# Thai PM declares state of emergency in Bangkok
+
+![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797877_1_20250328163912.jpg&q=50)
+![Siam BTS metro station in Bangkok is shuttered in wake of the earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797877_2_20250328163912.jpg&q=60)
+  
+
+Thai authorities have declared a state of emergency in Bangkok, Prime Minister Paetongtarn Shinawatra said on Friday after the city was hit by a major earthquake centred in Myanmar.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm)
+
+---
+
 # 43 trapped after quake brings down Bangkok high-rise
 
 ![Rescue workers at the scene after the 30-storey building under construction collapsed in Bangkok. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_3_20250328161031.jpg&q=60)
@@ -1414,29 +1439,5 @@ China and the EU vowed on Wednesday to strike back and defend their economic int
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm](https://news.rthk.hk/rthk/en/component/k2/1795512-20250313.htm)
-
----
-
-# Zhao Leji meets reporters after respiratory illness
-
-![Zhao Leji, centre, meets media representatives in Beijing after suffering a respiratory infection. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795469_1_20250312221345.jpg&q=85)
-  
-
-Zhao Leji, chairman of the National People's Congress (NPC) Standing Committee, on Wednesday met journalists in Beijing after suffering from a respiratory infection.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795469-20250312.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795469-20250312.htm](https://news.rthk.hk/rthk/en/component/k2/1795469-20250312.htm)
 
 ---

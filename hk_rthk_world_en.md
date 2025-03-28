@@ -1,3 +1,28 @@
+# Thai PM declares state of emergency in Bangkok
+
+![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797877_1_20250328163912.jpg&q=50)
+![Siam BTS metro station in Bangkok is shuttered in wake of the earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797877_2_20250328163912.jpg&q=60)
+  
+
+Thai authorities have declared a state of emergency in Bangkok, Prime Minister Paetongtarn Shinawatra said on Friday after the city was hit by a major earthquake centred in Myanmar.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm)
+
+---
+
 # 43 trapped after quake brings down Bangkok high-rise
 
 ![Rescue workers at the scene after the 30-storey building under construction collapsed in Bangkok. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_3_20250328161031.jpg&q=60)
@@ -1414,29 +1439,5 @@ Huge crowds gathered outside Istanbul City Hall late on Saturday for a fourth ni
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796993-20250323.htm)
-
----
-
-# Pope Francis to be discharged from hospital
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796991_1_20250323072549.jpg&q=90)
-  
-
-Pope Francis, who has been battling pneumonia for more than five weeks, will be discharged from hospital on Sunday but will need a further two months of rest at the Vatican, the head of his medical team said on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796991-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796991-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796991-20250323.htm)
 
 ---

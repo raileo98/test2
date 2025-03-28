@@ -1,3 +1,26 @@
+# 七欖入座率下午明顯增加　球迷盛裝打扮載歌載舞氣氛熱鬧
+
+  
+
+一連3日的香港國際七人欖球賽在啟德主場館舉行，下午入座率明顯增加，其中「南看台」有不少外籍球迷盛裝打扮，載歌載舞，氣氛熱鬧。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm)
+
+---
+
 # 七欖開鑼鄧竟成稱早上安排順暢　羅淑佩料稍後有更多人入場
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797833_1_20250328130217.jpg&q=75)
@@ -1423,29 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795816-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795816-20250315.htm)
-
----
-
-# 拉舒福特和佐敦軒達臣獲杜曹徵召入英格蘭大軍名單
-
-![拉舒福特和佐敦軒達臣獲杜曹徵召入英格蘭大軍名單。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795806_1_20250315051829.jpg&q=90)
-  
-
-英格蘭本月稍後將會出戰世界盃歐洲區外圍賽兩場賽事，領隊杜曹公布26人大軍名單，其中已經一年沒有代表英格蘭上陣的拉舒福特再度入選，即將踏入35歲的佐敦軒達臣，亦時隔近一年半再獲徵召。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795806-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795806-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795806-20250315.htm)
 
 ---

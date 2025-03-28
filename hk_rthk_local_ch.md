@@ -1,5 +1,76 @@
+# 港股低收152點　恒指本周累跌逾1%　連跌3星期
+
+![總結全星期，恒指累計跌幅1.1%，科指累跌近2.4%，兩者都連跌3星期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797881_1_20250328163236.jpg&q=85)
+  
+
+期指結算日，港股先高後低，恒生指數初段一度升近200點，其後最多轉跌逾320點，收市報23426點，跌152點，跌幅0.65%，主板成交額逾2296億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm)
+
+---
+
+# 東瀛遊兩旅行團在泰國行程無受影響　旅議會稱未有旅行團在緬甸
+
+  
+
+緬甸發生黎克特制7級以上地震，泰國全國亦有震感。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm)
+
+---
+
+# 七欖入座率下午明顯增加　球迷盛裝打扮載歌載舞氣氛熱鬧
+
+  
+
+一連3日的香港國際七人欖球賽在啟德主場館舉行，下午入座率明顯增加，其中「南看台」有不少外籍球迷盛裝打扮，載歌載舞，氣氛熱鬧。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm)
+
+---
+
 # 仁安醫院稱不會因公立醫院調整收費而加價　成本上升才會上調收費
 
+![李繼堯表示，院方不會因公立醫院調整收費而乘機加價。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797880_1_20250328164752.jpg&q=80)
   
 
 當局推行公營醫療服務收費改革，急症室收費由現時180元上調至400元，仁安醫院院長李繼堯表示，院方不會因公立醫院調整收費而乘機加價。
@@ -1368,77 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797693-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797693-20250327.htm)
-
----
-
-# 張宇人指修正案騎劫故不動議檢視小班教學原議案　朱國強稱不合理
-
-![張宇人在會上以議案被教育界議員朱國強提出的修正案「騎劫」為由，決定不作動議。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797690_1_20250327162424.jpg&q=90)
-  
-
-立法會今早續會，根據議程將辯論自由黨張宇人提出，「檢視中小學以小班模式教學的成效」的無約束力議員議案，但張宇人在會上以議案被教育界議員朱國強提出的修正案「騎劫」為由，決定不作動議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797690-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797690-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797690-20250327.htm)
-
----
-
-# 鴨脷洲街坊學校決定申請以私營方式自資開辦小一班級
-
-![學校法團校董會表示，不同持份者一致支持學校繼續營辦。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797688_1_20250327155622.jpg&q=90)
-  
-
-2025/26學年被「派0班」的鴨脷洲街坊學校，宣布將申請以私營方式自資開辦小一班級。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797688-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797688-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797688-20250327.htm)
-
----
-
-# 演練模擬多區樓宇坍塌　粵政府派60名隊員13輛消防車來港支援
-
-![香港消防處聯同廣東省消防救援總隊及澳門消防局，舉辦48小時粵港澳大灣區應急救援聯合演練。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797687_1_20250327162347.jpg&q=70)
-  
-
-香港消防處聯同廣東省消防救援總隊及澳門消防局，舉辦48小時粵港澳大灣區應急救援聯合演練，測試《粵港澳大灣區應急救援行動方案》下應急動員協調機制的實施成效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797687-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797687-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797687-20250327.htm)
 
 ---

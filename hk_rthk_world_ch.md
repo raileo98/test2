@@ -1,3 +1,49 @@
+# 東瀛遊兩旅行團在泰國行程無受影響　旅議會稱未有旅行團在緬甸
+
+  
+
+緬甸發生黎克特制7級以上地震，泰國全國亦有震感。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm)
+
+---
+
+# 七欖入座率下午明顯增加　球迷盛裝打扮載歌載舞氣氛熱鬧
+
+  
+
+一連3日的香港國際七人欖球賽在啟德主場館舉行，下午入座率明顯增加，其中「南看台」有不少外籍球迷盛裝打扮，載歌載舞，氣氛熱鬧。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm)
+
+---
+
 # 緬甸大地震　據報曼德勒一間清真寺倒塌10人死亡
 
   
@@ -1384,53 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797597-20250327.htm)
-
----
-
-# 美傳媒人指當局試圖淡化群組信息重要性　公開聊天紀錄更多內容
-
-![戈德堡批評當局試圖淡化有關群組信息的重要性。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797594_1_20250327054606.jpg&q=90)
-  
-
-美國政府高層官員在通訊群組討論軍事行動的懷疑洩密風波持續發酵，被加入群組的《大西洋雜誌》主編戈德堡批評當局試圖淡化有關群組信息的重要性，發文公開群組聊天紀錄的更多內容。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797594-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797594-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797594-20250327.htm)
-
----
-
-# 中美均形容經貿官員通話坦誠　何立峰就美對華徵關稅表達嚴正關切
-
-![何立峰就美方以芬太尼為由對華加徵關稅等問題，向美國貿易代表表達嚴正關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797590_1_20250327032925.jpg&q=90)
-  
-
-中美經貿官員通話。中方牽頭人、國務院副總理何立峰就美方以芬太尼為由對華加徵關稅、有關301調查以及計劃出台「對等」關稅等，向美國貿易代表格里爾表達嚴正關切。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm)
 
 ---

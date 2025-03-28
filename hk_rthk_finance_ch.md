@@ -1,3 +1,51 @@
+# 港股低收152點　恒指本周累跌逾1%　連跌3星期
+
+![總結全星期，恒指累計跌幅1.1%，科指累跌近2.4%，兩者都連跌3星期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797881_1_20250328163236.jpg&q=85)
+  
+
+期指結算日，港股先高後低，恒生指數初段一度升近200點，其後最多轉跌逾320點，收市報23426點，跌152點，跌幅0.65%，主板成交額逾2296億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm)
+
+---
+
+# 本港二手樓價反彈約0.3%　全面撤辣以來累跌逾5%
+
+![中原城市領先指數（CCL）最新報135.31點，按周升0.31%，結束2星期跌勢。年初至今，樓價累跌1.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797885_1_20250328164552.jpg&q=85)
+  
+
+反映本港二手樓價走勢的中原城市領先指數（CCL）最新報135.31點，按周升0.31%，結束2星期跌勢，但指數仍屬超過8年半以來次低，反映財政預算案放寬印花稅後首周，以及全國兩會召開後，恒指重上24000點的市況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797885-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797885-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797885-20250328.htm)
+
+---
+
 # 易綱：轉型金融須國際合作　周小川：不能說賠錢亦要企業轉型
 
 ![易綱（右）表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確。周小川（左）支持轉型金融過程中，需要注意價格機制。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797874_1_20250328163029.jpg&q=90)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm)
-
----
-
-# 許正宇：香港家辦匯數字知識中心讓家辦走在財富管理創新最前沿
-
-![許正宇在首屆彭博家族辦公室峰會上，正式啓動「香港家辦匯」計劃下的家族辦公室數字知識中心。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797719_1_20250327185904.jpg&q=90)
-  
-
-財經事務及庫務局局長許正宇在首屆彭博家族辦公室峰會上，正式啓動「香港家辦匯」計劃下的數字知識中心。他表示，這個全新的網上平台可讓家辦走在財富管理創新最前沿，通過香港抓緊亞洲區內無限機遇，增值私人財富。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797719-20250327.htm)
-
----
-
-# 銀行公會：關稅促進其他貿易走廊發展　香港可以把握機遇
-
-![禤惠儀表示，銀行公會在日後出訪行程中，聯合商會幫助中小企把握新冒起貿易走廊的機遇。（張詩民攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797718_1_20250327185455.jpg&q=90)
-  
-
-銀行公會主席禤惠儀表示，香港作為外向型經濟，雖然面對關稅等不確定性，但市場已經做好分散風險的部署，而關稅亦涉及不同國家，反而促進其他貿易走廊的發展，認為香港可以把握相關機遇。她期望，銀行公會在日後出訪行程中，聯合商會幫助中小企把握新冒起貿易走廊的機遇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797718-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797718-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797718-20250327.htm)
 
 ---

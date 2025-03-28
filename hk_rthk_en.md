@@ -1,3 +1,28 @@
+# Thai PM declares state of emergency in Bangkok
+
+![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797877_1_20250328163912.jpg&q=50)
+![Siam BTS metro station in Bangkok is shuttered in wake of the earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797877_2_20250328163912.jpg&q=60)
+  
+
+Thai authorities have declared a state of emergency in Bangkok, Prime Minister Paetongtarn Shinawatra said on Friday after the city was hit by a major earthquake centred in Myanmar.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm)
+
+---
+
 # Hong Kong Rugby Sevens premieres at Kai Tak
 
 ![More people are expected to be at the stadium later as about 130,000 tickets were sold. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_1_20250328154507.jpg&q=85)
@@ -1428,29 +1453,5 @@ US stocks veered off course on Wednesday after the White House said President Do
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797600-20250327.htm)
-
----
-
-# Trump announces 25pc tariff on non-US-built cars
-
-![US President Donald Trump announces tariffs on auto imports in the Oval Office. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797599_1_20250327060802.jpg&q=90)
-  
-
-US President Donald Trump announced steep tariffs on auto imports Wednesday, in a move set to fuel tensions with trading partners ahead of further promised levies next week.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm)
 
 ---
