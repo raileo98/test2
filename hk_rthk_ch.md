@@ -1,3 +1,50 @@
+# 南韓山林廳稱慶尚北道山火已全部撲滅
+
+![消防員繼續全力撲救持續一星期的山火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797919_1_20250328191549.jpg&q=45)
+  
+
+南韓慶尚道地區山火持續一星期，消防部門今天派出超過120架直升機及近7000名消防員繼續全力撲救。山林廳宣布，慶尚北道的山火已全部撲滅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm)
+
+---
+
+# 國際七人欖球賽開幕　現場激光投影與啦啦隊表演
+
+  
+
+一連三日的香港國際七人欖球賽首度移師啟德主場館舉行，旅發局主席彭耀佳晚上在開幕禮為飛龍點睛，飛龍連繫著寫有旅發局字句的氣球在館場上空盤旋。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm)
+
+---
+
 # 證監會就首次公開招股個案及上市後事宜提出多項優化建議
 
 ![證監會就首次公開招股個案及上市後事宜，對《證券市場上市規則》提出多項優化建議，今日起至5月23日諮詢市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797917_1_20250328190717.jpg&q=90)
@@ -673,7 +720,7 @@
 
 # 1.1億元走私金條案有紀錄最大宗　以7層包裝藏於付運日本貨物
 
-![海關表示，在發現這批懷疑金條前，要打開7層包裝，形容不法分子的收藏手法費盡心思。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797878_1_20250328163004.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797878_1_20250328163004.jpg&q=90)
   
 
 海關破獲懷疑走私金條案件，檢獲共重145公斤，市值高達1.1億港元，是海關有紀錄以來破獲最大宗的走私金條案件，數量比起三星期前破獲的走私金條案，數量超出一倍有多。

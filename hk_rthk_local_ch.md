@@ -1,3 +1,49 @@
+# 有立法會議員倡港鐵累積明年票價加幅回贈乘客或撤銷加幅
+
+  
+
+港鐵宣布，2025/26年度港鐵票價維持不變，有立法會議員建議，將累積到明年的票價加幅向乘客回贈甚至撤銷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm)
+
+---
+
+# 國際七人欖球賽開幕　現場激光投影與啦啦隊表演
+
+  
+
+一連三日的香港國際七人欖球賽首度移師啟德主場館舉行，旅發局主席彭耀佳晚上在開幕禮為飛龍點睛，飛龍連繫著寫有旅發局字句的氣球在館場上空盤旋。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm)
+
+---
+
 # 國泰航空有原定飛往曼谷航班需折返起飛機場
 
   
@@ -267,7 +313,7 @@
 
 # 1.1億元走私金條案有紀錄最大宗　以7層包裝藏於付運日本貨物
 
-![海關表示，在發現這批懷疑金條前，要打開7層包裝，形容不法分子的收藏手法費盡心思。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797878_1_20250328163004.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797878_1_20250328163004.jpg&q=90)
   
 
 海關破獲懷疑走私金條案件，檢獲共重145公斤，市值高達1.1億港元，是海關有紀錄以來破獲最大宗的走私金條案件，數量比起三星期前破獲的走私金條案，數量超出一倍有多。
@@ -1397,54 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797712-20250327.htm)
-
----
-
-# 范鴻齡稱醫管局醫生及護士去年流失率收窄分別為5%及7.2%
-
-![范鴻齡稱，醫管局醫生及護士去年流失率收窄至分別為5%及7.2%。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797710_1_20250327184522.jpg&q=80)
-  
-
-醫管局下午舉行大會，主席范鴻齡表示，醫管局醫生及護士流失率一直在緩慢下降，在過去12個月，截至1月底醫生流失率，由去年同期的5.4%降至5%，過去12個月共聘請了731位全職醫生，另外有339位全職醫生離職，即目前全職醫生共有7204位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797710-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797710-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797710-20250327.htm)
-
----
-
-# 林大輝稱香港需配合國家外交工作　批評美國推行霸權及保護主義
-
-![中國前駐捷克及羅馬尼亞大使霍玉珍指中國與中東歐國家應提升合作規模與質量，加強綠色能源、人工智能等新興領域合作。(施華駿攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_2_20250327202547.jpg&q=80)
-![中國前駐格魯吉亞及塔吉克斯坦大使岳斌指出，新時代中俄關係特點是堅持元首外交戰略引領，通過完備的交往機制，建立長期穩定，互利共贏的夥伴關係。(施華駿攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_3_20250327202547.jpg&q=80)
-  
-
-理工大學舉辦《新時代中國外交的挑戰與機遇》專題講座，理大校董會主席林大輝致辭時表示，中國和平崛起，透過改革開放發展成為世界第二大經濟體系，在國際舞台上的地位越來越重要。在這個新時代，香港必須充分發揮「一國兩制」的優勢，擔當超級聯繫人的角色，配合國家做好外交工作，服務國家外交大局。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm)
 
 ---

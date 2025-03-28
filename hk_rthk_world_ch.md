@@ -1,3 +1,27 @@
+# 南韓山林廳稱慶尚北道山火已全部撲滅
+
+![消防員繼續全力撲救持續一星期的山火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797919_1_20250328191549.jpg&q=45)
+  
+
+南韓慶尚道地區山火持續一星期，消防部門今天派出超過120架直升機及近7000名消防員繼續全力撲救。山林廳宣布，慶尚北道的山火已全部撲滅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm)
+
+---
+
 # 國泰航空有原定飛往曼谷航班需折返起飛機場
 
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797619-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797619-20250327.htm)
-
----
-
-# 特朗普：關稅將促使更多汽車生產轉移到美國
-
-![特朗普對記者表示，關稅將促使更多汽車生產轉移到美國，為政府創造新的收入協助減少國家債務。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797618_1_20250327091202.jpg&q=90)
-  
-
-美國總統特朗普宣布對進口汽車徵收25%關稅，4月2日起生效，4月3日開始徵收。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797618-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797618-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797618-20250327.htm)
 
 ---

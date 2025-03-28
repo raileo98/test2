@@ -1,3 +1,49 @@
+# 有立法會議員倡港鐵累積明年票價加幅回贈乘客或撤銷加幅
+
+  
+
+港鐵宣布，2025/26年度港鐵票價維持不變，有立法會議員建議，將累積到明年的票價加幅向乘客回贈甚至撤銷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm)
+
+---
+
+# 國際七人欖球賽開幕　現場激光投影與啦啦隊表演
+
+  
+
+一連三日的香港國際七人欖球賽首度移師啟德主場館舉行，旅發局主席彭耀佳晚上在開幕禮為飛龍點睛，飛龍連繫著寫有旅發局字句的氣球在館場上空盤旋。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm)
+
+---
+
 # 證監會就首次公開招股個案及上市後事宜提出多項優化建議
 
 ![證監會就首次公開招股個案及上市後事宜，對《證券市場上市規則》提出多項優化建議，今日起至5月23日諮詢市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797917_1_20250328190717.jpg&q=90)
@@ -1385,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797752-20250327.htm)
-
----
-
-# 蔚來擬折讓逾9%配股集資最多40.3億元
-
-![蔚來計劃折讓逾9%配股集資最多40.3億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797751_1_20250327225635.jpg&q=90)
-  
-
-蔚來公布，計劃配售最多近1.37億股A類普通股股份，配股規模較最初公布的約1.2億股有所擴大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797751-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797751-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797751-20250327.htm)
-
----
-
-# 美國2月二手樓臨時買賣合約指數按月轉升2%
-
-![美國2月二手樓臨時買賣合約指數升至72，按月轉升2%，升幅高過預期的1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797749_1_20250327224419.jpg&q=90)
-  
-
-全美不動產協會(NAR)公布，美國2月二手樓臨時買賣合約指數升至72，按月轉升2%，升幅高過預期的1%。按年比較，2月指數下跌3.6%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797749-20250327.htm)
 
 ---

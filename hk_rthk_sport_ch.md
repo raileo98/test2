@@ -1,3 +1,26 @@
+# 國際七人欖球賽開幕　現場激光投影與啦啦隊表演
+
+  
+
+一連三日的香港國際七人欖球賽首度移師啟德主場館舉行，旅發局主席彭耀佳晚上在開幕禮為飛龍點睛，飛龍連繫著寫有旅發局字句的氣球在館場上空盤旋。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm)
+
+---
+
 # 七欖入座率下午明顯增加　球迷盛裝打扮載歌載舞氣氛熱鬧
 
 ![英國隊隊長Harry Glover表示，啟德主場館是到過的最好球場之一。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_2_20250328165144.jpg&q=90)
@@ -1425,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795880-20250315.htm)
-
----
-
-# 英格蘭領隊杜曹：希望英軍能運用英超速度和力量
-
-![杜曹希望英格蘭能夠用到在英超的速度和力量，而不是模仿歐陸打法。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795816_1_20250315071424.jpg&q=90)
-  
-
-英格蘭領隊杜曹公布上任後第一份26人大軍名單，出戰稍後世界盃歐洲區兩場外圍賽。其中佐敦軒達臣和拉舒福特再度獲得徵召。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795816-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795816-20250315.htm](https://news.rthk.hk/rthk/ch/component/k2/1795816-20250315.htm)
 
 ---
