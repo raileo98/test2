@@ -1,6 +1,6 @@
 # 緬甸發生強烈地震　雲南多地和泰國有震感
 
-![緬甸發生強烈地震　雲南多地和泰國有震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797863_1_20250328145521.jpg&q=90)
+![緬甸發生強烈地震，泰國曼谷有震感，有民眾從建築物疏散。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797863_2_20250328150047.jpg&q=90)
   
 
 緬甸發生黎克特制7.3級地震，最大城市仰光震感強烈。中國地震台網測定，地震強度是7.9級。央視新聞報道，雲南多地和泰國全國有震感，曼谷震感持續數分鐘，民眾紛紛離開高層建築物，湧到街上。

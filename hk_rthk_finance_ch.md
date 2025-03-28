@@ -1,3 +1,27 @@
+# 港交所：致力提供ESG框架和標準　幫助上市公司實現淨零排放
+
+![陳翊庭指出，港交所是較早強制要求披露氣候資訊的交易所之一。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797864_1_20250328145623.jpg&q=75)
+  
+
+港交所行政總裁陳翊庭表示，交易所一直致力提供ESG框架和標準，幫助上市公司實現淨零排放目標及吸引資金。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797864-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797864-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797864-20250328.htm)
+
+---
+
 # 韓股急挫近2%收市　本周累跌逾3%
 
 ![韓股本周累跌逾3%，結束3星期升勢。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797862_1_20250328143936.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797700-20250327.htm)
-
----
-
-# 祁斌：香港資本市場是帶動解決財政、房地產等問題重要抓手
-
-![祁斌又認為，要優化內地與香港金融監管協調機制，促進港股和A股市場良性互動及協同成長。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797707_1_20250327192801.jpg&q=90)
-  
-
-中聯辦副主任祁斌表示，近期香港經濟社會發展良好，認為要搞好香港金融，關鍵要把資本市場發展好；香港資本市場不但對鞏固提升香港國際金融中心地位至關重要，亦是帶動解決消費、財政、房地產等各方面問題、推動香港由治及興重要抓手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797707-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797707-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797707-20250327.htm)
 
 ---
