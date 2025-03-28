@@ -1,3 +1,51 @@
+# 菲律賓旅客走私63隻瀕危龜隻被判監30個月
+
+![部銹檢獲的瀕危龜隻。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797938_1_20250328221255.jpg&q=85)
+  
+
+一名菲律賓籍男子因走私63隻瀕危龜隻到香港，違反《保護瀕危動植物物種條例》，在區域法院被裁定罪名成立，判處監禁30個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm)
+
+---
+
+# 林定國於北京講座分享「一國兩制」檢控及維護公共利益工作
+
+![林定國（左）與最高人民法院副院長茅仲華（右）在專題講座上合照。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797937_1_20250328221222.jpg&q=90)
+  
+
+正在北京的律政司司長林定國出席最高人民檢察院轄下的國家檢察官學院講座，向在場及線上過千名與會者分享「一國兩制」下律政司在檢控及維護公共利益方面的工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm)
+
+---
+
 # 54歲女子李忠離開觀塘雲漢街住所後失蹤　警方呼籲提供消息
 
 ![失蹤女子身高約1.63米，體重約55公斤，瘦身材，尖面型，黃皮膚及蓄短黑髮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797936_1_20250328215419.jpg&q=90)

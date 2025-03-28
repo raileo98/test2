@@ -1,3 +1,27 @@
+# 林定國於北京講座分享「一國兩制」檢控及維護公共利益工作
+
+![林定國（左）與最高人民法院副院長茅仲華（右）在專題講座上合照。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797937_1_20250328221222.jpg&q=90)
+  
+
+正在北京的律政司司長林定國出席最高人民檢察院轄下的國家檢察官學院講座，向在場及線上過千名與會者分享「一國兩制」下律政司在檢控及維護公共利益方面的工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm)
+
+---
+
 # 建造業「油漆工」「砌磚工」訂定灣區標準推展「一試多證」安排
 
 ![當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797934_1_20250328215518.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797574-20250326.htm)
-
----
-
-# 中國駐韓使館：中方黃海深海漁業養殖設施不影響韓方權益
-
-![使館發言人說，中方做法不違反《中韓漁業協定》，也不影響韓方依據《協定》享有的權益。（中國駐南韓大使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797557_1_20250326201302.jpg&q=90)
-  
-
-中國駐南韓大使館發言人說，近日南韓個別媒體和有關方面就中方黃海深海漁業養殖設施表達關切，其中很多說法不符合事實。事實是，中方設置的相關設施是深海漁業養殖設施，位於中國近海，是中方對近海海洋資源的合理利用。中方做法符合中國國內法和國際法，不違反《中韓漁業協定》，也不影響韓方依據《協定》享有的權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm)
 
 ---

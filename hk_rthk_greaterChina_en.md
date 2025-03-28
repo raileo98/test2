@@ -170,7 +170,7 @@ At the official opening of the Boao Forum for Asia on Thursday, Vice Premier Din
 
 # Xi meets Bangladesh leader Yunus in Beijing
 
-![Foreign Minister Wang Yi (right) met Bangladesh leader Muhammad Yunus on the sidelines of the UN General Assembly in New York, September 25, 2024. File photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797825_1_20250328114316.jpg&q=90)
+![President Xi Jinping shakes hands with the Bangladeshi leader Muhammad Yunus. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797825_2_20250328222006.jpg&q=90)
   
 
 President Xi Jinping met Bangladesh leader Muhammad Yunus in Beijing on Friday, state media reported, as Dhaka's relations with neighbouring India remains shaky.

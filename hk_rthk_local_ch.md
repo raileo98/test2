@@ -1,3 +1,75 @@
+# 入境處與警方拘捕7名非法勞工4名僱主及3名逾期居留人士
+
+![懷疑非法勞工在行動中被捕。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797939_1_20250328222251.jpg&q=85)
+  
+
+入境處本星期一起，連續四日在全港多區展開反非法勞工行動，又聯同警方執法，共拘捕7名懷疑非法勞工、4名涉嫌聘用非法勞工的僱主及3名逾期逗留人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm)
+
+---
+
+# 菲律賓旅客走私63隻瀕危龜隻被判監30個月
+
+![部銹檢獲的瀕危龜隻。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797938_1_20250328221255.jpg&q=85)
+  
+
+一名菲律賓籍男子因走私63隻瀕危龜隻到香港，違反《保護瀕危動植物物種條例》，在區域法院被裁定罪名成立，判處監禁30個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm)
+
+---
+
+# 林定國於北京講座分享「一國兩制」檢控及維護公共利益工作
+
+![林定國（左）與最高人民法院副院長茅仲華（右）在專題講座上合照。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797937_1_20250328221222.jpg&q=90)
+  
+
+正在北京的律政司司長林定國出席最高人民檢察院轄下的國家檢察官學院講座，向在場及線上過千名與會者分享「一國兩制」下律政司在檢控及維護公共利益方面的工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm)
+
+---
+
 # 54歲女子李忠離開觀塘雲漢街住所後失蹤　警方呼籲提供消息
 
 ![失蹤女子身高約1.63米，體重約55公斤，瘦身材，尖面型，黃皮膚及蓄短黑髮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797936_1_20250328215419.jpg&q=90)
@@ -1376,77 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797731-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797731-20250327.htm)
-
----
-
-# 陳子達先後與北京廣州及深圳海關交流並參觀當地設施
-
-![陳子達（中）參觀北京大興國際機場。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797726_1_20250327193953.jpg&q=90)
-  
-
-香港海關關長陳子達昨日在北京拜訪國家海關總署，與海關總署署長孫梅君會面，雙方就深化內地與香港海關業務合作等事宜交換意見，並參觀了海關設施及北京大興國際機場，了解當地的通關流程以及如何運用科技提升通關效率等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm)
-
----
-
-# 港澳辦網站轉載報道指長和出售港口不符商業邏輯
-
-![中共中央港澳辦、國務院港澳辦轉載報道，內容提及長和計劃出售巴拿馬運河港口等資產。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797725_1_20250327192925.jpg&q=75)
-  
-
-中共中央港澳辦、國務院港澳辦在網站轉載大公文匯報報道，標題為《急售運河港口予美資 專家質疑「非一般買賣」 「企業面對霸權霸凌，應與國家站在一起」》，內容提及長和計劃出售巴拿馬運河港口等資產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm)
-
----
-
-# 天文台：市區氣溫明日稍後由最高約29度顯著降至周六約17度
-
-![天文台：市區氣溫明日稍後由最高約29度顯著降至周六約17度](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797723_1_20250327191207.jpg&q=90)
-  
-
-天文台表示，位於華中的低壓槽會逐漸發展為一道冷鋒，並會在明日移近華南沿岸。本港明日有幾陣驟雨，日間短暫時間有陽光及炎熱。隨著冷鋒在明日稍後橫過廣東沿岸，屆時局部地區亦可能有雷暴。受隨後的東北季候風影響，市區氣溫會於明日稍後由最高約29度顯著下降至星期六約17度，新界再低兩三度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797723-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797723-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797723-20250327.htm)
 
 ---
