@@ -1,3 +1,26 @@
+# 陳翊庭：海外投資者對中國資產興趣增加
+
+  
+
+港交所行政總裁陳翊庭表示，今年初出席瑞士達沃斯經濟論壇，亦剛結束訪問美國，緊接亦會到北京、中東同歐洲做推廣。正在海南出席博鰲亞洲論壇的陳翊庭說，作為超級聯繫人，以及鞏固香港國際金融中心地位，要不時與世界各地朋友見面，介紹香港情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm)
+
+---
+
 # 分析料配股集資潮持續　汽車及科技股集資壓力較大
 
 ![溫傑預料大市仍未見今年高位，估計配股潮仍會持續，除了汽車股，科技股亦有較大的集資壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797852_1_20250328135547.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm)
-
----
-
-# 新世界發展：加快香港與內地市場資金回籠
-
-![新世界發展稱啟德跑道區住宅項目柏蔚森暫套現近40億元；北角皇都套現逾33.7億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797691_1_20250327160602.jpg&q=90)
-  
-
-新世界發展表示，將把握機遇，加快香港與內地市場資金回籠。集團與遠東發展合作開發的啟德跑道區住宅項目柏蔚森，截至本周一合共售出約540個單位，套現近40億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797691-20250327.htm)
 
 ---

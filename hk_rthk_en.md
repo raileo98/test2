@@ -1,3 +1,27 @@
+# Myanmar junta chief courts region in rare Thai trip
+
+![Myanmar's military chief Min Aung Hlaing marks Armed Forces Day in Naypyidaw on Thursday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797854_1_20250328135837.jpg&q=90)
+  
+
+Myanmar's junta chief Min Aung Hlaing will join a regional leaders' summit in Thailand next week where he is seeking high-level bilateral meetings, said three sources with direct knowledge, in a rare visit to a Southeast Asian country since seizing power in coup that led to a civil war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm)
+
+---
+
 # Dream run ends for remarkable Eala
 
 ![Alexandra Eala holds her head high even after Jessica Pegula ends her remarkable Miami Open run at the Hard Rock Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797850_1_20250328133508.jpg&q=90)
@@ -1423,29 +1447,5 @@ The winner of this year's expanded Club World Cup in the United States will rece
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797561-20250326.htm)
-
----
-
-# Online applications set for healthcare bills waivers
-
-![The Hospital Authority’s chief manager of allied health, Priscilla Poon, says there are ways to ensure the expanded fee waiver mechanism will not overwhelm medical social workers. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797528_1_20250326180228.jpg&q=90)
-  
-
-People who have financial difficulties would be able to apply online for waivers of healthcare charges in a few months' time.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797528-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797528-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797528-20250326.htm)
 
 ---

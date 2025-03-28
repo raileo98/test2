@@ -1,3 +1,27 @@
+# 普京：可討論在烏克蘭實行臨時管理的可能性
+
+![普京說，可以討論在烏克蘭實行臨時管理的可能性，以便在烏克蘭舉行民主選舉。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797855_1_20250328141144.jpg&q=90)
+  
+
+俄羅斯總統普京說，可以在聯合國主持下，與美國、歐洲以及俄羅斯盟友共同討論在烏克蘭實行臨時管理的可能性，以便在烏克蘭舉行民主選舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797855-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797855-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797855-20250328.htm)
+
+---
+
 # 赫格塞思：美菲必須並肩作戰　共同應對來自中國的威脅
 
 ![赫格塞思重申美國對與菲律賓共同防禦條約的堅定承諾。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797849_1_20250328131740.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797557-20250326.htm)
-
----
-
-# 外交部：澳門特區將切實發揮中國與葡語國家「精準聯繫人」作用
-
-![外交部稱，澳門特區將切實發揮中國與葡語國家「精準聯繫人」的作用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797554_1_20250326195216.jpg&q=80)
-  
-
-在北京，外交部發言人郭嘉昆說，相信澳門特區將充分發揮「一國兩制」制度優勢，切實發揮作為中國與葡語國家「精準聯繫人」的作用，推動中國同葡語國家在經貿、金融、旅遊、高科技等領域合作取得更多成果。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797554-20250326.htm)
 
 ---

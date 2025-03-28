@@ -1,3 +1,26 @@
+# 陳翊庭：海外投資者對中國資產興趣增加
+
+  
+
+港交所行政總裁陳翊庭表示，今年初出席瑞士達沃斯經濟論壇，亦剛結束訪問美國，緊接亦會到北京、中東同歐洲做推廣。正在海南出席博鰲亞洲論壇的陳翊庭說，作為超級聯繫人，以及鞏固香港國際金融中心地位，要不時與世界各地朋友見面，介紹香港情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm)
+
+---
+
 # 港股下午初段跌逾百點
 
 ![恒生指數較早時報23409點，跌169點，跌幅0.72%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797848_1_20250328131339.jpg&q=40)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797669-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797669-20250327.htm)
-
----
-
-# 首3個月135宗諾如病毒爆發　徐樂堅料病毒活躍期開始完結
-
-![徐樂堅說，隨著進入夏季，諾如病毒活躍期開始完結，相信相關風險會慢慢降低。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797668_1_20250327143019.jpg&q=80)
-  
-
-衞生防護中心總監徐樂堅表示，諾如病毒是冬季常見感染，去年12月開始發現香港諾如病毒活躍程度上升，今年首3個月本港有135宗諾如病毒爆發個案，當中三分之一涉及學校爆發。隨著進入夏季，諾如病毒活躍期開始完結，相信相關風險會慢慢降低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797668-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797668-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797668-20250327.htm)
 
 ---

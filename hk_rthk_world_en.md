@@ -1,3 +1,27 @@
+# Myanmar junta chief courts region in rare Thai trip
+
+![Myanmar's military chief Min Aung Hlaing marks Armed Forces Day in Naypyidaw on Thursday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797854_1_20250328135837.jpg&q=90)
+  
+
+Myanmar's junta chief Min Aung Hlaing will join a regional leaders' summit in Thailand next week where he is seeking high-level bilateral meetings, said three sources with direct knowledge, in a rare visit to a Southeast Asian country since seizing power in coup that led to a civil war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm)
+
+---
+
 # Rallies set as Duterte marks 80th birthday in prison
 
 ![Relatives of drug war and extrajudicial killing victims in Quezon City watch a live telecast of the initial appearance of Rodrigo Duterte at the International Criminal Court in the Hague. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797846_1_20250328130849.jpg&q=80)
@@ -1413,29 +1437,5 @@ Palestinian president Mahmoud Abbas's Fatah movement called on its Islamist riva
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796966-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796966-20250322.htm)
-
----
-
-# Four killed in South Korea wildfire
-
-![Helicopters battle the wildfire that broke out in the southeastern county of Sancheong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796964_1_20250322212803.jpg&q=90)
-  
-
-At least three firefighters and a public servant have been killed in a wildfire in South Korea, prompting the government to declare a state of emergency in southeastern regions, authorities said on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796964-20250322.htm)
 
 ---

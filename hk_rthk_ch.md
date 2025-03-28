@@ -1,3 +1,74 @@
+# 普京：可討論在烏克蘭實行臨時管理的可能性
+
+![普京說，可以討論在烏克蘭實行臨時管理的可能性，以便在烏克蘭舉行民主選舉。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797855_1_20250328141144.jpg&q=90)
+  
+
+俄羅斯總統普京說，可以在聯合國主持下，與美國、歐洲以及俄羅斯盟友共同討論在烏克蘭實行臨時管理的可能性，以便在烏克蘭舉行民主選舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797855-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797855-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797855-20250328.htm)
+
+---
+
+# 陳翊庭：海外投資者對中國資產興趣增加
+
+  
+
+港交所行政總裁陳翊庭表示，今年初出席瑞士達沃斯經濟論壇，亦剛結束訪問美國，緊接亦會到北京、中東同歐洲做推廣。正在海南出席博鰲亞洲論壇的陳翊庭說，作為超級聯繫人，以及鞏固香港國際金融中心地位，要不時與世界各地朋友見面，介紹香港情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm)
+
+---
+
+# 分析料配股集資潮持續　汽車及科技股集資壓力較大
+
+![溫傑預料大市仍未見今年高位，估計配股潮仍會持續，除了汽車股，科技股亦有較大的集資壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797852_1_20250328135547.jpg&q=90)
+  
+
+接連有汽車股配股集資，比亞迪股份、小米、蔚來在今個月合共集資逾901億元，當中，蔚來集資略多於40億元，遠低於其餘兩家車企的各自400幾億元，三家公司配股作價折讓幅度全部都不足一成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797852-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797852-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797852-20250328.htm)
+
+---
+
 # 中國中信去年盈利升逾1%
 
 ![中國中信去年盈利582億元人民幣，按年升1.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797847_1_20250328130950.jpg&q=90)
