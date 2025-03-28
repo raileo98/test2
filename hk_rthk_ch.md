@@ -1,3 +1,50 @@
+# 陳茂波稱香港可助彌補綠色項目資金缺口　尋求創新融資解決方案
+
+  
+
+財政司司長陳茂波表示，香港作為國際金融中心及綠色金融的領導者，可以協助彌補綠色項目的資金缺口，提到香港的綠色債券發行量，連續7年位居亞洲市場第一，去年市佔率就達到大約45%。同時香港正尋求創新融資解決方案，例如代幣化綠色債券和基建融資證券化，以吸引新投資者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm)
+
+---
+
+# 日股曾失守37000點　半日跌逾2%
+
+![日經指數一度失守37000點水平，半日收報37011點，跌788點，跌幅2.09%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797811_1_20250328103344.jpg&q=90)
+  
+
+日股沽壓大，日經指數一度失守37000點水平，低見36961點，創兩星期新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797811-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797811-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797811-20250328.htm)
+
+---
+
 # 石破茂：特朗普政府對進口汽車徵稅25%將衝擊日本經濟
 
 ![石破茂承諾將採取全面措施保護日本就業。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797809_1_20250328100604.jpg&q=90)
@@ -1387,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797741-20250327.htm)
-
----
-
-# 國防部：日方最沒有資格拿台灣說事
-
-![吳謙指出，台灣問題不關日本甚麼事，日方也最沒有資格拿台灣說事。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797740_1_20250327212745.jpg&q=90)
-  
-
-在北京，國防部新聞發言人吳謙指出，台灣問題不關日本甚麼事，日方也最沒有資格拿台灣說事。他說，只有堅持一個中國原則、堅決反對「台獨」，台海和平穩定才有保障。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm)
-
----
-
-# 美國上周新申領失業援助人數減少1千人
-
-![美國上周新申領失業援助人數減少1千人，降至22.4萬人，市場原先預期會維持不變。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797739_1_20250327211901.jpg&q=85)
-  
-
-美國上周新申領失業援助人數減少1千人，降至22.4萬人，市場原先預期會維持不變；4周平均新申領失業援助人數減少4750人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797739-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797739-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797739-20250327.htm)
 
 ---

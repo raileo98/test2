@@ -1,3 +1,52 @@
+# Trump pulls UN envoy nomination amid Congress fears
+
+![Donald Trump with US Representative Elise Stefanik last year. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797812_1_20250328104043.jpg&q=90)
+  
+
+US President Donald Trump withdrew right-wing firebrand Elise Stefanik as his nominee for US ambassador to the United Nations as Republicans fear for their narrow majority in Congress.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797812-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797812-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797812-20250328.htm)
+
+---
+
+# Djokovic, teenager Mensik make Miami Open semi-finals
+
+![Novak Djokovic became the oldest player to make an ATP Masters 1000 semi-final. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797810_1_20250328102853.jpg&q=90)
+![Czech teenager Jakub Mensik also made it to the last four at the Miami Open. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797810_2_20250328102853.jpg&q=90)
+  
+
+Novak Djokovic turned on the style to take his place in the last four of the Miami Open with an impressive 6-3, 7-6 win over American Sebastian Korda, becoming the oldest man to reach a Masters 1000 semi-final.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm)
+
+---
+
 # New NBA All-Star Game format was 'a miss', says Silver
 
 ![The NBA said the four-team mini-tournament for this year's All-Star Game will be scrapped. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797807_1_20250328094751.jpg&q=85)
@@ -1391,53 +1440,5 @@ The organiser of Art Basel Hong Kong said on Wednesday this year's edition aims 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm)
-
----
-
-# 'Youngsters respond positively to govt youth schemes'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797448_1_20250326113912.jpg&q=75)
-  
-
-Secretary for Home and Youth Affairs Alice Mak said there has been a strong response to various government youth programmes.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797448-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797448-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797448-20250326.htm)
-
----
-
-# 'All systems go at Kai Tak for rugby showcase'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
-  
-
-The Kai Tak Sports Park said it's ready to host the Hong Kong Rugby Sevens tournament later this week.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm)
 
 ---

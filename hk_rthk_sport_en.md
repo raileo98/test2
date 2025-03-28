@@ -1,3 +1,28 @@
+# Djokovic, teenager Mensik make Miami Open semi-finals
+
+![Novak Djokovic became the oldest player to make an ATP Masters 1000 semi-final. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797810_1_20250328102853.jpg&q=90)
+![Czech teenager Jakub Mensik also made it to the last four at the Miami Open. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797810_2_20250328102853.jpg&q=90)
+  
+
+Novak Djokovic turned on the style to take his place in the last four of the Miami Open with an impressive 6-3, 7-6 win over American Sebastian Korda, becoming the oldest man to reach a Masters 1000 semi-final.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm)
+
+---
+
 # New NBA All-Star Game format was 'a miss', says Silver
 
 ![The NBA said the four-team mini-tournament for this year's All-Star Game will be scrapped. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797807_1_20250328094751.jpg&q=85)
@@ -1412,29 +1437,5 @@ The Hong Kong, China men’s rugby team on Wednesday said they are looking forwa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796409-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796409-20250319.htm)
-
----
-
-# Nanjing to finally host athletics championships
-
-![Armand Mondo Duplantis makes a run for the pole vault event during the Mondo Classic in Uppsala, Sweden, this month. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796377_1_20250319105616.jpg&q=90)
-  
-
-Armand 'Mondo' Duplantis headlines a stellar cast in Nanjing for a world indoor athletics championships delayed three times by the Covid-19 pandemic.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796377-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796377-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796377-20250319.htm)
 
 ---

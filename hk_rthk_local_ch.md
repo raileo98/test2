@@ -1,3 +1,26 @@
+# 陳茂波稱香港可助彌補綠色項目資金缺口　尋求創新融資解決方案
+
+  
+
+財政司司長陳茂波表示，香港作為國際金融中心及綠色金融的領導者，可以協助彌補綠色項目的資金缺口，提到香港的綠色債券發行量，連續7年位居亞洲市場第一，去年市佔率就達到大約45%。同時香港正尋求創新融資解決方案，例如代幣化綠色債券和基建融資證券化，以吸引新投資者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm)
+
+---
+
 # 七欖開鑼　九龍城餐廳稱人流增兩至三成將延長營業時間
 
 ![九龍城餐廳東主指感受到啟德體育園周邊的生意有增長，早前在測試賽及開幕禮時，已見到九龍城區內人流明顯增加大約兩至三成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797806_1_20250328101357.jpg&q=70)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797629-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797629-20250327.htm)
-
----
-
-# 差估署：本港2月樓價指數按月跌0.87%　創逾8年半新低
-
-![本港上月住宅樓價連跌3個月，創逾8年半新低。  （港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797627_1_20250327102342.jpg&q=85)
-  
-
-本港上月住宅樓價連跌3個月，創逾8年半新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797627-20250327.htm)
 
 ---
