@@ -1,3 +1,27 @@
+# Vance accuses Denmark of underinvesting in Greenland
+
+![US Vice President JD Vance demanded Denmark change its approach as President Trump pushes to take over the Danish territory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797969_1_20250329062730.jpg&q=90)
+  
+
+US Vice President JD Vance accused Denmark on Friday of not having done enough to protect Greenland when he visited the resource-rich Danish territory coveted by US President Donald Trump.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm)
+
+---
+
 # Quake causes injuries and property damage in Ruili
 
 ![Chinese residents flee as building debris shaken loose by the earthquake in Myanmar falls. Photo: taken from online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797900_1_20250328181242.jpg&q=90)
@@ -1416,29 +1440,5 @@ New Canadian Prime Minister Mark Carney on Sunday called a snap election for Apr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797074-20250324.htm)
-
----
-
-# Hamas official killed as Gaza death toll passes 50,000
-
-![Palestinians attend the funeral of Hamas political leader Salah al-Bardaweel. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797059_1_20250323233123.jpg&q=80)
-  
-
-An Israeli airstrike in southern Gaza killed a Hamas political leader, Salah al-Bardaweel, on Sunday, the militant group said, as Palestinian officials put the death toll from nearly 18 months of conflict at over 50,000.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797059-20250324.htm)
 
 ---

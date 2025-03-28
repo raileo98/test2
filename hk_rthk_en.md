@@ -1,3 +1,27 @@
+# Vance accuses Denmark of underinvesting in Greenland
+
+![US Vice President JD Vance demanded Denmark change its approach as President Trump pushes to take over the Danish territory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797969_1_20250329062730.jpg&q=90)
+  
+
+US Vice President JD Vance accused Denmark on Friday of not having done enough to protect Greenland when he visited the resource-rich Danish territory coveted by US President Donald Trump.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm)
+
+---
+
 # Police arrest three more in Yuen Long murder case
 
 ![The case, in which a 24-year-old man was killed and a 28-year-old injured, will be heard at Tuen Mun Magistrates’ Court. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797963_1_20250329051008.jpg&q=90)
@@ -1428,29 +1452,5 @@ LeBron James tipped in a buzzer-beating rebound with 0.1 seconds remaining as th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797649-20250327.htm)
-
----
-
-# 'Winter flu season over but summer poses new threat'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797642_1_20250327113342.jpg&q=90)
-  
-
-The Centre for Health Protection (CHP) says the winter influenza season has come to an end after about 11 weeks, but people should next get jabs to protect themselves against a possible summer flu season.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797642-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797642-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797642-20250327.htm)
 
 ---

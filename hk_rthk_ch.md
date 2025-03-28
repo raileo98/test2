@@ -1,5 +1,6 @@
 # 巴西足總宣布解僱國家隊教練杜利華
 
+![巴西足總宣布解僱國家隊教練杜利華。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797972_1_20250329070202.jpg&q=90)
   
 
 巴西足總宣布解僱國家隊教練杜利華。
@@ -23,6 +24,7 @@
 
 # 祖高域晉身邁亞密網賽男單決賽
 
+![祖高域以37歲10個月，成為ATP1000分賽事，年齡最大的決賽球手。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797971_1_20250329070045.jpg&q=90)
   
 
 邁亞密網球公開賽，37歲的祖高域晉身男單決賽，只差一步就能拿下職業生涯第100個ATP錦標。
