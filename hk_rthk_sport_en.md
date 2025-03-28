@@ -1,6 +1,6 @@
 # Hong Kong victorious on opening day of Rugby Sevens
 
-![The Hong Kong, China men's squad (in white) comfortably saw off the national team 31-7 in the Melrose Claymores opener. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797928_1_20250328205342.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797928_1_20250328205342.jpg&q=90)
   
 
 There were winning starts for the Hong Kong, China men's and women's squads on Friday as the Rugby Sevens got underway to much fanfare at the Kai Tak Sports Park.
