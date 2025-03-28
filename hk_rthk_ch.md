@@ -1,3 +1,26 @@
+# 西藏稱對外開放步伐會愈來愈快　為遊客提供更多便利條件
+
+  
+
+今年是西藏自治區成立60周年，國新辦在拉薩市舉行新聞發布會，講解西藏人權事業的發展與進步。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm)
+
+---
+
 # 國泰航空有原定飛往曼谷航班需折返起飛機場
 
   

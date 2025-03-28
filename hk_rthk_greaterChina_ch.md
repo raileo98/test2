@@ -1,3 +1,26 @@
+# 西藏稱對外開放步伐會愈來愈快　為遊客提供更多便利條件
+
+  
+
+今年是西藏自治區成立60周年，國新辦在拉薩市舉行新聞發布會，講解西藏人權事業的發展與進步。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm)
+
+---
+
 # 習近平：希望外資企業打消疑慮　放手到中國發展
 
 ![國家主席習近平在北京人民大會堂會見國際工商界代表。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797905_1_20250328175350.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797537-20250326.htm)
-
----
-
-# 人才服務辦公室小紅書官方平台　提供實用資訊及提醒分辨假消息
-
-![孫玉菡在片段粉墨登場，介紹兩位虛擬代言人物。（社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797536_1_20250326182059.jpg&q=90)
-  
-
-香港人才服務辦公室在小紅書設立官方平台，協助人才融入香港，提醒他們分清虛假消息及謠言，以及向他們提供實用的生活攻略等資訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797536-20250326.htm)
 
 ---
