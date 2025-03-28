@@ -48,6 +48,7 @@
 
 # 有立法會議員倡港鐵累積明年票價加幅回贈乘客或撤銷加幅
 
+![有立法會議員建議，港鐵將累積到明年的票價加幅向乘客回贈甚至撤銷。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797920_1_20250328204035.jpg&q=90)
   
 
 港鐵宣布，2025/26年度港鐵票價維持不變，有立法會議員建議，將累積到明年的票價加幅向乘客回贈甚至撤銷。
@@ -71,7 +72,6 @@
 
 # 國際七人欖球賽開幕　現場激光投影與啦啦隊表演
 
-![飛龍連繫著寫有旅發局字句的氣球在館場上空盤旋。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_1_20250328201031.jpg&q=40)
 ![南韓冠軍級棒球隊啦啦隊在南看台表演應援舞。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_2_20250328201031.jpg&q=85)
 ![現場上演長約3分鐘的激光投影。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_3_20250328201031.jpg&q=85)
   
@@ -97,6 +97,7 @@
 
 # 國泰航空有原定飛往曼谷航班需折返起飛機場
 
+![今日由香港飛往曼谷的CX751航班已折返香港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797912_1_20250328203913.jpg&q=80)
   
 
 國泰航空表示，因應緬甸及泰國部分地區受地震影響，今日由香港飛往曼谷的CX751航班已折返香港，新加坡飛往曼谷的CX630航班亦已折返新加坡。

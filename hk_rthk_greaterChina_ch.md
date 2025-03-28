@@ -1,3 +1,27 @@
+# 台中新光三越百貨上月爆炸事故　調查報告判定是天然氣爆炸
+
+![台中新光三越百貨爆炸事故上月13日發生，造成5死37傷。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797927_1_20250328204623.jpg&q=80)
+  
+
+上月造成5死37傷的台中新光三越百貨爆炸事故，消防部門公布調查報告，判定發生原因是天然氣爆炸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797927-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797927-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797927-20250328.htm)
+
+---
+
 # 李強主持國務院會議　強調堅決遏制新增拖欠　提升口岸通關便利度
 
 ![國務院總理李強主持召開國務院常務會議。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797925_1_20250328203647.jpg&q=90)
@@ -19,30 +43,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm)
-
----
-
-# 國常會：做好跨境電商綜合試驗區擴圍工作　優化口岸開放布局
-
-![李強主持國常會，提出要推動跨境電商綜合試驗區建設提檔升級。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797924_1_20250328202621.jpg&q=90)
-  
-
-總理李強主持召開國務院常務會議，審議通過「加快加力清理拖欠企業帳款行動方案」、「關於優化口岸開放布局的若干意見」，同時要求做好新一輪跨境電商綜合試驗區擴圍工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm)
 
 ---
 
@@ -72,6 +72,7 @@
 
 # 西藏稱對外開放步伐會愈來愈快　為遊客提供更多便利條件
 
+![徐志濤指當局會根據西藏接待條件和基礎設施的變化，為外國遊客提供更便利條件。（葉燿坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797915_1_20250328203949.jpg&q=80)
   
 
 今年是西藏自治區成立60周年，國新辦在拉薩市舉行新聞發布會，講解西藏人權事業的發展與進步。

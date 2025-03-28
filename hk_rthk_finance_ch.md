@@ -1,9 +1,9 @@
-# 國常會：做好跨境電商綜合試驗區擴圍工作　優化口岸開放布局
+# 美國2月核心PCE按月升0.4%　略高於預期
 
-![李強主持國常會，提出要推動跨境電商綜合試驗區建設提檔升級。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797924_1_20250328202621.jpg&q=90)
+![美國2月撇除食品和能源的核心PCE物價指數，按月升0.4%，略高於預期；按年升2.8%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797926_1_20250328204234.jpg&q=90)
   
 
-總理李強主持召開國務院常務會議，審議通過「加快加力清理拖欠企業帳款行動方案」、「關於優化口岸開放布局的若干意見」，同時要求做好新一輪跨境電商綜合試驗區擴圍工作。
+美國2月個人消費開支(PCE)物價指數按月升0.3%，升幅與1月相同，符合市場預期，按年升2.5%。
 
   
 
@@ -11,14 +11,38 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1797926-20250328.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797926-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797926-20250328.htm)
+
+---
+
+# 李強主持國務院會議　強調堅決遏制新增拖欠　提升口岸通關便利度
+
+![國務院總理李強主持召開國務院常務會議。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797925_1_20250328203647.jpg&q=90)
+  
+
+國務院總理李強主持召開國務院常務會議，聽取推進跨境電子商務綜合試驗區建設匯報，部署加快加力清理拖欠企業賬款工作，研究推動農機裝備高質量發展有關措施，審議通過《關於優化口岸開放佈局的若干意見》。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm)
 
 ---
 
@@ -72,6 +96,7 @@
 
 # 有立法會議員倡港鐵累積明年票價加幅回贈乘客或撤銷加幅
 
+![有立法會議員建議，港鐵將累積到明年的票價加幅向乘客回贈甚至撤銷。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797920_1_20250328204035.jpg&q=90)
   
 
 港鐵宣布，2025/26年度港鐵票價維持不變，有立法會議員建議，將累積到明年的票價加幅向乘客回贈甚至撤銷。
@@ -95,7 +120,6 @@
 
 # 國際七人欖球賽開幕　現場激光投影與啦啦隊表演
 
-![飛龍連繫著寫有旅發局字句的氣球在館場上空盤旋。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_1_20250328201031.jpg&q=40)
 ![南韓冠軍級棒球隊啦啦隊在南看台表演應援舞。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_2_20250328201031.jpg&q=85)
 ![現場上演長約3分鐘的激光投影。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_3_20250328201031.jpg&q=85)
   
@@ -145,6 +169,7 @@
 
 # 國泰航空有原定飛往曼谷航班需折返起飛機場
 
+![今日由香港飛往曼谷的CX751航班已折返香港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797912_1_20250328203913.jpg&q=80)
   
 
 國泰航空表示，因應緬甸及泰國部分地區受地震影響，今日由香港飛往曼谷的CX751航班已折返香港，新加坡飛往曼谷的CX630航班亦已折返新加坡。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797775-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797775-20250328.htm)
-
----
-
-# 德法股市連跌兩日　創兩星期新低
-
-![德法股市同樣連跌兩日，創兩星期新低。德國DAX指數收報22678點，跌幅0.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797774_1_20250328054612.jpg&q=90)
-  
-
-歐洲股市大多偏軟，受到汽車股下跌拖累，美國總統特朗普宣布對所有進口汽車徵收關稅，加劇市場對全球經濟放緩的擔憂。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797774-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797774-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797774-20250328.htm)
 
 ---
