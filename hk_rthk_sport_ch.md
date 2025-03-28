@@ -1,3 +1,26 @@
+# 「超級三月」帶動旅客人數升　羅淑佩稱重視為旅客打造優質體驗
+
+  
+
+文化體育及旅遊局局長羅淑佩認為「香港盛匯超級三月」聚焦體育、藝術及旅遊活動，已成功帶動旅客人數顯著上升，但當局並非單純追求人數，更重視為旅客打造優質體驗，其中一項新策略是善用海岸線和離島，重塑旅遊產業面貌，吸引高消費旅客來港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm)
+
+---
+
 # 七欖開鑼　九龍城餐廳稱人流增兩至三成將延長營業時間
 
 ![九龍城餐廳東主指感受到啟德體育園周邊的生意有增長，早前在測試賽及開幕禮時，已見到九龍城區內人流明顯增加大約兩至三成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797806_1_20250328101357.jpg&q=70)
@@ -1419,32 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795542-20250313.htm)
-
----
-
-# 歐聯皇馬互射12碼淘汰馬體會晉級8強　維拉與阿仙奴均晉級
-
-![皇馬互射12碼，以4:2淘汰馬體會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795498_1_20250313072106.jpg&q=85)
-![阿仙奴以總分9:3淘汰燕豪芬晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795498_2_20250313072106.jpg&q=90)
-![多蒙特成功逆轉，反勝里爾晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795498_3_20250313072106.jpg&q=90)
-![維拉兩回合計大勝6:1殺入8強。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795498_4_20250313072106.jpg&q=85)
-  
-
-歐聯16強次回合馬德里體育會法定時間1:0擊敗皇家馬德里，干拿加歷查開賽不到1分鐘射入全場唯一入球。兩回合計打和2:2，加時亦無法再取得入球，要互射12碼分勝負。皇家馬德里4:2淘汰馬體會，將同阿仙奴爭入8強。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795498-20250313.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795498-20250313.htm](https://news.rthk.hk/rthk/ch/component/k2/1795498-20250313.htm)
 
 ---

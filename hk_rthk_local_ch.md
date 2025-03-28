@@ -1,3 +1,26 @@
+# 「超級三月」帶動旅客人數升　羅淑佩稱重視為旅客打造優質體驗
+
+  
+
+文化體育及旅遊局局長羅淑佩認為「香港盛匯超級三月」聚焦體育、藝術及旅遊活動，已成功帶動旅客人數顯著上升，但當局並非單純追求人數，更重視為旅客打造優質體驗，其中一項新策略是善用海岸線和離島，重塑旅遊產業面貌，吸引高消費旅客來港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm)
+
+---
+
 # 陳茂波稱香港可助彌補綠色項目資金缺口　尋求創新融資解決方案
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797630-20250327.htm)
-
----
-
-# 警方通緝一名印傭　據了解涉嫌虐待81歲老婦
-
-![警方調查深水埗一宗普通襲擊案，通緝一名印傭。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797629_1_20250327110814.jpg&q=90)
-  
-
-警方正調查深水埗一宗普通襲擊案，通緝一名印傭，據了解，她涉嫌虐待一名81歲老婦。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797629-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797629-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797629-20250327.htm)
 
 ---
