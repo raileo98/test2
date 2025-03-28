@@ -1,3 +1,26 @@
+# 緬甸7.7級地震　據報已造成逾50死300傷
+
+  
+
+緬甸中部發生7.7級地震，央視新聞引述緬甸傳媒報道，地震已造成超過50人死亡，300人受傷。大多數遇難者遺體在曼德勒、內比都等地被發現，政府呼籲民眾積極為傷者捐血。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797922-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797922-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797922-20250328.htm)
+
+---
+
 # 國家市監局稱注意到長和將與貝萊德簽署巴拿馬港口的交易協議
 
   
