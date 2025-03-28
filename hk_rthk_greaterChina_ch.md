@@ -1,3 +1,26 @@
+# 博鰲亞洲論壇年會閉幕　大會稱堅定維護多邊主義
+
+  
+
+一連四天的博鰲亞洲論壇年會下午閉幕。博鰲亞洲論壇秘書長張軍表示，今年舉行50多場活動，亮點包括壓縮開幕式時間，會議形式更多樣化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm)
+
+---
+
 # 王毅下周一至周三訪問俄羅斯
 
 ![王毅下周一至周三訪問俄羅斯。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797866_1_20250328151510.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797483-20250326.htm)
-
----
-
-# 國台辦︰台積電已成為砧板上任人宰割的肥肉
-
-![陳斌華表示，在民進黨當局極力逢迎、拱手相送下，台積電已成為砧板上任人宰割的肥肉。(盧紫菁攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797452_1_20250326115329.jpg&q=90)
-  
-
-美國總統特朗普早前表示，晶片製造商台積電將在美國再投資至少1000億美元，興建5所尖端晶片製造設施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797452-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797452-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797452-20250326.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 博鰲亞洲論壇年會閉幕　大會稱堅定維護多邊主義
+
+  
+
+一連四天的博鰲亞洲論壇年會下午閉幕。博鰲亞洲論壇秘書長張軍表示，今年舉行50多場活動，亮點包括壓縮開幕式時間，會議形式更多樣化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm)
+
+---
+
 # 男子攜500萬元歐羅遇劫反抗匪徒事敗　警拘4非華裔男子
 
   
