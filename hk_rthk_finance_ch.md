@@ -1,3 +1,27 @@
+# 美股低收近2%或以上　數據加劇通脹升溫及經濟疲弱擔憂
+
+![美股連續3日低收，3大指數跌近2%或以上，跌至近兩星期或以上的低位。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797965_1_20250329054907.jpg&q=90)
+  
+
+美股連續3日低收，3大指數跌至近兩星期或以上的低位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797965-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797965-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797965-20250329.htm)
+
+---
+
 # 卡尼與特朗普通話　揚言美方額外貿易行動後加方會實施報復式關稅
 
 ![卡尼（圖）與特朗普討論兩國關係及關稅等問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797961_1_20250329031747.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797800-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797800-20250328.htm)
-
----
-
-# 人民幣兌美元中間價升11點子　創逾1星期新高
-
-![人民幣中間價報7.1752兌1美元，較昨日中間價升11點子，創逾1星期新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797798_1_20250328091753.jpg&q=75)
-  
-
-人民幣中間價報7.1752兌1美元，較昨日中間價升11點子，創逾1星期新高，與市場預測偏離幅度收窄至約850點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797798-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797798-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797798-20250328.htm)
 
 ---

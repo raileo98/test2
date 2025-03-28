@@ -1,3 +1,27 @@
+# 美股低收近2%或以上　數據加劇通脹升溫及經濟疲弱擔憂
+
+![美股連續3日低收，3大指數跌近2%或以上，跌至近兩星期或以上的低位。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797965_1_20250329054907.jpg&q=90)
+  
+
+美股連續3日低收，3大指數跌至近兩星期或以上的低位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797965-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797965-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797965-20250329.htm)
+
+---
+
 # 緬甸及泰國當局徹夜於地震災區尋找倖存者
 
   
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm)
-
----
-
-# 根據票價調整機制　港鐵今年度凍結票價
-
-![港鐵將會於2025/26年度凍結票價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797889_1_20250328170231.jpg&q=85)
-  
-
-政府今日公布運輸業名義工資指數最新數字，以港鐵票價調整機制方程式，計算出今年票價調整幅度較啟動加價的門檻1.5%為低，加上政府早前公布，去年的第4季家庭住戶每月入息中位數按年錄得跌幅，觸發封頂機制，港鐵將會於2025/26年度凍結票價。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm)
 
 ---
