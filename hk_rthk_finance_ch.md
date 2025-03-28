@@ -1,3 +1,27 @@
+# 恒指半日轉跌210點　科指跌近1.7%
+
+![恒指中午收市報23368點，跌210點，跌幅近0.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797828_1_20250328121259.jpg&q=75)
+  
+
+期指結算日，港股先高後低，恒生指數初段一度升近200點，其後最多轉跌近260點，中午收市報23368點，跌210點，跌幅近0.9%，半日主板成交額1317億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm)
+
+---
+
 # 滬股半日跌0.7%　深證成指及創業板跌逾0.5%
 
 ![內地股市偏軟，上證指數半日報3349點，跌24點，跌幅0.71%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797822_1_20250328113348.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797675-20250327.htm)
-
----
-
-# 回應政府有否就港口交易事件接觸長和　李家超：上次已說過這件事
-
-![《南華早報》引述消息人士表示，政府在3月4日得知長和宣布將出售予美國貝萊德牽頭的財團之後，已立即與長和接觸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797673_1_20250327144852.jpg&q=80)
-  
-
-長和計劃出售巴拿馬港口的業務引起爭議。《南華早報》引述消息人士表示，政府在3月4日得知長和宣布將出售予美國貝萊德牽頭的財團之後，已立即與長和接觸，商討「合理的解決方案」。報道亦引述其他消息指，解決方案的選擇有限，因為退出交易可能會造成高昂的成本，並帶來嚴重的政治影響，但交易繼續進行，則會對公司和國家造成損害。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797673-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797673-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797673-20250327.htm)
 
 ---

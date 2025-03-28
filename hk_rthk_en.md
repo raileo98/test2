@@ -1,3 +1,27 @@
+# Xi meets heads of international business community
+
+![Xi Jinping had also met with foreign business leaders after the China Development Forum last year. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797830_1_20250328121558.jpg&q=90)
+  
+
+President Xi Jinping met with representatives of the international business community in Beijing following last weekend's China Development Forum (CDF), Xinhua News Agency reported on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797830-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797830-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797830-20250328.htm)
+
+---
+
 # US' Rubio says too early for high-level Russia talks
 
 ![Marco Rubio says US President Donald Trump's administration would hold consultations to discuss the outcome of the meetings with Russia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797827_1_20250328115755.jpg&q=90)
@@ -465,7 +489,7 @@ Central government bodies in charge of Hong Kong affairs on Thursday reposted an
 
 # Work under way to boost night-time services: HA
 
-![HA chief executive Tony Ko says public hospitals are working closely with the primary healthcare sector and private practitioners to ramp up services. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797727_2_20250327205242.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797727_2_20250327205242.jpg&q=90)
   
 
 The Hospital Authority (HA) has stressed that decisions on how and where to beef up public healthcare services will "depend on the actual situation", amid calls to offer more general outpatient services at night.
@@ -1423,29 +1447,5 @@ Chief Executive John Lee said on Wednesday a cooperation deal between Hong Kong 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm)
-
----
-
-# Two subsidised flat projects go on sale from April 1
-
-![The "Hemma Emerald" project on Anderson Road offers 960 flats. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797502_1_20250326153430.jpg&q=90)
-  
-
-The Housing Society on Wednesday announced two subsidised flat projects in Fanling and Kwun Tong, with units to be sold at 70 percent of market value, will go on sale in April.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm)
 
 ---

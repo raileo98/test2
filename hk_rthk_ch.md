@@ -1,3 +1,50 @@
+# 恒指半日轉跌210點　科指跌近1.7%
+
+![恒指中午收市報23368點，跌210點，跌幅近0.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797828_1_20250328121259.jpg&q=75)
+  
+
+期指結算日，港股先高後低，恒生指數初段一度升近200點，其後最多轉跌近260點，中午收市報23368點，跌210點，跌幅近0.9%，半日主板成交額1317億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm)
+
+---
+
+# 冷鋒黃昏至晚間橫過珠江口　下午局部地區雷暴周末市區最低15度
+
+  
+
+天文台表示，現時位於廣東內陸至東部沿岸的一道冷鋒，會在今日黃昏至晚間橫過珠江口一帶，與其相關的驟雨正影響內陸地區。正午時分，本港港內的能見度維持在2000米以下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797829-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797829-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797829-20250328.htm)
+
+---
+
 # 滬股半日跌0.7%　深證成指及創業板跌逾0.5%
 
 ![內地股市偏軟，上證指數半日報3349點，跌24點，跌幅0.71%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797822_1_20250328113348.jpg&q=90)
@@ -1392,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm)
-
----
-
-# 九龍城警區打擊違規學習駕駛發出12張定額罰款通知書及2張傳票
-
-![警方打擊違規學習駕駛的導師和學習駕駛者。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797748_1_20250327224449.jpg&q=85)
-  
-
-九龍城警區聯同相關部門在區內展開行動，打擊與「違規學習駕駛」相關的違法行為，過去一周，共發出12張定額罰款通知書及2張傳票，票控違規學習駕駛的導師和學習駕駛者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797748-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797748-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797748-20250327.htm)
-
----
-
-# 范鴻齡：醫管局未來一年有連串措施提高效率並加強節流
-
-![范鴻齡說，未來一年會有連串措施提高效率，同時加強節流，研究簡化採購流程。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797747_1_20250327225701.jpg&q=80)
-  
-
-醫管局在新一個財政年度，獲近一千億元經常撥款。醫管局主席范鴻齡說，未來一年會有連串措施提高效率，同時加強節流，研究簡化採購流程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797747-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797747-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797747-20250327.htm)
 
 ---

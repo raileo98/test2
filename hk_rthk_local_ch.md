@@ -1,3 +1,50 @@
+# 恒指半日轉跌210點　科指跌近1.7%
+
+![恒指中午收市報23368點，跌210點，跌幅近0.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797828_1_20250328121259.jpg&q=75)
+  
+
+期指結算日，港股先高後低，恒生指數初段一度升近200點，其後最多轉跌近260點，中午收市報23368點，跌210點，跌幅近0.9%，半日主板成交額1317億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm)
+
+---
+
+# 冷鋒黃昏至晚間橫過珠江口　下午局部地區雷暴周末市區最低15度
+
+  
+
+天文台表示，現時位於廣東內陸至東部沿岸的一道冷鋒，會在今日黃昏至晚間橫過珠江口一帶，與其相關的驟雨正影響內陸地區。正午時分，本港港內的能見度維持在2000米以下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797829-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797829-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797829-20250328.htm)
+
+---
+
 # 鍾健禮接替馮康出任中大醫院行政總裁　8月1日履新
 
 ![中大醫院宣布委任鍾健禮為新任行政總裁。（中大網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797823_1_20250328115932.jpg&q=90)
@@ -1393,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797644-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797644-20250327.htm)
-
----
-
-# 丁薛祥：擴大國內需求積極穩外貿穩外資　有信心實現發展目標
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797641_1_20250327123700.jpg&q=80)
-  
-
-國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式致辭表示，今年首兩個月，中國經濟運行起步平穩，有信心實現經濟社會發展目標，為亞洲和世界的發展作出新貢獻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm)
-
----
-
-# 丁薛祥出席博鰲亞洲論壇開幕式　稱亞洲命運共同體建設成績斐然
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797640_1_20250327122852.jpg&q=80)
-  
-
-國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式致辭表示，今年是國家主席習近平提出構建「亞洲命運共同體」 10周年，在各方的共同努力下，「亞洲命運共同體」建設成績斐然。他提出4點建議，共創亞洲和世界更加美好的未來。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm)
 
 ---
