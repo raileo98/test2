@@ -1,5 +1,29 @@
+# 彩石邨3大廈九成單位租金每月2500元以下　每平方米74元
+
+  
+
+房委會表示，新建公屋上水彩石邨的三幢非標準型大廈，租金將以所屬地區的最佳租金水平釐定。上水區公屋單位的最佳租金為每月每平方米74元，適用於彩石邨玥石樓、耀石樓和榮石樓共1431個單位。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797859-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797859-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797859-20250328.htm)
+
+---
+
 # 陳翊庭：海外投資者對中國資產興趣增加
 
+![陳翊庭稱留意到海外投資者對中國資產，尤其是香港上市資產興趣增加。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797853_1_20250328143307.jpg&q=85)
   
 
 港交所行政總裁陳翊庭表示，今年初出席瑞士達沃斯經濟論壇，亦剛結束訪問美國，緊接亦會到北京、中東同歐洲做推廣。正在海南出席博鰲亞洲論壇的陳翊庭說，作為超級聯繫人，以及鞏固香港國際金融中心地位，要不時與世界各地朋友見面，介紹香港情況。
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797664-20250327.htm)
-
----
-
-# 男子快餐店突大罵及襲擊食客　案件下月9日判刑被告須還柙
-
-![暫委法官將案件押後下月9日判刑，待索取被告精神科報告。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797669_1_20250327143127.jpg&q=90)
-  
-
-一名男子於2023年在上水一間快餐店大聲指罵食客，並以膠袋包著的剪刀插向食客，導致對方頭皮及頸部等受傷。涉案男子今日在區域法院承認有意圖傷人罪，暫委法官溫紹明將案件押後下月9日判刑，待索取被告精神科報告，以考慮醫院令是否合適，期間被告還柙候懲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797669-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797669-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797669-20250327.htm)
 
 ---

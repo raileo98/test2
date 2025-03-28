@@ -1,5 +1,26 @@
+# 緬甸7.3級地震　泰國曼谷有震感
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797861-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797861-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797861-20250328.htm)
+
+---
+
 # 習近平會見孟加拉臨時政府首席顧問尤努斯
 
+![習近平在北京人民大會堂會見尤努斯。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797857_1_20250328142251.jpg&q=90)
   
 
 國家主席習近平在北京人民大會堂會見孟加拉臨時政府首席顧問尤努斯。
@@ -1411,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797563-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797563-20250326.htm)
-
----
-
-# 日本護衛艦「能代」號停靠菲律賓蘇比克海軍基地交流
-
-![菲律賓海軍歡迎日本海上自衛隊護衛艦「能代」號停靠蘇比克海軍基地。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797559_1_20250326203930.jpg&q=90)
-  
-
-日本海上自衛隊最先進護衛艦「能代」號停靠菲律賓呂宋島蘇比克海軍基地，並向傳媒公開展示。共同社報道，蘇比克海軍基地靠近南海爭議海域，今次是海上自衛隊艦艇首次停靠，彰顯防衛合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797559-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797559-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797559-20250326.htm)
 
 ---

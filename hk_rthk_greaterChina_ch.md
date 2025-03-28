@@ -1,5 +1,6 @@
 # 習近平會見孟加拉臨時政府首席顧問尤努斯
 
+![習近平在北京人民大會堂會見尤努斯。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797857_1_20250328142251.jpg&q=90)
   
 
 國家主席習近平在北京人民大會堂會見孟加拉臨時政府首席顧問尤努斯。

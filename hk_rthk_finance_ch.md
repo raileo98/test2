@@ -1,5 +1,30 @@
+# 台股低收近1.6%　創逾半年新低
+
+![加權指數收報21602點，跌348點，跌幅1.59%，創逾半年新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797858_1_20250328142914.jpg&q=90)
+  
+
+台股收市創逾半年新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797858-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797858-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797858-20250328.htm)
+
+---
+
 # 陳翊庭：海外投資者對中國資產興趣增加
 
+![陳翊庭稱留意到海外投資者對中國資產，尤其是香港上市資產興趣增加。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797853_1_20250328143307.jpg&q=85)
   
 
 港交所行政總裁陳翊庭表示，今年初出席瑞士達沃斯經濟論壇，亦剛結束訪問美國，緊接亦會到北京、中東同歐洲做推廣。正在海南出席博鰲亞洲論壇的陳翊庭說，作為超級聯繫人，以及鞏固香港國際金融中心地位，要不時與世界各地朋友見面，介紹香港情況。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797702-20250327.htm)
-
----
-
-# 港股全日升幅收窄至95點　內需及醫藥股上升
-
-![恒生指數最多升逾380點，收市報23578點，升95點，升幅0.41%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797696_1_20250327163031.jpg&q=85)
-  
-
-港股連升兩日，但下午升幅收窄。恒生指數最多升逾380點，高見23865點，收市報23578點，升95點，升幅0.41%。主板成交額逾2396億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797696-20250327.htm)
 
 ---
