@@ -1,3 +1,51 @@
+# 長城汽車去年多賺近81%
+
+![長城汽車去年盈利126.9億元人民幣，按年增長80.8%。派末期息每股0.45元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797950_1_20250328233125.jpg&q=85)
+  
+
+長城汽車公布，去年盈利126.9億元人民幣，按年增長80.8%。派末期息每股0.45元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797950-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797950-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797950-20250329.htm)
+
+---
+
+# 戴利：聯儲局有時間評估最終關稅的影響　毋須急於調整政策
+
+![戴利表示，聯儲局有時間評估最終關稅措施的全面影響及規模，以及對經濟的影響，毋須急於調整政策。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797949_1_20250328232238.jpg&q=90)
+  
+
+三藩市聯邦儲備銀行總裁戴利表示，今年美國聯儲局將減息2次是「合理」的預測，認為當局可評估企業如何應對上升的關稅成本後，才決定減息的時機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797949-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797949-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797949-20250329.htm)
+
+---
+
 # 當局更新外遊警示網頁涉緬甸泰國附加資料　入境處接48宗查詢
 
 ![保安局網頁有關緬甸及泰國的外遊警示。（保安局網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797951_1_20250328235500.jpg&q=90)
@@ -1395,53 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm)
-
----
-
-# 緬甸大地震　據報曼谷有建築物倒塌1死43人失蹤
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797875_1_20250328161024.jpg&q=90)
-  
-
-緬甸發生黎克特制7級以上猛烈地震，泰國曼谷有震感，當地傳媒報道，曼谷一座興建中的30層高建築物因強震倒塌，造成1人死亡，43人失蹤。泰國總理佩通坦宣布，曼谷進入緊急狀態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm)
-
----
-
-# 易綱：轉型金融須國際合作　周小川：不能說賠錢亦要企業轉型
-
-![易綱（右）表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確。周小川（左）支持轉型金融過程中，需要注意價格機制。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797874_1_20250328163029.jpg&q=90)
-  
-
-人民銀行前行長，中國金融學會理事會會長易綱表示，轉型金融需要國際合作、非常明確標準及披露要求。他在博鰲亞洲論壇一個分論壇上表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確，以防止綠「綠漂」，同時亦提供奬勵。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm)
 
 ---

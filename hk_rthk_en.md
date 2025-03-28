@@ -1,9 +1,33 @@
+# Govt taking steps to protect IP, says Algernon Yau
+
+![Algernon Yau says the SAR government is taking steps to protect intellectual property to help develop Hong Kong into a regional IP trading centre. Photo courtesy: GIS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797952_1_20250329002426.jpg&q=85)
+  
+
+Secretary for Commerce and Economic Development Algernon Yau on Friday said the SAR government is taking forward a series of initiatives to protect intellectual property rights to help develop the city into a regional IP trading centre.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797952-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797952-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797952-20250329.htm)
+
+---
+
 # CK Hutchison ports deal 'won't be signed next week'
 
 ![A source with close links to CK Hutchison suggests that the conglomerate will not sign a deal for the sale of its ports next week. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797942_1_20250328223502.jpg&q=65)
   
 
-A controversial ports deal between CK Hutchison and a consortium led by US investment firm BlackRock won't be signed as expected next week – according to a source with close links to the Hong Kong conglomerate.
+A controversial ports deal between CK Hutchison and a consortium led by US investment firm BlackRock won’t be signed as expected next week – according to a source with close links to the Hong Kong conglomerate.
 
   
 
@@ -1428,29 +1452,5 @@ Japan's government on Thursday warned of a "significant impact" on its economic 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797646-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797646-20250327.htm)
-
----
-
-# Fils outplays top seed Zverev in Miami Open upset
-
-![Alexander Zverev returns a shot against Arthur Fils in their fourth-round match at the Hard Rock Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797645_1_20250327114411.jpg&q=90)
-  
-
-France's Arthur Fils upset top-seed Alexander Zverev with an outstanding display earning him a 3-6, 6-3, 6-4 win over the German in the fourth round of the Miami Open.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797645-20250327.htm)
 
 ---

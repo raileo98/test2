@@ -1,3 +1,51 @@
+# 長城汽車去年多賺近81%
+
+![長城汽車去年盈利126.9億元人民幣，按年增長80.8%。派末期息每股0.45元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797950_1_20250328233125.jpg&q=85)
+  
+
+長城汽車公布，去年盈利126.9億元人民幣，按年增長80.8%。派末期息每股0.45元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797950-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797950-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797950-20250329.htm)
+
+---
+
+# 戴利：聯儲局有時間評估最終關稅的影響　毋須急於調整政策
+
+![戴利表示，聯儲局有時間評估最終關稅措施的全面影響及規模，以及對經濟的影響，毋須急於調整政策。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797949_1_20250328232238.jpg&q=90)
+  
+
+三藩市聯邦儲備銀行總裁戴利表示，今年美國聯儲局將減息2次是「合理」的預測，認為當局可評估企業如何應對上升的關稅成本後，才決定減息的時機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797949-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797949-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797949-20250329.htm)
+
+---
+
 # 美國密歇根大學3月消費者信心指數終值低於預期
 
 ![美國密歇根大學消費者調查顯示，美國3月消費者信心指數終值為57，低過初值及預期的57.9。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797946_1_20250328230517.jpg&q=75)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797788-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797788-20250328.htm)
-
----
-
-# 韓股早段跌逾1%　失守2600點
-
-![首爾綜合指數跌穿2600點水平，較早時報2569點，跌38點，跌幅1.46%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797790_1_20250328080642.jpg&q=85)
-  
-
-南韓股市早段受壓，首爾綜合指數跌穿2600點水平，較早時報2569點，跌38點，跌幅1.46%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797790-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797790-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797790-20250328.htm)
-
----
-
-# 日股初段跌近600點
-
-![日經指數較早時報37236點，跌563點，跌幅1.49%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797789_1_20250328080541.jpg&q=85)
-  
-
-日股初段下挫，日經指數較早時報37236點，跌563點，跌幅1.49%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797789-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797789-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797789-20250328.htm)
 
 ---
