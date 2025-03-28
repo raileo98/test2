@@ -1,9 +1,33 @@
-# 接近長和高層消息：下周不會出售巴拿馬運河港口業務
+# 國常會：做好跨境電商綜合試驗區擴圍工作　優化口岸開放布局
 
-![接近長和高層消息稱，下周不會出售巴拿馬運河港口業務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797923_1_20250328201653.jpg&q=80)
+![李強主持國常會，提出要推動跨境電商綜合試驗區建設提檔升級。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797924_1_20250328202621.jpg&q=90)
   
 
-長和本月初宣布，向美國貝萊德牽頭的財團出售巴拿馬運河港口等業務。港澳辦及中聯辦多次轉載文章，批評有關交易損害國家利益。
+總理李強主持召開國務院常務會議，審議通過「加快加力清理拖欠企業帳款行動方案」、「關於優化口岸開放布局的若干意見」，同時要求做好新一輪跨境電商綜合試驗區擴圍工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm)
+
+---
+
+# 接近長和高層消息：下周不會簽署任何有關出售巴拿馬運河港口協議
+
+![接近長和高層消息稱，下周不會簽署任何有關出售巴拿馬運河港口業務協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797923_1_20250328201653.jpg&q=80)
+  
+
+長和本月初宣布，向美國貝萊德牽頭的財團出售巴拿馬運河港口等業務。
 
   
 
@@ -22,8 +46,9 @@
 
 ---
 
-# 國家市場監督管理總局稱將依法對長和港口交易進行審查
+# 國家市場監督管理總局稱對長和港口的交易協議將依法進行審查
 
+![國家市監局表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797921_1_20250328203658.jpg&q=70)
   
 
 國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797774-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797774-20250328.htm)
-
----
-
-# 美股兩連跌　道指低收155點　汽車股大多下挫
-
-![美股反覆向下，連跌兩日，汽車股沽壓較大。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797773_1_20250328054035.jpg&q=90)
-  
-
-美股反覆向下，連跌兩日。美國去年第4季經濟按季增長年率向上修訂至2.4%，企業盈利創新高，但市場憂慮關稅措施令經濟前景不確定，對企業造成挑戰。市場亦正評估美國總統特朗普宣布對進口汽車徵收25%關稅措施，並為即將公布的對等關稅做準備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797773-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797773-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797773-20250328.htm)
 
 ---

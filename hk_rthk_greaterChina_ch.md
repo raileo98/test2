@@ -1,5 +1,54 @@
-# 國家市場監督管理總局稱將依法對長和港口交易進行審查
+# 李強主持國務院會議　強調堅決遏制新增拖欠　提升口岸通關便利度
 
+![國務院總理李強主持召開國務院常務會議。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797925_1_20250328203647.jpg&q=90)
+  
+
+國務院總理李強主持召開國務院常務會議，聽取推進跨境電子商務綜合試驗區建設匯報，部署加快加力清理拖欠企業賬款工作，研究推動農機裝備高質量發展有關措施，審議通過《關於優化口岸開放佈局的若干意見》。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm)
+
+---
+
+# 國常會：做好跨境電商綜合試驗區擴圍工作　優化口岸開放布局
+
+![李強主持國常會，提出要推動跨境電商綜合試驗區建設提檔升級。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797924_1_20250328202621.jpg&q=90)
+  
+
+總理李強主持召開國務院常務會議，審議通過「加快加力清理拖欠企業帳款行動方案」、「關於優化口岸開放布局的若干意見」，同時要求做好新一輪跨境電商綜合試驗區擴圍工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm)
+
+---
+
+# 國家市場監督管理總局稱對長和港口的交易協議將依法進行審查
+
+![國家市監局表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797921_1_20250328203658.jpg&q=70)
   
 
 國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
@@ -1384,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797552-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797552-20250326.htm)
-
----
-
-# 王偉中：全運會和殘特奧會廣東賽區各項籌備工作進展良好
-
-![王偉中表示，第十五屆全運會和殘特奧會在各方面的努力下，廣東賽區各項籌備工作進展良好。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797550_1_20250326194042.jpg&q=80)
-  
-
-廣東省省長王偉中表示，第十五屆全運會和殘特奧會在各方面的努力下，廣東賽區各項籌備工作扎實推進，進展良好，值得充分肯定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797550-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797550-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797550-20250326.htm)
-
----
-
-# 消防處指粵港澳聯合演練成功測試大灣區緊急動員及協調機制
-
-![香港消防處聯同廣東省消防救援總隊及澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練，模擬香港遇到極端天氣，全港多處發生大型緊急事故。（消防處提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797543_2_20250326190800.jpg&q=75)
-  
-
-香港消防處聯同廣東省消防救援總隊及澳門消防局，一連三日聯合舉辦粵港澳大灣區應急救援聯合演練，模擬香港遇到極端天氣，全港多處發生大型緊急事故，本港的救援資源變得緊張，要向粵澳提出支援請求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797543-20250326.htm)
 
 ---

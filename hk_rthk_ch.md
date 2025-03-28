@@ -1,9 +1,57 @@
-# 接近長和高層消息：下周不會出售巴拿馬運河港口業務
+# 李強主持國務院會議　強調堅決遏制新增拖欠　提升口岸通關便利度
 
-![接近長和高層消息稱，下周不會出售巴拿馬運河港口業務。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797923_1_20250328201653.jpg&q=80)
+![國務院總理李強主持召開國務院常務會議。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797925_1_20250328203647.jpg&q=90)
   
 
-長和本月初宣布，向美國貝萊德牽頭的財團出售巴拿馬運河港口等業務。港澳辦及中聯辦多次轉載文章，批評有關交易損害國家利益。
+國務院總理李強主持召開國務院常務會議，聽取推進跨境電子商務綜合試驗區建設匯報，部署加快加力清理拖欠企業賬款工作，研究推動農機裝備高質量發展有關措施，審議通過《關於優化口岸開放佈局的若干意見》。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm)
+
+---
+
+# 國常會：做好跨境電商綜合試驗區擴圍工作　優化口岸開放布局
+
+![李強主持國常會，提出要推動跨境電商綜合試驗區建設提檔升級。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797924_1_20250328202621.jpg&q=90)
+  
+
+總理李強主持召開國務院常務會議，審議通過「加快加力清理拖欠企業帳款行動方案」、「關於優化口岸開放布局的若干意見」，同時要求做好新一輪跨境電商綜合試驗區擴圍工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797924-20250328.htm)
+
+---
+
+# 接近長和高層消息：下周不會簽署任何有關出售巴拿馬運河港口協議
+
+![接近長和高層消息稱，下周不會簽署任何有關出售巴拿馬運河港口業務協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797923_1_20250328201653.jpg&q=80)
+  
+
+長和本月初宣布，向美國貝萊德牽頭的財團出售巴拿馬運河港口等業務。
 
   
 
@@ -46,8 +94,9 @@
 
 ---
 
-# 國家市場監督管理總局稱將依法對長和港口交易進行審查
+# 國家市場監督管理總局稱對長和港口的交易協議將依法進行審查
 
+![國家市監局表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797921_1_20250328203658.jpg&q=70)
   
 
 國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
