@@ -1,3 +1,26 @@
+# 國泰航空有原定飛往曼谷航班需折返起飛機場
+
+  
+
+國泰航空表示，因應緬甸及泰國部分地區受地震影響，今日由香港飛往曼谷的CX751航班已折返香港，新加坡飛往曼谷的CX630航班亦已折返新加坡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm)
+
+---
+
 # 元朗攸壆路簡約公屋入伙　租戶稱省下金錢可以給子女讀書補習
 
   
@@ -1420,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm)
-
----
-
-# 衞生防護中心指今年有一半機會出現夏季流感季節
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797705_1_20250327180741.jpg&q=90)
-  
-
-衞生防護中心表示，最近呼吸道樣本的季節性流感病毒陽性比例，以及公立醫院入院率已低於基線水平，另外學校及院舍流感爆發宗數亦回落，宣布本港今年度冬季流感季節結束。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797705-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797705-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797705-20250327.htm)
 
 ---

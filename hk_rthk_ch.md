@@ -1,3 +1,26 @@
+# 國泰航空有原定飛往曼谷航班需折返起飛機場
+
+  
+
+國泰航空表示，因應緬甸及泰國部分地區受地震影響，今日由香港飛往曼谷的CX751航班已折返香港，新加坡飛往曼谷的CX630航班亦已折返新加坡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm)
+
+---
+
 # 元朗攸壆路簡約公屋入伙　租戶稱省下金錢可以給子女讀書補習
 
   

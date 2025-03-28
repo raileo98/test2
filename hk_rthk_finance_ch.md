@@ -1,3 +1,26 @@
+# 國泰航空有原定飛往曼谷航班需折返起飛機場
+
+  
+
+國泰航空表示，因應緬甸及泰國部分地區受地震影響，今日由香港飛往曼谷的CX751航班已折返香港，新加坡飛往曼谷的CX630航班亦已折返新加坡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm)
+
+---
+
 # 世茂集團去年虧損擴大近71%
 
 ![世茂集團去年虧損359.1億元人民幣，按年擴大近71%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797902_1_20250328174653.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797742-20250327.htm)
-
----
-
-# 美股初段向下　納指跌近0.8%
-
-![納斯達克指數報17760點，跌138點，跌幅0.78%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797743_1_20250327214011.jpg&q=90)
-  
-
-美股初段向下。美國總統特朗普宣布對進口汽車徵收25%關稅，打擊市場投資信心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797743-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797743-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797743-20250327.htm)
 
 ---
