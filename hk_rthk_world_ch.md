@@ -1,3 +1,23 @@
+# 緬甸大地震　據報曼谷有建築物倒塌1死43人失蹤
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm)
+
+---
+
 # 易綱：轉型金融須國際合作　周小川：不能說賠錢亦要企業轉型
 
   
@@ -1411,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm)
-
----
-
-# 王毅讚賞瑙方堅定奉行一個中國政策　稱願開闢中瑙關係更光明前景
-
-![王毅在北京與瑙魯外長安格明會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797584_1_20250327003043.jpg&q=90)
-  
-
-中共中央政治局委員、外交部長王毅在北京與專程來華出席太平洋島國瑙魯駐華使館開館儀式的瑙魯外長安格明會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm)
 
 ---

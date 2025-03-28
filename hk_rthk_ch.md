@@ -1,3 +1,23 @@
+# 緬甸大地震　據報曼谷有建築物倒塌1死43人失蹤
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm)
+
+---
+
 # 易綱：轉型金融須國際合作　周小川：不能說賠錢亦要企業轉型
 
   
@@ -403,7 +423,7 @@
 
 # 陳翊庭：海外投資者對中國資產興趣增加
 
-![陳翊庭稱留意到海外投資者對中國資產，尤其是香港上市資產興趣增加。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797853_1_20250328143307.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797853_1_20250328143307.jpg&q=85)
   
 
 港交所行政總裁陳翊庭表示，今年初出席瑞士達沃斯經濟論壇，亦剛結束訪問美國，緊接亦會到北京、中東同歐洲做推廣。正在海南出席博鰲亞洲論壇的陳翊庭說，作為超級聯繫人，以及鞏固香港國際金融中心地位，要不時與世界各地朋友見面，介紹香港情況。
