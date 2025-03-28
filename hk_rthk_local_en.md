@@ -1,3 +1,27 @@
+# Government strongly condemns UK report on HK
+
+![The SAR government urged the UK to "respect international law" and "immediately stop interfering in Hong Kong matters." File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797769_1_20250328093204.jpg&q=90)
+  
+
+The government on Thursday said it strongly disapproved of and must resolutely refute the untruthful remarks, slanders and smears against various aspects of the SAR in the UK's six-monthly report on Hong Kong.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm)
+
+---
+
 # Work under way to boost night-time services: HA
 
 ![HA chief executive Tony Ko says public hospitals are working closely with the primary healthcare sector and private practitioners to ramp up services. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797727_2_20250327205242.jpg&q=90)
@@ -1420,29 +1444,5 @@ The MTR says Light Rail services are returning to normal after several routes in
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796898-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796898-20250322.htm)
-
----
-
-# Separate fees for radiology services 'minimal': HA
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796895_1_20250322085424.jpg&q=90)
-  
-
-Requiring patients to pay separately for tests and scans at public hospitals will leave them with a "minimal" financial burden as such services will still be "highly subsidised" by the government, health officials say amid plans to adjust medical fees.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796895-20250322.htm)
 
 ---

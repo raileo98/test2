@@ -1,3 +1,51 @@
+# Arctic sea ice hits record low, says US agency
+
+![A polar bear is seen on ice floes in the Franz Josef Land archipelago in 2021. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797792_1_20250328084339.jpg&q=90)
+  
+
+Arctic sea ice had its weakest winter buildup since record-keeping began 47 years ago, a symptom of climate change that will have repercussions globally, scientists said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm)
+
+---
+
+# Australian PM calls general election for May 3
+
+![Prime Minister Anthony Albanese announces the election date at a press conference at Parliament House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797791_1_20250328083609.jpg&q=90)
+  
+
+Australia will hold a general election on May 3, Prime Minister Anthony Albanese said on Friday, locking in a showdown over climate action, nuclear power and a runaway housing market.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm)
+
+---
+
 # Australian PM says general election is 'imminent'
 
 ![Anthony Albanese, second right, leads party support for Treasurer Jim Chalmers after his fourth federal budget speech in Parliament House, Canberra. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797706_1_20250327172305.jpg&q=90)
@@ -1389,53 +1437,5 @@ French actor Gerard Depardieu faces trial on Monday over alleged sexual assaults
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796836-20250322.htm)
-
----
-
-# Boeing wins contract for next generation US fighter
-
-![Defence Secretary Pete Hegseth (right) said the new aircraft said the new aircraft "sends a very direct, clear message to our allies." Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796865_1_20250322022500.jpg&q=90)
-  
-
-Donald Trump announced on Friday that Boeing has been awarded the contract for the Air Force's next-generation stealth fighter plane, which the 47th US president said would be named the F-47.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796865-20250322.htm)
-
----
-
-# Germany, France and UK call for Gaza ceasefire return
-
-![The joint appeal came after Israeli Defence Minister Israel Katz threatened Friday to annex parts of the Gaza Strip. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796887_1_20250322075550.jpg&q=90)
-  
-
-The foreign ministers of Germany, France and Britain called late on Friday for an "immediate return" to a Gaza ceasefire, as Israel's military pressed its renewed offensive in the Palestinian territory.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796887-20250322.htm)
 
 ---

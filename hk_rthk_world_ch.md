@@ -1,3 +1,51 @@
+# 《環看天下》：卡尼稱加中貿易關係須謹慎    中方：望加方相
+
+![卡尼日前表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面，需要非常謹慎。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797796_1_20250328091436.jpg&q=90)
+  
+
+加拿大總理卡尼日前表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面，需要非常謹慎。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm)
+
+---
+
+# 南韓山火地區昨晚下微雨　當局全力開展撲救工作
+
+![山火造成至少28人死亡，3萬居民流離失所。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797794_1_20250328085608.jpg&q=90)
+  
+
+南韓慶尚北道山火持續一星期，當地昨晚下微雨，加上風勢減慢，令火勢有所減弱。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797794-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797794-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797794-20250328.htm)
+
+---
+
 # 澳洲總理阿爾巴內塞宣佈5月3日舉行聯邦議會選舉
 
 ![阿爾巴內塞宣佈，將於今年5月3日舉行聯邦議會選舉。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797784_1_20250328073351.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797504-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797504-20250326.htm)
-
----
-
-# 韓正晤新加坡副總理　稱中方願深化兩國各領域交流合作
-
-![國家副主席韓正（右）在北京會見新加坡副總理王瑞傑。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797501_1_20250326153401.jpg&q=90)
-  
-
-國家副主席韓正在北京會見新加坡副總理王瑞傑時表示，過去一年來，中新關係穩步深入發展，習近平主席同新加坡領導人的系列會晤為下階段中新關係發展指明方向。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm)
-
----
-
-# 王毅指中美應避免誤判並管控分歧　稱中方願對話協商解決各自關切
-
-![王毅在北京會見格林伯格。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797492_1_20250326151114.jpg&q=90)
-  
-
-中共中央政治局委員、中央外辦主任王毅，在北京會見美中關係全國委員會董事會執行副主席格林伯格。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797492-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797492-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797492-20250326.htm)
 
 ---

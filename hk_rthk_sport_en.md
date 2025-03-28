@@ -1,3 +1,27 @@
+# HK's men's 3x3 basketball team make Asia Cup history
+
+![The SAR's men's 3x3 basketball team qualified for the Asia Cup for the first time ever. Photo courtesy of FIBA](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797793_1_20250328085214.jpg&q=90)
+  
+
+The SAR’s men’s basketball team have made history by qualifying for the FIBA 3x3 Asia Cup for the first time ever, while their teammates from the women’s team representing Hong Kong, China fell just short of doing the same.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm)
+
+---
+
 # Barcelona go three points atop La Liga with win
 
 ![Ferran Torres (7) opened the scoring for Barcelona. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797785_1_20250328073805.jpg&q=90)
@@ -1412,29 +1436,5 @@ Shohei Ohtani admitted he was "nervous" playing in front of a packed Tokyo crowd
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796342-20250319.htm)
-
----
-
-# Tennis players' union launch legal blitz against tours
-
-![The Djokovic-backed players union takes aim at the sport's governing bodies, the ATP and WTA. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796331_1_20250319053811.jpg&q=90)
-  
-
-A tennis union co-founded by Novak Djokovic announced a series of legal actions aimed at the sport's governing bodies, alleging "anti-competitive restraints and abusive practices".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796331-20250319.htm)
 
 ---

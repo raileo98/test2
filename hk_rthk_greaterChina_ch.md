@@ -1,3 +1,27 @@
+# 《環看天下》：卡尼稱加中貿易關係須謹慎    中方：望加方相
+
+![卡尼日前表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面，需要非常謹慎。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797796_1_20250328091436.jpg&q=90)
+  
+
+加拿大總理卡尼日前表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面，需要非常謹慎。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm)
+
+---
+
 # 何立峰晤歐方經貿官員　稱中方願共同抵制單邊主義及保護主義
 
 ![何立峰在釣魚台國賓館會見謝夫喬維奇。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797763_1_20250328014438.jpg&q=90)
@@ -24,7 +48,7 @@
 
 # 粵港澳大灣區律師顧問小組加入網紅　律政司冀制定措施更「貼地」
 
-![謝承益表示，發現不少港人在內地遇到各式各樣問題或困難，但不懂處理。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_1_20250327235446.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_1_20250327235446.jpg&q=75)
   
 
 律政司兩年前成立「粵港澳大灣區專責小組」，以深化大灣區便利惠民的互利合作，以及推進大灣區發展和建設，去年再在專責小組之下成立「粵港澳大灣區律師顧問小組」。政府本月初委任兩個小組合共7名新成員，包括居住在深圳的香港人、網紅「西DorSi」謝承益，亦是專責小組唯一並非來自法律界又長居內地的港人成員。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797364-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797364-20250325.htm)
-
----
-
-# 王毅：世界只能向前走　不能倒退回弱肉強食的叢林法則
-
-![王毅同葡萄牙國務部長兼外長蘭熱爾舉行中葡第二次外長級戰略對話。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797361_1_20250325204636.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅，同葡萄牙國務部長兼外長蘭熱爾舉行中葡第二次外長級戰略對話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm](https://news.rthk.hk/rthk/ch/component/k2/1797361-20250325.htm)
 
 ---

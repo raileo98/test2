@@ -1,3 +1,99 @@
+# Government strongly condemns UK report on HK
+
+![The SAR government urged the UK to "respect international law" and "immediately stop interfering in Hong Kong matters." File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797769_1_20250328093204.jpg&q=90)
+  
+
+The government on Thursday said it strongly disapproved of and must resolutely refute the untruthful remarks, slanders and smears against various aspects of the SAR in the UK's six-monthly report on Hong Kong.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm)
+
+---
+
+# Arctic sea ice hits record low, says US agency
+
+![A polar bear is seen on ice floes in the Franz Josef Land archipelago in 2021. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797792_1_20250328084339.jpg&q=90)
+  
+
+Arctic sea ice had its weakest winter buildup since record-keeping began 47 years ago, a symptom of climate change that will have repercussions globally, scientists said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm)
+
+---
+
+# HK's men's 3x3 basketball team make Asia Cup history
+
+![The SAR's men's 3x3 basketball team qualified for the Asia Cup for the first time ever. Photo courtesy of FIBA](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797793_1_20250328085214.jpg&q=90)
+  
+
+The SAR’s men’s basketball team have made history by qualifying for the FIBA 3x3 Asia Cup for the first time ever, while their teammates from the women’s team representing Hong Kong, China fell just short of doing the same.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm)
+
+---
+
+# Australian PM calls general election for May 3
+
+![Prime Minister Anthony Albanese announces the election date at a press conference at Parliament House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797791_1_20250328083609.jpg&q=90)
+  
+
+Australia will hold a general election on May 3, Prime Minister Anthony Albanese said on Friday, locking in a showdown over climate action, nuclear power and a runaway housing market.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm)
+
+---
+
 # Barcelona go three points atop La Liga with win
 
 ![Ferran Torres (7) opened the scoring for Barcelona. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797785_1_20250328073805.jpg&q=90)
@@ -1343,101 +1439,5 @@ The Secretary for Health says the new fee for people seeking help at accident an
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm)
-
----
-
-# Toll hits at least 24 in S Korea's worst wildfires
-
-![About 20 of 30 buildings and structures in the Gounsa temple complex, including two of South Korea's three state-designated 'treasures,' in Uiseong were burned to the ground. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797453_1_20250326115256.jpg&q=90)
-  
-
-Wildfires in South Korea have killed 24 people, officials said on Wednesday, warning that the toll in one of South Korea's worst wildfire outbreaks could rise further, with more people injured and the blaze still not under control.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797453-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797453-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797453-20250326.htm)
-
----
-
-# Son homes in on pitches for S Korea's World Cup slips
-
-![Son Heung-min reacts at the end of the match with Jordan that saw South Korea draw again. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797449_1_20250326114106.jpg&q=90)
-  
-
-Son Heung-min blamed South Korea's shoddy pitches for their 2026 World Cup qualifying struggles after a 1-1 draw with Jordan left them sweating on an automatic place at the tournament.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797449-20250326.htm)
-
----
-
-# Sabalenka sets up Paolini semis with win over Zheng
-
-![Aryna Sabalenka has a word with Zheng Qinwen after their Miami Open match at the Hard Rock Stadium. Mandatory Credit: Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797443_1_20250326112222.jpg&q=90)
-  
-
-World number one Aryna Sabalenka battled back in the second set to blast her way into the semi-finals of the Miami Open with a 6-2, 7-5 win over China's Zheng Qinwen.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797443-20250326.htm)
-
----
-
-# Lights out for lamp model after hospital mishap
-
-![The Hospital Authority said it would not resume the use of the light in question until thorough checks are completed. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797428_1_20250326094629.jpg&q=90)
-  
-
-The Hospital Authority has suspended the use of about 200 examination lights of the same model as that involved in a recent incident that saw a surgical lamp fall at Hong Kong Adventist Hospital in Tsuen Wan.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm)
 
 ---

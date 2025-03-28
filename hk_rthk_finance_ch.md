@@ -1,3 +1,75 @@
+# 期指結算日　港股競價時段升94點　李寧績後升逾3%
+
+![期指結算日，港股開市靠穩，恒生指數競價時段報23672點，升94點，升幅0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797800_1_20250328092409.jpg&q=10)
+  
+
+期指結算日，港股開市靠穩，恒生指數競價時段報23672點，升94點，升幅0.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797800-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797800-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797800-20250328.htm)
+
+---
+
+# 人民幣兌美元中間價升11點子　創逾1星期新高
+
+![人民幣中間價報7.1752兌1美元，較昨日中間價升11點子，創逾1星期新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797798_1_20250328091753.jpg&q=75)
+  
+
+人民幣中間價報7.1752兌1美元，較昨日中間價升11點子，創逾1星期新高，與市場預測偏離幅度收窄至約850點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797798-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797798-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797798-20250328.htm)
+
+---
+
+# 台股初段跌約0.8%
+
+![台灣加權指數較早時報21778點，跌173點，跌幅0.79%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797795_1_20250328090233.jpg&q=90)
+  
+
+台股初段下跌，加權指數較早時報21778點，跌173點，跌幅0.79%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797795-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797795-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797795-20250328.htm)
+
+---
+
 # 巴爾金：車企面對兩難局面　料消費者不會承受關稅全部影響
 
 ![巴爾金表示，車企面臨兩難局面，考慮到市場競爭、匯率等問題，估計消費者不會承受徵收關稅帶來的全部影響。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797788_1_20250328080438.jpg&q=90)
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797651-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797651-20250327.htm)
-
----
-
-# 特朗普：可能提出降低中國關稅換取中方批准出售TikTok
-
-![特朗普1月上任後簽署行政命令，將針對TikTok「不賣就禁」法例生效的最後期限推遲至4月初。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797647_1_20250327115115.jpg&q=90)
-  
-
-美國總統特朗普宣布向進口汽車徵收25%關稅時說，可能會提出降低對中國的關稅，以獲得中國政府批准出售短片分享程式TikTok。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797647-20250327.htm)
-
----
-
-# 內地股市半日止跌回升　上證指數升0.3%
-
-![內地股市扭轉早段跌勢，上證指數半日收報3379點，升10點，升幅0.31%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797643_1_20250327113620.jpg&q=85)
-  
-
-內地股市扭轉早段跌勢，化學原料、光刻機、醫藥股造好，海工裝備、電力股向下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797643-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797643-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797643-20250327.htm)
-
----
-
-# 丁薛祥：擴大國內需求積極穩外貿穩外資　有信心實現發展目標
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797641_1_20250327123700.jpg&q=80)
-  
-
-國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式致辭表示，今年首兩個月，中國經濟運行起步平穩，有信心實現經濟社會發展目標，為亞洲和世界的發展作出新貢獻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm)
 
 ---

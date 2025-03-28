@@ -1,3 +1,26 @@
+# 衞生防護中心：冬季流感嚴重個案減少料與市民願意接種疫苗有關
+
+  
+
+衞生署宣布本港今年度冬季流感季節已結束。衞生防護中心總監徐樂堅表示，回顧呼吸道陽性樣本比例、入院率、學校或院舍爆發數字等，都較基線水平為低，並出現持續下降趨勢，加上病毒株沒有改變，因此有信心冬季流感季節已完結。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797797-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797797-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797797-20250328.htm)
+
+---
+
 # 政府強烈譴責英國所謂半年報告　促停止干涉屬中國內政的香港事務
 
 ![特區政府再次強烈敦促英國認清事實，立即停止干涉純屬中國內政的香港事務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797759_1_20250328003430.jpg&q=90)
@@ -24,7 +47,7 @@
 
 # 粵港澳大灣區律師顧問小組加入網紅　律政司冀制定措施更「貼地」
 
-![謝承益表示，發現不少港人在內地遇到各式各樣問題或困難，但不懂處理。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_1_20250327235446.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_1_20250327235446.jpg&q=75)
   
 
 律政司兩年前成立「粵港澳大灣區專責小組」，以深化大灣區便利惠民的互利合作，以及推進大灣區發展和建設，去年再在專責小組之下成立「粵港澳大灣區律師顧問小組」。政府本月初委任兩個小組合共7名新成員，包括居住在深圳的香港人、網紅「西DorSi」謝承益，亦是專責小組唯一並非來自法律界又長居內地的港人成員。
@@ -48,7 +71,7 @@
 
 # 廉署：系統研發遭晶片禁運拖慢　DeepSeek可加快推進工作
 
-![胡英明說，內地人工智能系統DeepSeek去年底公布大模型後，可加快推進工作。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797757_1_20250327235419.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797757_1_20250327235419.jpg&q=75)
   
 
 廉政專員胡英明表示，受制於西方國家的晶片禁運，拖慢廉署的系統研發工作，因涉及很多機密敏感資料，維護等工作，要由內部研究。不過內地人工智能系統DeepSeek去年底公布大模型後，胡英明形容有如見到陽光，可加快推進工作。
@@ -72,7 +95,7 @@
 
 # 立法會選舉胡英明稱勿煽動他人不投票或投無效票　廉署將強硬執法
 
-![胡英明表示，任何人如透過公開活動煽動他人不投票或投無效票，均屬違法，公眾不要轉載和分享有關言論。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797756_2_20250328083530.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797756_2_20250328083530.jpg&q=80)
   
 
 立法會換屆選舉年底舉行，廉政專員胡英明表示，法例清楚寫明，任何人如透過公開活動煽動他人不投票或投無效票，均屬違法，公眾不要轉載和分享有關言論。胡英明強調，廉署會強硬執法，「見一宗拉一宗」，公眾不要存有僥倖心態。
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797611-20250327.htm)
-
----
-
-# 陳國基歡迎立法會通過法院遙距聆訊條例草案
-
-![陳國基表示，歡迎立法會通過《法院遙距聆訊條例草案》。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797585_1_20250327004131.jpg&q=90)
-  
-
-政務司司長陳國基歡迎立法會通過《法院遙距聆訊條例草案》。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797585-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797585-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797585-20250327.htm)
 
 ---

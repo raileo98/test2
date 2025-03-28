@@ -1,3 +1,146 @@
+# 期指結算日　港股競價時段升94點　李寧績後升逾3%
+
+![期指結算日，港股開市靠穩，恒生指數競價時段報23672點，升94點，升幅0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797800_1_20250328092409.jpg&q=10)
+  
+
+期指結算日，港股開市靠穩，恒生指數競價時段報23672點，升94點，升幅0.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797800-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797800-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797800-20250328.htm)
+
+---
+
+# 人民幣兌美元中間價升11點子　創逾1星期新高
+
+![人民幣中間價報7.1752兌1美元，較昨日中間價升11點子，創逾1星期新高。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797798_1_20250328091753.jpg&q=75)
+  
+
+人民幣中間價報7.1752兌1美元，較昨日中間價升11點子，創逾1星期新高，與市場預測偏離幅度收窄至約850點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797798-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797798-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797798-20250328.htm)
+
+---
+
+# 衞生防護中心：冬季流感嚴重個案減少料與市民願意接種疫苗有關
+
+  
+
+衞生署宣布本港今年度冬季流感季節已結束。衞生防護中心總監徐樂堅表示，回顧呼吸道陽性樣本比例、入院率、學校或院舍爆發數字等，都較基線水平為低，並出現持續下降趨勢，加上病毒株沒有改變，因此有信心冬季流感季節已完結。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797797-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797797-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797797-20250328.htm)
+
+---
+
+# 《環看天下》：卡尼稱加中貿易關係須謹慎    中方：望加方相
+
+![卡尼日前表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面，需要非常謹慎。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797796_1_20250328091436.jpg&q=90)
+  
+
+加拿大總理卡尼日前表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面，需要非常謹慎。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm)
+
+---
+
+# 台股初段跌約0.8%
+
+![台灣加權指數較早時報21778點，跌173點，跌幅0.79%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797795_1_20250328090233.jpg&q=90)
+  
+
+台股初段下跌，加權指數較早時報21778點，跌173點，跌幅0.79%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797795-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797795-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797795-20250328.htm)
+
+---
+
+# 南韓山火地區昨晚下微雨　當局全力開展撲救工作
+
+![山火造成至少28人死亡，3萬居民流離失所。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797794_1_20250328085608.jpg&q=90)
+  
+
+南韓慶尚北道山火持續一星期，當地昨晚下微雨，加上風勢減慢，令火勢有所減弱。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797794-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797794-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797794-20250328.htm)
+
+---
+
 # 巴爾金：車企面對兩難局面　料消費者不會承受關稅全部影響
 
 ![巴爾金表示，車企面臨兩難局面，考慮到市場競爭、匯率等問題，估計消費者不會承受徵收關稅帶來的全部影響。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797788_1_20250328080438.jpg&q=90)
@@ -648,7 +791,7 @@
 
 # 粵港澳大灣區律師顧問小組加入網紅　律政司冀制定措施更「貼地」
 
-![謝承益表示，發現不少港人在內地遇到各式各樣問題或困難，但不懂處理。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_1_20250327235446.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_1_20250327235446.jpg&q=75)
   
 
 律政司兩年前成立「粵港澳大灣區專責小組」，以深化大灣區便利惠民的互利合作，以及推進大灣區發展和建設，去年再在專責小組之下成立「粵港澳大灣區律師顧問小組」。政府本月初委任兩個小組合共7名新成員，包括居住在深圳的香港人、網紅「西DorSi」謝承益，亦是專責小組唯一並非來自法律界又長居內地的港人成員。
@@ -672,7 +815,7 @@
 
 # 廉署：系統研發遭晶片禁運拖慢　DeepSeek可加快推進工作
 
-![胡英明說，內地人工智能系統DeepSeek去年底公布大模型後，可加快推進工作。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797757_1_20250327235419.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797757_1_20250327235419.jpg&q=75)
   
 
 廉政專員胡英明表示，受制於西方國家的晶片禁運，拖慢廉署的系統研發工作，因涉及很多機密敏感資料，維護等工作，要由內部研究。不過內地人工智能系統DeepSeek去年底公布大模型後，胡英明形容有如見到陽光，可加快推進工作。
@@ -696,7 +839,7 @@
 
 # 立法會選舉胡英明稱勿煽動他人不投票或投無效票　廉署將強硬執法
 
-![胡英明表示，任何人如透過公開活動煽動他人不投票或投無效票，均屬違法，公眾不要轉載和分享有關言論。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797756_2_20250328083530.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797756_2_20250328083530.jpg&q=80)
   
 
 立法會換屆選舉年底舉行，廉政專員胡英明表示，法例清楚寫明，任何人如透過公開活動煽動他人不投票或投無效票，均屬違法，公眾不要轉載和分享有關言論。胡英明強調，廉署會強硬執法，「見一宗拉一宗」，公眾不要存有僥倖心態。
@@ -1291,150 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797722-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797722-20250327.htm)
-
----
-
-# 李強晤法國外長　冀法方為赴法投資中企營造公平發展環境
-
-![國務院總理李強在北京會見法國外長巴羅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797732_1_20250327203707.jpg&q=90)
-  
-
-國務院總理李強在北京會見法國外長巴羅時表示，中法雙方要共同抵制保護主義、單邊主義，繼續本著開放態度加強合作，充分發揮互補優勢，為兩國經濟發展不斷增添動力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm)
-
----
-
-# 啟德體育園引進大型廢物分解系統將於國際七人欖球賽期間運作
-
-![大型廢物分解系統每年可將逾200噸廚餘、紙杯及其他紙製容器轉化為堆肥。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797731_1_20250327210818.jpg&q=90)
-  
-
-啟德體育園引進首台大型廢物分解系統，經試驗後，將在今屆香港國際七人欖球賽期間正式投入運作，以處理活動期間收集的廚餘及紙類廢物。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797731-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797731-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797731-20250327.htm)
-
----
-
-# 郵儲行去年盈利按年變動不大
-
-![郵儲行去年盈利864.8億元人民幣，按年微升0.24%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797729_1_20250327200354.jpg&q=85)
-  
-
-郵儲行去年盈利864.8億元人民幣，按年微升0.24%。派末期息每股0.1139元人民幣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797729-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797729-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797729-20250327.htm)
-
----
-
-# 澳門與內地警方聯手破兩個犯罪集團共拘60多人
-
-![澳門司警展示在行動中檢獲的現金、電子設備和賬簿等證物。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797730_1_20250327202004.jpg&q=85)
-![涉案被捕的犯罪集團成員由司警押解往檢察院偵訊。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797730_2_20250327202004.jpg&q=80)
-  
-
-澳門司警與內地警方聯手破獲兩個涉及因賭博非法兌換款項的團伙，共拘捕60多人，在過去五個月涉及的不法兌換金額共7億9000萬港元，相信當中有2100萬港元是不法利潤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm)
-
----
-
-# 香港科技探索去年轉蝕6670萬元
-
-![香港科技探索稱內地主要電商將推出大型啟動及市場推廣活動，為本地零售商帶來壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797703_1_20250327171309.jpg&q=90)
-  
-
-香港科技探索去年業績盈轉虧，蝕6670萬元，前年同期則賺4532萬元，受新探索及科技業務經營虧損等影響。不派末期息，但派特別息每股0.38元，以慶祝HKTVmall成立十週年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797703-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797703-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797703-20250327.htm)
-
----
-
-# 陳子達先後與北京廣州及深圳海關交流並參觀當地設施
-
-![陳子達（中）參觀北京大興國際機場。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797726_1_20250327193953.jpg&q=90)
-  
-
-香港海關關長陳子達昨日在北京拜訪國家海關總署，與海關總署署長孫梅君會面，雙方就深化內地與香港海關業務合作等事宜交換意見，並參觀了海關設施及北京大興國際機場，了解當地的通關流程以及如何運用科技提升通關效率等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm)
 
 ---
