@@ -577,7 +577,7 @@
 
 # 緬甸大地震　據報曼谷有建築物倒塌1死43人失蹤
 
-![曼谷有建築物倒塌，救援人員在瓦礫中搜救。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797875_1_20250328161024.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797875_1_20250328161024.jpg&q=90)
   
 
 緬甸發生黎克特制7級以上猛烈地震，泰國曼谷有震感，當地傳媒報道，曼谷一座興建中的30層高建築物因強震倒塌，造成1人死亡，43人失蹤。泰國總理佩通坦宣布，曼谷進入緊急狀態。
