@@ -21,30 +21,6 @@
 
 ---
 
-# 保安局向緬甸及泰國發出黃色外遊警示
-
-![保安局向緬甸及泰國發外遊警示，表示有威脅跡象。（保安局網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797947_1_20250328230651.jpg&q=90)
-  
-
-保安局向緬甸及泰國發出黃色外遊警示，表示有威脅跡象。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797947-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797947-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797947-20250328.htm)
-
----
-
 # 元朗謀殺及傷人案　多三名男子被捕明日提堂
 
 ![案發在今年一月，案中兩名事主在元朗喜業街喜業工廠大廈外，遭多人持刀襲擊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797944_1_20250328223845.jpg&q=85)
@@ -1449,5 +1425,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797736-20250327.htm)
+
+---
+
+# 高拔陞稱普通科門診夜診服務需視乎實際需要每區各有不同
+
+![高拔陞表示，醫管局每年會增加普通科門診服務量，日後做法需要視乎實際需要。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797735_1_20250327212826.jpg&q=90)
+  
+
+醫管局現時全港74間普通科門診，少於三分一提供夜診，診症時間最遲至晚上10時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797735-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797735-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797735-20250327.htm)
 
 ---
