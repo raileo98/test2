@@ -1,3 +1,26 @@
+# 以軍襲貝魯特建築物指真主黨存放無人機　馬克龍批評違反停火協議
+
+  
+
+以色列國防軍發表聲明指出，以軍攻擊位於黎巴嫩首都貝魯特一處黎巴嫩真主黨用於存放無人機的重要據點，指責真主黨將有關設施設於社區中，強調事前已向當地民眾發出撤離警告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797957-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797957-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797957-20250329.htm)
+
+---
+
 # 世貿證美國處於第一類拖欠費用狀態　已制定計劃維持運作
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm)
-
----
-
-# 金正恩指導北韓國防科研工作　滿意新研製電子干擾攻擊武器系統
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797681_1_20250327153506.jpg&q=90)
-  
-
-北韓領袖金正恩過去兩日指導無人航空技術聯合體，以及探測電子戰研究團隊的國防科研工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797681-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797681-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797681-20250327.htm)
 
 ---

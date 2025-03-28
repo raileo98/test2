@@ -1,3 +1,26 @@
+# 以軍襲貝魯特建築物指真主黨存放無人機　馬克龍批評違反停火協議
+
+  
+
+以色列國防軍發表聲明指出，以軍攻擊位於黎巴嫩首都貝魯特一處黎巴嫩真主黨用於存放無人機的重要據點，指責真主黨將有關設施設於社區中，強調事前已向當地民眾發出撤離警告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797957-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797957-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797957-20250329.htm)
+
+---
+
 # 世貿證美國處於第一類拖欠費用狀態　已制定計劃維持運作
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797883-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797883-20250328.htm)
-
----
-
-# 國新辦發表白皮書　強調西藏人權法治化水平持續提升
-
-![國務院新聞辦公室發布《新時代西藏人權事業的發展與進步》白皮書。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797882_1_20250328163412.jpg&q=90)
-  
-
-國務院新聞辦公室發布《新時代西藏人權事業的發展與進步》白皮書，強調新時代西藏人權事業取得的歷史性成就前所未有。在以中國式現代化全面推進中華民族偉大復興的新時代新征程上，中國共產黨和中國政府將繼續順應西藏各族人民對美好生活的期待，推動西藏人權事業實現更高質量的發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797882-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797882-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797882-20250328.htm)
 
 ---
