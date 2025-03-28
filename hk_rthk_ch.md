@@ -1,3 +1,27 @@
+# 世茂集團去年虧損擴大近71%
+
+![世茂集團去年虧損359.1億元人民幣，按年擴大近71%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797902_1_20250328174653.jpg&q=90)
+  
+
+世茂集團公布，去年虧損359.1億元人民幣，按年擴大近71%。維持不派末期息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797902-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797902-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797902-20250328.htm)
+
+---
+
 # 習近平：希望外資企業打消疑慮　放手到中國發展
 
 ![國家主席習近平在北京人民大會堂會見國際工商界代表。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797905_1_20250328175350.jpg&q=90)
