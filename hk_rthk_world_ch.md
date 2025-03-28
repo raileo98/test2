@@ -1,3 +1,26 @@
+# 習近平冀外資企業打消疑慮　放手來中國發展分享中國發展機遇
+
+  
+
+國家主席習近平在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm)
+
+---
+
 # 馬斯克稱有信心任期完結前完成削減聯邦政府支出工作
 
 ![馬斯克首次率政府效率部高層接受訪問。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797816_1_20250328110116.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797530-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797530-20250326.htm)
-
----
-
-# 強風及乾燥天氣增南韓山火撲救及控制火場面積難度
-
-![強風及乾燥天氣增加撲救及控制火場面積的難度。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797517_1_20250326184322.jpg&q=90)
-  
-
-南韓山火持續，強風及乾燥天氣增加撲救及控制火場面積的難度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797517-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797517-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797517-20250326.htm)
 
 ---

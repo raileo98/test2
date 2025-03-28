@@ -1,3 +1,27 @@
+# HK stock swings propel derivatives trade to highs
+
+![The number of outstanding futures and options contracts on the city's bourse has surpassed the record set last year by 70 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797841_1_20250328124759.jpg&q=80)
+  
+
+Big swings in stock markets and hedge fund activity have propelled Hong Kong's derivative trading to unprecedented highs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797841-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797841-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797841-20250328.htm)
+
+---
+
 # Autos lead market losses after Trump's new tariffs
 
 ![A line of Porsche cars is displayed outside a dealership in Edmonton, Canada. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797782_1_20250328071224.jpg&q=85)
@@ -1413,29 +1437,5 @@ Safe-haven gold surpassed US$3,000 for the first time on Friday, boosted by unce
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795777-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795777-20250314.htm)
-
----
-
-# CK Hutchison shares down after port deal criticism
-
-![CK Hutchison earlier agreed to sell its interests in a key Panama Canal port operator to a consortium led by BlackRock. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795749_1_20250314172048.jpg&q=80)
-  
-
-Shares of CK Hutchison shed more than 6 percent on Friday, after the Beijing office in charge of Hong Kong affairs reposted a newspaper commentary slamming the firm's sale of its Panama Canal ports.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm)
 
 ---

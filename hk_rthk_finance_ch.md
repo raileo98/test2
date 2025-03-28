@@ -1,3 +1,50 @@
+# 習近平冀外資企業打消疑慮　放手來中國發展分享中國發展機遇
+
+  
+
+國家主席習近平在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm)
+
+---
+
+# 習近平：冀外資企業不盲從各種干擾全球產供鏈安全穩定行為
+
+![國家主席習近平上午在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797840_1_20250328124654.jpg&q=80)
+  
+
+國家主席習近平上午在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797840-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797840-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797840-20250328.htm)
+
+---
+
 # 李寧：不會為維繫生意而犧牲部分專業屬性
 
 ![錢煒（左）稱中國體育用品賽道未來前景積極樂觀；李寧（中）稱國家推進體育強國建設，行業前景廣闊。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797836_1_20250328123702.jpg&q=90)
@@ -19,6 +66,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797836-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797836-20250328.htm)
+
+---
+
+# 習近平談外商投資遭政治干擾　稱吹滅別人的燈不會讓自己更光明
+
+![國家主席習近平在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797834_1_20250328122935.jpg&q=90)
+  
+
+國家主席習近平在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm)
 
 ---
 
@@ -1363,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797679-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797679-20250327.htm)
-
----
-
-# 內地股市先跌後回穩
-
-![上證指數收報3373點，升5點，升幅0.15%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797677_1_20250327150551.jpg&q=85)
-  
-
-內地股市先跌後回穩，化學原料、光刻機、醫藥股造好，海工裝備、電力、電機板塊向下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797677-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797677-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797677-20250327.htm)
-
----
-
-# 韓股低收近1.4%
-
-![首爾綜合指數收市報2607點，跌36點，跌幅1.39%。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797676_1_20250327144134.jpg&q=90)
-  
-
-韓股低收近1.4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797676-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797676-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797676-20250327.htm)
-
----
-
-# 日股低收0.6%
-
-![日經指數收市報37799點，跌227點，跌幅0.6%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797674_1_20250327143930.jpg&q=90)
-  
-
-東京股市向下。日經指數收市報37799點，跌227點，跌幅0.6%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797674-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797674-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797674-20250327.htm)
 
 ---

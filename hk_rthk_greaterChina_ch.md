@@ -1,3 +1,26 @@
+# 習近平冀外資企業打消疑慮　放手來中國發展分享中國發展機遇
+
+  
+
+國家主席習近平在北京人民大會堂會見國際工商界代表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm)
+
+---
+
 # 習近平：冀外資企業不盲從各種干擾全球產供鏈安全穩定行為
 
 ![國家主席習近平上午在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797840_1_20250328124654.jpg&q=80)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797413-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797413-20250326.htm)
-
----
-
-# 中印舉行邊境事務磋商和協調工作機制會議
-
-![中國與印度在北京舉行邊境事務磋商和協調工作機制會議。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797386_1_20250326013338.jpg&q=90)
-  
-
-中國與印度在北京舉行邊境事務磋商和協調工作機制會議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797386-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797386-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797386-20250326.htm)
 
 ---

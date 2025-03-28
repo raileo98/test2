@@ -1,3 +1,51 @@
+# HK stock swings propel derivatives trade to highs
+
+![The number of outstanding futures and options contracts on the city's bourse has surpassed the record set last year by 70 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797841_1_20250328124759.jpg&q=80)
+  
+
+Big swings in stock markets and hedge fund activity have propelled Hong Kong's derivative trading to unprecedented highs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797841-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797841-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797841-20250328.htm)
+
+---
+
+# Public transport enhanced for Rugby Sevens
+
+![Public transport operators are stepping up services during the Hong Kong Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797838_1_20250328123606.jpg&q=85)
+  
+
+Public transport operators are boosting services to accommodate the large crowds of passengers expected during the Hong Kong Sevens tournament.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm)
+
+---
+
 # Bulls score 6 points in 6 seconds in win over Lakers
 
 ![Late triples from Coby White (L) and Josh Giddey helped the Bulls to a win over the Lakers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797835_1_20250328123014.jpg&q=90)
@@ -1399,53 +1447,5 @@ A South Korean official enquiry said on Wednesday the government was responsible
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm)
-
----
-
-# BYD aims to double overseas sales to 800K in 2025
-
-![BYD sold 417,204 units overseas in 2024 and expects to see "a substantial rise" in its market share in Britain. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797519_1_20250326165846.jpg&q=50)
-  
-
-Electric vehicle giant BYD aims to double its sales outside China to more than 800,000 cars in 2025 and will look to overcome tariffs by assembling cars locally, its chairman has told analysts on an earnings call.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797519-20250326.htm)
-
----
-
-# Hang Seng Index up 0.6 percent
-
-![Hong Kong battled to edge higher on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797516_1_20250326164807.jpg&q=70)
-  
-
-Lingering hopes that US president Donald Trump's planned tariff blitz next week will not be as painful as feared lifted most Asian markets on Wednesday, though uncertainty about Trump's policies and the US economy tempered optimism.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797516-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797516-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797516-20250326.htm)
 
 ---

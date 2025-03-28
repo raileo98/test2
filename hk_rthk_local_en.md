@@ -1,3 +1,27 @@
+# Public transport enhanced for Rugby Sevens
+
+![Public transport operators are stepping up services during the Hong Kong Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797838_1_20250328123606.jpg&q=85)
+  
+
+Public transport operators are boosting services to accommodate the large crowds of passengers expected during the Hong Kong Sevens tournament.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm)
+
+---
+
 # 'Use AI chatbots in triage system to avoid mistakes'
 
 ![A patient rights group has proposed the use of AI chatbots in triage system at public hospitals to help patients gain a better understanding of their conditions. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797824_1_20250328114303.jpg&q=90)
@@ -1427,29 +1451,5 @@ Thousands of people flocked to Ocean Park on Saturday as they can now see the pa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796927-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796927-20250322.htm)
-
----
-
-# Online vehicle licence renewals up by 80 percent
-
-![Vehicle owners can scan a QR code on the licence to check the expiry date. Image: Transport Department's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796923_1_20250322151024.jpg&q=90)
-  
-
-The Transport Department on Saturday said it received almost 37,000 online applications for vehicle licence renewals in the first two months of the year, a more than 80 percent year-on-year increase.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796923-20250322.htm)
 
 ---
