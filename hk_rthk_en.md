@@ -1,4 +1,31 @@
-# High-rise collapses after quake rocks region
+# Hong Kong Rugby 7s action kicks off at Kai Tak
+
+![More people are expected to be at the stadium later as about 130,000 tickets were sold. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_1_20250328154507.jpg&q=85)
+![Organisers say rugby fans will find it easy to travel to the stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_2_20250328154507.jpg&q=75)
+![Britain plays France at the Kai Tak Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_3_20250328153434.jpg&q=90)
+![Applause and cheers filled the stadium, and many rugby fans said they liked what they saw. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_4_20250328153434.jpg&q=85)
+  
+
+The Hong Kong Sevens tournament kicked off with a bang at Kai Tak Stadium on Friday, as the Canadian and Japanese women's squads faced off.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797870-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797870-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797870-20250328.htm)
+
+---
+
+# Thai high-rise collapses after quake rocks region
 
 ![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_1_20250328152242.jpg&q=75)
 ![Office workers flee a building through the stairwell in Bangkok. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_2_20250328152713.jpg&q=90)
@@ -1425,29 +1452,5 @@ US President Donald Trump announced steep tariffs on auto imports Wednesday, in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm)
-
----
-
-# Magazine publishes US attack plan shared in group chat
-
-![In the Signal chat, Defence Secretary Pete Hegseth lays out the weather conditions, times of attacks and types of aircraft being used. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797576_1_20250326222631.jpg&q=90)
-  
-
-The Atlantic magazine on Wednesday published what it said was the entire text of a chat group mistakenly shared with a journalist by top US national security officials, laying out plans for an imminent attack on Yemen.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm)
 
 ---
