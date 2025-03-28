@@ -1,3 +1,51 @@
+# 中人壽原總裁楊超涉嫌嚴重違紀違法接受調查
+
+![中紀委：中國人壽保險原黨委書記、總裁楊超涉嫌嚴重違紀違法，目前正接受監察調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797896_1_20250328171925.jpg&q=80)
+  
+
+中紀委表示，中國人壽保險原黨委書記、總裁楊超涉嫌嚴重違紀違法，目前正接受監察調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797896-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797896-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797896-20250328.htm)
+
+---
+
+# 美聯去年轉賺3.2億元　不派息
+
+![美聯集團去年盈利3.2億元，而前年為虧損約4200萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797895_1_20250328171611.jpg&q=80)
+  
+
+美聯集團去年由虧轉盈，錄盈利3.2億元，而前年為虧損約4200萬元，不派息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797895-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797895-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797895-20250328.htm)
+
+---
+
 # 根據票價調整機制　港鐵今年度凍結票價
 
 ![港鐵將會於2025/26年度凍結票價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797889_1_20250328170231.jpg&q=85)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797729-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797729-20250327.htm)
-
----
-
-# 香港科技探索去年轉蝕6670萬元
-
-![香港科技探索稱內地主要電商將推出大型啟動及市場推廣活動，為本地零售商帶來壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797703_1_20250327171309.jpg&q=90)
-  
-
-香港科技探索去年業績盈轉虧，蝕6670萬元，前年同期則賺4532萬元，受新探索及科技業務經營虧損等影響。不派末期息，但派特別息每股0.38元，以慶祝HKTVmall成立十週年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797703-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797703-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797703-20250327.htm)
-
----
-
-# 港澳辦網站轉載報道指長和出售港口不符商業邏輯
-
-![中共中央港澳辦、國務院港澳辦轉載報道，內容提及長和計劃出售巴拿馬運河港口等資產。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797725_1_20250327192925.jpg&q=75)
-  
-
-中共中央港澳辦、國務院港澳辦在網站轉載大公文匯報報道，標題為《急售運河港口予美資 專家質疑「非一般買賣」 「企業面對霸權霸凌，應與國家站在一起」》，內容提及長和計劃出售巴拿馬運河港口等資產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm)
 
 ---

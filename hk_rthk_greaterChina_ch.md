@@ -1,3 +1,26 @@
+# 西藏經濟總量近2765億元　城鄉居民收入連續10年居全國前列
+
+  
+
+今年是西藏自治區成立60周年，國新辦發布《新時代西藏人權事業的發展與進步》白皮書，當中提到西藏曾是全國貧困發生率最高、脫貧難度最大的深度貧困地區，在黨中央堅強領導下，西藏精準扶貧及脫貧，去年西藏脫貧人口人均純收入同比增長12.5%以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm)
+
+---
+
 # 國新辦發表白皮書　強調西藏人權法治化水平持續提升
 
 ![國務院新聞辦公室發布《新時代西藏人權事業的發展與進步》白皮書。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797882_1_20250328163412.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797511-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797511-20250326.htm)
-
----
-
-# 韓正晤新加坡副總理　稱中方願深化兩國各領域交流合作
-
-![國家副主席韓正（右）在北京會見新加坡副總理王瑞傑。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797501_1_20250326153401.jpg&q=90)
-  
-
-國家副主席韓正在北京會見新加坡副總理王瑞傑時表示，過去一年來，中新關係穩步深入發展，習近平主席同新加坡領導人的系列會晤為下階段中新關係發展指明方向。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm](https://news.rthk.hk/rthk/ch/component/k2/1797501-20250326.htm)
 
 ---

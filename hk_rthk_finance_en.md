@@ -1,3 +1,27 @@
+# MTR fares to freeze under adjustment mechanism
+
+![While MTR fares will freeze for 2025/26, commuters face a steep hike next year after 3.36 percent of adjustments are brought forward. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797892_1_20250328171442.jpg&q=90)
+  
+
+There is relief for MTR passengers after fares will freeze in the coming year under a fare adjustment formula which takes into account a basket of factors, including inflation and median household income.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm)
+
+---
+
 # Hong Kong stocks close lower
 
 ![The Hang Seng Index finished down 0.7 percent at 23,426. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797890_1_20250328170005.jpg&q=80)
@@ -1413,29 +1437,5 @@ Beijing officials have shared a second article by the Ta Kung Pao newspaper crit
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm)
-
----
-
-# US share gains cut into week's losses
-
-![On Friday, all 11 sectors of the S&P 500 posted gains, while the Dow index was mostly up. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795808_1_20250315054816.jpg&q=85)
-  
-
-Wall Street stocks finished higher on Friday following bargain hunting that reduced the week's losses amid recession worries over President Trump's shifting tariff policy.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795808-20250315.htm)
 
 ---

@@ -1,3 +1,74 @@
+# 中人壽原總裁楊超涉嫌嚴重違紀違法接受調查
+
+![中紀委：中國人壽保險原黨委書記、總裁楊超涉嫌嚴重違紀違法，目前正接受監察調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797896_1_20250328171925.jpg&q=80)
+  
+
+中紀委表示，中國人壽保險原黨委書記、總裁楊超涉嫌嚴重違紀違法，目前正接受監察調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797896-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797896-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797896-20250328.htm)
+
+---
+
+# 美聯去年轉賺3.2億元　不派息
+
+![美聯集團去年盈利3.2億元，而前年為虧損約4200萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797895_1_20250328171611.jpg&q=80)
+  
+
+美聯集團去年由虧轉盈，錄盈利3.2億元，而前年為虧損約4200萬元，不派息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797895-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797895-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797895-20250328.htm)
+
+---
+
+# 西藏經濟總量近2765億元　城鄉居民收入連續10年居全國前列
+
+  
+
+今年是西藏自治區成立60周年，國新辦發布《新時代西藏人權事業的發展與進步》白皮書，當中提到西藏曾是全國貧困發生率最高、脫貧難度最大的深度貧困地區，在黨中央堅強領導下，西藏精準扶貧及脫貧，去年西藏脫貧人口人均純收入同比增長12.5%以上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm)
+
+---
+
 # 根據票價調整機制　港鐵今年度凍結票價
 
 ![港鐵將會於2025/26年度凍結票價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797889_1_20250328170231.jpg&q=85)

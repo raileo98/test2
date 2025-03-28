@@ -1,3 +1,27 @@
+# MTR fares to freeze under adjustment mechanism
+
+![While MTR fares will freeze for 2025/26, commuters face a steep hike next year after 3.36 percent of adjustments are brought forward. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797892_1_20250328171442.jpg&q=90)
+  
+
+There is relief for MTR passengers after fares will freeze in the coming year under a fare adjustment formula which takes into account a basket of factors, including inflation and median household income.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm)
+
+---
+
 # Modi offers 'all possible assistance'
 
 ![Office and retail workers gather outside a shopping mall in Bangkok after fleeing to the streets. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_1_20250328170355.jpg&q=70)
@@ -1431,29 +1455,5 @@ Alexandra Eala, a 19-year-old wildcard from the Philippines, produced a huge ups
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797607-20250327.htm)
-
----
-
-# Denmark welcomes US limiting Greenland visit
-
-![US Vice President JD Vance announced he would accompany his wife Usha, left, on Friday to the Pituffik Space Base in Greenland. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797564_1_20250326210127.jpg&q=90)
-  
-
-Denmark welcomed on Wednesday Washington's decision to limit an American delegation's visit to Greenland to a US military base, after previous plans for the unexpected trip sparked criticism.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797564-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797564-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797564-20250327.htm)
 
 ---

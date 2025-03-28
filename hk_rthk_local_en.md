@@ -1,3 +1,27 @@
+# MTR fares to freeze under adjustment mechanism
+
+![While MTR fares will freeze for 2025/26, commuters face a steep hike next year after 3.36 percent of adjustments are brought forward. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797892_1_20250328171442.jpg&q=90)
+  
+
+There is relief for MTR passengers after fares will freeze in the coming year under a fare adjustment formula which takes into account a basket of factors, including inflation and median household income.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm)
+
+---
+
 # Hong Kong Rugby Sevens premieres at Kai Tak
 
 ![More people are expected to be at the stadium later as about 130,000 tickets were sold. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_1_20250328154507.jpg&q=85)
@@ -1430,29 +1454,5 @@ Financial Secretary Paul Chan visited two mainland firms in Beijing on Friday, h
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm)
-
----
-
-# More school exchange tour members fall ill on mainland
-
-![The secondary school says the affected students and teachers are on an exchange tour to Zhaoqing. Photo: Po Leung Kuk Lo Kit Sing (1983) College's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796941_1_20250322181019.jpg&q=90)
-  
-
-A secondary school said on Saturday that some students and teachers taking part in an exchange tour on the mainland have fallen ill.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796941-20250322.htm)
 
 ---
