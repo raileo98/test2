@@ -1,3 +1,49 @@
+# 巴西足總宣布解僱國家隊教練杜利華
+
+  
+
+巴西足總宣布解僱國家隊教練杜利華。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797972-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797972-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797972-20250329.htm)
+
+---
+
+# 祖高域晉身邁亞密網賽男單決賽
+
+  
+
+邁亞密網球公開賽，37歲的祖高域晉身男單決賽，只差一步就能拿下職業生涯第100個ATP錦標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797971-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797971-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797971-20250329.htm)
+
+---
+
 # 金價再創新高　紐約期金升穿3100美元
 
 ![金價再創新高，現貨金高見每盎司3086.7美元，升幅1%；紐約期金升穿3100美元。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797968_1_20250329060757.jpg&q=80)
@@ -96,6 +142,7 @@
 
 # 緬甸及泰國當局徹夜於地震災區尋找倖存者
 
+![當局出動犬隻及挖掘機器在樓宇倒塌現場搜尋生命跡象。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797964_1_20250329065408.jpg&q=55)
   
 
 緬甸中部大地震後，緬甸及有強烈震感的泰國，徹夜在災區尋找倖存者。
@@ -1392,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm)
-
----
-
-# 兩隻貓疑高處墮下　34歲女子被捕涉嫌殘酷對待動物
-
-![警方調查後，拘捕一名34歲女子，她涉嫌「殘酷對待動物」，正被扣查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797897_1_20250328173011.jpg&q=40)
-  
-
-天水圍天恒邨恒健樓對開，凌晨發現一隻貓隻屍體及一隻貓受傷。警方調查後，拘捕上址一名34歲女子，她涉嫌「殘酷對待動物」，正被扣查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797897-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797897-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797897-20250328.htm)
-
----
-
-# 建行去年盈利升近1%
-
-![建設銀行去年盈利3355.8億元人民幣，按年升0.88%。派末期息每股0.206元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797894_1_20250328171540.jpg&q=90)
-  
-
-建設銀行公布，去年盈利3355.8億元人民幣，按年升0.88%。派末期息每股0.206元人民幣，全年派息0.403元，按年升近0.8%，派息比率30%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 巴西足總宣布解僱國家隊教練杜利華
+
+  
+
+巴西足總宣布解僱國家隊教練杜利華。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797972-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797972-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797972-20250329.htm)
+
+---
+
+# 祖高域晉身邁亞密網賽男單決賽
+
+  
+
+邁亞密網球公開賽，37歲的祖高域晉身男單決賽，只差一步就能拿下職業生涯第100個ATP錦標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797971-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797971-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797971-20250329.htm)
+
+---
+
 # 羅淑佩視察七欖賽事　稱新場館座位空調舒適氣氛熾熱
 
 ![羅淑佩與姚錦成拍照留念並詢問對場地觀感，形容對方反應很正面。（羅淑佩社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797931_1_20250328210638.jpg&q=90)
@@ -1403,53 +1449,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795901-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795901-20250316.htm)
-
----
-
-# 西甲皇馬2:1反勝維拉利爾　麥巴比建兩功
-
-![麥巴比梅開二度，協助皇馬反勝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795900_1_20250316070210.jpg&q=90)
-  
-
-西班牙甲組足球聯賽，皇家馬德里憑麥巴比梅開二度，作客2:1反勝維拉利爾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795900-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795900-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795900-20250316.htm)
-
----
-
-# 英超曼城與白禮頓賽和2:2　森林4:2贏葉士域治
-
-![夏蘭特攻入一球，刷新英超最快取得「入球加助攻」達到100球大關的紀錄。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795898_1_20250316065303.jpg&q=90)
-  
-
-英格蘭超級足球聯賽，曼城在主場被白禮頓逼和2:2，錯失升上前四的機會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795898-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795898-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795898-20250316.htm)
 
 ---

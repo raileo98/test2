@@ -1,3 +1,27 @@
+# Police arrest three more in Yuen Long murder case
+
+![The case, in which a 24-year-old man was killed and a 28-year-old injured, will be heard at Tuen Mun Magistrates’ Court. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797963_1_20250329051008.jpg&q=90)
+  
+
+Police have arrested three more suspects linked to a January 22 murder and wounding case in Yuen Long.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797963-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797963-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797963-20250329.htm)
+
+---
+
 # Govt taking steps to protect IP, says Algernon Yau
 
 ![Algernon Yau says the SAR government is taking steps to protect intellectual property to help develop Hong Kong into a regional IP trading centre. Photo courtesy: GIS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797952_1_20250329002426.jpg&q=85)
@@ -1428,29 +1452,5 @@ Customs have arrested an inbound traveller at the airport for allegedly smugglin
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797038-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797038-20250323.htm)
-
----
-
-# HK breast milk bank began feeding vulnerable newborns
-
-![Rosanna Wong, who heads Hong Kong's first breast milk bank, is upbeat about donation figures just two months after the facility began service. Photo: Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797014_1_20250323125157.jpg&q=90)
-  
-
-The Hong Kong Breast Milk Bank has begun serving premature or critically-ill newborns across the city, just two months after it came into operation in January.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797014-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797014-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797014-20250323.htm)
 
 ---

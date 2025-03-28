@@ -1,5 +1,6 @@
 # 緬甸及泰國當局徹夜於地震災區尋找倖存者
 
+![當局出動犬隻及挖掘機器在樓宇倒塌現場搜尋生命跡象。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797964_1_20250329065408.jpg&q=55)
   
 
 緬甸中部大地震後，緬甸及有強烈震感的泰國，徹夜在災區尋找倖存者。
