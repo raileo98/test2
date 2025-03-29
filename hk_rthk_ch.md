@@ -1,3 +1,27 @@
+# 德國漢諾威安老院火警50多人受傷
+
+![德國漢諾威安老院火警50多人受傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798077_1_20250330063050.jpg&q=90)
+  
+
+德國北部城市漢諾威一間安老院發生火警，50多人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798077-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798077-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798077-20250330.htm)
+
+---
+
 # 香港特區救援隊抵達緬甸　賑災基金預留3千萬元賑災
 
 ![特區政府派出的救援隊昨晚抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798076_1_20250330061016.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm)
-
----
-
-# 緬甸強烈地震死亡人數超過1千人
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798006_1_20250329131545.jpg&q=90)
-  
-
-緬甸中部7級以上強烈地震，軍政府說死亡人數超過1千人，超過2千人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798006-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798006-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798006-20250329.htm)
 
 ---

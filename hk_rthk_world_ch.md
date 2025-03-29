@@ -1,3 +1,27 @@
+# 德國漢諾威安老院火警50多人受傷
+
+![德國漢諾威安老院火警50多人受傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798077_1_20250330063050.jpg&q=90)
+  
+
+德國北部城市漢諾威一間安老院發生火警，50多人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798077-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798077-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798077-20250330.htm)
+
+---
+
 # 香港特區救援隊抵達緬甸　賑災基金預留3千萬元賑災
 
 ![特區政府派出的救援隊昨晚抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798076_1_20250330061016.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm)
-
----
-
-# 南韓山林廳稱慶尚北道山火已全部撲滅
-
-![消防員繼續全力撲救持續一星期的山火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797919_1_20250328191549.jpg&q=45)
-  
-
-南韓慶尚道地區山火持續一星期，消防部門今天派出超過120架直升機及近7000名消防員繼續全力撲救。山林廳宣布，慶尚北道的山火已全部撲滅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm)
 
 ---
