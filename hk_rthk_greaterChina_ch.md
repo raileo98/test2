@@ -1,3 +1,27 @@
+# 緬甸強震增至694人死逾1600人傷　習近平向敏昂萊致慰問電
+
+![地震亦導致泰國曼谷至少10人喪生，約100人仍然失蹤。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797999_1_20250329123436.jpg&q=70)
+  
+
+緬甸中部7級以上強烈地震，在當地增至最少694人死亡，1670人受傷，暫時未有中國公民死亡報告，多處有建築物受損，中國派出救援隊趕赴震區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm)
+
+---
+
 # 李家超：特區政府救援隊前往緬甸地震災區協助搜救
 
 ![李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797996_1_20250329121806.jpg&q=25)
@@ -1412,28 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm)
-
----
-
-# 朱民：中國經濟改革要轉向消費　成為經濟主要動力
-
-  
-
-中國國際經濟交流中心副理事長、國際貨幣基金組織前副總裁朱民表示，2018年美國向中國加徵關稅，市場信心受挫，但其後企業開始出海，認為中國整體應對得不錯，當年中國對美國出口額約5000億美元，現時仍可保持相若水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm)
 
 ---

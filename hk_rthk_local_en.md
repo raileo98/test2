@@ -1,3 +1,27 @@
+# Some people need to seek alternatives to A&E, Lo says
+
+![Health chief Lo Chung-mau hopes the public can turn to other choices than A&E when the new fees take effect next year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797998_1_20250329122451.jpg&q=85)
+  
+
+The Secretary for Health Lo Chung-mau says he hopes some people can find alternatives to accident and emergency wards at public hospitals at all times when new fees take effect.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm)
+
+---
+
 # 'Amazing, crazy' action at day two of Rugby Sevens
 
 ![Fiji and Britain's women's teams face off at Kai Tak Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_1_20250329121802.jpg&q=85)
@@ -1428,29 +1452,5 @@ The chair of the European Chamber of Commerce in Hong Kong on Monday welcomed la
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797113-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797113-20250324.htm)
-
----
-
-# Police arrest 32 in raid on unlicensed bar in Central
-
-![Officers said those arrested were aged between 28 and 70. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797097_1_20250324093956.jpg&q=90)
-  
-
-Police on late Sunday arrested 32 people following a raid on a suspected unlicensed bar on Li Yuen Street West in Central.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797097-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797097-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797097-20250324.htm)
 
 ---

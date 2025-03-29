@@ -1,3 +1,50 @@
+# 高拔陞稱會細化公營醫療收費改革流程　聽取市民員工意見多做解說
+
+  
+
+政府公布公營醫療收費改革，包括提出急症室收費方面，第三至五類病人的費用升至400元，第一、二類危殆危急的病人獲得豁免。另外，住院門診費用就新設1萬元收費上限。改革方案明年起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm)
+
+---
+
+# 緬甸強震增至694人死逾1600人傷　習近平向敏昂萊致慰問電
+
+![地震亦導致泰國曼谷至少10人喪生，約100人仍然失蹤。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797999_1_20250329123436.jpg&q=70)
+  
+
+緬甸中部7級以上強烈地震，在當地增至最少694人死亡，1670人受傷，暫時未有中國公民死亡報告，多處有建築物受損，中國派出救援隊趕赴震區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm)
+
+---
+
 # 李家超：特區政府救援隊前往緬甸地震災區協助搜救
 
 ![李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797996_1_20250329121806.jpg&q=25)
@@ -1393,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797929-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797929-20250328.htm)
-
----
-
-# 台中新光三越百貨上月爆炸事故　調查報告判定是天然氣爆炸
-
-![台中新光三越百貨爆炸事故上月13日發生，造成5死30多傷。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797927_1_20250328204623.jpg&q=80)
-  
-
-上月造成5死30多傷的台中新光三越百貨爆炸事故，消防部門公布調查報告，判定發生原因是天然氣爆炸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797927-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797927-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797927-20250328.htm)
-
----
-
-# 美國2月核心PCE按月升0.4%　略高於預期
-
-![美國2月撇除食品和能源的核心PCE物價指數，按月升0.4%，略高於預期；按年升2.8%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797926_1_20250328204234.jpg&q=90)
-  
-
-美國2月個人消費開支(PCE)物價指數按月升0.3%，升幅與1月相同，符合市場預期，按年升2.5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797926-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797926-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797926-20250328.htm)
 
 ---

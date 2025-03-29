@@ -1,3 +1,27 @@
+# 緬甸強震增至694人死逾1600人傷　習近平向敏昂萊致慰問電
+
+![地震亦導致泰國曼谷至少10人喪生，約100人仍然失蹤。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797999_1_20250329123436.jpg&q=70)
+  
+
+緬甸中部7級以上強烈地震，在當地增至最少694人死亡，1670人受傷，暫時未有中國公民死亡報告，多處有建築物受損，中國派出救援隊趕赴震區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm)
+
+---
+
 # 李家超：特區政府救援隊前往緬甸地震災區協助搜救
 
 ![李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797996_1_20250329121806.jpg&q=25)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797762-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797762-20250328.htm)
-
----
-
-# 援烏峰會於巴黎舉行　馬克龍稱法英將派人赴烏克蘭商烏軍建設事宜
-
-![馬克龍表示31個國家的代表及北約、歐盟領導人出席今次峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797761_1_20250328011623.jpg&q=90)
-  
-
-法國總統馬克龍說，法國與英國兩軍參謀長，近期將派代表前往烏克蘭，討論與烏軍建設有關事宜。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797761-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797761-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797761-20250328.htm)
 
 ---

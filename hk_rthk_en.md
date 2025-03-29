@@ -1,3 +1,27 @@
+# Some people need to seek alternatives to A&E, Lo says
+
+![Health chief Lo Chung-mau hopes the public can turn to other choices than A&E when the new fees take effect next year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797998_1_20250329122451.jpg&q=85)
+  
+
+The Secretary for Health Lo Chung-mau says he hopes some people can find alternatives to accident and emergency wards at public hospitals at all times when new fees take effect.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm)
+
+---
+
 # Myanmar-Thailand quake death toll passes 700
 
 ![A rescuer works at the site of the skyscraper that collapsed in Bangkok. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797995_1_20250329121851.jpg&q=70)
@@ -1428,29 +1452,5 @@ South Korea's auto sector is expected to face "considerable difficulties" when U
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797671-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797671-20250327.htm)
-
----
-
-# Thais give green light to draft law for casinos
-
-![Protesters rally near Government House in Bangkok against the casino-entertainment complex bill. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797665_1_20250327133509.jpg&q=90)
-  
-
-Thailand's cabinet on Thursday approved a draft law for casinos and entertainment complexes, as the government looks to attract more tourists and build a major gaming industry.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797665-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797665-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797665-20250327.htm)
 
 ---

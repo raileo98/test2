@@ -1,3 +1,26 @@
+# 高拔陞稱會細化公營醫療收費改革流程　聽取市民員工意見多做解說
+
+  
+
+政府公布公營醫療收費改革，包括提出急症室收費方面，第三至五類病人的費用升至400元，第一、二類危殆危急的病人獲得豁免。另外，住院門診費用就新設1萬元收費上限。改革方案明年起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm)
+
+---
+
 # 李家超：特區政府救援隊前往緬甸地震災區協助搜救
 
 ![李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797996_1_20250329121806.jpg&q=25)
@@ -1429,29 +1452,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm)
-
----
-
-# 天水圍兩隻貓疑高處墮下一死一傷　列殘酷對待動物案暫未有人被捕
-
-![警方表示，接獲保安報案，指發現有兩隻貓懷疑從高處墮下。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797804_1_20250328094738.jpg&q=90)
-  
-
-天水圍天恒邨恒健樓對開，凌晨2時許發現一隻貓隻屍體及一隻貓受傷。警方經初步調查，案件列作殘酷對待動物。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797804-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797804-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797804-20250328.htm)
 
 ---
