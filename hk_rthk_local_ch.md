@@ -1,5 +1,29 @@
+# 何永賢稱社會認為需調整公屋富戶政策　將資源交更有需要市民
+
+  
+
+房屋局局長何永賢表示，「簡樸房」規管制度的最新方案建議，登記期為12個月，寬限期延長至36個月，合共4年，為避免業主因寬限期延長而拖延不處理違規劏房，在「倒數期」6個月內若單位仍然不合規格，就不能與租客簽訂新合約，違法的業主可被罰款30萬、監禁3年，認為有足夠阻嚇性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797984-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797984-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797984-20250329.htm)
+
+---
+
 # 盧寵茂：醫療改革非加價彌補財赤　強調政府承擔無減少
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797982_1_20250329094044.jpg&q=85)
   
 
 醫務衞生局局長盧寵茂在本台節目《星期六問責》表示，醫療改革不是加價彌補財赤，強調政府的承擔沒有減少，期望透過輕症的病人共付費用，以達致增加保障、減少浪費。
@@ -23,6 +47,7 @@
 
 # 何永賢：簡約公屋居民儲蓄數年或可能足夠支付購買居屋首期
 
+![何永賢表示，預計每日有50至100戶居民入伙。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797981_1_20250329094102.jpg&q=90)
   
 
 位於元朗攸壆路的首個簡約公屋項目昨日起陸續入伙，房屋局局長何永賢表示，預計每日有50至100戶居民入伙，到5月底全部2100個單位會全部入伙。
@@ -1426,29 +1451,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm)
-
----
-
-# 九龍城警區打擊違規學習駕駛發出12張定額罰款通知書及2張傳票
-
-![警方打擊違規學習駕駛的導師和學習駕駛者。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797748_1_20250327224449.jpg&q=85)
-  
-
-九龍城警區聯同相關部門在區內展開行動，打擊與「違規學習駕駛」相關的違法行為，過去一周，共發出12張定額罰款通知書及2張傳票，票控違規學習駕駛的導師和學習駕駛者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797748-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797748-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797748-20250327.htm)
 
 ---

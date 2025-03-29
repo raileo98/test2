@@ -1,5 +1,54 @@
+# 南部戰區南海海域例行巡航　發言人斥菲方拉攏域外國家破壞和平
+
+![南部戰區南海海域例行巡航　發言人斥菲方拉攏域外國家破壞和平](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797985_1_20250329101044.jpg&q=90)
+  
+
+解放軍南部戰區新聞發言人田軍里表示，南部戰區昨日在南海海域進行例行巡航。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797985-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797985-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797985-20250329.htm)
+
+---
+
+# 《環看天下》：南韓歷來最嚴重山火　救援隊伍高齡化惹關注
+
+![南韓山林大火規模打破當地紀錄，數以萬計居民緊急疏散。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797983_1_20250329093955.jpg&q=80)
+  
+
+南韓東南部的山林大火，持續至今一個星期。截至昨日，山火累計範圍據報增至4萬8千公頃，相當於香港面積四成，規模打破了當地紀錄；傷亡人數增至28人，亦是歷來最嚴重。數以萬計居民緊急疏散。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797983-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797983-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797983-20250329.htm)
+
+---
+
 # 南韓山火部分地區復燃　男子涉掃墓留下火種正被調查
 
+![消防部門派出6架直升機等前往撲救。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797979_1_20250329094152.jpg&q=90)
   
 
 南韓慶尚北道的山火有死灰復燃跡象，繼安東市之後，義城郡部分地區山火復燃，消防部門派出6架直升機等前往撲救。
@@ -1389,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm)
-
----
-
-# 港澳辦網站轉載報道指長和出售港口不符商業邏輯
-
-![中共中央港澳辦、國務院港澳辦轉載報道，內容提及長和計劃出售巴拿馬運河港口等資產。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797725_1_20250327192925.jpg&q=75)
-  
-
-中共中央港澳辦、國務院港澳辦在網站轉載大公文匯報報道，標題為《急售運河港口予美資 專家質疑「非一般買賣」 「企業面對霸權霸凌，應與國家站在一起」》，內容提及長和計劃出售巴拿馬運河港口等資產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm)
-
----
-
-# 丘應樺稱政府致力建設香港成為區域知識產權貿易中心
-
-![丘應樺（左）拜會外交部港澳台司副司長冉波（右），介紹香港經貿的最新發展。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797721_1_20250327191021.jpg&q=45)
-  
-
-商務及經濟發展局局長丘應樺在北京展開訪問行程。他上午首先拜訪國家知識產權局，與副局長張志成會面，並表示，特區政府一直致力保護知識產權及推動知識產權貿易，建設香港成為區域知識產權貿易中心，協助推動新質生產力，尤其是促進大灣區創新科技及創意產業的進一步發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm)
 
 ---

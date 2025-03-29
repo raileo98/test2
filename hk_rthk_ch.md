@@ -1,5 +1,77 @@
+# 南部戰區南海海域例行巡航　發言人斥菲方拉攏域外國家破壞和平
+
+![南部戰區南海海域例行巡航　發言人斥菲方拉攏域外國家破壞和平](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797985_1_20250329101044.jpg&q=90)
+  
+
+解放軍南部戰區新聞發言人田軍里表示，南部戰區昨日在南海海域進行例行巡航。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797985-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797985-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797985-20250329.htm)
+
+---
+
+# 何永賢稱社會認為需調整公屋富戶政策　將資源交更有需要市民
+
+  
+
+房屋局局長何永賢表示，「簡樸房」規管制度的最新方案建議，登記期為12個月，寬限期延長至36個月，合共4年，為避免業主因寬限期延長而拖延不處理違規劏房，在「倒數期」6個月內若單位仍然不合規格，就不能與租客簽訂新合約，違法的業主可被罰款30萬、監禁3年，認為有足夠阻嚇性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797984-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797984-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797984-20250329.htm)
+
+---
+
+# 《環看天下》：南韓歷來最嚴重山火　救援隊伍高齡化惹關注
+
+![南韓山林大火規模打破當地紀錄，數以萬計居民緊急疏散。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797983_1_20250329093955.jpg&q=80)
+  
+
+南韓東南部的山林大火，持續至今一個星期。截至昨日，山火累計範圍據報增至4萬8千公頃，相當於香港面積四成，規模打破了當地紀錄；傷亡人數增至28人，亦是歷來最嚴重。數以萬計居民緊急疏散。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797983-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797983-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797983-20250329.htm)
+
+---
+
 # 盧寵茂：醫療改革非加價彌補財赤　強調政府承擔無減少
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797982_1_20250329094044.jpg&q=85)
   
 
 醫務衞生局局長盧寵茂在本台節目《星期六問責》表示，醫療改革不是加價彌補財赤，強調政府的承擔沒有減少，期望透過輕症的病人共付費用，以達致增加保障、減少浪費。
@@ -23,6 +95,7 @@
 
 # 何永賢：簡約公屋居民儲蓄數年或可能足夠支付購買居屋首期
 
+![何永賢表示，預計每日有50至100戶居民入伙。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797981_1_20250329094102.jpg&q=90)
   
 
 位於元朗攸壆路的首個簡約公屋項目昨日起陸續入伙，房屋局局長何永賢表示，預計每日有50至100戶居民入伙，到5月底全部2100個單位會全部入伙。
@@ -70,6 +143,7 @@
 
 # 南韓山火部分地區復燃　男子涉掃墓留下火種正被調查
 
+![消防部門派出6架直升機等前往撲救。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797979_1_20250329094152.jpg&q=90)
   
 
 南韓慶尚北道的山火有死灰復燃跡象，繼安東市之後，義城郡部分地區山火復燃，消防部門派出6架直升機等前往撲救。
@@ -1366,79 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm)
-
----
-
-# 國泰航空有原定飛往曼谷航班需折返起飛機場
-
-![今日由香港飛往曼谷的CX751航班已折返香港。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797912_1_20250328203913.jpg&q=80)
-  
-
-國泰航空表示，因應緬甸及泰國部分地區受地震影響，今日由香港飛往曼谷的CX751航班已折返香港，新加坡飛往曼谷的CX630航班亦已折返新加坡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm)
-
----
-
-# 元朗攸壆路簡約公屋入伙　租戶稱省下金錢可以給子女讀書補習
-
-![攸壆路的簡約公屋項目，南北兩區合共有2156個單位。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797911_1_20250328184755.jpg&q=90)
-![已有兩條巴士及1條專線小巴路線，為居民提供服務。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797911_2_20250328184755.jpg&q=85)
-![簡約公屋項目亦設有超市，便利店，自助洗衣店等設施。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797911_3_20250328184755.jpg&q=85)
-  
-
-位於元朗攸壆路的首個簡約公屋項目2100多個單位，今日起陸續入伙，房屋局局長何永賢見證部份租戶辦理入伙手續，並向他們派發單位鎖匙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797911-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797911-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797911-20250328.htm)
-
----
-
-# 旅議會估計約有6個旅行團在泰國　涉及旅客少於100人
-
-![旅議會估計約有6個旅行團在泰國　涉及旅客少於100人。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797910_1_20250328184014.jpg&q=80)
-  
-
-緬甸發生黎克特制7級以上地震，泰國全國亦有震感。本港的旅遊業議會表示，根據暫時估計約有6個旅行團在泰國，涉及旅客少於100人，暫時未收到有旅行團在緬甸，並引述入境處指暫時未有求助個案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm)
 
 ---
