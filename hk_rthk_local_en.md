@@ -24,7 +24,7 @@ Secretary for Constitutional and Mainland Affairs Erick Tsang said on Saturday t
 
 # Hong Kong sends rescue team to quake-stricken Myanmar
 
-![Rescuers are digging through the rubble of collapsed buildings in a desperate search for survivors. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798001_2_20250329130610.jpg&q=85)
+![Members of the Fire Services Department, along with the Security Bureau and the Hospital Authority are part of the SAR's 51-strong rescue team. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798001_3_20250329162817.jpg&q=80)
   
 
 Chief Executive John Lee on Saturday said Hong Kong will send a search and rescue team to Myanmar, after a magnitude 7.7 earthquake struck the country.
@@ -70,7 +70,7 @@ The Secretary for Health Lo Chung-mau says he hopes some people can find alterna
 
 ---
 
-# 'Amazing, crazy' action at day two of Rugby Sevens
+# 'Amazing, crazy' action on day two of Rugby Sevens
 
 ![The Hong Kong China men’s squad beat Japan 43-21 in the Melrose Claymores competition. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_3_20250329161738.jpg&q=90)
 ![Fiji and Britain's women's teams face off at Kai Tak Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_1_20250329121802.jpg&q=85)

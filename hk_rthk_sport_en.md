@@ -22,7 +22,7 @@ Tim Hardaway Jr scored 32 points to lead Detroit to a 133-122 victory over the E
 
 ---
 
-# 'Amazing, crazy' action at day two of Rugby Sevens
+# 'Amazing, crazy' action on day two of Rugby Sevens
 
 ![The Hong Kong China men’s squad beat Japan 43-21 in the Melrose Claymores competition. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_3_20250329161738.jpg&q=90)
 ![Fiji and Britain's women's teams face off at Kai Tak Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_1_20250329121802.jpg&q=85)
