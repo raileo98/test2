@@ -1,3 +1,46 @@
+# 寒冷天氣警告生效
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm)
+
+---
+
+# 蕭澤頤：有待中央政府決定他去留問題
+
+  
+
+下月任期屆滿的警務處處長蕭澤頤，出席警察學院結業會操，他形容自己心情百感交集，此生無憾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm)
+
+---
+
 # 緬甸大地震逾千人死亡　中國救援隊抵達仰光
 
 ![在曼德勒，救援人員在瓦礫中搜索生還者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798047_1_20250329213443.jpg&q=90)

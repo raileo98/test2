@@ -1,3 +1,46 @@
+# 寒冷天氣警告生效
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm)
+
+---
+
+# 蕭澤頤：有待中央政府決定他去留問題
+
+  
+
+下月任期屆滿的警務處處長蕭澤頤，出席警察學院結業會操，他形容自己心情百感交集，此生無憾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm)
+
+---
+
 # 70歲男子羅亞祥失蹤　警方呼籲市民提供消息
 
   
@@ -1401,53 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797907-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797907-20250328.htm)
-
----
-
-# 兩隻貓疑高處墮下　34歲女子被捕涉嫌殘酷對待動物
-
-![警方調查後，拘捕一名34歲女子，她涉嫌「殘酷對待動物」，正被扣查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797897_1_20250328173011.jpg&q=40)
-  
-
-天水圍天恒邨恒健樓對開，凌晨發現一隻貓隻屍體及一隻貓受傷。警方調查後，拘捕上址一名34歲女子，她涉嫌「殘酷對待動物」，正被扣查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797897-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797897-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797897-20250328.htm)
-
----
-
-# 根據票價調整機制　港鐵今年度凍結票價
-
-![港鐵將會於2025/26年度凍結票價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797889_1_20250328170231.jpg&q=85)
-  
-
-政府今日公布運輸業名義工資指數最新數字，以港鐵票價調整機制方程式，計算出今年票價調整幅度較啟動加價的門檻1.5%為低，加上政府早前公布，去年的第4季家庭住戶每月入息中位數按年錄得跌幅，觸發封頂機制，港鐵將會於2025/26年度凍結票價。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm)
 
 ---
