@@ -1,3 +1,23 @@
+# 鄧炳強：特區救援隊汲取土耳其救援經驗　第二梯隊準備好可支援
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm)
+
+---
+
 # 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
 
 ![行政長官李家超與多名官員到機場，向特區救援隊進行授旗儀式。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_1_20250329151618.jpg&q=90)
@@ -1412,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm)
-
----
-
-# 南韓山火地區昨晚下微雨　當局全力開展撲救工作
-
-![山火造成至少28人死亡，3萬居民流離失所。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797794_1_20250328085608.jpg&q=90)
-  
-
-南韓慶尚北道山火持續一星期，當地昨晚下微雨，加上風勢減慢，令火勢有所減弱。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797794-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797794-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797794-20250328.htm)
 
 ---

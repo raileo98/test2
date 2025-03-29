@@ -1,3 +1,23 @@
+# 鄧炳強：特區救援隊汲取土耳其救援經驗　第二梯隊準備好可支援
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm)
+
+---
+
 # 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
 
 ![行政長官李家超與多名官員到機場，向特區救援隊進行授旗儀式。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_1_20250329151618.jpg&q=90)
@@ -1409,29 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797946-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797946-20250328.htm)
-
----
-
-# 思捷環球：若下周一前無法刊發經審核年度業績　下周二起或停牌
-
-![思捷環球表示，若無法於下周一或之前刊發經審核的年度業績，股份將於下周二早上9時正起停牌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797945_1_20250328225355.jpg&q=90)
-  
-
-思捷環球公布，有可能延遲刊發去年的年度業績，若無法於下周一或之前刊發經審核的年度業績，股份將於下周二早上9時正起停牌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797945-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797945-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797945-20250328.htm)
 
 ---

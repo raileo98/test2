@@ -1,3 +1,23 @@
+# 鄧炳強：特區救援隊汲取土耳其救援經驗　第二梯隊準備好可支援
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm)
+
+---
+
 # 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
 
 ![行政長官李家超與多名官員到機場，向特區救援隊進行授旗儀式。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_1_20250329151618.jpg&q=90)
@@ -1421,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797837-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797837-20250328.htm)
-
----
-
-# 七欖開鑼鄧竟成稱早上安排順暢　羅淑佩料稍後有更多人入場
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797833_1_20250328130217.jpg&q=75)
-  
-
-一連3日的香港國際七人欖球賽在啟德主場館舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm)
 
 ---
