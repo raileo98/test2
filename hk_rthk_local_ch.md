@@ -96,6 +96,7 @@
 
 # 新華社：中國香港特區救援隊抵達緬甸仰光國際機場
 
+![特區政府派出51人救援隊已抵達仰光。（港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798058_1_20250329235726.jpg&q=70)
   
 
 新華社報道，緬甸時間星期六晚，中國香港特區救援隊抵達仰光國際機場。
