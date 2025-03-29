@@ -1,3 +1,27 @@
+# 七欖第二日賽事共38820人入場
+
+![香港國際七人欖球賽第二日賽事，共有38820人入場。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798051_1_20250329222812.jpg&q=85)
+  
+
+香港國際七人欖球賽在啟德體育園進行的第二日賽事，共有38820人入場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798051-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798051-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798051-20250329.htm)
+
+---
+
 # 寒冷天氣警告生效
 
 ![寒冷天氣警告生效](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798049_1_20250329215230.jpg&q=90)
