@@ -1,3 +1,26 @@
+# 西甲聯賽　皇家馬德里主場3:2險勝雷加尼斯
+
+  
+
+西甲聯賽，皇家馬德里憑麥巴比射入2球，主場3:2險勝雷加尼斯，追至同榜首的巴塞羅那同分。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798078-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798078-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798078-20250330.htm)
+
+---
+
 # 德國漢諾威安老院火警50多人受傷
 
 ![德國漢諾威安老院火警50多人受傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798077_1_20250330063050.jpg&q=90)
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798010-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798010-20250329.htm)
-
----
-
-# 特區政府救援隊前赴緬甸　李家超及多名官員將到機場送行
-
-![李家超下午將到機場送行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798008_1_20250329135721.jpg&q=90)
-  
-
-特區政府派出保安局、消防處、入境處和醫管局人員組成的救援隊前往緬甸，協助地震災區的搜救工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm)
 
 ---

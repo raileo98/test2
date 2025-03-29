@@ -1,3 +1,49 @@
+# 諾定咸森林憑互射12碼淘汰白禮頓　34年來首次晉級英足盃4強
+
+  
+
+英格蘭足總盃，諾定咸森林作客同白禮頓踢到加時，結果森林在憑互射12碼勝出，34年來首次晉級4強。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798079-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798079-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798079-20250330.htm)
+
+---
+
+# 西甲聯賽　皇家馬德里主場3:2險勝雷加尼斯
+
+  
+
+西甲聯賽，皇家馬德里憑麥巴比射入2球，主場3:2險勝雷加尼斯，追至同榜首的巴塞羅那同分。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798078-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798078-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798078-20250330.htm)
+
+---
+
 # 德甲拜仁3:2挫聖保利
 
 ![拜仁球員慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798066_1_20250330011528.jpg&q=90)
@@ -1411,53 +1457,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796165-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796165-20250318.htm)
-
----
-
-# 美斯因傷未被列入阿根廷大軍名單
-
-![美斯在對亞特蘭大的賽事中攻入一球。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796147_1_20250318041525.jpg&q=90)
-  
-
-阿根廷前鋒美斯因傷，未有入選未來兩場世界盃外圍賽對烏拉圭及巴西的大軍名單。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796147-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796147-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796147-20250318.htm)
-
----
-
-# 補時階段入兩球　西甲巴塞4:2反勝馬體會重返榜首
-
-![巴塞的費蘭托利斯今仗梅開二度。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795983_1_20250317072715.jpg&q=85)
-  
-
-西班牙甲組足球聯賽，巴塞羅那上演絕地反擊，作客4:2反勝馬體會，重返榜首。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795983-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795983-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795983-20250317.htm)
 
 ---
