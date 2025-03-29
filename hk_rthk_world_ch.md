@@ -1,3 +1,43 @@
+# 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm)
+
+---
+
+# 緬甸大地震逾千人死亡　中方決定提供1億元人民幣緊急救災援助
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm)
+
+---
+
 # 美國地質勘探局推算緬甸地震死亡人數或超過1萬
 
 ![外國救援物資開始運到緬甸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798012_1_20250329142835.jpg&q=90)
@@ -1390,53 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797784-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797784-20250328.htm)
-
----
-
-# 埃及旅遊潛艇事故釀6名俄羅斯遊客死亡　當局調查事故原因
-
-![辛德巴德號潛艇的執照有效，船長亦取得相關證書。圖為之前遊客在潛艇內觀賞海底珊瑚的情況。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797772_1_20250328061429.jpg&q=90)
-  
-
-埃及紅海省發表聲明指出，一艘旅遊潛艇於當地星期四，在省首府胡爾加達附近海域發生事故，6名俄羅斯遊客死亡，其餘39名外國遊客獲救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797772-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797772-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797772-20250328.htm)
-
----
-
-# 墨西哥僱主聯合會指美國汽車關稅降低北美競爭力及致失業率上升
-
-![聯合會指加徵關稅將影響數十年來建立起來的貿易與生產一體化。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797771_1_20250328042209.jpg&q=80)
-  
-
-美國政府推出汽車關稅措施。墨西哥是美國最大的汽車供應國，其次是南韓、日本、加拿大及德國。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797771-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797771-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797771-20250328.htm)
 
 ---

@@ -1,5 +1,96 @@
+# 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm)
+
+---
+
+# 麥美娟稱計劃舉辦關愛隊分享會　讓外界更認識關愛隊工作
+
+  
+
+現屆470名區議員日前已經提交年度工作報告，民政及青年事務局局長麥美娟表示，民政事務總署和各區民政事務專員會整理報告，方便市民查閱。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm)
+
+---
+
+# 特區救援隊51人前赴緬甸災區　抵達現場後將立即加入救援
+
+![特區政府救援隊一行51人在機場集合，前往緬甸災區協助搜救。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_1_20250329150455.jpg&q=60)
+  
+
+特區政府救援隊一行51人今日前往緬甸災區，協助搜救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm)
+
+---
+
+# 青衣住宅單位疑作毒品儲存庫　25歲男子涉販運危險藥物被捕
+
+  
+
+警方在青衣路一個住宅單位搗破懷疑毒品儲存倉庫，檢獲市值約139萬元懷疑毒品，拘捕一名25歲男子涉嫌「販運危險藥物」，正被扣查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm)
+
+---
+
 # 馬莎百貨一款打發忌廉總含菌量超標　食安中心籲勿食用
 
+![食安中心呼籲市民不要食用受影響批次的產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798013_1_20250329151311.jpg&q=90)
   
 
 一款從英國進口以巴士德消毒法處理的馬莎百貨預先包裝打發忌廉樣本，被檢出總含菌量超出法例標準，食安中心呼籲市民不要食用受影響批次的產品。業界如持有相關批次的產品，應立即停止使用或出售。
@@ -1351,101 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797833-20250328.htm)
-
----
-
-# 龔如心遺產受託人完成籌組理事會　開展準備工作管理慈善信託
-
-![律政司相信，在管理機構的監督下，受託人理事會會隨即開展相關準備工作，盡心盡力管理慈善信託。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797832_1_20250328130241.jpg&q=80)
-  
-
-就龔如心遺產案，龔如心慈善管理有限公司年初獲委任為已故龔如心遺產下的慈善信託的受託人，律政司表示，受託人已完成籌組理事會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm)
-
----
-
-# 加強打擊濫用公屋修例刊憲　下月2日交立法會首讀二讀
-
-![政府發言人表示，會加強及持續宣傳，確保公屋居民及市民理解一系列加強打撃濫用公屋新措施的內容。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797831_1_20250328124440.jpg&q=90)
-  
-
-《2025年房屋（修訂）條例草案》刊憲，政府表示，條例草案將引入嚴重濫用公屋的新罪行；賦權獲授權人員要求可疑人士提供個人資料；及延長虛假陳述、拒絕提供資料及非法讓與罪行的檢控時效，令打擊濫用公屋的措施更具阻嚇力。根據建議，法例修訂將於明年3月底生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797831-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797831-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797831-20250328.htm)
-
----
-
-# 恒指半日轉跌210點　科指跌近1.7%
-
-![恒指中午收市報23368點，跌210點，跌幅近0.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797828_1_20250328121259.jpg&q=75)
-  
-
-期指結算日，港股先高後低，恒生指數初段一度升近200點，其後最多轉跌近260點，中午收市報23368點，跌210點，跌幅近0.9%，半日主板成交額1317億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm)
-
----
-
-# 冷鋒黃昏至晚間橫過珠江口　下午局部地區雷暴周末市區最低15度
-
-![天文台預測，下午稍後局部地區可能有雷暴，漸轉吹和緩至清勁東至東北風。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797829_1_20250328130310.jpg&q=75)
-  
-
-天文台表示，現時位於廣東內陸至東部沿岸的一道冷鋒，會在今日黃昏至晚間橫過珠江口一帶，與其相關的驟雨正影響內陸地區。正午時分，本港港內的能見度維持在2000米以下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797829-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797829-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797829-20250328.htm)
 
 ---

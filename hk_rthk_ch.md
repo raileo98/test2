@@ -1,5 +1,116 @@
+# 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm)
+
+---
+
+# 緬甸大地震逾千人死亡　中方決定提供1億元人民幣緊急救災援助
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm)
+
+---
+
+# 麥美娟稱計劃舉辦關愛隊分享會　讓外界更認識關愛隊工作
+
+  
+
+現屆470名區議員日前已經提交年度工作報告，民政及青年事務局局長麥美娟表示，民政事務總署和各區民政事務專員會整理報告，方便市民查閱。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm)
+
+---
+
+# 特區救援隊51人前赴緬甸災區　抵達現場後將立即加入救援
+
+![特區政府救援隊一行51人在機場集合，前往緬甸災區協助搜救。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_1_20250329150455.jpg&q=60)
+  
+
+特區政府救援隊一行51人今日前往緬甸災區，協助搜救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm)
+
+---
+
+# 青衣住宅單位疑作毒品儲存庫　25歲男子涉販運危險藥物被捕
+
+  
+
+警方在青衣路一個住宅單位搗破懷疑毒品儲存倉庫，檢獲市值約139萬元懷疑毒品，拘捕一名25歲男子涉嫌「販運危險藥物」，正被扣查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm)
+
+---
+
 # 馬莎百貨一款打發忌廉總含菌量超標　食安中心籲勿食用
 
+![食安中心呼籲市民不要食用受影響批次的產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798013_1_20250329151311.jpg&q=90)
   
 
 一款從英國進口以巴士德消毒法處理的馬莎百貨預先包裝打發忌廉樣本，被檢出總含菌量超出法例標準，食安中心呼籲市民不要食用受影響批次的產品。業界如持有相關批次的產品，應立即停止使用或出售。
@@ -1315,129 +1426,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797945-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797945-20250328.htm)
-
----
-
-# 元朗謀殺及傷人案　多三名男子被捕明日提堂
-
-![案發在今年一月，案中兩名事主在元朗喜業街喜業工廠大廈外，遭多人持刀襲擊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797944_1_20250328223845.jpg&q=85)
-  
-
-元朗一月發生的一宗謀殺及傷人案，警方拘捕多三名懷疑涉案男子，其中兩名分別20歲及42歲男子各被暫控一項謀殺罪及一項意圖傷人罪，餘下一名23歲男子則被暫控一項協助罪犯罪，案件明日在屯門裁判法院提堂。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm)
-
----
-
-# 緬甸地震增至144死732傷　曼谷有建築物倒塌5死逾百人失蹤
-
-![緬甸發生大地震，曼德勒有建築物倒塌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797943_1_20250328225226.jpg&q=90)
-  
-
-緬甸中部發生7.7級地震，領導人敏昂萊在當地傳媒發表講話，表示地震已經導致144人死亡，732人受傷。他呼籲任何國家和任何組織向緬甸提供援助。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm)
-
----
-
-# 七欖首次移師啟德主場館舉行　開幕禮有激光投影等表演
-
-![賽事晚上舉行由旅發局贊助的開幕禮，有舞龍舞獅。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_2_20250328230020.jpg&q=35)
-![開幕禮有長約3分鐘的激光投影。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_3_20250328230020.jpg&q=70)
-![香港國際七人欖球賽首次移師啟德體育園主場館舉行。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_1_20250328230020.jpg&q=75)
-  
-
-香港國際七人欖球賽首次移師啟德體育園主場館舉行，有入場市民說有冷氣，較以往在大球場體驗為好。
-  
-![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1797941_3_L_20250328230020.jpg)
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm)
-
----
-
-# 王毅晤剛果共和國外長　強調推動中非合作高質量發展
-
-![王毅與剛果共和國外長加科索會面。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797940_1_20250328223208.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在北京會見剛果共和國外長加科索。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm)
-
----
-
-# 入境處與警方拘捕7名非法勞工4名僱主及3名逾期居留人士
-
-![懷疑非法勞工在行動中被捕。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797939_1_20250328222251.jpg&q=85)
-  
-
-入境處本星期一起，連續四日在全港多區展開反非法勞工行動，又聯同警方執法，共拘捕7名懷疑非法勞工、4名涉嫌聘用非法勞工的僱主及3名逾期逗留人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm)
 
 ---

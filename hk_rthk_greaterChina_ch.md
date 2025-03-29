@@ -1,3 +1,23 @@
+# 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm)
+
+---
+
 # 縱橫遊取消4月出發泰國旅行團　涉及10團共約150人
 
 ![縱橫遊宣布，將會取消所有4月份出發的泰國旅行團。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798011_1_20250329145442.jpg&q=80)
@@ -1412,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm)
-
----
-
-# 丁薛祥：今年首兩個月中國經濟運行起步平穩
-
-![丁薛祥表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797666_1_20250327140247.jpg&q=80)
-  
-
-博鰲亞洲論壇年會舉行開幕式，國務院副總理丁薛祥發表主旨演講，表示全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797666-20250327.htm)
 
 ---
