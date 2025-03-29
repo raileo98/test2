@@ -1,3 +1,27 @@
+# 緬甸領導人視察重災區　曼谷倒塌大樓發現至少15人生命跡象
+
+![敏昂萊昨日在內比都一間醫院探望傷者。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798003_1_20250329124954.jpg&q=90)
+  
+
+緬甸中部7級以上強烈地震，在重災區曼德勒省造成至少694人死亡，1670人受傷，暫時未有中國公民死亡報告，緬甸領導人敏昂萊上午乘坐直升機，抵達曼德勒省視察災情。中國派出多支救援隊伍趕赴災區協助搜救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm)
+
+---
+
 # 有來自泰國旅客對地震感到震驚　有轉機旅客指曼谷機場有較多旅客
 
   
@@ -68,7 +92,7 @@
 
 ---
 
-# 李家超：特區政府救援隊前往緬甸地震災區協助搜救
+# 特區政府救援隊赴緬甸助搜救　李家超：短時間應召集結展無私精神
 
 ![李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797996_1_20250329121806.jpg&q=25)
   
@@ -239,7 +263,7 @@
 
 # 蕭澤頤任期至下月1日稱百感交集　信香港治安將繼續改善
 
-![蕭澤頤出席警察學院結業會操，擔任檢閱官。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797988_1_20250329112328.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797988_1_20250329112328.jpg&q=80)
   
 
 警務處處長蕭澤頤出席警察學院結業會操，擔任檢閱官。他致辭時表示，作為執法者，要時刻堅守有法必依，違法必究的大原則，執法不偏不倚，秉持公正及中立；要待人以嚴，也要嚴以律己。
@@ -1414,30 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797930-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797930-20250328.htm)
-
----
-
-# 羅淑佩視察七欖賽事　稱新場館座位空調舒適氣氛熾熱
-
-![羅淑佩與姚錦成拍照留念並詢問對場地觀感，形容對方反應很正面。（羅淑佩社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797931_1_20250328210638.jpg&q=90)
-![羅淑佩說，新場館燈光及氣氛都非常亮麗熾熱。（羅淑佩社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797931_2_20250328210638.jpg&q=70)
-  
-
-國際七人欖球賽揭幕，文化體育及旅遊局局長羅淑佩說，早上去了啟德主場館接受海外傳媒直播訪問，同時視察七欖開打的實況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm)
 
 ---

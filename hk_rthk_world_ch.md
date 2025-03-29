@@ -1,3 +1,27 @@
+# 緬甸領導人視察重災區　曼谷倒塌大樓發現至少15人生命跡象
+
+![敏昂萊昨日在內比都一間醫院探望傷者。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798003_1_20250329124954.jpg&q=90)
+  
+
+緬甸中部7級以上強烈地震，在重災區曼德勒省造成至少694人死亡，1670人受傷，暫時未有中國公民死亡報告，緬甸領導人敏昂萊上午乘坐直升機，抵達曼德勒省視察災情。中國派出多支救援隊伍趕赴災區協助搜救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm)
+
+---
+
 # 有來自泰國旅客對地震感到震驚　有轉機旅客指曼谷機場有較多旅客
 
   
@@ -45,7 +69,7 @@
 
 ---
 
-# 李家超：特區政府救援隊前往緬甸地震災區協助搜救
+# 特區政府救援隊赴緬甸助搜救　李家超：短時間應召集結展無私精神
 
 ![李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797996_1_20250329121806.jpg&q=25)
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797764-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797764-20250328.htm)
-
----
-
-# 何立峰晤歐方經貿官員　稱中方願共同抵制單邊主義及保護主義
-
-![何立峰在釣魚台國賓館會見謝夫喬維奇。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797763_1_20250328014438.jpg&q=90)
-  
-
-中共中央政治局委員、國務院副總理何立峰，昨晚在釣魚台國賓館會見歐盟委員會貿易和經濟安全委員謝夫喬維奇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm)
 
 ---
