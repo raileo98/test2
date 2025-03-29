@@ -1,3 +1,26 @@
+# 157人涉太空油毒品被捕　蕭澤頤稱不擔心採用試紙令個案變隱蔽
+
+  
+
+政府上月14日刊憲將太空油毒品主要成分依托咪酯及3種類似物列為毒品。警務處處長蕭澤頤表示，刊憲後至到前日，警方共拘捕120宗與太空油毒品有關案件，拘捕157人。當中37人是21歲以下人士，其中16人是學生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798005-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798005-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798005-20250329.htm)
+
+---
+
 # 七欖移師啟德舉行　蕭澤頤稱整體運作暢順已與運輸署商討改善安排
 
   
@@ -1426,29 +1449,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm)
-
----
-
-# 陳茂波稱香港可助彌補綠色項目資金缺口　尋求創新融資解決方案
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797814_1_20250328111939.jpg&q=90)
-  
-
-財政司司長陳茂波表示，香港作為國際金融中心及綠色金融的領導者，可以協助彌補綠色項目的資金缺口，提到香港的綠色債券發行量，連續7年位居亞洲市場第一，去年市佔率就達到大約45%。同時香港正尋求創新融資解決方案，例如代幣化綠色債券和基建融資證券化，以吸引新投資者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm)
 
 ---

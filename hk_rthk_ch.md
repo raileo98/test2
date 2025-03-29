@@ -1,3 +1,50 @@
+# 緬甸強烈地震死亡人數超過1千人
+
+![緬甸有建築物在地震中倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798006_1_20250329131545.jpg&q=90)
+  
+
+緬甸中部7級以上強烈地震，軍政府說死亡人數超過1千人，超過2千人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798006-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798006-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798006-20250329.htm)
+
+---
+
+# 157人涉太空油毒品被捕　蕭澤頤稱不擔心採用試紙令個案變隱蔽
+
+  
+
+政府上月14日刊憲將太空油毒品主要成分依托咪酯及3種類似物列為毒品。警務處處長蕭澤頤表示，刊憲後至到前日，警方共拘捕120宗與太空油毒品有關案件，拘捕157人。當中37人是21歲以下人士，其中16人是學生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798005-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798005-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798005-20250329.htm)
+
+---
+
 # 七欖移師啟德舉行　蕭澤頤稱整體運作暢順已與運輸署商討改善安排
 
   
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797935-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797935-20250328.htm)
-
----
-
-# 建造業「油漆工」「砌磚工」訂定灣區標準推展「一試多證」安排
-
-![當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797934_1_20250328215518.jpg&q=75)
-  
-
-當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排，有關標準已上載香港建造學院的網頁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm)
-
----
-
-# 丘應樺稱全力建設香港成為區域知識產權貿易中心
-
-![丘應樺（前排右一）到訪一家內地著名的潮流文化娛樂公司，了解營運情況和內地知識產權產品的發展。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797932_1_20250328215451.jpg&q=85)
-  
-
-商務及經濟發展局局長丘應樺表示，特區政府正透過一系列措施保障創新和創意成果，推動知識產權貿易，並會加強知識產權人才培訓，全力建設香港成為區域知識產權貿易中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm)
 
 ---

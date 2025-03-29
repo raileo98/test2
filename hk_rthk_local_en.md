@@ -48,6 +48,7 @@ The Secretary for Health Lo Chung-mau says he hopes some people can find alterna
 
 # 'Amazing, crazy' action at day two of Rugby Sevens
 
+![Argentina beats Fiji in the men's Rugby Sevens match. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_2_20250329131539.jpg&q=90)
 ![Fiji and Britain's women's teams face off at Kai Tak Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_1_20250329121802.jpg&q=85)
   
 
