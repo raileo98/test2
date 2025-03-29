@@ -1,3 +1,27 @@
+# 的士內搜出毒品　司機涉販毒被捕
+
+![警方在吳松街搜查一輛的士，檢獲懷疑毒品，拘捕司機。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798059_1_20250329232113.jpg&q=40)
+  
+
+一名48歲的士司機涉嫌販毒被捕，正被警方扣查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798059-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798059-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798059-20250329.htm)
+
+---
+
 # 新華社：中國香港特區救援隊抵達緬甸仰光國際機場
 
   
@@ -143,7 +167,7 @@
 
 # 博物館高峰論壇結束　今屆逾7千人次報名創歷屆新高
 
-![博物館高峰論壇結束　今屆逾7千人次報名創歷屆新高](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798052_1_20250329232031.jpg&q=90)
+![陳詠雯（中)表示，博物館高峰論壇已邁入第四屆，與博物館及整個社會一樣，正在努力重塑模式並超越傳統界限。（政府新聞處提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798052_2_20250329232642.jpg&q=85)
   
 
 一連兩日在香港會議展覽中心舉行，由康文署主辦、法國吉美國立亞洲藝術博物館協辦的「博物館高峰論壇2025」結束。累計超過7000人次報名，創歷屆新高，當中3分1為非本地人士，分別來自39個國家。

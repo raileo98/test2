@@ -1,3 +1,26 @@
+# 因應緬甸地震　特區政府從賑災基金預留3千萬元作為緊急賑災之用
+
+  
+
+特區政府表示，因應緬甸地震，已從賑災基金預留3千萬元，作為緊急賑災項目之用，並正與本地救援機構緊密溝通，落實具體賑災計劃，務求為災民提供適切援助，協助他們渡過難關，早日回復正常生活。賑災基金諮詢委員會亦會從速處理有關撥款申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798060-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798060-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798060-20250329.htm)
+
+---
+
 # 的士內搜出毒品　司機涉販毒被捕
 
 ![警方在吳松街搜查一輛的士，檢獲懷疑毒品，拘捕司機。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798059_1_20250329232113.jpg&q=40)
@@ -119,7 +142,7 @@
 
 # 博物館高峰論壇結束　今屆逾7千人次報名創歷屆新高
 
-![博物館高峰論壇結束　今屆逾7千人次報名創歷屆新高](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798052_1_20250329232031.jpg&q=90)
+![陳詠雯（中)表示，博物館高峰論壇已邁入第四屆，與博物館及整個社會一樣，正在努力重塑模式並超越傳統界限。（政府新聞處提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798052_2_20250329232642.jpg&q=85)
   
 
 一連兩日在香港會議展覽中心舉行，由康文署主辦、法國吉美國立亞洲藝術博物館協辦的「博物館高峰論壇2025」結束。累計超過7000人次報名，創歷屆新高，當中3分1為非本地人士，分別來自39個國家。
@@ -1422,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm)
-
----
-
-# 接近長和高層消息：下周不會簽署任何有關出售巴拿馬運河港口協議
-
-![接近長和高層消息稱，下周不會簽署任何有關出售巴拿馬運河港口業務協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797923_1_20250328201653.jpg&q=80)
-  
-
-長和本月初宣布，向美國貝萊德牽頭的財團出售巴拿馬運河港口等業務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797923-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797923-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797923-20250328.htm)
 
 ---
