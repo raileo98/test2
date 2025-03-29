@@ -1,3 +1,30 @@
+# Fans revel in electric second day of HK Sevens
+
+![Rugby fans fill up the Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_2_20250329184242.jpg&q=20)
+![Fans watch the New Zealand men's squad battle it out against South Africa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_1_20250329183213.jpg&q=85)
+![Costumes were on full display at the South Stand. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_3_20250329183213.jpg&q=85)
+![Fiji fans cheer during day two of Rugby Sevens action. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_4_20250329183213.jpg&q=65)
+  
+
+Fans soaked up the raucous atmosphere at the new Kai Tak Stadium where the Hong Kong Sevens are being held for the first time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm)
+
+---
+
 # Police make 157 space oil drug arrests
 
 ![Police commissioner Raymond Siu says the force arrested 157 people in relation to the space oil drug between February 14 and March 27. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798023_1_20250329170940.jpg&q=90)
@@ -1430,29 +1457,5 @@ The Housing Authority on Monday said well-off public housing tenants will be giv
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm)
-
----
-
-# Coldplay ticket fixes 'could be dealt with by post'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797121_1_20250324115705.jpg&q=90)
-  
-
-A lawmaker suggested on Monday that the ticketing platform Cityline deal with exchanges necessitated by printing errors on some Coldplay concert tickets by post.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm)
 
 ---

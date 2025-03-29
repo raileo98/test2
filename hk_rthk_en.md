@@ -1,3 +1,30 @@
+# Fans revel in electric second day of HK Sevens
+
+![Rugby fans fill up the Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_2_20250329184242.jpg&q=20)
+![Fans watch the New Zealand men's squad battle it out against South Africa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_1_20250329183213.jpg&q=85)
+![Costumes were on full display at the South Stand. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_3_20250329183213.jpg&q=85)
+![Fiji fans cheer during day two of Rugby Sevens action. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_4_20250329183213.jpg&q=65)
+  
+
+Fans soaked up the raucous atmosphere at the new Kai Tak Stadium where the Hong Kong Sevens are being held for the first time.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm)
+
+---
+
 # S Korea firefighters use helicopters as fires reignite
 
 ![Charred houses stand in ruins in Namhu, a village ravaged by the wildfires in Andong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798033_1_20250329183107.jpg&q=80)
@@ -1430,29 +1457,5 @@ Australian Prime Minister Anthony Albanese said on Thursday he would call a gene
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm)
-
----
-
-# Hong Kong stocks close higher
-
-![The Hang Seng Index finished up 0.4 percent at 23,578. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797701_1_20250327165821.jpg&q=75)
-  
-
-Hong Kong stocks ended higher on Thursday, with the benchmark Hang Seng Index up 0.4 percent at 23,578.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797701-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797701-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797701-20250327.htm)
 
 ---
