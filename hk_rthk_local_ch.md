@@ -1,3 +1,26 @@
+# 國家救援隊83名隊員赴緬甸災區　國航派包機搭載隊員
+
+  
+
+國家救援隊83名隊員，帶備通信、搜救、指揮、醫療、應急食品等近22噸應急救援物資，下午近1時從北京首都機場起飛，前往緬甸地震災區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm)
+
+---
+
 # 13班來往香港及泰國航班延誤　沒有航班取消
 
 ![機管局表示，截至下午4時半，共有13班本港來往泰國的航班延誤。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798028_1_20250329173955.jpg&q=90)
@@ -48,7 +71,6 @@
 
 # 七欖第二日賽事場內氣氛熱鬧　港隊男女子隊晉級銀劍賽決賽
 
-![啟德體育園舉行香港國際七人欖球賽第二日賽事，吸引大批觀眾入場觀賽。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_1_20250329164200.jpg&q=70)
 ![賽事繼續吸引大批觀眾入場觀賽，不少人盛裝打扮。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_3_20250329165525.jpg&q=85)
 ![今日賽事在場館天幕打開下進行，場內氣氛熱鬧。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_4_20250329165525.jpg&q=80)
 ![李卡度賽後表示，場館天幕打開，令球場更光猛。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_2_20250329165525.jpg&q=90)
@@ -126,7 +148,7 @@
 
 # 麥美娟稱計劃舉辦關愛隊分享會　讓外界更認識關愛隊工作
 
-![麥美娟表示，新一屆區議會特別訂立履職監察制度，以確保區議員盡責履職。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798016_1_20250329172944.jpg&q=1)
+![麥美娟表示，新一屆區議會特別訂立履職監察制度，以確保區議員盡責履職。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798016_1_20250329172944.jpg&q=90)
   
 
 現屆470名區議員日前已經提交年度工作報告，民政及青年事務局局長麥美娟表示，民政事務總署和各區民政事務專員會整理報告，方便市民查閱。
@@ -1430,29 +1452,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm)
-
----
-
-# 港股下午初段跌逾百點
-
-![恒生指數較早時報23409點，跌169點，跌幅0.72%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797848_1_20250328131339.jpg&q=40)
-  
-
-港股下午初段偏軟，恒生指數較早時報23409點，跌169點，跌幅0.72%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm)
 
 ---
