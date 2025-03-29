@@ -1,3 +1,27 @@
+# 日揆出席琉磺島戰役80周年悼念活動　重申提升日美同盟關係
+
+![石破茂出席琉磺島戰役80周年日美聯合悼念儀式並致辭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798045_1_20250329205133.jpg&q=90)
+  
+
+日本首相石破茂前往太平洋戰爭末期激戰地硫黃島，出席琉磺島戰役80周年日美聯合悼念儀式，他強調和平的可貴，又重申會提升日美同盟關係。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798045-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798045-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798045-20250329.htm)
+
+---
+
 # 丹麥首相指萬斯有關對格陵蘭島防衛不力言論不公平
 
 ![弗雷澤里克森認為萬斯有關丹麥對格陵蘭島防衛不力的言論不公平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798040_1_20250329195701.jpg&q=90)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797861-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797861-20250328.htm)
-
----
-
-# 習近平會見孟加拉臨時政府首席顧問尤努斯
-
-![習近平在北京人民大會堂會見尤努斯。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797857_1_20250328142251.jpg&q=90)
-  
-
-國家主席習近平在北京人民大會堂會見孟加拉臨時政府首席顧問尤努斯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm)
 
 ---
