@@ -1,5 +1,54 @@
+# 李家超：特區政府救援隊前往緬甸地震災區協助搜救
+
+![李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797996_1_20250329121806.jpg&q=25)
+  
+
+行政長官李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救，盡全力協助當地拯救生命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm)
+
+---
+
+# 習近平向緬甸領導人敏昂萊致慰問電
+
+![習近平說，中方願意向緬方提供需要的幫助，支持災區人民早日戰勝災害、重建家園。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797994_1_20250329121456.jpg&q=90)
+  
+
+國家主席習近平就緬甸遭受地震，向緬甸領導人敏昂萊致慰問電。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm)
+
+---
+
 # 5班來往香港與曼谷航班延誤　未有航班取消
 
+![機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797993_1_20250329121733.jpg&q=85)
   
 
 緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
@@ -1386,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797638-20250327.htm)
-
----
-
-# 中美均形容經貿官員通話坦誠　何立峰就美對華徵關稅表達嚴正關切
-
-![何立峰就美方以芬太尼為由對華加徵關稅等問題，向美國貿易代表表達嚴正關切。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797590_1_20250327032925.jpg&q=90)
-  
-
-中美經貿官員通話。中方牽頭人、國務院副總理何立峰就美方以芬太尼為由對華加徵關稅、有關301調查以及計劃出台「對等」關稅等，向美國貿易代表格里爾表達嚴正關切。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797590-20250327.htm)
-
----
-
-# 中印舉行外交部官員磋商　中方形容氣氛坦誠務實、富建設性
-
-![中國與印度在北京舉行外交部官員磋商。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797587_1_20250327013533.jpg&q=90)
-  
-
-中國與印度在北京舉行外交部官員磋商。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm)
 
 ---

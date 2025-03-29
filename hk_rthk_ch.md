@@ -1,5 +1,54 @@
+# 李家超：特區政府救援隊前往緬甸地震災區協助搜救
+
+![李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797996_1_20250329121806.jpg&q=25)
+  
+
+行政長官李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救，盡全力協助當地拯救生命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm)
+
+---
+
+# 習近平向緬甸領導人敏昂萊致慰問電
+
+![習近平說，中方願意向緬方提供需要的幫助，支持災區人民早日戰勝災害、重建家園。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797994_1_20250329121456.jpg&q=90)
+  
+
+國家主席習近平就緬甸遭受地震，向緬甸領導人敏昂萊致慰問電。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm)
+
+---
+
 # 5班來往香港與曼谷航班延誤　未有航班取消
 
+![機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797993_1_20250329121733.jpg&q=85)
   
 
 緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
@@ -1392,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797926-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797926-20250328.htm)
-
----
-
-# 李強主持國務院會議　強調堅決遏制新增拖欠　提升口岸通關便利度
-
-![國務院總理李強主持召開國務院常務會議。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797925_1_20250328203647.jpg&q=90)
-  
-
-國務院總理李強主持召開國務院常務會議，聽取推進跨境電子商務綜合試驗區建設匯報，部署加快加力清理拖欠企業賬款工作，研究推動農機裝備高質量發展有關措施，審議通過《關於優化口岸開放佈局的若干意見》。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm)
-
----
-
-# 接近長和高層消息：下周不會簽署任何有關出售巴拿馬運河港口協議
-
-![接近長和高層消息稱，下周不會簽署任何有關出售巴拿馬運河港口業務協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797923_1_20250328201653.jpg&q=80)
-  
-
-長和本月初宣布，向美國貝萊德牽頭的財團出售巴拿馬運河港口等業務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797923-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797923-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797923-20250328.htm)
 
 ---

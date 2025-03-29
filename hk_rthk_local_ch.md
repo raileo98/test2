@@ -1,5 +1,30 @@
+# 李家超：特區政府救援隊前往緬甸地震災區協助搜救
+
+![李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797996_1_20250329121806.jpg&q=25)
+  
+
+行政長官李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救，盡全力協助當地拯救生命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm)
+
+---
+
 # 5班來往香港與曼谷航班延誤　未有航班取消
 
+![機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797993_1_20250329121733.jpg&q=85)
   
 
 緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
@@ -1428,29 +1453,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797804-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797804-20250328.htm)
-
----
-
-# 衞生防護中心：冬季流感嚴重個案減少料與市民願意接種疫苗有關
-
-![徐樂堅說，成人及兒童嚴重個案，分別較疫情前減少兩成及六成，相信與市民願意接種疫苗有關。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797797_1_20250328094716.jpg&q=80)
-  
-
-衞生署宣布本港今年度冬季流感季節已結束。衞生防護中心總監徐樂堅表示，回顧呼吸道陽性樣本比例、入院率、學校或院舍爆發數字等，都較基線水平為低，並出現持續下降趨勢，加上病毒株沒有改變，因此有信心冬季流感季節已完結。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797797-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797797-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797797-20250328.htm)
 
 ---

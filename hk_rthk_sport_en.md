@@ -1,3 +1,27 @@
+# 'Amazing, crazy' action at day two of Rugby Sevens
+
+![Fiji and Britain's women's teams face off at Kai Tak Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_1_20250329121802.jpg&q=85)
+  
+
+The Hong Kong Sevens entered day two at the new Kai Tak Stadium on Saturday, with both the Hong Kong, China men's and women's squads in action.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm)
+
+---
+
 # Hong Kong victorious on opening day of Rugby Sevens
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797928_1_20250328205342.jpg&q=90)
@@ -1415,29 +1439,5 @@ Luka Doncic raced to the 200th 30-point game of his career as the Los Angeles La
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796600-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796600-20250320.htm)
-
----
-
-# Kyrgios wins first match since 2022
-
-![Nick Kyrgios hits a running shot against Mackenzie McDonald in Miami Open action at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796553_1_20250320103836.jpg&q=90)
-  
-
-Australian Nick Kyrgios came from behind to defeat Mackenzie McDonald 3-6 6-3 6-4 in the first round of the Miami Open to earn his first win since October 2022.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796553-20250320.htm)
 
 ---

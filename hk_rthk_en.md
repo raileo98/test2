@@ -1,3 +1,51 @@
+# Myanmar-Thailand quake death toll passes 700
+
+![A rescuer works at the site of the skyscraper that collapsed in Bangkok. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797995_1_20250329121851.jpg&q=70)
+  
+
+President Xi Jinping has extended condolences to Myanmar's leader after Friday's devastating earthquake.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797995-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797995-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797995-20250329.htm)
+
+---
+
+# 'Amazing, crazy' action at day two of Rugby Sevens
+
+![Fiji and Britain's women's teams face off at Kai Tak Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_1_20250329121802.jpg&q=85)
+  
+
+The Hong Kong Sevens entered day two at the new Kai Tak Stadium on Saturday, with both the Hong Kong, China men's and women's squads in action.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm)
+
+---
+
 # 'Longer grace period doesn't mean landlords can relax'
 
 ![The administration has introduced a countdown period to penalise landlords who enter new tenancy contracts for units that haven’t been certified. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797986_1_20250329102422.jpg&q=90)
@@ -1404,53 +1452,5 @@ Thailand's cabinet on Thursday approved a draft law for casinos and entertainmen
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797665-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797665-20250327.htm)
-
----
-
-# 'Exporters remain positive despite trade tensions'
-
-![Irina Fan, director of research at the Trade Development Council, says the impact of US tariffs on Hong Kong is "relatively mild". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797662_1_20250327132129.jpg&q=60)
-  
-
-The Trade Development Council said Hong Kong exporters are well-prepared for the new round of US tariffs set to take effect on April 2.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm)
-
----
-
-# 'Art Basel, Art Central a barometer for art market'
-
-![Daniel Kwok, an independent art consultant, says that art fairs and auctions will give the city's art market a boost. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797660_1_20250327130541.jpg&q=90)
-  
-
-An expert has said that ongoing art shows and upcoming auctions will give the mainland and Hong Kong art scene a boost, and serve as a barometer for future market performance.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm)
 
 ---

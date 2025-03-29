@@ -1,3 +1,27 @@
+# Myanmar-Thailand quake death toll passes 700
+
+![A rescuer works at the site of the skyscraper that collapsed in Bangkok. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797995_1_20250329121851.jpg&q=70)
+  
+
+President Xi Jinping has extended condolences to Myanmar's leader after Friday's devastating earthquake.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797995-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797995-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797995-20250329.htm)
+
+---
+
 # ET model on auction block in New York
 
 ![The model of ET the Extra-Terrestrial used in Steven Spielberg's 1982 film is pictured in New York. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797976_1_20250329071526.jpg&q=90)
@@ -1416,29 +1440,5 @@ Wildfires have hit several regions in western Japan, injuring at least two peopl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm)
-
----
-
-# Venezuelans go home as US deportation flights resume
-
-![An aircraft carrying Venezuelan migrants, who were deported from the United States, lands in Caracas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797145_1_20250324144241.jpg&q=90)
-  
-
-Venezuela on Monday received nearly 200 citizens deported from the United States via Honduras, as US President Donald Trump cracks down on undocumented foreigners.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797145-20250324.htm)
 
 ---

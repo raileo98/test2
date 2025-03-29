@@ -1,5 +1,54 @@
+# 李家超：特區政府救援隊前往緬甸地震災區協助搜救
+
+![李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797996_1_20250329121806.jpg&q=25)
+  
+
+行政長官李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救，盡全力協助當地拯救生命。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm)
+
+---
+
+# 習近平向緬甸領導人敏昂萊致慰問電
+
+![習近平說，中方願意向緬方提供需要的幫助，支持災區人民早日戰勝災害、重建家園。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797994_1_20250329121456.jpg&q=90)
+  
+
+國家主席習近平就緬甸遭受地震，向緬甸領導人敏昂萊致慰問電。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm)
+
+---
+
 # 5班來往香港與曼谷航班延誤　未有航班取消
 
+![機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797993_1_20250329121733.jpg&q=85)
   
 
 緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
@@ -1389,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797761-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797761-20250328.htm)
-
----
-
-# 南韓東南部山火增至28人死亡
-
-![南韓當局出動直升機協助撲救山火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797750_1_20250327225531.jpg&q=90)
-  
-
-南韓東南部慶尚道地區山火持續，增至28人死亡，超過30人受傷，火場面積超過38000公頃創新高，37800多人緊急撤離。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797750-20250327.htm)
-
----
-
-# 蔡若蓮稱香港於教學與研究追求卓越成就是理想升學目的地
-
-![蔡若蓮說，香港擁有五所名列世界百強的公帑資助大學，整個城市充滿活力。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797746_1_20250327220329.jpg&q=85)
-  
-
-教育局局長蔡若蓮在亞太國際教育協會年會以「留學香港」為題作演講，她表示，香港着力發展成為國際專上教育樞紐，擁有五所名列世界百強的公帑資助大學，整個城市充滿活力、重視生活質素和安全，在教學與研究均追求卓越成就，是理想的升學目的地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797746-20250327.htm)
 
 ---
