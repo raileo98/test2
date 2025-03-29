@@ -1,3 +1,27 @@
+# 天文台預測明天市區最低12度左右　當局開放18間避寒中心
+
+![天文台預測明天市區最低12度左右　當局開放18間避寒中心](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798062_1_20250329234252.jpg&q=90)
+  
+
+寒冷天氣警告生效，天文台預測明日市區最低氣溫約在12度左右，新界會再低一兩度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798062-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798062-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798062-20250329.htm)
+
+---
+
 # 一名男子涉嫌在啟德放飛無人機被捕
 
 ![一名30歲本地男子涉嫌在啟德放飛無人機，被警方拘捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798061_1_20250329232741.jpg&q=90)
