@@ -1,3 +1,27 @@
+# 洪都拉斯副總統：洪中建交是最正確決定
+
+![共享基金會與洪都拉斯衛生部在特古西加爾巴舉行登革熱防控合作項目成果發布會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798065_1_20250330005137.jpg&q=90)
+  
+
+洪都拉斯副總統古鐵雷斯日前在洪中建交兩周年慶祝活動上表示，洪中建交是最正確的決定，兩國要做永遠的好朋友、好伙伴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm)
+
+---
+
 # 新華社：中國香港特區救援隊抵達緬甸仰光國際機場
 
 ![特區政府派出51人救援隊已抵達仰光。（港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798058_1_20250329235726.jpg&q=70)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797725-20250327.htm)
-
----
-
-# 丘應樺稱政府致力建設香港成為區域知識產權貿易中心
-
-![丘應樺（左）拜會外交部港澳台司副司長冉波（右），介紹香港經貿的最新發展。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797721_1_20250327191021.jpg&q=45)
-  
-
-商務及經濟發展局局長丘應樺在北京展開訪問行程。他上午首先拜訪國家知識產權局，與副局長張志成會面，並表示，特區政府一直致力保護知識產權及推動知識產權貿易，建設香港成為區域知識產權貿易中心，協助推動新質生產力，尤其是促進大灣區創新科技及創意產業的進一步發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm)
 
 ---

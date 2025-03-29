@@ -1,3 +1,27 @@
+# 洪都拉斯副總統：洪中建交是最正確決定
+
+![共享基金會與洪都拉斯衛生部在特古西加爾巴舉行登革熱防控合作項目成果發布會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798065_1_20250330005137.jpg&q=90)
+  
+
+洪都拉斯副總統古鐵雷斯日前在洪中建交兩周年慶祝活動上表示，洪中建交是最正確的決定，兩國要做永遠的好朋友、好伙伴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm)
+
+---
+
 # 醫生：教宗身體狀況取得「令人驚訝進展」
 
 ![方濟各上周日出院前，在醫院露台與信眾見面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798064_1_20250330003407.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797992-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797992-20250329.htm)
-
----
-
-# 有在曼谷旅遊港人稱地震後到室外暫避　未見有餘震暫不會縮短行程
-
-![蕭先生說，巿面未見有太大影響，暫時應該不會縮短行程。（市民蕭先生提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797991_2_20250329141558.jpg&q=85)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感，有正在興建中的大樓整幢倒塌。有在當地旅遊的港人表示，地震後撤出室內，其後返回酒店，由於巿面未見有太大影響，暫時應該不會縮短行程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm)
 
 ---

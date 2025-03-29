@@ -1,3 +1,27 @@
+# 洪都拉斯副總統：洪中建交是最正確決定
+
+![共享基金會與洪都拉斯衛生部在特古西加爾巴舉行登革熱防控合作項目成果發布會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798065_1_20250330005137.jpg&q=90)
+  
+
+洪都拉斯副總統古鐵雷斯日前在洪中建交兩周年慶祝活動上表示，洪中建交是最正確的決定，兩國要做永遠的好朋友、好伙伴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm)
+
+---
+
 # 醫生：教宗身體狀況取得「令人驚訝進展」
 
 ![方濟各上周日出院前，在醫院露台與信眾見面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798064_1_20250330003407.jpg&q=90)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm)
-
----
-
-# 緬甸大地震　據報曼谷有建築物倒塌1死43人失蹤
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797875_1_20250328161024.jpg&q=90)
-  
-
-緬甸發生黎克特制7級以上猛烈地震，泰國曼谷有震感，當地傳媒報道，曼谷一座興建中的30層高建築物因強震倒塌，造成1人死亡，43人失蹤。泰國總理佩通坦宣布，曼谷進入緊急狀態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm)
 
 ---
