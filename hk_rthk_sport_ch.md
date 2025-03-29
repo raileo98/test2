@@ -1,3 +1,26 @@
+# 七欖港隊男女子隊晉級銀劍賽決賽
+
+  
+
+香港國際七人欖球賽在啟德體育園上演第二日賽事，繼續吸引大批觀眾入場觀賽，不少人盛裝打扮。今日賽事在場館天幕打開下進行，場內氣氛熱鬧。爭取衛冕的男子港隊在銀劍賽第二場賽事，以43:21大勝日本，兩戰全勝，率先晉身明日決賽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm)
+
+---
+
 # 七欖移師啟德舉行　蕭澤頤稱整體運作暢順已與運輸署商討改善安排
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798004_1_20250329135846.jpg&q=90)
@@ -1431,29 +1454,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795981-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795981-20250317.htm)
-
----
-
-# 紐卡素2:1挫利物浦捧英聯盃　結束70年本土錦標荒
-
-![紐卡素球員慶祝70年來首項本土錦標。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795980_1_20250317070018.jpg&q=75)
-  
-
-英格蘭聯賽盃決賽，紐卡素2:1擊敗利物浦奪得冠軍，打破70年來本土錦標荒。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795980-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795980-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795980-20250317.htm)
 
 ---

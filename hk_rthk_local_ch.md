@@ -1,3 +1,26 @@
+# 七欖港隊男女子隊晉級銀劍賽決賽
+
+  
+
+香港國際七人欖球賽在啟德體育園上演第二日賽事，繼續吸引大批觀眾入場觀賽，不少人盛裝打扮。今日賽事在場館天幕打開下進行，場內氣氛熱鬧。爭取衛冕的男子港隊在銀劍賽第二場賽事，以43:21大勝日本，兩戰全勝，率先晉身明日決賽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm)
+
+---
+
 # 鄧炳強：特區救援隊汲取土耳其救援經驗　第二梯隊準備好可支援
 
 ![救援隊共51人，包括41名消防、4名保安局人員、兩名入境處人員、醫管局兩名醫生和兩名護士。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798020_2_20250329160034.jpg&q=90)
@@ -1424,30 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797839-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797839-20250328.htm)
-
----
-
-# 胡英明籲勿分享涉及煽動他人不投票或投無效票內容
-
-![胡英明呼籲公眾不要轉載和分享涉及煽動他人不投票或投無效票的內容，廉署會強硬執法。（劉澤浩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797837_1_20250328123831.jpg&q=90)
-![立法會換屆選舉年底舉行，廉政專員胡英明呼籲公眾不要轉載和分享涉及煽動他人不投票或投無效票的內容，強調廉署會強硬執法。(劉澤浩攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797837_2_20250328181041.jpg&q=90)
-  
-
-立法會換屆選舉年底舉行，廉政專員胡英明呼籲公眾不要轉載和分享涉及煽動他人不投票或投無效票的內容，強調廉署會強硬執法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797837-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797837-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797837-20250328.htm)
 
 ---
