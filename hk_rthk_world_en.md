@@ -1,3 +1,27 @@
+# Chinese rescue team arrives in Myanmar
+
+![Beijing has dispatched a total of 82 rescuers to Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798044_1_20250329201348.jpg&q=90)
+  
+
+A Chinese rescue team arrived at Yangon International Airport in Myanmar on Saturday to assist in disaster relief efforts.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm)
+
+---
+
 # S Korea firefighters use helicopters as fires reignite
 
 ![Charred houses stand in ruins in Namhu, a village ravaged by the wildfires in Andong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798033_1_20250329183107.jpg&q=80)
@@ -1416,29 +1440,5 @@ South Korean authorities said on Monday they would deploy dozens of helicopters 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm)
-
----
-
-# Beijing says no Duterte asylum application received
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797161_1_20250324160317.jpg&q=90)
-  
-
-China has not received any application for asylum from Philippines' former President Rodrigo Duterte and his family, a foreign ministry spokesperson said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm)
 
 ---

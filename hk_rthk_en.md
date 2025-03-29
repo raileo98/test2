@@ -1,3 +1,27 @@
+# Chinese rescue team arrives in Myanmar
+
+![Beijing has dispatched a total of 82 rescuers to Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798044_1_20250329201348.jpg&q=90)
+  
+
+A Chinese rescue team arrived at Yangon International Airport in Myanmar on Saturday to assist in disaster relief efforts.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm)
+
+---
+
 # Newcastle holding parade to celebrate League Cup win
 
 ![The Toon Army had waited 70 years to see their beloved team lift a domestic trophy. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798039_1_20250329194334.jpg&q=70)
@@ -1431,31 +1455,5 @@ The Hospital Authority (HA) has stressed that decisions on how and where to beef
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797727-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797727-20250327.htm)
-
----
-
-# 'HK can act as Beijing's diplomatic super-connector'
-
-![Lam Tai-fai says Hong Kong must fully utilise its advantages and help Beijing rise on the international stage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_1_20250327192921.jpg&q=90)
-![Former Chinese ambassador to the Czech Republic and Romania Huo Yuzhen highlighted Beijing's successful efforts to boost ties with its central and eastern European counterparts. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_2_20250327213024.jpg&q=80)
-![Former Chinese ambassador to Georgia and Tajikistan Yue Bin said Sino-Russian ties are on the up and up. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797724_3_20250327213024.jpg&q=80)
-  
-
-The chairman of Polytechnic University (PolyU)'s governing council on Thursday said Hong Kong must make use of its super-connector role under One Country, Two Systems to support the nation's diplomatic efforts.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm)
 
 ---

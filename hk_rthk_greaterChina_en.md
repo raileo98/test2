@@ -1,3 +1,27 @@
+# Chinese rescue team arrives in Myanmar
+
+![Beijing has dispatched a total of 82 rescuers to Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798044_1_20250329201348.jpg&q=90)
+  
+
+A Chinese rescue team arrived at Yangon International Airport in Myanmar on Saturday to assist in disaster relief efforts.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm)
+
+---
+
 # Xi urges global CEOs to protect trade as tariffs loom
 
 ![President Xi Jinping and representatives of the international business community pose for a group photo at the Great Hall of the People in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797914_1_20250328185208.jpg&q=80)
@@ -1415,29 +1439,5 @@ China urged an end to "illegal" sanctions on Iran as it hosted diplomats from th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm)
-
----
-
-# Japanese duo pay for Great Wall buttocks 'prank'
-
-![The two Japanese were caught soon after their stunt at the Great Wall. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795690_1_20250314111711.jpg&q=90)
-  
-
-Two Japanese tourists in their 20s were detained for two weeks in China then deported for taking photos showing exposed buttocks at the Great Wall, local media reported.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795690-20250314.htm)
 
 ---

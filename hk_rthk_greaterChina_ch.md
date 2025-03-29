@@ -1,3 +1,26 @@
+# 張軍晤林定國　稱最高人民法院持續推進與香港司法法律界交流合作
+
+  
+
+最高人民法院院長張軍早上在北京會見律政司司長林定國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm)
+
+---
+
 # 港澳辦再轉載評論文章促長和作無愧於時代選擇　停止出售港口交易
 
 ![港澳辦網站再次轉載《大公報》有關長和計劃出售巴拿馬運河港口等資產的文章。圖為巴拿馬運河港口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798038_1_20250329193851.jpg&q=75)
@@ -1413,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm)
-
----
-
-# 林大輝稱香港需配合國家外交工作　批評美國推行霸權及保護主義
-
-![中國前駐捷克及羅馬尼亞大使霍玉珍指中國與中東歐國家應提升合作規模與質量，加強綠色能源、人工智能等新興領域合作。(施華駿攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_2_20250327202547.jpg&q=80)
-![中國前駐格魯吉亞及塔吉克斯坦大使岳斌指出，新時代中俄關係特點是堅持元首外交戰略引領，通過完備的交往機制，建立長期穩定，互利共贏的夥伴關係。(施華駿攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797709_3_20250327202547.jpg&q=80)
-  
-
-理工大學舉辦《新時代中國外交的挑戰與機遇》專題講座，理大校董會主席林大輝致辭時表示，中國和平崛起，透過改革開放發展成為世界第二大經濟體系，在國際舞台上的地位越來越重要。在這個新時代，香港必須充分發揮「一國兩制」的優勢，擔當超級聯繫人的角色，配合國家做好外交工作，服務國家外交大局。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797709-20250327.htm)
 
 ---

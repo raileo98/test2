@@ -1,3 +1,49 @@
+# 70歲男子羅亞祥失蹤　警方呼籲市民提供消息
+
+  
+
+70歲男子羅亞祥在佐敦文英街一帶失蹤，警方呼籲市民提供消息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798043-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798043-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798043-20250329.htm)
+
+---
+
+# 張軍晤林定國　稱最高人民法院持續推進與香港司法法律界交流合作
+
+  
+
+最高人民法院院長張軍早上在北京會見律政司司長林定國。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm)
+
+---
+
 # 天文台：緬甸昨天大地震因震源距離香港較遠　本地沒有震感
 
 ![天文台稱，緬甸昨天發生的大地震因震源距離香港較遠，本地沒有震感。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798041_1_20250329200137.jpg&q=90)
@@ -749,7 +795,7 @@
 
 ---
 
-# 何永賢稱社會認為需調整公屋富戶政策　將資源交更有需要市民
+# 何永賢稱社會認為需調整公屋富戶政策　將資源交給更有需要市民
 
 ![何永賢表示，「簡樸房」規管制度的最新方案建議，登記期為12個月，寬限期延長至36個月。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797984_1_20250329104411.jpg&q=90)
   
@@ -1402,53 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm)
-
----
-
-# 港股低收152點　恒指本周累跌逾1%　連跌3星期
-
-![總結全星期，恒指累計跌幅1.1%，科指累跌近2.4%，兩者都連跌3星期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797881_1_20250328163236.jpg&q=85)
-  
-
-期指結算日，港股先高後低，恒生指數初段一度升近200點，其後最多轉跌逾320點，收市報23426點，跌152點，跌幅0.65%，主板成交額逾2296億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm)
-
----
-
-# 東瀛遊兩旅行團在泰國行程無受影響　旅議會暫未收到泰國求助個案
-
-![東瀛遊其中一個身處泰國的旅行團示感到輕微震動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797886_1_20250328165905.jpg&q=40)
-  
-
-緬甸發生黎克特制7級以上地震，泰國全國亦有震感。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm)
 
 ---
