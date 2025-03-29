@@ -1,3 +1,26 @@
+# 5班來往香港與曼谷航班延誤　未有航班取消
+
+  
+
+緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm)
+
+---
+
 # 有在曼谷旅遊港人稱地震後到室外暫避　未見有餘震暫不會縮短行程
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797587-20250327.htm)
-
----
-
-# 中國成功發射天鏈二號04星
-
-![中國於西昌衛星發射中心使用長征三號乙運載火箭，成功將天鏈二號04星發射升空。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797586_1_20250327012105.jpg&q=90)
-  
-
-中國在昨晚11時55分於西昌衛星發射中心使用長征三號乙運載火箭，成功將天鏈二號04星發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797586-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797586-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797586-20250327.htm)
 
 ---

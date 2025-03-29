@@ -1,3 +1,50 @@
+# 5班來往香港與曼谷航班延誤　未有航班取消
+
+  
+
+緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm)
+
+---
+
+# 緬甸強震增至694死逾千六人傷　曼谷當局續搜索倒塌大樓失蹤者
+
+![曼谷救援人員繼續在倒塌建築物瓦礫中搜索失蹤者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797992_1_20250329111809.jpg&q=75)
+  
+
+緬甸中部7級以上強烈地震，官方公布在曼德勒地區造成694人死亡，1670人受傷，多處有建築物受損，電力和通訊亦受阻，軍政府預計死傷人數仍會上升，罕有地要求國際援助。中方表示，暫時未有中國公民死亡報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797992-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797992-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797992-20250329.htm)
+
+---
+
 # 有在曼谷旅遊港人稱地震後到室外暫避　未見有餘震暫不會縮短行程
 
   
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797923-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797923-20250328.htm)
-
----
-
-# 緬甸7.7級地震　據報已造成逾50死300傷
-
-![緬甸今次大地震在泰國曼谷都有震感，曼谷有建築物倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797922_1_20250328200849.jpg&q=65)
-  
-
-緬甸中部發生7.7級地震，央視新聞引述緬甸傳媒報道，地震已造成超過50人死亡，300人受傷。大多數遇難者遺體在曼德勒、內比都等地被發現，政府呼籲民眾積極為傷者捐血。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797922-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797922-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797922-20250328.htm)
-
----
-
-# 國家市場監督管理總局稱對長和港口的交易協議將依法進行審查
-
-![國家市監局表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797921_1_20250328203658.jpg&q=70)
-  
-
-國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm)
 
 ---

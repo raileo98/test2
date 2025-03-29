@@ -1,3 +1,26 @@
+# 5班來往香港與曼谷航班延誤　未有航班取消
+
+  
+
+緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm)
+
+---
+
 # 有在曼谷旅遊港人稱地震後到室外暫避　未見有餘震暫不會縮短行程
 
   
@@ -1425,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797797-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797797-20250328.htm)
-
----
-
-# 政府強烈譴責英國所謂半年報告　促停止干涉屬中國內政的香港事務
-
-![特區政府再次強烈敦促英國認清事實，立即停止干涉純屬中國內政的香港事務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797759_1_20250328003430.jpg&q=90)
-  
-
-特區政府強烈譴責英國發表所謂「香港半年報告」，指內容對香港特區各方面情況作出失實言論及污衊抹黑，必須嚴厲直斥其非。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797759-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797759-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797759-20250328.htm)
 
 ---
