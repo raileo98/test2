@@ -1,3 +1,26 @@
+# 新華社：中國香港特區救援隊抵達緬甸仰光國際機場
+
+  
+
+新華社報道，緬甸時間星期六晚，中國香港特區救援隊抵達仰光國際機場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm)
+
+---
+
 # 19班本港來往泰國航班延誤　沒有航班取消
 
 ![機場管理局表示，截至晚上8時半，共有19班本港來往泰國的航班延誤。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798056_1_20250329224026.jpg&q=80)
@@ -1421,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm)
-
----
-
-# 有立法會議員倡港鐵累積明年票價加幅回贈乘客或撤銷加幅
-
-![有立法會議員建議，港鐵將累積到明年的票價加幅向乘客回贈甚至撤銷。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797920_1_20250328204035.jpg&q=90)
-  
-
-港鐵宣布，2025/26年度港鐵票價維持不變，有立法會議員建議，將累積到明年的票價加幅向乘客回贈甚至撤銷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm)
 
 ---

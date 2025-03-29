@@ -1,6 +1,33 @@
-# 緬甸大地震增至1644人死亡3408人受傷
+# 新華社：中國香港特區救援隊抵達緬甸仰光國際機場
 
   
+
+新華社報道，緬甸時間星期六晚，中國香港特區救援隊抵達仰光國際機場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm)
+
+---
+
+# 緬甸大地震增至1644人死亡3408人受傷
+
+![在緬甸曼德勒，有建築物倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798057_1_20250329230727.jpg&q=45)
+  
+
+緬甸中部昨日發生大地震至今，增至1644人死亡，3408人受傷。領導人敏昂萊到曼德勒省災區視察，探望災民。
+
   
 
 

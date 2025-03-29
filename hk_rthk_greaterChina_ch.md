@@ -1,3 +1,26 @@
+# 新華社：中國香港特區救援隊抵達緬甸仰光國際機場
+
+  
+
+新華社報道，緬甸時間星期六晚，中國香港特區救援隊抵達仰光國際機場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm)
+
+---
+
 # 澳門特首岑浩輝向緬甸領導人致慰問電
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797721-20250327.htm)
-
----
-
-# 王毅：中法建交精神對中歐和世界都有現實借鑒意義
-
-![外長王毅在同法國外長巴羅共同會見記者。（外交部網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797715_1_20250327193641.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在同法國外長巴羅共同會見記者時，闡述雙方達成的共識。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm)
 
 ---
