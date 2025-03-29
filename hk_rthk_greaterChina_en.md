@@ -1,3 +1,27 @@
+# China launches communication technology test satellite
+
+![This launch was the 566th mission by a Long March carrier rocket. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798072_1_20250330024518.jpg&q=90)
+  
+
+China on Sunday sent a new communication test satellite into orbit from the Wenchang Space Launch Site in Hainan Province.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm)
+
+---
+
 # Chinese rescue team arrives in Myanmar
 
 ![Beijing has dispatched a total of 82 rescuers to Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798044_1_20250329201348.jpg&q=90)
@@ -1415,29 +1439,5 @@ Shares of CK Hutchison shed more than 6 percent on Friday, after the Beijing off
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795749-20250314.htm)
-
----
-
-# China hosts trilateral nuclear talks with Iran, Russia
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795709_1_20250314131953.jpg&q=90)
-  
-
-China urged an end to "illegal" sanctions on Iran as it hosted diplomats from that country and Russia on Friday for talks Beijing hopes will restart long-stalled negotiations on Tehran's nuclear programme.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm](https://news.rthk.hk/rthk/en/component/k2/1795709-20250314.htm)
 
 ---

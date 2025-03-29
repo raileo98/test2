@@ -1,3 +1,27 @@
+# China launches communication technology test satellite
+
+![This launch was the 566th mission by a Long March carrier rocket. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798072_1_20250330024518.jpg&q=90)
+  
+
+China on Sunday sent a new communication test satellite into orbit from the Wenchang Space Launch Site in Hainan Province.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm)
+
+---
+
 # Japan beef bowl chain to shut stores over rat and bug
 
 ![Fast-food company Sukiya has about 1,970 stores across Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798050_1_20250329221759.jpg&q=90)
@@ -1432,29 +1456,5 @@ Foreign Minister Wang Yi met with French Foreign Minister Jean-Noel Barrot in Be
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm)
-
----
-
-# Beijing offices again question CK Hutchison ports deal
-
-![The latest Ta Kung Pao article reposted by Beijing offices in Hong Kong said CK Hutchison's ports deal didn't make business sense. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797760_1_20250328011558.jpg&q=75)
-  
-
-Central government bodies in charge of Hong Kong affairs on Thursday reposted another news article criticising a controversial deal by CK Hutchison’s to sell dozens of ports – including strategic assets along the Panama Canal – to a US consortium led by investment firm BlackRock.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797760-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797760-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797760-20250328.htm)
 
 ---
