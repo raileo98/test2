@@ -1,3 +1,27 @@
+# 俄國防部：烏克蘭無人機襲擊能源設施導致大量用戶斷電
+
+![俄羅斯國防部指責烏克蘭無人機多次襲擊別爾哥羅德州能源基礎設施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798063_1_20250330001354.jpg&q=90)
+  
+
+俄羅斯國防部星期六說，過去一日，烏克蘭無人機多次襲擊俄羅斯別爾哥羅德州能源基礎設施，導致一些高壓線被切斷、變壓器受損，造成當地9000多用戶斷電。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798063-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798063-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798063-20250330.htm)
+
+---
+
 # 天文台預測明天市區最低12度左右　當局開放18間避寒中心
 
 ![天文台預測明天市區最低12度左右　當局開放18間避寒中心](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798062_1_20250329234252.jpg&q=90)
@@ -1417,30 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797990-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797990-20250329.htm)
-
----
-
-# 陳美寶：本港航運物流3月份於「提量」「提質」均有不少進展
-
-![陳美寶提到，去年第四季，香港港口與廣西北部灣的港口吞吐量按年上升47.4%。（陳美寶網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797989_1_20250329112408.jpg&q=90)
-![陳美寶訪問廣西，親身探討港桂加強港口貨運合作的機會。（陳美寶網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797989_2_20250329112408.jpg&q=85)
-  
-
-運輸及物流局局長陳美寶表示，本港3月份在航運物流「提量」及「提質」上均有不少進展，會繼續致力增強香港貨物中轉樞紐角色，積極研究將航空貨物轉運計劃延伸至其他多式轉運模式，吸引更多貨物來港中轉，提升香港的航運物流競爭力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm)
 
 ---
