@@ -1,3 +1,27 @@
+# 丹麥首相指萬斯有關對格陵蘭島防衛不力言論不公平
+
+![弗雷澤里克森認為萬斯有關丹麥對格陵蘭島防衛不力的言論不公平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798040_1_20250329195701.jpg&q=90)
+  
+
+丹麥首相弗雷澤里克森回應美國副總統萬斯指責丹麥對格陵蘭島防衛不力的言論，認為萬斯的說法不公平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798040-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798040-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798040-20250329.htm)
+
+---
+
 # 中國救援隊抵達緬甸仰光國際機場
 
 ![中國救援隊乘坐的飛機抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798037_1_20250329184929.jpg&q=90)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm)
-
----
-
-# 普京：可討論在烏克蘭實行臨時管理的可能性
-
-![普京說，可以討論在烏克蘭實行臨時管理的可能性，以便在烏克蘭舉行民主選舉。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797855_1_20250328141144.jpg&q=90)
-  
-
-俄羅斯總統普京說，可以在聯合國主持下，與美國、歐洲以及俄羅斯盟友共同討論在烏克蘭實行臨時管理的可能性，以便在烏克蘭舉行民主選舉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797855-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797855-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797855-20250328.htm)
 
 ---

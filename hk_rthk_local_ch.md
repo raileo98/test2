@@ -1,3 +1,27 @@
+# 天文台：緬甸昨天大地震因震源距離香港較遠　本地沒有震感
+
+![天文台稱，緬甸昨天發生的大地震因震源距離香港較遠，本地沒有震感。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798041_1_20250329200137.jpg&q=90)
+  
+
+天文台表示，緬甸昨日下午發生的大地震，發生於緬甸中部的走滑斷層上。天文台的地震儀探測到地震引起的地震波，透過實時分析全球及本地地震儀數據，地震數據處理系統計算出地震參數。香港寶珊寬頻地震站探測到這次地震的地震波形，由於震源距離香港較遠，本地沒有震感。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798041-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798041-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798041-20250329.htm)
+
+---
+
 # 港澳辦再轉載評論文章促長和作無愧於時代選擇　停止出售港口交易
 
 ![港澳辦網站再次轉載《大公報》有關長和計劃出售巴拿馬運河港口等資產的文章。圖為巴拿馬運河港口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798038_1_20250329193851.jpg&q=75)
@@ -1426,31 +1450,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm)
-
----
-
-# 七欖入座率下午明顯增加　球迷盛裝打扮載歌載舞氣氛熱鬧
-
-![英國隊隊長Harry Glover表示，啟德主場館是到過的最好球場之一。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_2_20250328165144.jpg&q=90)
-![姚錦成相信傍晚港隊出場後，氣氛會更好。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_3_20250328165144.jpg&q=85)
-![場外設有球迷村，不少家長帶同子女參與活動。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797884_4_20250328165144.jpg&q=80)
-  
-
-一連3日的香港國際七人欖球賽在啟德主場館舉行，下午入座率明顯增加，其中「南看台」有不少外籍球迷盛裝打扮，載歌載舞，氣氛熱鬧。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm)
 
 ---

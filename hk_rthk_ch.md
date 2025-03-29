@@ -1,3 +1,27 @@
+# 丹麥首相指萬斯有關對格陵蘭島防衛不力言論不公平
+
+![弗雷澤里克森認為萬斯有關丹麥對格陵蘭島防衛不力的言論不公平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798040_1_20250329195701.jpg&q=90)
+  
+
+丹麥首相弗雷澤里克森回應美國副總統萬斯指責丹麥對格陵蘭島防衛不力的言論，認為萬斯的說法不公平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798040-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798040-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798040-20250329.htm)
+
+---
+
 # 港澳辦再轉載評論文章促長和作無愧於時代選擇　停止出售港口交易
 
 ![港澳辦網站再次轉載《大公報》有關長和計劃出售巴拿馬運河港口等資產的文章。圖為巴拿馬運河港口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798038_1_20250329193851.jpg&q=75)
