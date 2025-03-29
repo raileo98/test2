@@ -1,3 +1,27 @@
+# 以色列官員稱哈馬斯同意釋放5名人質換取50天停火
+
+![加沙汗尤尼斯在以軍轟炸中成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798068_1_20250330014433.jpg&q=50)
+  
+
+一名以色列官員透露，巴勒斯坦武裝組織哈馬斯同意埃及提出，釋放5名以方人質，換取從開齋節開始的50天停火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm)
+
+---
+
 # 中國成功發射通信技術試驗衛星十六號
 
 ![中國在文昌航天發射場使用長征七號改運載火箭，成功將通信技術試驗衛星十六號發射升空。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798067_1_20250330013352.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm)
-
----
-
-# 陳子達先後與北京廣州及深圳海關交流並參觀當地設施
-
-![陳子達（中）參觀北京大興國際機場。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797726_1_20250327193953.jpg&q=90)
-  
-
-香港海關關長陳子達昨日在北京拜訪國家海關總署，與海關總署署長孫梅君會面，雙方就深化內地與香港海關業務合作等事宜交換意見，並參觀了海關設施及北京大興國際機場，了解當地的通關流程以及如何運用科技提升通關效率等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797726-20250327.htm)
 
 ---

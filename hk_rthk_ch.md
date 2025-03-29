@@ -1,3 +1,27 @@
+# 以色列官員稱哈馬斯同意釋放5名人質換取50天停火
+
+![加沙汗尤尼斯在以軍轟炸中成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798068_1_20250330014433.jpg&q=50)
+  
+
+一名以色列官員透露，巴勒斯坦武裝組織哈馬斯同意埃及提出，釋放5名以方人質，換取從開齋節開始的50天停火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm)
+
+---
+
 # 中國成功發射通信技術試驗衛星十六號
 
 ![中國在文昌航天發射場使用長征七號改運載火箭，成功將通信技術試驗衛星十六號發射升空。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798067_1_20250330013352.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm)
-
----
-
-# 習近平向緬甸領導人敏昂萊致慰問電
-
-![習近平說，中方願意向緬方提供需要的幫助，支持災區人民早日戰勝災害、重建家園。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797994_1_20250329121456.jpg&q=90)
-  
-
-國家主席習近平就緬甸遭受地震，向緬甸領導人敏昂萊致慰問電。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm)
 
 ---
