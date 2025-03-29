@@ -1,3 +1,27 @@
+# Mexico brings in junk food ban
+
+![A man walks past a sign that refers to the labelling of products, in the subway of Mexico City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798081_1_20250330075336.jpg&q=90)
+  
+
+A government-sponsored junk food ban in schools across Mexico took effect on Saturday, officials said, as the country tries to tackle one of the world’s worst obesity and diabetes epidemics.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm)
+
+---
+
 # China launches communication technology test satellite
 
 ![This launch was the 566th mission by a Long March carrier rocket. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798072_1_20250330024518.jpg&q=90)
@@ -1432,29 +1456,5 @@ Automakers were battered on Thursday as stock markets fell on both sides of the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797782-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797782-20250328.htm)
-
----
-
-# China, France pledge stronger ties amid global changes
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797766_1_20250328023251.jpg&q=85)
-  
-
-Foreign Minister Wang Yi met with French Foreign Minister Jean-Noel Barrot in Beijing on Thursday, vowing to deepen cooperation and strategic coordination.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797766-20250328.htm)
 
 ---
