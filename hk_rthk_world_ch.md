@@ -1,3 +1,50 @@
+# 有在曼谷旅遊港人稱地震後到室外暫避　未見有餘震暫不會縮短行程
+
+  
+
+緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感，有正在興建中的大樓整幢倒塌。有在當地旅遊的港人表示，地震後撤出室內，其後返回酒店，由於巿面未見有太大影響，暫時應該不會縮短行程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm)
+
+---
+
+# 美國聯邦航空管理局調查達美客機險些與美軍飛機相撞事件
+
+![一架達美航空客機，在從華盛頓列根國家機場起飛時，據報差點與一架美國軍機相撞。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797990_1_20250329111307.jpg&q=90)
+  
+
+美國聯邦航空管理局將調查達美航空客機與美軍飛機險些相撞事件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797990-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797990-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797990-20250329.htm)
+
+---
+
 # 南部戰區南海海域例行巡航　發言人斥菲方拉攏域外國家破壞和平
 
 ![南部戰區南海海域例行巡航　發言人斥菲方拉攏域外國家破壞和平](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797985_1_20250329101044.jpg&q=90)
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm)
-
----
-
-# 中方：奉勸美方反思對拉美和加勒比國家的霸權霸凌　停止抺黑中國
-
-![外交部說，美方惡意散布虛假信息，目的是挑撥中國同其他國家關係，不會得逞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797737_1_20250327211131.jpg&q=80)
-  
-
-在北京，外交部發言人郭嘉昆表示，中方同世界各國開展投資合作，有力地促進各國經濟發展和民生改善。奉勸美方好好反思自身對拉美和加勒比發展中國家的霸權霸凌和巧取豪奪，停止對中國的歪曲抹黑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm)
-
----
-
-# 李強晤法國外長　冀法方為赴法投資中企營造公平發展環境
-
-![國務院總理李強在北京會見法國外長巴羅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797732_1_20250327203707.jpg&q=90)
-  
-
-國務院總理李強在北京會見法國外長巴羅時表示，中法雙方要共同抵制保護主義、單邊主義，繼續本著開放態度加強合作，充分發揮互補優勢，為兩國經濟發展不斷增添動力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm)
 
 ---

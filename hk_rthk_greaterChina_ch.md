@@ -1,3 +1,26 @@
+# 有在曼谷旅遊港人稱地震後到室外暫避　未見有餘震暫不會縮短行程
+
+  
+
+緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感，有正在興建中的大樓整幢倒塌。有在當地旅遊的港人表示，地震後撤出室內，其後返回酒店，由於巿面未見有太大影響，暫時應該不會縮短行程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm)
+
+---
+
 # 南部戰區南海海域例行巡航　發言人斥菲方拉攏域外國家破壞和平
 
 ![南部戰區南海海域例行巡航　發言人斥菲方拉攏域外國家破壞和平](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797985_1_20250329101044.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797586-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797586-20250327.htm)
-
----
-
-# 王毅讚賞瑙方堅定奉行一個中國政策　稱願開闢中瑙關係更光明前景
-
-![王毅在北京與瑙魯外長安格明會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797584_1_20250327003043.jpg&q=90)
-  
-
-中共中央政治局委員、外交部長王毅在北京與專程來華出席太平洋島國瑙魯駐華使館開館儀式的瑙魯外長安格明會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797584-20250327.htm)
 
 ---

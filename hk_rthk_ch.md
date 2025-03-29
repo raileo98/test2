@@ -1,3 +1,50 @@
+# 有在曼谷旅遊港人稱地震後到室外暫避　未見有餘震暫不會縮短行程
+
+  
+
+緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感，有正在興建中的大樓整幢倒塌。有在當地旅遊的港人表示，地震後撤出室內，其後返回酒店，由於巿面未見有太大影響，暫時應該不會縮短行程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm)
+
+---
+
+# 美國聯邦航空管理局調查達美客機險些與美軍飛機相撞事件
+
+![一架達美航空客機，在從華盛頓列根國家機場起飛時，據報差點與一架美國軍機相撞。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797990_1_20250329111307.jpg&q=90)
+  
+
+美國聯邦航空管理局將調查達美航空客機與美軍飛機險些相撞事件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797990-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797990-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797990-20250329.htm)
+
+---
+
 # 陳美寶：本港航運物流3月份於「提量」「提質」均有不少進展
 
   
@@ -166,7 +213,7 @@
 
 # 何永賢：簡約公屋居民儲蓄數年或可能足夠支付購買居屋首期
 
-![何永賢表示，預計每日有50至100戶居民入伙。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797981_1_20250329094102.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797981_1_20250329094102.jpg&q=90)
   
 
 位於元朗攸壆路的首個簡約公屋項目昨日起陸續入伙，房屋局局長何永賢表示，預計每日有50至100戶居民入伙，到5月底全部2100個單位會全部入伙。
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm)
-
----
-
-# 有立法會議員倡港鐵累積明年票價加幅回贈乘客或撤銷加幅
-
-![有立法會議員建議，港鐵將累積到明年的票價加幅向乘客回贈甚至撤銷。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797920_1_20250328204035.jpg&q=90)
-  
-
-港鐵宣布，2025/26年度港鐵票價維持不變，有立法會議員建議，將累積到明年的票價加幅向乘客回贈甚至撤銷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797920-20250328.htm)
-
----
-
-# 南韓山林廳稱慶尚北道山火已全部撲滅
-
-![消防員繼續全力撲救持續一星期的山火。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797919_1_20250328191549.jpg&q=45)
-  
-
-南韓慶尚道地區山火持續一星期，消防部門今天派出超過120架直升機及近7000名消防員繼續全力撲救。山林廳宣布，慶尚北道的山火已全部撲滅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm)
 
 ---

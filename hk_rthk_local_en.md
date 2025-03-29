@@ -1,3 +1,27 @@
+# 'Longer grace period doesn't mean landlords can relax'
+
+![The administration has introduced a countdown period to penalise landlords who enter new tenancy contracts for units that haven’t been certified. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797986_1_20250329102422.jpg&q=90)
+  
+
+Secretary for Housing Winnie Ho on Saturday said she hoped landlords of subdivided flats would take action to upgrade them, even though they now had a longer grace period to comply with new criteria.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm)
+
+---
+
 # Police arrest three more in Yuen Long murder case
 
 ![The case, in which a 24-year-old man was killed and a 28-year-old injured, will be heard at Tuen Mun Magistrates’ Court. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797963_1_20250329051008.jpg&q=90)
@@ -1428,29 +1452,5 @@ Ticket sales for the Hong Kong Rugby Sevens are breaking records less than one w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm)
-
----
-
-# Traveller held 'for carrying 10kg of cannabis buds'
-
-![Authorities say the man was carrying 10 kilograms of suspected cannabis buds in his suitcase. Photo courtesy of Information Services Department](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797038_1_20250323172952.jpg&q=85)
-  
-
-Customs have arrested an inbound traveller at the airport for allegedly smuggling cannabis buds into Hong Kong.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797038-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797038-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797038-20250323.htm)
 
 ---

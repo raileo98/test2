@@ -1,3 +1,26 @@
+# 有在曼谷旅遊港人稱地震後到室外暫避　未見有餘震暫不會縮短行程
+
+  
+
+緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感，有正在興建中的大樓整幢倒塌。有在當地旅遊的港人表示，地震後撤出室內，其後返回酒店，由於巿面未見有太大影響，暫時應該不會縮短行程。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm)
+
+---
+
 # 陳美寶：本港航運物流3月份於「提量」「提質」均有不少進展
 
   
@@ -118,7 +141,7 @@
 
 # 何永賢：簡約公屋居民儲蓄數年或可能足夠支付購買居屋首期
 
-![何永賢表示，預計每日有50至100戶居民入伙。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797981_1_20250329094102.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797981_1_20250329094102.jpg&q=90)
   
 
 位於元朗攸壆路的首個簡約公屋項目昨日起陸續入伙，房屋局局長何永賢表示，預計每日有50至100戶居民入伙，到5月底全部2100個單位會全部入伙。
@@ -1426,29 +1449,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797759-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797759-20250328.htm)
-
----
-
-# 粵港澳大灣區律師顧問小組加入網紅　律政司冀制定措施更「貼地」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797758_2_20250328100235.jpg&q=90)
-  
-
-律政司兩年前成立「粵港澳大灣區專責小組」，以深化大灣區便利惠民的互利合作，以及推進大灣區發展和建設，去年再在專責小組之下成立「粵港澳大灣區律師顧問小組」。政府本月初委任兩個小組合共7名新成員，包括居住在深圳的香港人、網紅「西DorSi」謝承益，亦是專責小組唯一並非來自法律界又長居內地的港人成員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm)
 
 ---

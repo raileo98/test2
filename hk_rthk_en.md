@@ -1,3 +1,27 @@
+# 'Longer grace period doesn't mean landlords can relax'
+
+![The administration has introduced a countdown period to penalise landlords who enter new tenancy contracts for units that haven’t been certified. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797986_1_20250329102422.jpg&q=90)
+  
+
+Secretary for Housing Winnie Ho on Saturday said she hoped landlords of subdivided flats would take action to upgrade them, even though they now had a longer grace period to comply with new criteria.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm)
+
+---
+
 # ET model on auction block in New York
 
 ![The model of ET the Extra-Terrestrial used in Steven Spielberg's 1982 film is pictured in New York. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797976_1_20250329071526.jpg&q=90)
@@ -1428,29 +1452,5 @@ An expert has said that ongoing art shows and upcoming auctions will give the ma
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm)
-
----
-
-# Innovation is driving China's economy: Ding Xuexiang
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797653_2_20250327135305.jpg&q=80)
-  
-
-Vice Premier Ding Xuexiang on Thursday said China's economy is remaking itself with the growing capacity to drive growth through innovation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797653-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797653-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797653-20250327.htm)
 
 ---
