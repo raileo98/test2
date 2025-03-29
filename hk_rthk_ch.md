@@ -1,3 +1,27 @@
+# 德甲拜仁3:2挫聖保利　利華古遜3:1贏波琴
+
+![拜仁球員慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798066_1_20250330011528.jpg&q=90)
+  
+
+德國甲組足球聯賽，拜仁慕尼黑主場3:2擊敗受降班威脅的聖保利。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798066-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798066-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798066-20250330.htm)
+
+---
+
 # 洪都拉斯副總統：洪中建交是最正確決定
 
 ![共享基金會與洪都拉斯衛生部在特古西加爾巴舉行登革熱防控合作項目成果發布會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798065_1_20250330005137.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm)
-
----
-
-# 緬甸強震增至694死逾千六人傷　曼谷當局續搜索倒塌大樓失蹤者
-
-![曼谷救援人員繼續在倒塌建築物瓦礫中搜索失蹤者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797992_1_20250329111809.jpg&q=75)
-  
-
-緬甸中部7級以上強烈地震，官方公布在曼德勒地區造成694人死亡，1670人受傷，多處有建築物受損，電力和通訊亦受阻，軍政府預計死傷人數仍會上升，罕有地要求國際援助。中方表示，暫時未有中國公民死亡報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797992-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797992-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797992-20250329.htm)
 
 ---

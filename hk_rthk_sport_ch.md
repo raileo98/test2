@@ -1,3 +1,27 @@
+# 德甲拜仁3:2挫聖保利　利華古遜3:1贏波琴
+
+![拜仁球員慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798066_1_20250330011528.jpg&q=90)
+  
+
+德國甲組足球聯賽，拜仁慕尼黑主場3:2擊敗受降班威脅的聖保利。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798066-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798066-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798066-20250330.htm)
+
+---
+
 # 七欖第二日賽事場內氣氛熱鬧　港隊男女子隊晉級銀劍賽決賽
 
 ![賽事繼續吸引大批觀眾入場觀賽，不少人盛裝打扮。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_3_20250329165525.jpg&q=85)
@@ -1435,29 +1459,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795983-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795983-20250317.htm)
-
----
-
-# 英超阿仙奴1:0挫車路士　落後利物浦12分
-
-![美連奴（左）一箭定江山，協助兵工廠擊敗車路士，他與迪勤懷斯慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795981_1_20250317070946.jpg&q=90)
-  
-
-英格蘭超級足球聯賽，阿仙奴主場1:0擊敗車路士，繼續追趕榜首的利物浦。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795981-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795981-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795981-20250317.htm)
 
 ---
