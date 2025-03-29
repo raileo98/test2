@@ -1,3 +1,51 @@
+# 一名男子涉嫌在啟德放飛無人機被捕
+
+![一名30歲本地男子涉嫌在啟德放飛無人機，被警方拘捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798061_1_20250329232741.jpg&q=90)
+  
+
+一名30歲本地男子涉嫌在啟德放飛無人機，因「未經許可在限制飛行區以內飛行」被捕，現正被扣留調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798061-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798061-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798061-20250329.htm)
+
+---
+
+# 因應緬甸地震　特區政府從賑災基金預留3千萬元作為緊急賑災之用
+
+![緬甸大地震，震央附近的曼德勒，損毀嚴重。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798060_1_20250329232750.jpg&q=90)
+  
+
+特區政府表示，因應緬甸地震，已從賑災基金預留3千萬元，作為緊急賑災項目之用，並正與本地救援機構緊密溝通，落實具體賑災計劃，務求為災民提供適切援助，協助他們渡過難關，早日回復正常生活。賑災基金諮詢委員會亦會從速處理有關撥款申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798060-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798060-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798060-20250329.htm)
+
+---
+
 # 的士內搜出毒品　司機涉販毒被捕
 
 ![警方在吳松街搜查一輛的士，檢獲懷疑毒品，拘捕司機。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798059_1_20250329232113.jpg&q=40)
