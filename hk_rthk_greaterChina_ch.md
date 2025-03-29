@@ -22,30 +22,6 @@
 
 ---
 
-# 以色列官員稱哈馬斯同意釋放5名人質換取50天停火
-
-![加沙汗尤尼斯在以軍轟炸中成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798068_1_20250330014433.jpg&q=50)
-  
-
-一名以色列官員透露，巴勒斯坦武裝組織哈馬斯同意埃及提出，釋放5名以方人質，換取從開齋節開始的50天停火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm)
-
----
-
 # 中國成功發射通信技術試驗衛星十六號
 
 ![中國在文昌航天發射場使用長征七號改運載火箭，成功將通信技術試驗衛星十六號發射升空。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798067_1_20250330013352.jpg&q=90)
@@ -1437,5 +1413,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm)
+
+---
+
+# 澳門與內地警方聯手破兩個犯罪集團共拘60多人
+
+![澳門司警展示在行動中檢獲的現金、電子設備和賬簿等證物。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797730_1_20250327202004.jpg&q=85)
+![涉案被捕的犯罪集團成員由司警押解往檢察院偵訊。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797730_2_20250327202004.jpg&q=80)
+  
+
+澳門司警與內地警方聯手破獲兩個涉及因賭博非法兌換款項的團伙，共拘捕60多人，在過去五個月涉及的不法兌換金額共7億9000萬港元，相信當中有2100萬港元是不法利潤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm)
 
 ---

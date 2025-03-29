@@ -94,6 +94,30 @@
 
 ---
 
+# 以色列官員稱哈馬斯同意釋放5名人質換取50天停火
+
+![加沙汗尤尼斯在以軍轟炸中成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798068_1_20250330014433.jpg&q=50)
+  
+
+一名以色列官員透露，巴勒斯坦武裝組織哈馬斯同意埃及提出，釋放5名以方人質，換取從開齋節開始的50天停火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm)
+
+---
+
 # 洪都拉斯副總統：洪中建交是最正確決定
 
 ![共享基金會與洪都拉斯衛生部在特古西加爾巴舉行登革熱防控合作項目成果發布會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798065_1_20250330005137.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797904-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797904-20250328.htm)
-
----
-
-# 東瀛遊兩旅行團在泰國行程無受影響　旅議會暫未收到泰國求助個案
-
-![東瀛遊其中一個身處泰國的旅行團示感到輕微震動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797886_1_20250328165905.jpg&q=40)
-  
-
-緬甸發生黎克特制7級以上地震，泰國全國亦有震感。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797886-20250328.htm)
 
 ---
