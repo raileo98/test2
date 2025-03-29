@@ -1,3 +1,26 @@
+# 國家救援隊83名隊員赴緬甸災區　國航派包機搭載隊員
+
+  
+
+國家救援隊83名隊員，帶備通信、搜救、指揮、醫療、應急食品等近22噸應急救援物資，下午近1時從北京首都機場起飛，前往緬甸地震災區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm)
+
+---
+
 # 13班來往香港及泰國航班延誤　沒有航班取消
 
 ![機管局表示，截至下午4時半，共有13班本港來往泰國的航班延誤。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798028_1_20250329173955.jpg&q=90)
