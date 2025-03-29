@@ -1,3 +1,27 @@
+# 13班來往香港及泰國航班延誤　沒有航班取消
+
+![機管局表示，截至下午4時半，共有13班本港來往泰國的航班延誤。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798028_1_20250329173955.jpg&q=90)
+  
+
+機場管理局表示，截至下午4時半，共有13班本港來往泰國的航班延誤，分別是5班從泰國抵港，以及8班由香港前往泰國，並沒有航班取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798028-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798028-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798028-20250329.htm)
+
+---
+
 # 丘應樺及麥美娟等政府官員明赴河南省出席黃帝故里拜祖大典
 
 ![丘應樺、麥美娟和劉震明日前往河南省鄭州市，出席乙巳年黃帝故里拜祖大典。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798025_1_20250329173019.jpg&q=85)
@@ -1430,29 +1454,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm)
-
----
-
-# 鍾健禮辭任新界東醫院聯網總監及威爾斯醫院行政總監
-
-![醫管局發言人表示，鍾健禮因個人原因辭任新界東醫院聯網總監及威爾斯醫院行政總監。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797845_1_20250328131003.jpg&q=90)
-  
-
-中大醫院宣布委任鍾健禮為新任行政總裁，於6月16日起擔任候任行政總裁，以便交接，8月1日正式履新。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797845-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797845-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797845-20250328.htm)
 
 ---
