@@ -1,5 +1,30 @@
+# 印尼否認以色列傳媒有關加沙居民計劃遷居印尼報道
+
+![印尼否認以色列傳媒有關加沙居民計劃遷居印尼報道](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798022_1_20250329164147.jpg&q=90)
+  
+
+印尼外交部回應以色列傳媒有關部分加沙居民計劃遷居印尼的報道，發言人說，印尼並未與包括以色列在內的任何一方就加沙居民遷居議題進行過討論或達成相關協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798022-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798022-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798022-20250329.htm)
+
+---
+
 # 七欖港隊男女子隊晉級銀劍賽決賽
 
+![啟德體育園舉行香港國際七人欖球賽第二日賽事，吸引大批觀眾入場觀賽。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_1_20250329164200.jpg&q=70)
   
 
 香港國際七人欖球賽在啟德體育園上演第二日賽事，繼續吸引大批觀眾入場觀賽，不少人盛裝打扮。今日賽事在場館天幕打開下進行，場內氣氛熱鬧。爭取衛冕的男子港隊在銀劍賽第二場賽事，以43:21大勝日本，兩戰全勝，率先晉身明日決賽。
@@ -1412,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797951-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797951-20250328.htm)
-
----
-
-# 吳秋北稱國家機關介入審查順理成章　檢視有否壟斷國安發展範圍
-
-![吳秋北指如涉及不合規的做法，就要立即停止。圖為巴拿馬運河港口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797948_1_20250328235045.jpg&q=75)
-  
-
-長和本月初宣布，向美國貝萊德牽頭的財團出售巴拿馬運河港口等業務。國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm)
 
 ---

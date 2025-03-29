@@ -1,5 +1,30 @@
+# 印尼否認以色列傳媒有關加沙居民計劃遷居印尼報道
+
+![印尼否認以色列傳媒有關加沙居民計劃遷居印尼報道](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798022_1_20250329164147.jpg&q=90)
+  
+
+印尼外交部回應以色列傳媒有關部分加沙居民計劃遷居印尼的報道，發言人說，印尼並未與包括以色列在內的任何一方就加沙居民遷居議題進行過討論或達成相關協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798022-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798022-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798022-20250329.htm)
+
+---
+
 # 七欖港隊男女子隊晉級銀劍賽決賽
 
+![啟德體育園舉行香港國際七人欖球賽第二日賽事，吸引大批觀眾入場觀賽。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_1_20250329164200.jpg&q=70)
   
 
 香港國際七人欖球賽在啟德體育園上演第二日賽事，繼續吸引大批觀眾入場觀賽，不少人盛裝打扮。今日賽事在場館天幕打開下進行，場內氣氛熱鬧。爭取衛冕的男子港隊在銀劍賽第二場賽事，以43:21大勝日本，兩戰全勝，率先晉身明日決賽。
@@ -1415,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm)
-
----
-
-# 七欖開鑼　港鐵屯馬綫將加強服務　離場安排「空載列車」候命
-
-![屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797805_1_20250328094806.jpg&q=85)
-  
-
-港鐵表示，為配合一連3日在啟德體育園舉行的香港國際七人欖球賽活動，屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm)
 
 ---
