@@ -48,12 +48,13 @@ Tim Hardaway Jr scored 32 points to lead Detroit to a 133-122 victory over the E
 
 # 'Amazing, crazy' action on day two of Rugby Sevens
 
+![Team France celebrate after downing New Zealand 21-14. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_4_20250329210652.jpg&q=90)
 ![The Hong Kong China men’s squad beat Japan 43-21 in the Melrose Claymores competition. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_3_20250329161738.jpg&q=90)
 ![Fiji and Britain's women's teams face off at Kai Tak Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_1_20250329121802.jpg&q=85)
 ![Argentina beats Fiji in the men's Rugby Sevens match. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_2_20250329131539.jpg&q=90)
   
 
-Both the men’s and women’s squads for the SAR on Saturday kept their winning streak alive on day two of the Hong Kong Sevens, which is being played at the brand new Kai Tak Stadium.
+Both the men’s and women’s squads for the SAR on Saturday kept their winning streak alive on day two of the Hong Kong Sevens, which also saw an end to New Zealand's campaign to win a third-straight title.
 
   
 
