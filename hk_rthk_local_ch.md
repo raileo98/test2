@@ -1,3 +1,49 @@
+# 瑪麗醫院心胸外科病房47歲男病人自行離院　院方報警求助
+
+  
+
+瑪麗醫院一名47歲男病人自行離開醫院。院方非常重視事件，已即時聯絡病人家屬及報警求助。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798054-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798054-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798054-20250329.htm)
+
+---
+
+# 博物館高峰論壇結束　今屆逾7千人次報名創歷屆新高
+
+  
+
+一連兩日在香港會議展覽中心舉行，由康文署主辦、法國吉美國立亞洲藝術博物館協辦的「博物館高峰論壇2025」結束。累計超過7000人次報名，創歷屆新高，當中3分1為非本地人士，分別來自39個國家。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798052-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798052-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798052-20250329.htm)
+
+---
+
 # 七欖第二日賽事共38820人入場
 
 ![香港國際七人欖球賽第二日賽事，共有38820人入場。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798051_1_20250329222812.jpg&q=85)
@@ -1400,55 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm)
-
----
-
-# 元朗攸壆路簡約公屋入伙　租戶稱省下金錢可以給子女讀書補習
-
-![攸壆路的簡約公屋項目，南北兩區合共有2156個單位。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797911_1_20250328184755.jpg&q=90)
-![已有兩條巴士及1條專線小巴路線，為居民提供服務。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797911_2_20250328184755.jpg&q=85)
-![簡約公屋項目亦設有超市，便利店，自助洗衣店等設施。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797911_3_20250328184755.jpg&q=85)
-  
-
-位於元朗攸壆路的首個簡約公屋項目2100多個單位，今日起陸續入伙，房屋局局長何永賢見證部份租戶辦理入伙手續，並向他們派發單位鎖匙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797911-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797911-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797911-20250328.htm)
-
----
-
-# 旅議會估計約有6個旅行團在泰國　涉及旅客少於100人
-
-![旅議會估計約有6個旅行團在泰國　涉及旅客少於100人。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797910_1_20250328184014.jpg&q=80)
-  
-
-緬甸發生黎克特制7級以上地震，泰國全國亦有震感。本港的旅遊業議會表示，根據暫時估計約有6個旅行團在泰國，涉及旅客少於100人，暫時未收到有旅行團在緬甸，並引述入境處指暫時未有求助個案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm)
 
 ---

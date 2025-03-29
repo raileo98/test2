@@ -1,3 +1,72 @@
+# 瑪麗醫院心胸外科病房47歲男病人自行離院　院方報警求助
+
+  
+
+瑪麗醫院一名47歲男病人自行離開醫院。院方非常重視事件，已即時聯絡病人家屬及報警求助。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798054-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798054-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798054-20250329.htm)
+
+---
+
+# 澳門特首岑浩輝向緬甸領導人致慰問電
+
+  
+
+澳門特區行政長官岑浩輝向緬甸領導人敏昂萊致慰問電，表示願向緬方抗震救災和災後重建提供力所能及的幫助。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm)
+
+---
+
+# 博物館高峰論壇結束　今屆逾7千人次報名創歷屆新高
+
+  
+
+一連兩日在香港會議展覽中心舉行，由康文署主辦、法國吉美國立亞洲藝術博物館協辦的「博物館高峰論壇2025」結束。累計超過7000人次報名，創歷屆新高，當中3分1為非本地人士，分別來自39個國家。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798052-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798052-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798052-20250329.htm)
+
+---
+
 # 七欖第二日賽事共38820人入場
 
 ![香港國際七人欖球賽第二日賽事，共有38820人入場。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798051_1_20250329222812.jpg&q=85)

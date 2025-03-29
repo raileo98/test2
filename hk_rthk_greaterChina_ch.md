@@ -1,3 +1,26 @@
+# 澳門特首岑浩輝向緬甸領導人致慰問電
+
+  
+
+澳門特區行政長官岑浩輝向緬甸領導人敏昂萊致慰問電，表示願向緬方抗震救災和災後重建提供力所能及的幫助。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm)
+
+---
+
 # 張軍晤林定國　稱最高人民法院持續推進與香港司法法律界交流合作
 
 ![最高人民法院院長張軍(右)早上在北京會見律政司司長林定國。(人民法院報圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798042_1_20250329214059.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797715-20250327.htm)
-
----
-
-# 丁薛祥：今年經濟運行起步平穩　努力完成全年經濟社會發展目標
-
-![丁薛祥說，今年首兩個月，中國經濟運行起步平穩。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797711_1_20250327193831.jpg&q=80)
-  
-
-中共中央政治局常委、國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式發表主旨演講。他指出，全球不穩定、不確定性因素明顯增多，要同心協力，共創亞洲及世界更好未來。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797711-20250327.htm)
 
 ---
