@@ -1,3 +1,27 @@
+# Japan beef bowl chain to shut stores over rat and bug
+
+![Fast-food company Sukiya has about 1,970 stores across Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798050_1_20250329221759.jpg&q=90)
+  
+
+Japanese restaurant chain Sukiya will temporarily shut nearly all of its roughly 2,000 branches after a rat was found in a miso soup and a bug was found in another meal, the company said on Saturday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798050-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798050-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798050-20250329.htm)
+
+---
+
 # Chinese rescue team arrives in Myanmar
 
 ![Beijing has dispatched a total of 82 rescuers to Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798044_1_20250329201348.jpg&q=90)
@@ -46,12 +70,12 @@ South Korean firefighters deployed helicopters on Saturday as the country's bigg
 
 ---
 
-# Myanmar quake death toll passes 1,000
+# Myanmar quake death toll passes 1,600
 
 ![A rescuer works at the site of the skyscraper that collapsed in Bangkok. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797995_1_20250329121851.jpg&q=70)
   
 
-The death toll from the massive earthquake in Myanmar has passed 1,000, the ruling junta there said on Saturday, with more than 2,000 injured.
+The death toll from the massive earthquake in Myanmar has passed 1,600, the ruling junta there said on Saturday, with more than 3,400 injured.
 
   
 
@@ -1415,30 +1439,5 @@ US and Russian officials opened talks in Saudi Arabia on Monday on a partial cea
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm)
-
----
-
-# S Korea deploys choppers in force to fight bushfires
-
-![Unramsa temple in Uiseong, Gyeongbuk, is one of the buildings destroyed by a wildfire on Sunday.
-Photo: Yonhap/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797163_1_20250324162214.jpg&q=85)
-  
-
-South Korean authorities said on Monday they would deploy dozens of helicopters and thousands of firefighters and soldiers as they struggle to control multiple wildfires in the southeast, which have been burning for days.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797163-20250324.htm)
 
 ---
