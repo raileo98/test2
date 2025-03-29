@@ -1,3 +1,26 @@
+# 報道指緬甸首都內比都國際機場航空管制塔倒塌估計至少5死
+
+  
+
+緬甸中部7級以上強烈地震，軍政府說死亡人數超過1千人，逾2千人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798010-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798010-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798010-20250329.htm)
+
+---
+
 # 特區政府救援隊前赴緬甸　李家超及多名官員將到機場送行
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797768-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797768-20250328.htm)
-
----
-
-# 普京稱俄羅斯密切關注北極地區局勢　不允任何侵犯主權行為
-
-![普京說俄羅斯必須引進新一代破冰船，以進一步加強在北極地區的影響力。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797767_1_20250328025309.jpg&q=90)
-  
-
-俄羅斯總統普京說，如果西方國家對北極地區的項目感到興趣，俄羅斯將允許西方國家與俄方開展聯合項目。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797767-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797767-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797767-20250328.htm)
 
 ---

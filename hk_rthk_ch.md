@@ -1,3 +1,26 @@
+# 報道指緬甸首都內比都國際機場航空管制塔倒塌估計至少5死
+
+  
+
+緬甸中部7級以上強烈地震，軍政府說死亡人數超過1千人，逾2千人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798010-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798010-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798010-20250329.htm)
+
+---
+
 # 特區政府救援隊前赴緬甸　李家超及多名官員將到機場送行
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797936-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797936-20250328.htm)
-
----
-
-# 美的去年多賺逾14%　末期息每股3.5元人民幣
-
-![美的集團去年盈利按年升14.3%。末期息每股3.5元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797933_1_20250328212442.jpg&q=90)
-  
-
-美的集團去年盈利385.4億元人民幣，按年升14.3%。末期息每股3.5元人民幣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797933-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797933-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797933-20250328.htm)
 
 ---
