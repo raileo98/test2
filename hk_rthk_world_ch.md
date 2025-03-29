@@ -1,3 +1,27 @@
+# 美媒披露防長赫格塞思曾兩次攜妻出席機密會議
+
+![美國傳媒報道，赫格塞思曾經兩次攜同妻子參加與外國軍事官員的機密會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798080_1_20250330072810.jpg&q=90)
+  
+
+美國國安官員通訊群組懷疑洩密風波持續發酵之際，國防部長赫格塞思據報曾經兩次攜同妻子參加與外國軍事官員的會議，兩次會議都有討論敏感信息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798080-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798080-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798080-20250330.htm)
+
+---
+
 # 德國漢諾威安老院火警50多人受傷
 
 ![德國漢諾威安老院火警50多人受傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798077_1_20250330063050.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797922-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797922-20250328.htm)
-
----
-
-# 國家市場監督管理總局稱對長和港口的交易協議將依法進行審查
-
-![國家市監局表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797921_1_20250328203658.jpg&q=70)
-  
-
-國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm)
 
 ---

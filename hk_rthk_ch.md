@@ -1,3 +1,51 @@
+# 美媒披露防長赫格塞思曾兩次攜妻出席機密會議
+
+![美國傳媒報道，赫格塞思曾經兩次攜同妻子參加與外國軍事官員的機密會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798080_1_20250330072810.jpg&q=90)
+  
+
+美國國安官員通訊群組懷疑洩密風波持續發酵之際，國防部長赫格塞思據報曾經兩次攜同妻子參加與外國軍事官員的會議，兩次會議都有討論敏感信息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798080-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798080-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798080-20250330.htm)
+
+---
+
+# 諾定咸森林憑互射12碼淘汰白禮頓　34年來首次晉級英足盃4強
+
+![諾定咸森林自1991年以來首次殺入足總盃4強。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798079_1_20250330072655.jpg&q=85)
+  
+
+英格蘭足總盃，諾定咸森林作客同白禮頓踢到加時，結果森林在憑互射12碼勝出，34年來首次晉級4強。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798079-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798079-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798079-20250330.htm)
+
+---
+
 # 西甲聯賽　皇家馬德里主場3:2險勝雷加尼斯
 
   
@@ -1393,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm)
-
----
-
-# 縱橫遊取消4月出發泰國旅行團　涉及10團共約150人
-
-![縱橫遊宣布，將會取消所有4月份出發的泰國旅行團。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798011_1_20250329145442.jpg&q=80)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。旅行社縱橫遊宣布，將會取消所有4月份出發的泰國旅行團，當中涉及10團合共大約150人，團友可以選擇轉團或全數退款。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm)
-
----
-
-# 報道指緬甸首都內比都國際機場航空管制塔倒塌估計至少5死
-
-![報道指緬甸首都內比都國際機場航空管制塔倒塌估計至少5死](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798010_1_20250329135649.jpg&q=90)
-  
-
-緬甸中部7級以上強烈地震，軍政府說死亡人數超過1千人，逾2千人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798010-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798010-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798010-20250329.htm)
 
 ---
