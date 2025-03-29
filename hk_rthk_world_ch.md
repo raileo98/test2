@@ -1,3 +1,26 @@
+# 縱橫遊取消4月出發泰國旅行團　涉及10團共約150人
+
+  
+
+緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。旅行社縱橫遊宣布，將會取消所有4月份出發的泰國旅行團，當中涉及10團合共大約150人，團友可以選擇轉團或全數退款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm)
+
+---
+
 # 報道指緬甸首都內比都國際機場航空管制塔倒塌估計至少5死
 
 ![報道指緬甸首都內比都國際機場航空管制塔倒塌估計至少5死](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798010_1_20250329135649.jpg&q=90)
@@ -240,7 +263,7 @@
 
 # 有在曼谷旅遊港人稱地震後到室外暫避　未見有餘震暫不會縮短行程
 
-![有在當地旅遊的港人表示，地震後撤出室內，其後返回酒店。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797991_1_20250329114857.jpg&q=70)
+![蕭先生說，巿面未見有太大影響，暫時應該不會縮短行程。（市民蕭先生提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797991_2_20250329141558.jpg&q=85)
   
 
 緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感，有正在興建中的大樓整幢倒塌。有在當地旅遊的港人表示，地震後撤出室內，其後返回酒店，由於巿面未見有太大影響，暫時應該不會縮短行程。
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797770-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797770-20250328.htm)
-
----
-
-# 澤連斯基籲各方制定在烏部署部隊計劃　馮德萊恩強調援烏重要性
-
-![澤連斯基指今次會議及即將舉行的軍事會談等，有一些非常具體的問題需要回答。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797768_1_20250328025431.jpg&q=90)
-  
-
-援助烏克蘭的「志願者聯盟」峰會在巴黎閉幕。出席的烏克蘭總統澤連斯基在會上呼籲各方制定明確在烏克蘭部署部隊的計劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797768-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797768-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797768-20250328.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Govt to step up national security education
+
+![Erick Tsang says the bureau aims to achieve patriotism everywhere. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798009_1_20250329133702.jpg&q=90)
+  
+
+Secretary for Constitutional and Mainland Affairs Erick Tsang said on Saturday the government will step up its promotion on national security education next month, to achieve patriotism everywhere.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm)
+
+---
+
 # Hong Kong sends rescue team to quake-stricken Myanmar
 
 ![Rescuers are digging through the rubble of collapsed buildings in a desperate search for survivors. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798001_2_20250329130610.jpg&q=85)
@@ -1429,29 +1453,5 @@ Police on Thursday said they are investigating a suspected assault at a flat in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797689-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797689-20250327.htm)
-
----
-
-# Heathrow set for incentives to upgrade after closure
-
-![A sign is put up at King's Cross railway station in London after a fire at  an electrical substation wiped out power to Heathrow last Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797682_1_20250327153912.jpg&q=90)
-  
-
-Britain's Civil Aviation Authority said it plans to set incentives for London's Heathrow to invest in its operations and provide high-quality service as part of the regulator's periodic review, days after a closure at the airport rocked airlines.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm)
 
 ---

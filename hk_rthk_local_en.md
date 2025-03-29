@@ -1,3 +1,27 @@
+# Govt to step up national security education
+
+![Erick Tsang says the bureau aims to achieve patriotism everywhere. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798009_1_20250329133702.jpg&q=90)
+  
+
+Secretary for Constitutional and Mainland Affairs Erick Tsang said on Saturday the government will step up its promotion on national security education next month, to achieve patriotism everywhere.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm)
+
+---
+
 # Hong Kong sends rescue team to quake-stricken Myanmar
 
 ![Rescuers are digging through the rubble of collapsed buildings in a desperate search for survivors. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798001_2_20250329130610.jpg&q=85)
@@ -1429,29 +1453,5 @@ Want to see vampires travelling through time and space? Local art space Para Sit
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm)
-
----
-
-# HK strives to attain carbon neutrality: Tse Chin-wan
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797124_1_20250324120907.jpg&q=80)
-  
-
-Environment minister Tse Chin-wan said on Monday that Hong Kong will continue to strive for carbon neutrality by 2050, highlighting the SAR’s multi-pronged plan to achieve this goal.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm)
 
 ---
