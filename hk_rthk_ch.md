@@ -1,4 +1,27 @@
-# 德甲拜仁3:2挫聖保利　利華古遜3:1贏波琴
+# 中國成功發射通信技術試驗衛星十六號
+
+  
+
+中國凌晨零時05分，在文昌航天發射場使用長征七號改運載火箭，成功將通信技術試驗衛星十六號發射升空。新華社報道，衛星順利進入預定軌道，發射任務獲得圓滿成功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798067-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798067-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798067-20250330.htm)
+
+---
+
+# 德甲拜仁3:2挫聖保利
 
 ![拜仁球員慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798066_1_20250330011528.jpg&q=90)
   
@@ -192,7 +215,8 @@
 
 # 新華社：中國香港特區救援隊抵達緬甸仰光國際機場
 
-![特區政府派出51人救援隊已抵達仰光。（港台圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798058_1_20250329235726.jpg&q=70)
+![香港特區救援隊抵達仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798058_2_20250330012903.jpg&q=90)
+![香港特區救援隊攜同搜救犬抵達緬甸仰光機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798058_3_20250330012903.jpg&q=90)
   
 
 新華社報道，緬甸時間星期六晚，中國香港特區救援隊抵達仰光國際機場。
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm)
-
----
-
-# 5班來往香港與曼谷航班延誤　未有航班取消
-
-![機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797993_1_20250329121733.jpg&q=85)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm)
 
 ---

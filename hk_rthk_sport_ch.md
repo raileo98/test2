@@ -1,4 +1,4 @@
-# 德甲拜仁3:2挫聖保利　利華古遜3:1贏波琴
+# 德甲拜仁3:2挫聖保利
 
 ![拜仁球員慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798066_1_20250330011528.jpg&q=90)
   
