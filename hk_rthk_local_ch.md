@@ -1,3 +1,26 @@
+# 入境處共接獲55宗有關緬甸最新情況查詢
+
+  
+
+入境處表示，截至下午5時，共接獲55宗有關緬甸最新情況的查詢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm)
+
+---
+
 # 緬甸中部大地震　逾10班香港往返泰國航班延誤
 
   
@@ -1426,29 +1449,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797880-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797880-20250328.htm)
-
----
-
-# 外交部：中方堅決反對英方炮製所謂「半年報告」干涉中國內政
-
-![郭嘉昆說，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797879_1_20250328162152.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆回應英國政府再次發布「香港問題半年報告」時表示，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm)
 
 ---

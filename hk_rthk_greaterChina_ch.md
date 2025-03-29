@@ -1,3 +1,23 @@
+# 中國救援隊抵達緬甸仰光國際機場
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm)
+
+---
+
 # 國家救援隊83名隊員赴緬甸災區　國航派包機搭載隊員
 
 ![國航接到緊急運輸任務後，迅速完成航班運行準備工作，派出救援包機搭載救援隊員。（中國民航報）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798029_1_20250329175858.jpg&q=90)
@@ -1414,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797708-20250327.htm)
-
----
-
-# 國防部：堅決打掉一切「台獨」分裂圖謀
-
-![吳謙說，人民軍隊堅決打掉一切「台獨」分裂圖謀。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797692_1_20250327160736.jpg&q=90)
-  
-
-在北京，國防部強調，人民軍隊將堅決貫徹新時代黨解決台灣問題的總體方略，全時待戰、隨時能戰、戰之必勝，堅決打掉一切「台獨」分裂圖謀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797692-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797692-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797692-20250327.htm)
 
 ---

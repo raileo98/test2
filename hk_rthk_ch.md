@@ -1,3 +1,46 @@
+# 中國救援隊抵達緬甸仰光國際機場
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm)
+
+---
+
+# 入境處共接獲55宗有關緬甸最新情況查詢
+
+  
+
+入境處表示，截至下午5時，共接獲55宗有關緬甸最新情況的查詢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm)
+
+---
+
 # 緬甸中部大地震　逾10班香港往返泰國航班延誤
 
   

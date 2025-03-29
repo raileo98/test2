@@ -1,3 +1,23 @@
+# 中國救援隊抵達緬甸仰光國際機場
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm)
+
+---
+
 # 緬甸中部大地震　逾10班香港往返泰國航班延誤
 
   
@@ -1418,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797855-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797855-20250328.htm)
-
----
-
-# 赫格塞思：美菲必須並肩作戰　共同應對來自中國的威脅
-
-![赫格塞思重申美國對與菲律賓共同防禦條約的堅定承諾。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797849_1_20250328131740.jpg&q=90)
-  
-
-到訪菲律賓的美國國防部長赫格塞思，重申美國對與菲律賓共同防禦條約的堅定承諾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm)
 
 ---
