@@ -1,5 +1,29 @@
+# 勞工顧問委員會僱員代表補選　香港海員工會副主席楊開强當選
+
+  
+
+勞工顧問委員會僱員代表補選完成，香港海員工會副主席楊開强當選。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798031-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798031-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798031-20250329.htm)
+
+---
+
 # 國家救援隊83名隊員赴緬甸災區　國航派包機搭載隊員
 
+![國航接到緊急運輸任務後，迅速完成航班運行準備工作，派出救援包機搭載救援隊員。（中國民航報）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798029_1_20250329175858.jpg&q=90)
   
 
 國家救援隊83名隊員，帶備通信、搜救、指揮、醫療、應急食品等近22噸應急救援物資，下午近1時從北京首都機場起飛，前往緬甸地震災區。
@@ -1428,29 +1452,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797859-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797859-20250328.htm)
-
----
-
-# 陳翊庭：海外投資者對中國資產興趣增加
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797853_1_20250328143307.jpg&q=85)
-  
-
-港交所行政總裁陳翊庭表示，今年初出席瑞士達沃斯經濟論壇，亦剛結束訪問美國，緊接亦會到北京、中東同歐洲做推廣。正在海南出席博鰲亞洲論壇的陳翊庭說，作為超級聯繫人，以及鞏固香港國際金融中心地位，要不時與世界各地朋友見面，介紹香港情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm)
 
 ---
