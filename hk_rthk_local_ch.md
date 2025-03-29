@@ -1,3 +1,26 @@
+# 港澳辦再轉載評論文章促長和作無愧於時代選擇　停止出售港口交易
+
+  
+
+港澳辦網站再次轉載《大公報》有關長和計劃出售巴拿馬運河港口等資產的文章。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm)
+
+---
+
 # 入境處共接獲55宗有關緬甸最新情況查詢
 
 ![入境處表示，截至下午5時，共接獲55宗有關緬甸最新情況的查詢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798036_1_20250329191359.jpg&q=75)
@@ -1428,29 +1451,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm)
-
----
-
-# 仁安醫院稱不會因公立醫院調整收費而加價　成本上升才會上調收費
-
-![李繼堯表示，院方不會因公立醫院調整收費而乘機加價。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797880_1_20250328164752.jpg&q=80)
-  
-
-當局推行公營醫療服務收費改革，急症室收費由現時180元上調至400元，仁安醫院院長李繼堯表示，院方不會因公立醫院調整收費而乘機加價。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797880-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797880-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797880-20250328.htm)
 
 ---
