@@ -1,3 +1,23 @@
+# 緬甸大地震增至1644人死亡3408人受傷
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798057-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798057-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798057-20250329.htm)
+
+---
+
 # 19班本港來往泰國航班延誤　沒有航班取消
 
 ![機場管理局表示，截至晚上8時半，共有19班本港來往泰國的航班延誤。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798056_1_20250329224026.jpg&q=80)
@@ -47,6 +67,7 @@
 
 # 瑪麗醫院心胸外科病房47歲男病人自行離院　院方報警求助
 
+![瑪麗醫院一名47歲男病人自行離開醫院，院方已即時聯絡病人家屬及報警求助。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798054_1_20250329225531.jpg&q=80)
   
 
 瑪麗醫院一名47歲男病人自行離開醫院。院方非常重視事件，已即時聯絡病人家屬及報警求助。

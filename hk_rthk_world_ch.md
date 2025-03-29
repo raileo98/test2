@@ -1,3 +1,23 @@
+# 緬甸大地震增至1644人死亡3408人受傷
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798057-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798057-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798057-20250329.htm)
+
+---
+
 # 緬甸大地震逾千人死亡　中國救援隊抵達仰光
 
 ![在曼德勒，救援人員在瓦礫中搜索生還者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798047_1_20250329213443.jpg&q=90)
@@ -1420,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm)
-
----
-
-# 緬甸發生強烈地震　雲南多地和泰國有震感
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797863_2_20250328150047.jpg&q=90)
-  
-
-緬甸發生黎克特制7.3級地震，最大城市仰光震感強烈。中國地震台網測定，地震強度是7.9級。央視新聞報道，雲南多地和泰國全國有震感，曼谷震感持續數分鐘，民眾紛紛離開高層建築物，湧到街上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797863-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797863-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797863-20250328.htm)
 
 ---
