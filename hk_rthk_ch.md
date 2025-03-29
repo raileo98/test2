@@ -1,3 +1,26 @@
+# 南韓山火部分地區復燃　男子涉掃墓留下火種正被調查
+
+  
+
+南韓慶尚北道的山火有死灰復燃跡象，繼安東市之後，義城郡部分地區山火復燃，消防部門派出6架直升機等前往撲救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797979-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797979-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797979-20250329.htm)
+
+---
+
 # 緬甸地震災區大量基礎設施遭受破壞　中國派出救援醫療隊救災
 
 ![中國雲南救援醫療隊共37人早上從昆明長水國際機場乘坐包機趕赴震區。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797978_1_20250329074902.jpg&q=80)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm)
-
----
-
-# 緬甸大地震至少10死　軍政府籲國際社會援助　曼谷至少3人喪生
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797904_1_20250328183310.jpg&q=90)
-  
-
-緬甸發生黎克特制7級以上大地震，雲南、泰國、老撾和越南都有震感。泰國曼谷一座興建中的30層高建築物倒塌，至少3人死亡，多人受傷。泰國總理佩通坦宣布，曼谷進入緊急狀態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797904-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797904-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797904-20250328.htm)
 
 ---
