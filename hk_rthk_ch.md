@@ -1,3 +1,26 @@
+# 盧寵茂質疑言論指急症室增收費會導致私營醫療加價是否真確或誤導
+
+  
+
+醫務衞生局局長盧寵茂在一個電台節目表示，對於有言論指，急症室收費增至400元會導致私營醫療加價，他質疑這個言論是真確抑或誤導引致公眾恐慌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797987-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797987-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797987-20250329.htm)
+
+---
+
 # 南部戰區南海海域例行巡航　發言人斥菲方拉攏域外國家破壞和平
 
 ![南部戰區南海海域例行巡航　發言人斥菲方拉攏域外國家破壞和平](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797985_1_20250329101044.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm)
-
----
-
-# 西藏稱對外開放步伐會愈來愈快　為遊客提供更多便利條件
-
-![徐志濤指當局會根據西藏接待條件和基礎設施的變化，為外國遊客提供更便利條件。（葉燿坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797915_1_20250328203949.jpg&q=80)
-  
-
-今年是西藏自治區成立60周年，國新辦在拉薩市舉行新聞發布會，講解西藏人權事業的發展與進步。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm)
 
 ---

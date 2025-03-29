@@ -1,3 +1,26 @@
+# 盧寵茂質疑言論指急症室增收費會導致私營醫療加價是否真確或誤導
+
+  
+
+醫務衞生局局長盧寵茂在一個電台節目表示，對於有言論指，急症室收費增至400元會導致私營醫療加價，他質疑這個言論是真確抑或誤導引致公眾恐慌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797987-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797987-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797987-20250329.htm)
+
+---
+
 # 何永賢稱社會認為需調整公屋富戶政策　將資源交更有需要市民
 
   
@@ -1427,29 +1450,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797756-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797756-20250328.htm)
-
----
-
-# 外交部駐港公署強烈不滿英國涉港報告　促立即停止政治操弄
-
-![外交部駐港公署強烈不滿及堅決反對英國政府再次發布所謂「香港問題半年報告」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797755_1_20250327233719.jpg&q=85)
-  
-
-外交部駐港公署強烈不滿及堅決反對英國政府再次發布所謂「香港問題半年報告」，指有關內容對香港事務指手畫腳，抹黑香港人權法治，罔顧事實、顛倒黑白，公然踐踏包括「不干涉別國內政」在內的國際法與國際關係基本準則，敦促英方立即停止炮製涉港報告的政治操弄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm)
 
 ---
