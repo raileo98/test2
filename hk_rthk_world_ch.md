@@ -1,3 +1,26 @@
+# 特區政府救援隊前赴緬甸　李家超及多名官員將到機場送行
+
+  
+
+特區政府派出保安局、消防處、入境處和醫管局人員組成的救援隊前往緬甸，協助地震災區的搜救工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm)
+
+---
+
 # 緬甸強烈地震死亡人數超過1千人
 
 ![緬甸有建築物在地震中倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798006_1_20250329131545.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797767-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797767-20250328.htm)
-
----
-
-# 阿姆斯特丹發生持刀襲擊案最少5傷　疑犯被捕其犯案動機待查明
-
-![襲擊發生在水壩廣場附近一個街區，警方封鎖有關區域調查。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797765_1_20250328014200.jpg&q=85)
-  
-
-荷蘭首都阿姆斯特丹市中心發生持刀襲擊案，最少5人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797765-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797765-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797765-20250328.htm)
 
 ---

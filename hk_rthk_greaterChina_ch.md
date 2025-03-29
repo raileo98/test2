@@ -1,3 +1,26 @@
+# 特區政府救援隊前赴緬甸　李家超及多名官員將到機場送行
+
+  
+
+特區政府派出保安局、消防處、入境處和醫管局人員組成的救援隊前往緬甸，協助地震災區的搜救工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm)
+
+---
+
 # 有來自泰國旅客對地震感到震驚　有轉機旅客指曼谷機場有較多旅客
 
   
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797641-20250327.htm)
-
----
-
-# 內地首兩個月工業企業利潤按年跌0.3%
-
-![內地今年首兩個月工業企業利潤按年跌0.3%，跌幅較去年全年收窄3個百分點。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797636_1_20250327105906.jpg&q=90)
-  
-
-內地今年首兩個月工業企業利潤總額9109.9億元人民幣，按年跌0.3%，跌幅較去年全年收窄3個百分點，但表現差過去年首兩個月的增長10.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm)
 
 ---

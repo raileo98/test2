@@ -1,3 +1,26 @@
+# 特區政府救援隊前赴緬甸　李家超及多名官員將到機場送行
+
+  
+
+特區政府派出保安局、消防處、入境處和醫管局人員組成的救援隊前往緬甸，協助地震災區的搜救工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm)
+
+---
+
 # 緬甸強烈地震死亡人數超過1千人
 
 ![緬甸有建築物在地震中倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798006_1_20250329131545.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797933-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797933-20250328.htm)
-
----
-
-# 美股初段向下　投資者憂慮關稅推高物價
-
-![美股初段向下，市場憂慮總統特朗普提高關稅的措施再次推高物價。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797935_1_20250328214029.jpg&q=90)
-  
-
-美股初段向下。美國上月核心通脹高於預期，市場憂慮美國總統特朗普提高關稅的措施再次推高物價。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797935-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797935-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797935-20250328.htm)
 
 ---
