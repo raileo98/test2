@@ -1,3 +1,27 @@
+# 哈馬斯同意調解方提出的加沙停火建議
+
+![加沙南部汗尤尼斯在戰火中成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798073_1_20250330035601.jpg&q=70)
+  
+
+巴勒斯坦武裝組織哈馬斯表示，同意調解方埃及和卡塔爾提出的加沙停火建議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798073-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798073-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798073-20250330.htm)
+
+---
+
 # 中國駐緬大使：將全力協助中國救援隊開展工作
 
 ![中國救援隊抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798071_1_20250330023800.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm)
-
----
-
-# 有來自泰國旅客對地震感到震驚　有轉機旅客指曼谷機場有較多旅客
-
-![有抵港的泰國旅客表示，地震發生時在25樓，當時感到震驚。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798002_1_20250329135915.jpg&q=85)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm)
 
 ---
