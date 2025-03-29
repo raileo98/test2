@@ -1,3 +1,27 @@
+# Newcastle holding parade to celebrate League Cup win
+
+![The Toon Army had waited 70 years to see their beloved team lift a domestic trophy. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798039_1_20250329194334.jpg&q=70)
+  
+
+Ending a 70-year wait for a domestic trophy deserves an official party.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798039-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798039-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798039-20250329.htm)
+
+---
+
 # Fans revel in electric second day of HK Sevens
 
 ![Rugby fans fill up the Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_2_20250329184242.jpg&q=20)
@@ -1433,29 +1457,5 @@ The chairman of Polytechnic University (PolyU)'s governing council on Thursday s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm)
-
----
-
-# Australian PM says general election is 'imminent'
-
-![Anthony Albanese, second right, leads party support for Treasurer Jim Chalmers after his fourth federal budget speech in Parliament House, Canberra. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797706_1_20250327172305.jpg&q=90)
-  
-
-Australian Prime Minister Anthony Albanese said on Thursday he would call a general election "imminently," with local media reporting the poll would be held on May 3.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm)
 
 ---

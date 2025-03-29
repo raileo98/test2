@@ -1,3 +1,27 @@
+# Newcastle holding parade to celebrate League Cup win
+
+![The Toon Army had waited 70 years to see their beloved team lift a domestic trophy. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798039_1_20250329194334.jpg&q=70)
+  
+
+Ending a 70-year wait for a domestic trophy deserves an official party.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798039-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798039-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798039-20250329.htm)
+
+---
+
 # Pistons top Cavs to secure winning season
 
 ![Tim Hardaway Jr connected on seven of 11 from three-point range for Detroit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798019_1_20250329151714.jpg&q=90)
@@ -1417,29 +1441,5 @@ Japan became the first team to qualify for the 2026 World Cup after second-half 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm)
-
----
-
-# Legendary F1 team owner Eddie Jordan dies
-
-![Eddie Jordan had been undergoing treatment for what he had called 'quite aggressive' cancer of the bladder and prostate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796629_1_20250320172623.jpg&q=85)
-  
-
-Ex-Formula 1 team owner and media personality Eddie Jordan has died, according to his family. He was 76.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm)
 
 ---
