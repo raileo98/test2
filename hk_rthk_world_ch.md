@@ -1,3 +1,26 @@
+# 特區政府派救援隊到緬甸　李家超寄語他們注意安全
+
+  
+
+因應緬甸地震，特區政府派出51人救援隊到當地，協助搜救工作。行政長官李家超表示，一收到緬甸駐港總領事館的要求後，特區政府短時間內就成立救援隊，感謝各隊員迅速響應，同時寄語他們要注意安全。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm)
+
+---
+
 # 南韓東南部山火增至30死40傷
 
 ![南韓東南部山火增至30人死亡，40人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798030_1_20250329175431.jpg&q=90)
@@ -1420,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm)
-
----
-
-# 馬斯克稱有信心任期完結前完成削減聯邦政府支出工作
-
-![馬斯克首次率政府效率部高層接受訪問。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797816_1_20250328110116.jpg&q=90)
-  
-
-領導美國政府效率部的富商馬斯克表示，有信心任命結束前，完成削減1萬億美元聯邦支出的大部分工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797816-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797816-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797816-20250328.htm)
 
 ---

@@ -1,5 +1,78 @@
+# 公營醫療增收費　盧寵茂不同意「收費就是道德不正確」的說法
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798026_1_20250329181706.jpg&q=90)
+  
+
+公營醫療收費改革下，急症室收費明年起增至400元，危殆、危急病人或傷者獲豁免。醫務衞生局局長盧寵茂表示，目前急症室有6成求診人士，情況屬於相對不緊急，增加收費可以發揮導向作用，減少濫用。他又不同意外界指，「收費就是道德不正確」的說法。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm)
+
+---
+
+# 蕭澤頤檢閱結業會操勉勵學員時刻謹記「君子慎其獨」
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798024_1_20250329180557.jpg&q=90)
+  
+
+警察學院結業會操早上舉行，由警務處處長蕭澤頤擔任檢閱官。今次共有29名見習督察及158名警員結業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm)
+
+---
+
+# 何永賢：簡約公屋讓公屋輪候者更好籌劃及思考未來住屋階梯
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798027_1_20250329180249.jpg&q=90)
+  
+
+元朗攸壆路首個「簡約公屋」昨日起入伙，房屋局局長何永賢指，「簡約公屋」可以讓市民輪候公屋期間有「落腳點」，更能籌劃及思考未來的住屋階梯，例如入住月租1600元「簡約公屋」的家庭，儲蓄數年可能足夠購買居屋首期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm)
+
+---
+
 # 勞工顧問委員會僱員代表補選　香港海員工會副主席楊開强當選
 
+![勞工顧問委員會僱員代表補選完成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798031_1_20250329180346.jpg&q=80)
   
 
 勞工顧問委員會僱員代表補選完成，香港海員工會副主席楊開强當選。

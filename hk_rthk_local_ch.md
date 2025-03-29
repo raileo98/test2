@@ -1,5 +1,101 @@
+# 特區政府派救援隊到緬甸　李家超寄語他們注意安全
+
+  
+
+因應緬甸地震，特區政府派出51人救援隊到當地，協助搜救工作。行政長官李家超表示，一收到緬甸駐港總領事館的要求後，特區政府短時間內就成立救援隊，感謝各隊員迅速響應，同時寄語他們要注意安全。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm)
+
+---
+
+# 公營醫療增收費　盧寵茂不同意「收費就是道德不正確」的說法
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798026_1_20250329181706.jpg&q=90)
+  
+
+公營醫療收費改革下，急症室收費明年起增至400元，危殆、危急病人或傷者獲豁免。醫務衞生局局長盧寵茂表示，目前急症室有6成求診人士，情況屬於相對不緊急，增加收費可以發揮導向作用，減少濫用。他又不同意外界指，「收費就是道德不正確」的說法。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm)
+
+---
+
+# 蕭澤頤檢閱結業會操勉勵學員時刻謹記「君子慎其獨」
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798024_1_20250329180557.jpg&q=90)
+  
+
+警察學院結業會操早上舉行，由警務處處長蕭澤頤擔任檢閱官。今次共有29名見習督察及158名警員結業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm)
+
+---
+
+# 何永賢：簡約公屋讓公屋輪候者更好籌劃及思考未來住屋階梯
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798027_1_20250329180249.jpg&q=90)
+  
+
+元朗攸壆路首個「簡約公屋」昨日起入伙，房屋局局長何永賢指，「簡約公屋」可以讓市民輪候公屋期間有「落腳點」，更能籌劃及思考未來的住屋階梯，例如入住月租1600元「簡約公屋」的家庭，儲蓄數年可能足夠購買居屋首期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm)
+
+---
+
 # 勞工顧問委員會僱員代表補選　香港海員工會副主席楊開强當選
 
+![勞工顧問委員會僱員代表補選完成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798031_1_20250329180346.jpg&q=80)
   
 
 勞工顧問委員會僱員代表補選完成，香港海員工會副主席楊開强當選。
@@ -1355,102 +1451,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797878-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797878-20250328.htm)
-
----
-
-# 元朗攸壆路簡約公屋入伙　有租戶稱租金較劏房平但位置較遠
-
-![元朗攸壆路首個簡約公屋即日起入伙，整個項目分為南北兩區，住在南區的居民陸續到邨內辦事處領取鎖匙。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797873_2_20250328162257.jpg&q=85)
-![單位設獨立洗手間，淋浴間，開放式煮食空間等。（陳曉慶攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797873_3_20250328162659.jpg&q=90)
-  
-
-元朗攸壆路首個簡約公屋即日起入伙，整個項目分為南北兩區，住在南區的居民陸續到邨內辦事處領取鎖匙，首個星期每日處理50戶，之後每星期增至100戶，房屋局期望4月可以完成整個南區共1046個單位的入伙手續。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797873-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797873-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797873-20250328.htm)
-
----
-
-# 梁君彥稱張宇人非撤回議案　如議員不動議議案不能讓會議繼續辯論
-
-![梁君彥指，張宇人於發言時已明確表示不會動議議案，主席不能就該議案提出待議議題，無法讓議員就該議案進行辯論。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797872_1_20250328165835.jpg&q=80)
-  
-
-自由黨立法會議員張宇人原本在昨日的立法會大會會議上，動議一項有關小班教學的議員議案，但他認為教育界議員朱國強提出的修正案，改變議案原意，在辯論前提出不動議議案。議事規則委員會主席謝偉俊提出規程問題，指出根據《議事規則》第35條，撤回動議需要得到批准。立法會主席梁君彥表示，張宇人並非撤回動議，又指據《議事規則》，如果議員不動議議案，他不能夠讓會議繼續辯論。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797872-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797872-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797872-20250328.htm)
-
----
-
-# 男子攜500萬元歐羅遇劫反抗匪徒事敗　警拘4非華裔男子
-
-![警方翻看大量閉路電視，並鎖定4名男子的身份，分別在佐敦及旺角拘捕他們，年齡介乎17至31歲。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797869_1_20250328162323.jpg&q=85)
-  
-
-警方以「企圖行劫」罪拘捕4名非華裔男子，涉嫌與昨日尖沙咀一宗行劫案有關，涉及約4200港萬元財物。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797869-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797869-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797869-20250328.htm)
-
----
-
-# 彩石邨3大廈9成單位租金每月2500元以下　每平方米74元
-
-![房委會表示，今次租金釐定，超逾91%單位的租金水平定於每月2500元以下。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797859_1_20250328144517.jpg&q=90)
-  
-
-房委會表示，新建公屋上水彩石邨的三幢非標準型大廈，租金將以所屬地區的最佳租金水平釐定。上水區公屋單位的最佳租金為每月每平方米74元，適用於彩石邨玥石樓、耀石樓和榮石樓共1431個單位。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797859-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797859-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797859-20250328.htm)
 
 ---
