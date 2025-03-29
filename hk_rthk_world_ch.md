@@ -21,7 +21,11 @@
 # 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
 
 ![行政長官李家超與多名官員到機場，向特區救援隊進行授旗儀式。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_1_20250329151618.jpg&q=90)
+![李家超與救援隊成員握手，又提醒他們要注意自身安全。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_2_20250329154656.jpg&q=85)
   
+
+特區政府派出保安局、消防處、入境處和醫管局人員組成的51人救援隊前往緬甸，協助地震災區的搜救工作。行政長官李家超將區旗授予救援隊代表。
+
   
 
 
