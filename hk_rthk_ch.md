@@ -1,3 +1,27 @@
+# 美國地質勘探局推算緬甸地震死亡人數或超過1萬
+
+![外國救援物資開始運到緬甸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798012_1_20250329142835.jpg&q=90)
+  
+
+緬甸中部7級以上強烈地震，增至超過1千人死亡，2千多人受傷。接近震央的曼德勒近7百人死亡，首都內比都近百人喪生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm)
+
+---
+
 # 縱橫遊取消4月出發泰國旅行團　涉及10團共約150人
 
   
@@ -119,7 +143,7 @@
 
 # 七欖移師啟德舉行　蕭澤頤稱整體運作暢順已與運輸署商討改善安排
 
-![蕭澤頤說，昨日試用新的公共安全管理系統，利用人工智能並透過園區閉路電視的影像，分析人流和車流密度。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798004_1_20250329135846.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798004_1_20250329135846.jpg&q=90)
   
 
 一連三日的香港國際七人欖球賽昨日首度移師啟德體育園主場館舉行，警務處處長蕭澤頤表示，昨日的交通管制、人流進場或離場等整體運作非常暢順。
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm)
-
----
-
-# 林定國於北京講座分享「一國兩制」檢控及維護公共利益工作
-
-![林定國（左）與最高人民法院副院長茅仲華（右）在專題講座上合照。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797937_1_20250328221222.jpg&q=90)
-  
-
-正在北京的律政司司長林定國出席最高人民檢察院轄下的國家檢察官學院講座，向在場及線上過千名與會者分享「一國兩制」下律政司在檢控及維護公共利益方面的工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm)
 
 ---

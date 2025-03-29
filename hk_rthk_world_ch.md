@@ -1,3 +1,27 @@
+# 美國地質勘探局推算緬甸地震死亡人數或超過1萬
+
+![外國救援物資開始運到緬甸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798012_1_20250329142835.jpg&q=90)
+  
+
+緬甸中部7級以上強烈地震，增至超過1千人死亡，2千多人受傷。接近震央的曼德勒近7百人死亡，首都內比都近百人喪生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm)
+
+---
+
 # 縱橫遊取消4月出發泰國旅行團　涉及10團共約150人
 
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797771-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797771-20250328.htm)
-
----
-
-# 德國指歐盟須堅定回應美國汽車關稅　加國總理稱若受威脅會反擊
-
-![卡尼形容加美之間原本的經濟與安全關係已經過去。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797770_1_20250328041415.jpg&q=90)
-  
-
-美國的汽車關稅措施令全球貿易戰進一步蔓延。德國經濟和氣候保護部部長哈貝克表示，歐盟必須作出堅定回應，不可以向美國屈服，需要展現力量及自信。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797770-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797770-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797770-20250328.htm)
 
 ---
