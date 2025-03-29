@@ -1,5 +1,52 @@
+# 陳美寶：本港航運物流3月份於「提量」「提質」均有不少進展
+
+  
+
+運輸及物流局局長陳美寶表示，本港3月份在航運物流「提量」及「提質」上均有不少進展，會繼續致力增強香港貨物中轉樞紐角色，積極研究將航空貨物轉運計劃延伸至其他多式轉運模式，吸引更多貨物來港中轉，提升香港的航運物流競爭力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm)
+
+---
+
+# 蕭澤頤任期至下月1日稱百感交集　信香港治安將繼續改善
+
+  
+
+警務處處長蕭澤頤出席警察學院結業會操，擔任檢閱官。他致辭時表示，作為執法者，要時刻堅守有法必依，違法必究的大原則，執法不偏不倚，秉持公正及中立；要待人以嚴，也要嚴以律己。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797988-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797988-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797988-20250329.htm)
+
+---
+
 # 盧寵茂質疑言論指急症室增收費會導致私營醫療加價是否真確或誤導
 
+![盧寵茂表示，公立醫院門診每年有200萬診症人次。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797987_1_20250329104507.jpg&q=85)
   
 
 醫務衞生局局長盧寵茂在一個電台節目表示，對於有言論指，急症室收費增至400元會導致私營醫療加價，他質疑這個言論是真確抑或誤導引致公眾恐慌。
@@ -23,6 +70,7 @@
 
 # 何永賢稱社會認為需調整公屋富戶政策　將資源交更有需要市民
 
+![何永賢表示，「簡樸房」規管制度的最新方案建議，登記期為12個月，寬限期延長至36個月。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797984_1_20250329104411.jpg&q=90)
   
 
 房屋局局長何永賢表示，「簡樸房」規管制度的最新方案建議，登記期為12個月，寬限期延長至36個月，合共4年，為避免業主因寬限期延長而拖延不處理違規劏房，在「倒數期」6個月內若單位仍然不合規格，就不能與租客簽訂新合約，違法的業主可被罰款30萬、監禁3年，認為有足夠阻嚇性。
@@ -1402,53 +1450,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm)
-
----
-
-# 廉署：系統研發遭晶片禁運拖慢　DeepSeek可加快推進工作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797757_1_20250327235419.jpg&q=75)
-  
-
-廉政專員胡英明表示，受制於西方國家的晶片禁運，拖慢廉署的系統研發工作，因涉及很多機密敏感資料，維護等工作，要由內部研究。不過內地人工智能系統DeepSeek去年底公布大模型後，胡英明形容有如見到陽光，可加快推進工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797757-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797757-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797757-20250328.htm)
-
----
-
-# 立法會選舉胡英明稱勿煽動他人不投票或投無效票　廉署將強硬執法
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797756_2_20250328083530.jpg&q=80)
-  
-
-立法會換屆選舉年底舉行，廉政專員胡英明表示，法例清楚寫明，任何人如透過公開活動煽動他人不投票或投無效票，均屬違法，公眾不要轉載和分享有關言論。胡英明強調，廉署會強硬執法，「見一宗拉一宗」，公眾不要存有僥倖心態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797756-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797756-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797756-20250328.htm)
 
 ---

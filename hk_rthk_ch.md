@@ -1,5 +1,52 @@
+# 陳美寶：本港航運物流3月份於「提量」「提質」均有不少進展
+
+  
+
+運輸及物流局局長陳美寶表示，本港3月份在航運物流「提量」及「提質」上均有不少進展，會繼續致力增強香港貨物中轉樞紐角色，積極研究將航空貨物轉運計劃延伸至其他多式轉運模式，吸引更多貨物來港中轉，提升香港的航運物流競爭力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm)
+
+---
+
+# 蕭澤頤任期至下月1日稱百感交集　信香港治安將繼續改善
+
+  
+
+警務處處長蕭澤頤出席警察學院結業會操，擔任檢閱官。他致辭時表示，作為執法者，要時刻堅守有法必依，違法必究的大原則，執法不偏不倚，秉持公正及中立；要待人以嚴，也要嚴以律己。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797988-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797988-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797988-20250329.htm)
+
+---
+
 # 盧寵茂質疑言論指急症室增收費會導致私營醫療加價是否真確或誤導
 
+![盧寵茂表示，公立醫院門診每年有200萬診症人次。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797987_1_20250329104507.jpg&q=85)
   
 
 醫務衞生局局長盧寵茂在一個電台節目表示，對於有言論指，急症室收費增至400元會導致私營醫療加價，他質疑這個言論是真確抑或誤導引致公眾恐慌。
@@ -47,6 +94,7 @@
 
 # 何永賢稱社會認為需調整公屋富戶政策　將資源交更有需要市民
 
+![何永賢表示，「簡樸房」規管制度的最新方案建議，登記期為12個月，寬限期延長至36個月。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797984_1_20250329104411.jpg&q=90)
   
 
 房屋局局長何永賢表示，「簡樸房」規管制度的最新方案建議，登記期為12個月，寬限期延長至36個月，合共4年，為避免業主因寬限期延長而拖延不處理違規劏房，在「倒數期」6個月內若單位仍然不合規格，就不能與租客簽訂新合約，違法的業主可被罰款30萬、監禁3年，認為有足夠阻嚇性。
@@ -1390,54 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797919-20250328.htm)
-
----
-
-# 國際七人欖球賽開幕　現場激光投影與啦啦隊表演
-
-![南韓冠軍級棒球隊啦啦隊在南看台表演應援舞。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_2_20250328201031.jpg&q=85)
-![現場上演長約3分鐘的激光投影。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797918_3_20250328201031.jpg&q=85)
-  
-
-一連三日的香港國際七人欖球賽首度移師啟德主場館舉行，旅發局主席彭耀佳晚上在開幕禮為飛龍點睛，飛龍連繫著寫有旅發局字句的氣球在館場上空盤旋。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm)
-
----
-
-# 證監會就首次公開招股個案及上市後事宜提出多項優化建議
-
-![證監會就首次公開招股個案及上市後事宜，對《證券市場上市規則》提出多項優化建議，今日起至5月23日諮詢市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797917_1_20250328190717.jpg&q=90)
-  
-
-證監會就首次公開招股個案及上市後事宜，對《證券市場上市規則》提出多項優化建議，目的為提升香港上市市場監管效率及更廣泛保障投資大眾免受財務損失。證監會今日起至5月23日就建議措施諮詢市場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm)
 
 ---
