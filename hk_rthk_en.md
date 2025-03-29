@@ -1,3 +1,27 @@
+# S Korea firefighters use helicopters as fires reignite
+
+![Charred houses stand in ruins in Namhu, a village ravaged by the wildfires in Andong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798033_1_20250329183107.jpg&q=80)
+  
+
+South Korean firefighters deployed helicopters on Saturday as the country's biggest wildfires on record that ravaged wide areas of its southeast reignited in one of the region's cities, an official said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798033-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798033-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798033-20250329.htm)
+
+---
+
 # Police make 157 space oil drug arrests
 
 ![Police commissioner Raymond Siu says the force arrested 157 people in relation to the space oil drug between February 14 and March 27. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798023_1_20250329170940.jpg&q=90)
@@ -1430,29 +1454,5 @@ Hong Kong stocks ended higher on Thursday, with the benchmark Hang Seng Index up
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797701-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797701-20250327.htm)
-
----
-
-# HK to continue leveraging 'its unique position'
-
-![John Lee meets FAO director-general Qu Dongyu in Hainan. Photo: John Lee's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797694_1_20250327162229.jpg&q=90)
-  
-
-Hong Kong will continue to deepen international co-operation and integrate into national development despite a complex external environment, Chief Executive John Lee said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm)
 
 ---

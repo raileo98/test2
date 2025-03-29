@@ -1,3 +1,26 @@
+# 緬甸中部大地震　逾10班香港往返泰國航班延誤
+
+  
+
+緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。保安局表示，至今收到54名香港居民查詢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm)
+
+---
+
 # 特區政府派救援隊到緬甸　李家超寄語他們注意安全
 
   
@@ -1427,29 +1450,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm)
-
----
-
-# 1.1億元走私金條案有紀錄最大宗　以7層包裝藏於付運日本貨物
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797878_1_20250328163004.jpg&q=90)
-  
-
-海關破獲懷疑走私金條案件，檢獲共重145公斤，市值高達1.1億港元，是海關有紀錄以來破獲最大宗的走私金條案件，數量比起三星期前破獲的走私金條案，數量超出一倍有多。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797878-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797878-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797878-20250328.htm)
 
 ---

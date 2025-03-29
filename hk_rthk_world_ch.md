@@ -1,3 +1,26 @@
+# 緬甸中部大地震　逾10班香港往返泰國航班延誤
+
+  
+
+緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。保安局表示，至今收到54名香港居民查詢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm)
+
+---
+
 # 特區政府派救援隊到緬甸　李家超寄語他們注意安全
 
   
@@ -1419,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm)
-
----
-
-# 習近平冀外資企業打消疑慮　放手來中國發展分享中國發展機遇
-
-![國家主席習近平在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797842_1_20250328130113.jpg&q=85)
-  
-
-國家主席習近平在北京人民大會堂會見國際工商界代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm)
 
 ---

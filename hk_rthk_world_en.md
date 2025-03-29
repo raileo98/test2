@@ -1,3 +1,27 @@
+# S Korea firefighters use helicopters as fires reignite
+
+![Charred houses stand in ruins in Namhu, a village ravaged by the wildfires in Andong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798033_1_20250329183107.jpg&q=80)
+  
+
+South Korean firefighters deployed helicopters on Saturday as the country's biggest wildfires on record that ravaged wide areas of its southeast reignited in one of the region's cities, an official said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798033-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798033-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798033-20250329.htm)
+
+---
+
 # Myanmar quake death toll passes 1,000
 
 ![A rescuer works at the site of the skyscraper that collapsed in Bangkok. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797995_1_20250329121851.jpg&q=70)
@@ -1416,29 +1440,5 @@ China has not received any application for asylum from Philippines' former Presi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797161-20250324.htm)
-
----
-
-# Two injured in western Japan wildfires
-
-![A wildfire is seen in the hills above Imabari City in Ehime prefecture. Photo: Yomiuri Shimbun/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797157_1_20250324153925.jpg&q=85)
-  
-
-Wildfires have hit several regions in western Japan, injuring at least two people, forcing dozens of residents to evacuate and damaging a number of homes as hundreds of firefighters battled the widening blazes in the mountainous areas.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797157-20250324.htm)
 
 ---
