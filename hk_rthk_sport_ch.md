@@ -46,6 +46,34 @@
 
 ---
 
+# 七欖首次移師啟德主場館舉行　開幕禮有激光投影等表演
+
+![賽事晚上舉行由旅發局贊助的開幕禮，有舞龍舞獅。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_2_20250328230020.jpg&q=35)
+![開幕禮有長約3分鐘的激光投影。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_3_20250328230020.jpg&q=70)
+![香港國際七人欖球賽首次移師啟德體育園主場館舉行。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_1_20250328230020.jpg&q=75)
+  
+
+香港國際七人欖球賽首次移師啟德體育園主場館舉行，有入場市民說有冷氣，較以往在大球場體驗為好。
+  
+![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1797941_3_L_20250328230020.jpg)
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm)
+
+---
+
 # 羅淑佩視察七欖賽事　稱新場館座位空調舒適氣氛熾熱
 
 ![羅淑佩與姚錦成拍照留念並詢問對場地觀感，形容對方反應很正面。（羅淑佩社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797931_1_20250328210638.jpg&q=90)
@@ -1427,29 +1455,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm)
-
----
-
-# 德甲拜仁慕尼黑被柏林聯逼和1:1
-
-![德甲拜仁慕尼黑與柏林聯不分勝負。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795901_1_20250316072256.jpg&q=90)
-  
-
-德國甲組足球聯賽，排榜首的拜仁慕尼黑作客被柏林聯逼和1:1。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795901-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795901-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795901-20250316.htm)
 
 ---

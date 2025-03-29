@@ -1,3 +1,49 @@
+# 何永賢：簡約公屋居民儲蓄數年或可能足夠支付購買居屋首期
+
+  
+
+位於元朗攸壆路的首個簡約公屋項目昨日起陸續入伙，房屋局局長何永賢表示，預計每日有50至100戶居民入伙，到5月底全部2100個單位會全部入伙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797981-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797981-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797981-20250329.htm)
+
+---
+
+# 曾國衞：將藉下月全民國家安全教育日大力推廣國安知識
+
+  
+
+下月15日是「全民國家安全教育日」，政制及內地事務局局長曾國衞表示，局方將協調統籌各相關部門，藉此機會大力推廣國家安全知識，從學校、社區、公務員、商界及國際等層面做好宣傳工作，形容力求無死角，全方位達至「無處不愛國」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797980-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797980-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797980-20250329.htm)
+
+---
+
 # 南韓山火部分地區復燃　男子涉掃墓留下火種正被調查
 
   
@@ -719,12 +765,14 @@
 
 # 七欖首次移師啟德主場館舉行　開幕禮有激光投影等表演
 
-![香港國際七人欖球賽首次移師啟德體育園主場館舉行。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_1_20250328230020.jpg&q=75)
 ![賽事晚上舉行由旅發局贊助的開幕禮，有舞龍舞獅。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_2_20250328230020.jpg&q=35)
 ![開幕禮有長約3分鐘的激光投影。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_3_20250328230020.jpg&q=70)
+![香港國際七人欖球賽首次移師啟德體育園主場館舉行。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_1_20250328230020.jpg&q=75)
   
 
 香港國際七人欖球賽首次移師啟德體育園主場館舉行，有入場市民說有冷氣，較以往在大球場體驗為好。
+  
+![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1797941_3_L_20250328230020.jpg)
 
   
 
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797907-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797907-20250328.htm)
-
----
-
-# 世茂集團去年虧損擴大近71%
-
-![世茂集團去年虧損359.1億元人民幣，按年擴大近71%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797902_1_20250328174653.jpg&q=90)
-  
-
-世茂集團公布，去年虧損359.1億元人民幣，按年擴大近71%。維持不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797902-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797902-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797902-20250328.htm)
-
----
-
-# 習近平：希望外資企業打消疑慮　放手到中國發展
-
-![國家主席習近平在北京人民大會堂會見國際工商界代表。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797905_1_20250328175350.jpg&q=90)
-  
-
-國家主席習近平在北京人民大會堂會見國際工商界代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm)
 
 ---

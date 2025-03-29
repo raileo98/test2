@@ -310,6 +310,34 @@
 
 ---
 
+# 七欖首次移師啟德主場館舉行　開幕禮有激光投影等表演
+
+![賽事晚上舉行由旅發局贊助的開幕禮，有舞龍舞獅。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_2_20250328230020.jpg&q=35)
+![開幕禮有長約3分鐘的激光投影。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_3_20250328230020.jpg&q=70)
+![香港國際七人欖球賽首次移師啟德體育園主場館舉行。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_1_20250328230020.jpg&q=75)
+  
+
+香港國際七人欖球賽首次移師啟德體育園主場館舉行，有入場市民說有冷氣，較以往在大球場體驗為好。
+  
+![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1797941_3_L_20250328230020.jpg)
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm)
+
+---
+
 # 美的去年多賺逾14%　末期息每股3.5元人民幣
 
 ![美的集團去年盈利按年升14.3%。末期息每股3.5元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797933_1_20250328212442.jpg&q=90)
@@ -1411,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm)
-
----
-
-# 陳茂波稱香港可助彌補綠色項目資金缺口　尋求創新融資解決方案
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797814_1_20250328111939.jpg&q=90)
-  
-
-財政司司長陳茂波表示，香港作為國際金融中心及綠色金融的領導者，可以協助彌補綠色項目的資金缺口，提到香港的綠色債券發行量，連續7年位居亞洲市場第一，去年市佔率就達到大約45%。同時香港正尋求創新融資解決方案，例如代幣化綠色債券和基建融資證券化，以吸引新投資者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm)
 
 ---
