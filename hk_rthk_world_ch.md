@@ -22,6 +22,30 @@
 
 ---
 
+# 澳門特首岑浩輝向緬甸領導人致慰問電
+
+![岑浩輝向緬甸領導人敏昂萊（圖中）致慰問電。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798053_1_20250329231807.jpg&q=90)
+  
+
+澳門特區行政長官岑浩輝向緬甸領導人敏昂萊致慰問電，表示願向緬方抗震救災和災後重建提供力所能及的幫助。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm)
+
+---
+
 # 緬甸大地震逾千人死亡　中國救援隊抵達仰光
 
 ![在曼德勒，救援人員在瓦礫中搜索生還者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798047_1_20250329213443.jpg&q=90)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797868-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797868-20250328.htm)
-
----
-
-# 王毅下周一至周三訪問俄羅斯
-
-![王毅下周一至周三訪問俄羅斯。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797866_1_20250328151510.jpg&q=90)
-  
-
-在北京，外交部宣布，應俄羅斯外長拉夫羅夫邀請，中共中央政治局委員、外交部長王毅將於3月31日至4月2日對俄羅斯進行正式訪問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm)
 
 ---

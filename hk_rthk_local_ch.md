@@ -1,3 +1,27 @@
+# 的士內搜出毒品　司機涉販毒被捕
+
+![警方在吳松街搜查一輛的士，檢獲懷疑毒品，拘捕司機。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798059_1_20250329232113.jpg&q=40)
+  
+
+一名48歲的士司機涉嫌販毒被捕，正被警方扣查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798059-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798059-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798059-20250329.htm)
+
+---
+
 # 新華社：中國香港特區救援隊抵達緬甸仰光國際機場
 
   
@@ -47,6 +71,7 @@
 
 # 馬鞍山錦英路13金塔被毀　警方正調查暫未有人被捕
 
+![馬鞍山錦英路有13個金塔被毀壞，警方列作刑事毀壞處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798055_1_20250329231937.jpg&q=90)
   
 
 警方下午約1時許接報，指馬鞍山錦英路有13個金塔被毀壞，經初步調查後，案件列作刑事毀壞處理，交由沙田警區刑事調查隊第六隊跟進，暫未有人被捕。
@@ -94,6 +119,7 @@
 
 # 博物館高峰論壇結束　今屆逾7千人次報名創歷屆新高
 
+![博物館高峰論壇結束　今屆逾7千人次報名創歷屆新高](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798052_1_20250329232031.jpg&q=90)
   
 
 一連兩日在香港會議展覽中心舉行，由康文署主辦、法國吉美國立亞洲藝術博物館協辦的「博物館高峰論壇2025」結束。累計超過7000人次報名，創歷屆新高，當中3分1為非本地人士，分別來自39個國家。
@@ -1420,29 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797923-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797923-20250328.htm)
-
----
-
-# 國家市場監督管理總局稱對長和港口的交易協議將依法進行審查
-
-![國家市監局表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797921_1_20250328203658.jpg&q=70)
-  
-
-國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm)
 
 ---
