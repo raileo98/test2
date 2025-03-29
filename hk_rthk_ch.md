@@ -1,3 +1,27 @@
+# 緬甸大地震增至逾1600人死亡、3400多人受傷
+
+![靠近震央的曼德勒，損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798074_1_20250330051552.jpg&q=75)
+  
+
+緬甸中部大地震至今，增至1600多人死亡，3400多人受傷，接近140人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798074-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798074-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798074-20250330.htm)
+
+---
+
 # 哈馬斯同意調解方提出的加沙停火建議
 
 ![加沙南部汗尤尼斯在戰火中成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798073_1_20250330035601.jpg&q=70)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm)
-
----
-
-# 緬甸領導人視察重災區　曼谷倒塌大樓發現至少15人生命跡象
-
-![敏昂萊昨日在內比都一間醫院探望傷者。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798003_1_20250329124954.jpg&q=90)
-  
-
-緬甸中部7級以上強烈地震，在重災區曼德勒省造成至少694人死亡，1670人受傷，暫時未有中國公民死亡報告，緬甸領導人敏昂萊上午乘坐直升機，抵達曼德勒省視察災情。中國派出多支救援隊伍趕赴災區協助搜救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm)
 
 ---
