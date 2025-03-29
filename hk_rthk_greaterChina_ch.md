@@ -1,5 +1,6 @@
 # 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
 
+![行政長官李家超與多名官員到機場，向特區救援隊進行授旗儀式。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_1_20250329151618.jpg&q=90)
   
   
 

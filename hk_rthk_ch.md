@@ -1,5 +1,6 @@
 # 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
 
+![行政長官李家超與多名官員到機場，向特區救援隊進行授旗儀式。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_1_20250329151618.jpg&q=90)
   
   
 
@@ -20,7 +21,11 @@
 
 # 緬甸大地震逾千人死亡　中方決定提供1億元人民幣緊急救災援助
 
+![在緬甸曼德勒，救援人員帶備儀器在倒塌建築物的瓦礫中搜救。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798017_1_20250329152018.jpg&q=90)
   
+
+緬甸中部7.7級地震，增至超過1千人死亡，2300多人受傷。領導人敏昂萊乘坐直升機抵達災情嚴重的曼德勒省視察。
+
   
 
 
@@ -63,7 +68,8 @@
 
 # 特區救援隊51人前赴緬甸災區　抵達現場後將立即加入救援
 
-![特區政府救援隊一行51人在機場集合，前往緬甸災區協助搜救。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_1_20250329150455.jpg&q=60)
+![特區政府救援隊一行51人在機場集合，前往緬甸災區協助搜救。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_3_20250329151729.jpg&q=70)
+![搜救隊由保安局、消防處、入境處和醫管局組成。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_4_20250329151946.jpg&q=85)
   
 
 特區政府救援隊一行51人今日前往緬甸災區，協助搜救。
@@ -87,6 +93,7 @@
 
 # 青衣住宅單位疑作毒品儲存庫　25歲男子涉販運危險藥物被捕
 
+![警方檢獲市值約139萬元懷疑毒品，拘捕一名25歲男子涉嫌「販運危險藥物」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798014_1_20250329151353.jpg&q=40)
   
 
 警方在青衣路一個住宅單位搗破懷疑毒品儲存倉庫，檢獲市值約139萬元懷疑毒品，拘捕一名25歲男子涉嫌「販運危險藥物」，正被扣查。

@@ -1,3 +1,27 @@
+# Pistons top Cavs to secure winning season
+
+![Tim Hardaway Jr connected on seven of 11 from three-point range for Detroit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798019_1_20250329151714.jpg&q=90)
+  
+
+Tim Hardaway Jr scored 32 points to lead Detroit to a 133-122 victory over the Eastern Conference-leading Cleveland Cavaliers on Friday, a triumph that assured the Pistons of their first winning NBA season since 2016.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm)
+
+---
+
 # Govt to step up national security education
 
 ![Erick Tsang says the bureau aims to achieve patriotism everywhere. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798009_1_20250329133702.jpg&q=90)
@@ -1429,29 +1453,5 @@ China warned on Thursday a trade war would have "no winners" after US President 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797697-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797697-20250327.htm)
-
----
-
-# Police probe alleged attack on elderly woman
-
-![Police say an elderly woman was taken to hospital with injuries to her face and hands. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797689_1_20250327160355.jpg&q=60)
-  
-
-Police on Thursday said they are investigating a suspected assault at a flat in Sham Shui Po after a video shared online appeared to show an elderly woman being physically abused by a helper.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797689-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797689-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797689-20250327.htm)
 
 ---

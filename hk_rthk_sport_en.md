@@ -1,3 +1,27 @@
+# Pistons top Cavs to secure winning season
+
+![Tim Hardaway Jr connected on seven of 11 from three-point range for Detroit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798019_1_20250329151714.jpg&q=90)
+  
+
+Tim Hardaway Jr scored 32 points to lead Detroit to a 133-122 victory over the Eastern Conference-leading Cleveland Cavaliers on Friday, a triumph that assured the Pistons of their first winning NBA season since 2016.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm)
+
+---
+
 # 'Amazing, crazy' action at day two of Rugby Sevens
 
 ![Argentina beats Fiji in the men's Rugby Sevens match. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_2_20250329131539.jpg&q=90)
@@ -1416,29 +1440,5 @@ Ex-Formula 1 team owner and media personality Eddie Jordan has died, according t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796629-20250320.htm)
-
----
-
-# Doncic in solid-gold show for win over Nuggets
-
-![Luka Doncic catches Denver Nuggets off guard in making a shot. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796600_1_20250320140326.jpg&q=90)
-  
-
-Luka Doncic raced to the 200th 30-point game of his career as the Los Angeles Lakers took advantage of an under-strength Denver Nuggets line-up to score a 120-108 victory over their Western Conference rivals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796600-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796600-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796600-20250320.htm)
 
 ---
