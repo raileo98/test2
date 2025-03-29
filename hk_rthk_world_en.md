@@ -1,3 +1,27 @@
+# Mexico brings in junk food ban
+
+![A man walks past a sign that refers to the labelling of products, in the subway of Mexico City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798081_1_20250330075336.jpg&q=90)
+  
+
+A government-sponsored junk food ban in schools across Mexico took effect on Saturday, officials said, as the country tries to tackle one of the world’s worst obesity and diabetes epidemics.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm)
+
+---
+
 # Japan beef bowl chain to shut stores over rat and bug
 
 ![Fast-food company Sukiya has about 1,970 stores across Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798050_1_20250329221759.jpg&q=90)
@@ -1415,29 +1439,5 @@ The head of the UK's national grid has said there was "enough power" to keep Hea
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797178-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797178-20250324.htm)
-
----
-
-# US-Russia talks on Ukraine begin in Saudi Arabia
-
-![Different plans for temporary ceasefires in the Ukraine war have been proposed, but attacks have continued unabated. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797165_1_20250324162833.jpg&q=60)
-  
-
-US and Russian officials opened talks in Saudi Arabia on Monday on a partial ceasefire in the Ukraine war, a day after delegates from Washington and Kyiv had their own discussions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797165-20250324.htm)
 
 ---
