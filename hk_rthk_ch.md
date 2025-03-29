@@ -1,3 +1,50 @@
+# 19班本港來往泰國航班延誤　沒有航班取消
+
+![機場管理局表示，截至晚上8時半，共有19班本港來往泰國的航班延誤。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798056_1_20250329224026.jpg&q=80)
+  
+
+機場管理局表示，截至晚上8時半，共有19班本港來往泰國的航班延誤，分別是9班從泰國抵港，以及10班由香港前往泰國，並沒有航班取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798056-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798056-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798056-20250329.htm)
+
+---
+
+# 馬鞍山錦英路13金塔被毀　警方正調查暫未有人被捕
+
+  
+
+警方下午約1時許接報，指馬鞍山錦英路有13個金塔被毀壞，經初步調查後，案件列作刑事毀壞處理，交由沙田警區刑事調查隊第六隊跟進，暫未有人被捕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798055-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798055-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798055-20250329.htm)
+
+---
+
 # 瑪麗醫院心胸外科病房47歲男病人自行離院　院方報警求助
 
   
