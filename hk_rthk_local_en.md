@@ -1,3 +1,27 @@
+# Police make 157 space oil drug arrests
+
+![Police commissioner Raymond Siu says the force arrested 157 people in relation to the space oil drug between February 14 and March 27. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798023_1_20250329170940.jpg&q=90)
+  
+
+Police Commissioner Raymond Siu revealed on Saturday that the force has arrested 157 people in relation to the space oil drug.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798023-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798023-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798023-20250329.htm)
+
+---
+
 # Govt to step up national security education
 
 ![Erick Tsang says the bureau aims to achieve patriotism everywhere. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798009_1_20250329133702.jpg&q=90)
@@ -1430,29 +1454,5 @@ A lawmaker suggested on Monday that the ticketing platform Cityline deal with ex
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797121-20250324.htm)
-
----
-
-# Local art space takes Art Basel on vampire adventure
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797128_1_20250324121452.jpg&q=80)
-  
-
-Want to see vampires travelling through time and space? Local art space Para Site is turning Art Basel's film section into a sci-fi wonderland.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797128-20250324.htm)
 
 ---
