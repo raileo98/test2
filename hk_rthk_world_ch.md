@@ -1,3 +1,27 @@
+# 緬甸大地震逾千人死亡　中國救援隊抵達仰光
+
+![在曼德勒，救援人員在瓦礫中搜索生還者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798047_1_20250329213443.jpg&q=90)
+  
+
+緬甸中部昨日發生大地震至今，超過1千人死亡，2300多人受傷。領導人敏昂萊到災區視察。國家主席習近平向敏昂萊致慰問電。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798047-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798047-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798047-20250329.htm)
+
+---
+
 # 日揆出席琉磺島戰役80周年悼念活動　重申提升日美同盟關係
 
 ![石破茂出席琉磺島戰役80周年日美聯合悼念儀式並致辭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798045_1_20250329205133.jpg&q=90)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797863-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797863-20250328.htm)
-
----
-
-# 緬甸7.3級地震　泰國曼谷有震感
-
-![緬甸7.3級地震　泰國曼谷有震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797861_1_20250328144824.jpg&q=90)
-  
-
-緬甸發生黎克特制7.3級地震，最大城市仰光震感強烈，泰國曼谷都感受到震動，曼谷有建築物搖晃，當地有辦公室和商舖需要疏散。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797861-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797861-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797861-20250328.htm)
 
 ---
