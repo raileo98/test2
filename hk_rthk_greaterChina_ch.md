@@ -1,6 +1,11 @@
 # 鄧炳強：特區救援隊汲取土耳其救援經驗　第二梯隊準備好可支援
 
+![鄧炳強表示，第二梯隊已經準備好，可以提供支援。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798020_1_20250329160034.jpg&q=90)
+![救援隊共51人，包括41名消防、4名保安局人員、兩名入境處人員、醫管局兩名醫生和兩名護士。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798020_2_20250329160034.jpg&q=90)
   
+
+特區政府派出51人組成的救援隊到緬甸，協助地震災區的搜救工作。保安局局長鄧炳強說，昨日發生大地震後，救援隊已經隨時候命，今日正式收到緬甸駐港總領事館要求後，人員在很短時間就到機場出發。
+
   
 
 
@@ -20,7 +25,6 @@
 
 # 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
 
-![行政長官李家超與多名官員到機場，向特區救援隊進行授旗儀式。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_1_20250329151618.jpg&q=90)
 ![李家超與救援隊成員握手，又提醒他們要注意自身安全。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_2_20250329154656.jpg&q=85)
   
 
