@@ -1,6 +1,10 @@
 # 寒冷天氣警告生效
 
+![寒冷天氣警告生效](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798049_1_20250329215230.jpg&q=90)
   
+
+天文台在晚上9時45分發出寒冷天氣警告。
+
   
 
 
@@ -43,6 +47,7 @@
 
 # 70歲男子羅亞祥失蹤　警方呼籲市民提供消息
 
+![70歲男子羅亞祥在佐敦文英街一帶失蹤，警方呼籲市民提供消息。(警方提供圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798043_1_20250329215210.jpg&q=90)
   
 
 70歲男子羅亞祥在佐敦文英街一帶失蹤，警方呼籲市民提供消息。
