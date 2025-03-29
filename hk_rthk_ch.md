@@ -237,7 +237,7 @@
 
 # 緬甸強烈地震死亡人數超過1千人
 
-![緬甸有建築物在地震中倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798006_1_20250329131545.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798006_1_20250329131545.jpg&q=90)
   
 
 緬甸中部7級以上強烈地震，軍政府說死亡人數超過1千人，超過2千人受傷。

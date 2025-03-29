@@ -19,6 +19,31 @@
 
 ---
 
+# 特區救援隊51人前赴緬甸災區　抵達現場後將立即加入救援
+
+![特區政府救援隊一行51人在機場集合，前往緬甸災區協助搜救。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_3_20250329151729.jpg&q=70)
+![搜救隊由保安局、消防處、入境處和醫管局組成。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_4_20250329151946.jpg&q=85)
+  
+
+特區政府救援隊一行51人今日前往緬甸災區，協助搜救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm)
+
+---
+
 # 縱橫遊取消4月出發泰國旅行團　涉及10團共約150人
 
 ![縱橫遊宣布，將會取消所有4月份出發的泰國旅行團。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798011_1_20250329145442.jpg&q=80)
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797683-20250327.htm)
-
----
-
-# 李家超與糧農組織總幹事會面　共享農業數據為制定政策提供依據
-
-![李家超（左）在海南與聯合國糧食及農業組織總幹事屈冬玉博士（右）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797667_1_20250327140223.jpg&q=90)
-  
-
-正在海南的行政長官李家超早上與一同出席博鰲亞洲論壇年會的聯合國糧食及農業組織總幹事屈冬玉會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797667-20250327.htm)
 
 ---

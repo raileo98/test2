@@ -43,6 +43,31 @@
 
 ---
 
+# 特區救援隊51人前赴緬甸災區　抵達現場後將立即加入救援
+
+![特區政府救援隊一行51人在機場集合，前往緬甸災區協助搜救。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_3_20250329151729.jpg&q=70)
+![搜救隊由保安局、消防處、入境處和醫管局組成。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_4_20250329151946.jpg&q=85)
+  
+
+特區政府救援隊一行51人今日前往緬甸災區，協助搜救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm)
+
+---
+
 # 美國地質勘探局推算緬甸地震死亡人數或超過1萬
 
 ![外國救援物資開始運到緬甸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798012_1_20250329142835.jpg&q=90)
@@ -141,7 +166,7 @@
 
 # 緬甸強烈地震死亡人數超過1千人
 
-![緬甸有建築物在地震中倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798006_1_20250329131545.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798006_1_20250329131545.jpg&q=90)
   
 
 緬甸中部7級以上強烈地震，軍政府說死亡人數超過1千人，超過2千人受傷。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797794-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797794-20250328.htm)
-
----
-
-# 澳洲總理阿爾巴內塞宣佈5月3日舉行聯邦議會選舉
-
-![阿爾巴內塞宣佈，將於今年5月3日舉行聯邦議會選舉。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797784_1_20250328073351.jpg&q=90)
-  
-
-澳洲總理阿爾巴內塞宣佈，將於今年5月3日舉行聯邦議會選舉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797784-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797784-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797784-20250328.htm)
 
 ---
