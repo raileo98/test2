@@ -1,3 +1,27 @@
+# 聯合國緊急撥款500萬美元用於緬甸地震救援
+
+![在緬甸曼德勒，一名女子從瓦礫中獲救。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798075_1_20250330053327.jpg&q=90)
+  
+
+聯合國人道主義事務協調辦公室說，聯合國中央應急基金已緊急撥款500萬美元，支援緬甸救災行動。此外，衛生合作伙伴正準備部署移動外科和醫療隊以及臨時醫院，以提供緊急救生護理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798075-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798075-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798075-20250330.htm)
+
+---
+
 # 緬甸大地震增至逾1600人死亡、3400多人受傷
 
 ![靠近震央的曼德勒，損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798074_1_20250330051552.jpg&q=75)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798005-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798005-20250329.htm)
-
----
-
-# 七欖移師啟德舉行　蕭澤頤稱整體運作暢順已與運輸署商討改善安排
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798004_1_20250329135846.jpg&q=90)
-  
-
-一連三日的香港國際七人欖球賽昨日首度移師啟德體育園主場館舉行，警務處處長蕭澤頤表示，昨日的交通管制、人流進場或離場等整體運作非常暢順。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm)
 
 ---

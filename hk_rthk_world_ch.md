@@ -1,3 +1,27 @@
+# 聯合國緊急撥款500萬美元用於緬甸地震救援
+
+![在緬甸曼德勒，一名女子從瓦礫中獲救。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798075_1_20250330053327.jpg&q=90)
+  
+
+聯合國人道主義事務協調辦公室說，聯合國中央應急基金已緊急撥款500萬美元，支援緬甸救災行動。此外，衛生合作伙伴正準備部署移動外科和醫療隊以及臨時醫院，以提供緊急救生護理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798075-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798075-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798075-20250330.htm)
+
+---
+
 # 緬甸大地震增至逾1600人死亡、3400多人受傷
 
 ![靠近震央的曼德勒，損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798074_1_20250330051552.jpg&q=75)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm)
-
----
-
-# 旅議會估計約有6個旅行團在泰國　涉及旅客少於100人
-
-![旅議會估計約有6個旅行團在泰國　涉及旅客少於100人。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797910_1_20250328184014.jpg&q=80)
-  
-
-緬甸發生黎克特制7級以上地震，泰國全國亦有震感。本港的旅遊業議會表示，根據暫時估計約有6個旅行團在泰國，涉及旅客少於100人，暫時未收到有旅行團在緬甸，並引述入境處指暫時未有求助個案。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm)
 
 ---
