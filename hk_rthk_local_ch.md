@@ -1,3 +1,26 @@
+# 有來自泰國旅客對地震感到震驚　有轉機旅客指曼谷機場有較多旅客
+
+  
+
+緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm)
+
+---
+
 # 高拔陞稱會細化公營醫療收費改革流程　聽取市民員工意見多做解說
 
   
@@ -1428,29 +1451,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm)
-
----
-
-# 七欖開鑼　港鐵屯馬綫將加強服務　離場安排「空載列車」候命
-
-![屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797805_1_20250328094806.jpg&q=85)
-  
-
-港鐵表示，為配合一連3日在啟德體育園舉行的香港國際七人欖球賽活動，屯馬綫會加強列車服務，包括在離場時段會安排「空載列車」候命。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797805-20250328.htm)
 
 ---

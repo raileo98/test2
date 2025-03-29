@@ -1,3 +1,26 @@
+# 有來自泰國旅客對地震感到震驚　有轉機旅客指曼谷機場有較多旅客
+
+  
+
+緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm)
+
+---
+
 # 緬甸強震增至694人死逾1600人傷　習近平向敏昂萊致慰問電
 
 ![地震亦導致泰國曼谷至少10人喪生，約100人仍然失蹤。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797999_1_20250329123436.jpg&q=70)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm)
-
----
-
-# 美國衞生與公共服務部宣布重組　總體削減四分之一人手
-
-![衞生與公共服務部外早前有集會，反對政府大規模裁減聯邦僱員。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797762_1_20250328012305.jpg&q=90)
-  
-
-美國衞生與公共服務部宣布將進行機構重組，裁減約一萬名全職員工，加上提前退休及政府買斷合約計劃的人員，該部門全職員工數量將從8萬2千人減至6萬2千人，相當於總體削減四分之一人手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797762-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797762-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797762-20250328.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 有來自泰國旅客對地震感到震驚　有轉機旅客指曼谷機場有較多旅客
+
+  
+
+緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm)
+
+---
+
 # 緬甸強震增至694人死逾1600人傷　習近平向敏昂萊致慰問電
 
 ![地震亦導致泰國曼谷至少10人喪生，約100人仍然失蹤。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797999_1_20250329123436.jpg&q=70)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797636-20250327.htm)
-
----
-
-# 丁薛祥出席博鰲亞洲論壇開幕式　稱亞洲命運共同體建設成績斐然
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797640_1_20250327122852.jpg&q=80)
-  
-
-國務院副總理丁薛祥在博鰲亞洲論壇年會開幕式致辭表示，今年是國家主席習近平提出構建「亞洲命運共同體」 10周年，在各方的共同努力下，「亞洲命運共同體」建設成績斐然。他提出4點建議，共創亞洲和世界更加美好的未來。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797640-20250327.htm)
 
 ---
