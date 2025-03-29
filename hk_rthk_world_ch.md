@@ -1,3 +1,27 @@
+# 醫生：教宗身體狀況取得「令人驚訝進展」
+
+![方濟各上周日出院前，在醫院露台與信眾見面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798064_1_20250330003407.jpg&q=90)
+  
+
+教宗方濟各出院後繼續在梵蒂岡休養，醫生形容教宗的身體狀況取得「令人驚訝的進展」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798064-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798064-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798064-20250330.htm)
+
+---
+
 # 俄國防部：烏克蘭無人機襲擊能源設施導致大量用戶斷電
 
 ![俄羅斯國防部指責烏克蘭無人機多次襲擊別爾哥羅德州能源基礎設施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798063_1_20250330001354.jpg&q=90)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797875-20250328.htm)
-
----
-
-# 易綱：轉型金融須國際合作　周小川：不能說賠錢亦要企業轉型
-
-![易綱（右）表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確。周小川（左）支持轉型金融過程中，需要注意價格機制。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797874_1_20250328163029.jpg&q=90)
-  
-
-人民銀行前行長，中國金融學會理事會會長易綱表示，轉型金融需要國際合作、非常明確標準及披露要求。他在博鰲亞洲論壇一個分論壇上表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確，以防止綠「綠漂」，同時亦提供奬勵。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm)
 
 ---
