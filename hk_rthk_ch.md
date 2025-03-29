@@ -1,3 +1,26 @@
+# 盧寵茂：醫療改革非加價彌補財赤　強調政府承擔無減少
+
+  
+
+醫務衞生局局長盧寵茂在本台節目《星期六問責》表示，醫療改革不是加價彌補財赤，強調政府的承擔沒有減少，期望透過輕症的病人共付費用，以達致增加保障、減少浪費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1797982-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797982-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797982-20250329.htm)
+
+---
+
 # 何永賢：簡約公屋居民儲蓄數年或可能足夠支付購買居屋首期
 
   
@@ -23,6 +46,7 @@
 
 # 曾國衞：將藉下月全民國家安全教育日大力推廣國安知識
 
+![曾國衞表示，局方將協調統籌各相關部門，藉此機會大力推廣國家安全知識。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797980_1_20250329091303.jpg&q=85)
   
 
 下月15日是「全民國家安全教育日」，政制及內地事務局局長曾國衞表示，局方將協調統籌各相關部門，藉此機會大力推廣國家安全知識，從學校、社區、公務員、商界及國際等層面做好宣傳工作，形容力求無死角，全方位達至「無處不愛國」。
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797910-20250328.htm)
-
----
-
-# 港鐵稱每年票價調整幅度低於通脹率　去年票價優惠投入逾31億元
-
-![港鐵表示，自兩鐵合併以來，平均每年的票價調整幅度低於同期平均每年通脹率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797907_1_20250328184539.jpg&q=80)
-  
-
-港鐵宣布，按票價調整機制，2025/26年度的港鐵票價維持不變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797907-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797907-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797907-20250328.htm)
 
 ---
