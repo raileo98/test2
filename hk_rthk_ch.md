@@ -1,3 +1,26 @@
+# 七欖移師啟德舉行　蕭澤頤稱整體運作暢順已與運輸署商討改善安排
+
+  
+
+一連三日的香港國際七人欖球賽昨日首度移師啟德體育園主場館舉行，警務處處長蕭澤頤表示，昨日的交通管制、人流進場或離場等整體運作非常暢順。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm)
+
+---
+
 # 緬甸領導人視察重災區　曼谷倒塌大樓發現至少15人生命跡象
 
 ![敏昂萊昨日在內比都一間醫院探望傷者。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798003_1_20250329124954.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm)
-
----
-
-# 融創中國去年虧損擴大逾2.2倍
-
-![融創中國去年虧損257億元人民幣，按年擴大逾2.2倍。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797930_1_20250328210615.jpg&q=90)
-  
-
-融創中國去年虧損257億元人民幣，按年擴大逾2.2倍，主要是前年錄得境外債務重組收益。不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797930-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797930-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797930-20250328.htm)
 
 ---

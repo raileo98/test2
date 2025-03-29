@@ -1,3 +1,26 @@
+# 七欖移師啟德舉行　蕭澤頤稱整體運作暢順已與運輸署商討改善安排
+
+  
+
+一連三日的香港國際七人欖球賽昨日首度移師啟德體育園主場館舉行，警務處處長蕭澤頤表示，昨日的交通管制、人流進場或離場等整體運作非常暢順。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm)
+
+---
+
 # 巴西足總宣布解僱國家隊教練杜利華
 
 ![巴西足總宣布解僱國家隊教練杜利華。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797972_1_20250329070202.jpg&q=90)
@@ -1431,29 +1454,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795980-20250317.htm](https://news.rthk.hk/rthk/ch/component/k2/1795980-20250317.htm)
-
----
-
-# 短道速滑世錦賽　中國隊獲男子5000米接力銀牌
-
-![中國隊獲銀後在場館內慶祝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795962_1_20250316222432.jpg&q=90)
-  
-
-在北京，國際滑聯短道速滑世錦賽最後一天賽事，中國獲男子5000米接力銀牌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm](https://news.rthk.hk/rthk/ch/component/k2/1795962-20250316.htm)
 
 ---

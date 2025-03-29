@@ -1,3 +1,27 @@
+# Hong Kong sends rescue team to quake-stricken Myanmar
+
+![Rescuers are digging through the rubble of collapsed buildings in a desperate search for survivors. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798001_2_20250329130610.jpg&q=85)
+  
+
+Chief Executive John Lee on Saturday said Hong Kong will send a search and rescue team to Myanmar, after a magnitude 7.7 earthquake struck the country.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798001-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798001-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798001-20250329.htm)
+
+---
+
 # Some people need to seek alternatives to A&E, Lo says
 
 ![Health chief Lo Chung-mau hopes the public can turn to other choices than A&E when the new fees take effect next year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797998_1_20250329122451.jpg&q=85)
@@ -1428,29 +1452,5 @@ Environment minister Tse Chin-wan said on Monday that Hong Kong will continue to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797124-20250324.htm)
-
----
-
-# Euro chamber head encouraged by meeting with Xia
-
-![Xia Baolong met EuroCham chair Inaki Amate and business representatives in Beijing last week. File photo courtesy of Hong Kong and Macau Affairs Office](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797113_1_20250324111447.jpg&q=90)
-  
-
-The chair of the European Chamber of Commerce in Hong Kong on Monday welcomed last week's remarks from the director of the Hong Kong and Macau Affairs Office, who praised EuroCham's work in the SAR.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797113-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797113-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797113-20250324.htm)
 
 ---

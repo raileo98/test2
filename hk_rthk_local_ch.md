@@ -1,3 +1,26 @@
+# 七欖移師啟德舉行　蕭澤頤稱整體運作暢順已與運輸署商討改善安排
+
+  
+
+一連三日的香港國際七人欖球賽昨日首度移師啟德體育園主場館舉行，警務處處長蕭澤頤表示，昨日的交通管制、人流進場或離場等整體運作非常暢順。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm)
+
+---
+
 # 有來自泰國旅客對地震感到震驚　有轉機旅客指曼谷機場有較多旅客
 
   
@@ -1427,29 +1450,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797814-20250328.htm)
-
----
-
-# 七欖開鑼　九龍城餐廳稱人流增兩至三成將延長營業時間
-
-![九龍城餐廳東主指感受到啟德體育園周邊的生意有增長，早前在測試賽及開幕禮時，已見到九龍城區內人流明顯增加大約兩至三成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797806_1_20250328101357.jpg&q=70)
-  
-
-香港國際七人欖球賽一連3日在啟德體育園舉行，九龍城區議會提振地區經濟專責工作小組主席黃文莉表示，社會重視交通安排，港鐵與巴士公司有與區議會緊密聯繫，溝通後有改善特別巴士線和的士上落客區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797806-20250328.htm)
 
 ---
