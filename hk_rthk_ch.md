@@ -1,3 +1,26 @@
+# 馬莎百貨一款打發忌廉總含菌量超標　食安中心籲勿食用
+
+  
+
+一款從英國進口以巴士德消毒法處理的馬莎百貨預先包裝打發忌廉樣本，被檢出總含菌量超出法例標準，食安中心呼籲市民不要食用受影響批次的產品。業界如持有相關批次的產品，應立即停止使用或出售。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm)
+
+---
+
 # 美國地質勘探局推算緬甸地震死亡人數或超過1萬
 
 ![外國救援物資開始運到緬甸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798012_1_20250329142835.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm)
-
----
-
-# 菲律賓旅客走私63隻瀕危龜隻被判監30個月
-
-![部銹檢獲的瀕危龜隻。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797938_1_20250328221255.jpg&q=85)
-  
-
-一名菲律賓籍男子因走私63隻瀕危龜隻到香港，違反《保護瀕危動植物物種條例》，在區域法院被裁定罪名成立，判處監禁30個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm)
 
 ---

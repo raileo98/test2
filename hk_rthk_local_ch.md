@@ -1,3 +1,26 @@
+# 馬莎百貨一款打發忌廉總含菌量超標　食安中心籲勿食用
+
+  
+
+一款從英國進口以巴士德消毒法處理的馬莎百貨預先包裝打發忌廉樣本，被檢出總含菌量超出法例標準，食安中心呼籲市民不要食用受影響批次的產品。業界如持有相關批次的產品，應立即停止使用或出售。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm)
+
+---
+
 # 縱橫遊取消4月出發泰國旅行團　涉及10團共約150人
 
 ![縱橫遊宣布，將會取消所有4月份出發的泰國旅行團。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798011_1_20250329145442.jpg&q=80)
@@ -1424,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797829-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797829-20250328.htm)
-
----
-
-# 鍾健禮接替馮康出任中大醫院行政總裁　8月1日履新
-
-![中大醫院宣布委任鍾健禮為新任行政總裁。（中大網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797823_1_20250328115932.jpg&q=90)
-  
-
-中大醫院宣布委任鍾健禮為新任行政總裁，於8月1日履新，接替即將退休、於7月31日卸任的現任行政總裁馮康。鍾健禮將由6月16日起擔任候任行政總裁，以便交接。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797823-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797823-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797823-20250328.htm)
 
 ---
