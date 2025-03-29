@@ -1,3 +1,27 @@
+# 以軍擴大對加沙地帶南部地面攻勢
+
+![加沙地帶南部汗尤尼斯多座建築物在戰火中變成廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798070_1_20250330022630.jpg&q=80)
+  
+
+以色列軍方說，已擴大對加沙地帶南部的地面攻勢，以軍進入拉法的杰尼納地區採取行動，目的是擴大加沙南部的邊界緩衝區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798070-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798070-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798070-20250330.htm)
+
+---
+
 # 聯合國稱緬甸基礎設施受損阻礙救災工作
 
 ![聯合國人道主義事務協調辦公室表示，人道主義行動因道路和基礎設施受損而受阻。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798069_1_20250330021251.jpg&q=75)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797883-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797883-20250328.htm)
-
----
-
-# 外交部：中方堅決反對英方炮製所謂「半年報告」干涉中國內政
-
-![郭嘉昆說，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797879_1_20250328162152.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆回應英國政府再次發布「香港問題半年報告」時表示，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm)
 
 ---

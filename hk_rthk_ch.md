@@ -1,3 +1,27 @@
+# 以軍擴大對加沙地帶南部地面攻勢
+
+![加沙地帶南部汗尤尼斯多座建築物在戰火中變成廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798070_1_20250330022630.jpg&q=80)
+  
+
+以色列軍方說，已擴大對加沙地帶南部的地面攻勢，以軍進入拉法的杰尼納地區採取行動，目的是擴大加沙南部的邊界緩衝區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798070-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798070-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798070-20250330.htm)
+
+---
+
 # 聯合國稱緬甸基礎設施受損阻礙救災工作
 
 ![聯合國人道主義事務協調辦公室表示，人道主義行動因道路和基礎設施受損而受阻。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798069_1_20250330021251.jpg&q=75)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm)
-
----
-
-# 緬甸強震增至694人死逾1600人傷　習近平向敏昂萊致慰問電
-
-![地震亦導致泰國曼谷至少10人喪生，約100人仍然失蹤。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797999_1_20250329123436.jpg&q=70)
-  
-
-緬甸中部7級以上強烈地震，在當地增至最少694人死亡，1670人受傷，暫時未有中國公民死亡報告，多處有建築物受損，中國派出救援隊趕赴震區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm)
 
 ---
