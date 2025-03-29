@@ -118,7 +118,7 @@ The Secretary for Health Lo Chung-mau says he hopes some people can find alterna
 
 ---
 
-# Myanmar quake death toll passes 1,000: junta
+# Myanmar quake death toll passes 1,000
 
 ![A rescuer works at the site of the skyscraper that collapsed in Bangkok. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797995_1_20250329121851.jpg&q=70)
   

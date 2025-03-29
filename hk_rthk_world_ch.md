@@ -1,3 +1,27 @@
+# 南韓東南部山火增至30死40傷
+
+![南韓東南部山火增至30人死亡，40人受傷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798030_1_20250329175431.jpg&q=90)
+  
+
+南韓東南部山火有死灰復燃跡象，消防部門出動直升機加緊撲救，士兵亦出動協助。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798030-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798030-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798030-20250329.htm)
+
+---
+
 # 國家救援隊83名隊員赴緬甸災區　國航派包機搭載隊員
 
   
@@ -1419,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797816-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797816-20250328.htm)
-
----
-
-# 石破茂：特朗普政府對進口汽車徵稅25%將衝擊日本經濟
-
-![石破茂承諾將採取全面措施保護日本就業。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797809_1_20250328100604.jpg&q=90)
-  
-
-日本首相石破茂表示，美國總統特朗普政府對進口汽車徵收25%關稅，將對日本經濟產生非常大的衝擊，他承諾將採取全面措施保護就業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797809-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797809-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797809-20250328.htm)
 
 ---
