@@ -1,3 +1,27 @@
+# 中國駐緬大使：將全力協助中國救援隊開展工作
+
+![中國救援隊抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798071_1_20250330023800.jpg&q=90)
+  
+
+中國救援隊抵達緬甸仰光國際機場後，立即坐車前往在地震中受災嚴重的曼德勒省。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798071-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798071-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798071-20250330.htm)
+
+---
+
 # 以軍擴大對加沙地帶南部地面攻勢
 
 ![加沙地帶南部汗尤尼斯多座建築物在戰火中變成廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798070_1_20250330022630.jpg&q=80)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797884-20250328.htm)
-
----
-
-# 緬甸大地震　據報曼德勒一間清真寺倒塌10人死亡
-
-![緬甸發生7級以上猛烈地震，泰國曼谷有震感，有建築物倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797883_1_20250328165116.jpg&q=55)
-  
-
-緬甸發生黎克特制7級以上猛烈地震，當地傳媒報道，曼德勒一座清真寺倒塌，造成至少10人死亡。另外，曼德勒有民眾在社交媒體表示，當地一座建築倒塌，多人被困。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797883-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797883-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797883-20250328.htm)
 
 ---
