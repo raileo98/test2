@@ -1,3 +1,26 @@
+# 丘應樺及麥美娟等政府官員明赴河南省出席黃帝故里拜祖大典
+
+  
+
+商務及經濟發展局局長丘應樺、民政及青年事務局局長麥美娟和文化體育及旅遊局副局長劉震，明日前往河南省鄭州市，代表香港特別行政區政府出席乙巳年黃帝故里拜祖大典。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm)
+
+---
+
 # 印尼否認以色列傳媒有關加沙居民計劃遷居印尼報道
 
 ![印尼否認以色列傳媒有關加沙居民計劃遷居印尼報道](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798022_1_20250329164147.jpg&q=90)
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797949-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797949-20250329.htm)
-
----
-
-# 當局更新外遊警示網頁涉緬甸泰國附加資料　入境處接48宗查詢
-
-![保安局網頁有關緬甸及泰國的外遊警示。（保安局網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797951_1_20250328235500.jpg&q=90)
-  
-
-緬甸中部發生強烈地震。入境處表示，截至星期五晚上8時，共接獲48宗查詢，已即時按其需要提供相關資訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797951-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797951-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797951-20250328.htm)
 
 ---

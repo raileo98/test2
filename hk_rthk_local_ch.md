@@ -1,3 +1,26 @@
+# 丘應樺及麥美娟等政府官員明赴河南省出席黃帝故里拜祖大典
+
+  
+
+商務及經濟發展局局長丘應樺、民政及青年事務局局長麥美娟和文化體育及旅遊局副局長劉震，明日前往河南省鄭州市，代表香港特別行政區政府出席乙巳年黃帝故里拜祖大典。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm)
+
+---
+
 # 七欖第二日賽事場內氣氛熱鬧　港隊男女子隊晉級銀劍賽決賽
 
 ![啟德體育園舉行香港國際七人欖球賽第二日賽事，吸引大批觀眾入場觀賽。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_1_20250329164200.jpg&q=70)
@@ -1429,29 +1452,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797845-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797845-20250328.htm)
-
----
-
-# 張國鈞冀大灣區律師顧問小組加入網紅令制訂措施更「貼地」
-
-![張國鈞希望透過熟悉內地情況的港人，令當局在制訂措施時更加「貼地」。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797839_1_20250328125657.jpg&q=80)
-  
-
-政府本月初宣布委任「粵港澳大灣區專責小組」及轄下大灣區律師顧問小組共7名新成員，當中包括居住在深圳的香港人、網紅「西DorSi」謝承益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797839-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797839-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797839-20250328.htm)
 
 ---
