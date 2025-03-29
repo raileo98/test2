@@ -1,3 +1,27 @@
+# 聯合國稱緬甸基礎設施受損阻礙救災工作
+
+![聯合國人道主義事務協調辦公室表示，人道主義行動因道路和基礎設施受損而受阻。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798069_1_20250330021251.jpg&q=75)
+  
+
+緬甸發生7.7級強烈地震後，多方伸出援手。聯合國人道主義事務協調辦公室表示，人道主義行動因道路和基礎設施受損而受阻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798069-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798069-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798069-20250330.htm)
+
+---
+
 # 洪都拉斯副總統：洪中建交是最正確決定
 
 ![共享基金會與洪都拉斯衛生部在特古西加爾巴舉行登革熱防控合作項目成果發布會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798065_1_20250330005137.jpg&q=90)
@@ -1420,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm)
-
----
-
-# 外交部：美方應停止在南海挑事生非　奉勸菲方勿「倚美鬧海」
-
-![郭嘉昆說，美方應停止在南海挑事生非，不要做南海的攪局者和肇事方。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797876_1_20250328161658.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，美方應摒棄冷戰思維，停止挑動意識形態對抗，停止在南海挑事生非、在地區挑撥離間，不要做南海的攪局者和肇事方。中方也奉勸菲方，不要「倚美鬧海」，更不要試圖挑起軍事對抗。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm)
 
 ---
