@@ -1,3 +1,27 @@
+# 香港特區救援隊抵達緬甸　賑災基金預留3千萬元賑災
+
+![特區政府派出的救援隊昨晚抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798076_1_20250330061016.jpg&q=90)
+  
+
+特區政府派出的51人救援隊已經抵達緬甸，準備協助搜救工作。行政長官李家超表示，一收到緬甸駐港總領事合的要求後，特區政府短時間內就成立救援隊，感謝各隊員迅速響應，同時寄語他們要注意安全。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm)
+
+---
+
 # 聯合國緊急撥款500萬美元用於緬甸地震救援
 
 ![在緬甸曼德勒，一名女子從瓦礫中獲救。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798075_1_20250330053327.jpg&q=90)
@@ -51,7 +75,7 @@
 ![加沙南部汗尤尼斯在戰火中成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798073_1_20250330035601.jpg&q=70)
   
 
-巴勒斯坦武裝組織哈馬斯表示，同意調解方提出的加沙停火提議。
+巴勒斯坦武裝組織哈馬斯表示，同意調解方提出、新的加沙地帶停火提議。
 
   
 
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798006-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798006-20250329.htm)
-
----
-
-# 157人涉太空油毒品被捕　蕭澤頤稱不擔心採用試紙令個案變隱蔽
-
-![蕭澤頤表示，刊憲後至到前日，警方共拘捕120宗與太空油毒品有關案件。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798005_1_20250329135821.jpg&q=90)
-  
-
-政府上月14日刊憲將太空油毒品主要成分依托咪酯及3種類似物列為毒品。警務處處長蕭澤頤表示，刊憲後至到前日，警方共拘捕120宗與太空油毒品有關案件，拘捕157人。當中37人是21歲以下人士，其中16人是學生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798005-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798005-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798005-20250329.htm)
 
 ---

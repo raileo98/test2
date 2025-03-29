@@ -1,3 +1,27 @@
+# 香港特區救援隊抵達緬甸　賑災基金預留3千萬元賑災
+
+![特區政府派出的救援隊昨晚抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798076_1_20250330061016.jpg&q=90)
+  
+
+特區政府派出的51人救援隊已經抵達緬甸，準備協助搜救工作。行政長官李家超表示，一收到緬甸駐港總領事合的要求後，特區政府短時間內就成立救援隊，感謝各隊員迅速響應，同時寄語他們要注意安全。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm)
+
+---
+
 # 天文台預測明天市區最低12度左右　當局開放18間避寒中心
 
 ![天文台預測明天市區最低12度左右　當局開放18間避寒中心](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798062_1_20250329234252.jpg&q=90)
@@ -1423,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797936-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797936-20250328.htm)
-
----
-
-# 建造業「油漆工」「砌磚工」訂定灣區標準推展「一試多證」安排
-
-![當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797934_1_20250328215518.jpg&q=75)
-  
-
-當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排，有關標準已上載香港建造學院的網頁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm)
 
 ---
