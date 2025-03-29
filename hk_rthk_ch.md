@@ -1,3 +1,27 @@
+# 中國駐緬大使：將全力協助中國救援隊開展工作
+
+![中國救援隊抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798071_1_20250330023800.jpg&q=90)
+  
+
+中國救援隊抵達緬甸仰光國際機場後，立即坐車前往在地震中受災嚴重的曼德勒省。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798071-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798071-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798071-20250330.htm)
+
+---
+
 # 以軍擴大對加沙地帶南部地面攻勢
 
 ![加沙地帶南部汗尤尼斯多座建築物在戰火中變成廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798070_1_20250330022630.jpg&q=80)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm)
-
----
-
-# 高拔陞稱會細化公營醫療收費改革流程　聽取市民員工意見多做解說
-
-![高拔陞說，1萬元收費上限合適，相信相關申請不多。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798000_1_20250329135941.jpg&q=80)
-  
-
-政府公布公營醫療收費改革，包括提出急症室收費方面，第三至五類病人的費用升至400元，第一、二類危殆危急的病人獲得豁免。另外，住院門診費用就新設1萬元收費上限。改革方案明年起生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm)
 
 ---
