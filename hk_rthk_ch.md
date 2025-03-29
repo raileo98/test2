@@ -22,7 +22,7 @@
 
 ---
 
-# 七欖港隊男女子隊晉級銀劍賽決賽
+# 七欖第二日賽事場內氣氛熱鬧　港隊男女子隊晉級銀劍賽決賽
 
 ![啟德體育園舉行香港國際七人欖球賽第二日賽事，吸引大批觀眾入場觀賽。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_1_20250329164200.jpg&q=70)
 ![賽事繼續吸引大批觀眾入場觀賽，不少人盛裝打扮。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_3_20250329165525.jpg&q=85)
