@@ -1,3 +1,27 @@
+# 中日韓經貿部長會議在首爾舉行
+
+![中國商務部長王文濤（右）、日本經濟產業大臣武藤容治（左），和南韓產業部長安德根出席會議。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798093_1_20250330103434.jpg&q=90)
+  
+
+中日韓經貿部長會議在南韓首爾舉行，中國商務部長王文濤、日本經濟產業大臣武藤容治，和南韓產業部長安德根出席，是三國經貿部長會議時隔5年再次舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm)
+
+---
+
 # 雲南救援醫療隊在緬甸內比都救出1名倖存者
 
 ![救援人員在緬甸內比都一間醫院的廢墟下救出一名倖存者。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798085_1_20250330093740.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm)
-
----
-
-# 王毅晤剛果共和國外長　強調推動中非合作高質量發展
-
-![王毅與剛果共和國外長加科索會面。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797940_1_20250328223208.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在北京會見剛果共和國外長加科索。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm)
 
 ---

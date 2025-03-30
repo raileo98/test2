@@ -1,3 +1,28 @@
+# 香港母乳庫已收集約550公升母乳　開展第二階段服務
+
+![香港母乳庫已開展第二階段服務，向有臨床需要的初生嬰兒派發捐贈母乳。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798091_1_20250330103440.jpg&q=90)
+![新生兒深切治療部的醫護團隊會因應嬰兒的臨床情況處方捐贈母乳，並持續監察嬰兒的臨床情況。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798091_2_20250330103440.jpg&q=90)
+  
+
+醫管局宣布，香港母乳庫已開展第二階段服務，向有臨床需要的極早產及患有危疾的初生嬰兒派發母乳，以提供全面充足的營養，幫助他們預防感染及併發症，建立健康保護屏障。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm)
+
+---
+
 # 蕭澤頤：前線警員對社會由治及興有很大貢獻
 
 ![蕭澤頤說，警方在不同年代面對不同挑戰，也一直進步。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798088_1_20250330101954.jpg&q=90)
@@ -1419,33 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm)
-
----
-
-# 七欖首次移師啟德主場館舉行　開幕禮有激光投影等表演
-
-![賽事晚上舉行由旅發局贊助的開幕禮，有舞龍舞獅。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_2_20250328230020.jpg&q=35)
-![開幕禮有長約3分鐘的激光投影。（旅發局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_3_20250328230020.jpg&q=70)
-![香港國際七人欖球賽首次移師啟德體育園主場館舉行。（仇志榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797941_1_20250328230020.jpg&q=75)
-  
-
-香港國際七人欖球賽首次移師啟德體育園主場館舉行，有入場市民說有冷氣，較以往在大球場體驗為好。
-  
-![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1797941_3_L_20250328230020.jpg)
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm)
 
 ---

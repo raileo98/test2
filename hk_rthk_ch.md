@@ -1,3 +1,52 @@
+# 中日韓經貿部長會議在首爾舉行
+
+![中國商務部長王文濤（右）、日本經濟產業大臣武藤容治（左），和南韓產業部長安德根出席會議。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798093_1_20250330103434.jpg&q=90)
+  
+
+中日韓經貿部長會議在南韓首爾舉行，中國商務部長王文濤、日本經濟產業大臣武藤容治，和南韓產業部長安德根出席，是三國經貿部長會議時隔5年再次舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm)
+
+---
+
+# 香港母乳庫已收集約550公升母乳　開展第二階段服務
+
+![香港母乳庫已開展第二階段服務，向有臨床需要的初生嬰兒派發捐贈母乳。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798091_1_20250330103440.jpg&q=90)
+![新生兒深切治療部的醫護團隊會因應嬰兒的臨床情況處方捐贈母乳，並持續監察嬰兒的臨床情況。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798091_2_20250330103440.jpg&q=90)
+  
+
+醫管局宣布，香港母乳庫已開展第二階段服務，向有臨床需要的極早產及患有危疾的初生嬰兒派發母乳，以提供全面充足的營養，幫助他們預防感染及併發症，建立健康保護屏障。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm)
+
+---
+
 # 蕭澤頤：前線警員對社會由治及興有很大貢獻
 
 ![蕭澤頤說，警方在不同年代面對不同挑戰，也一直進步。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798088_1_20250330101954.jpg&q=90)
@@ -1392,54 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm)
-
----
-
-# 鄧炳強：特區救援隊汲取土耳其救援經驗　第二梯隊準備好可支援
-
-![救援隊共51人，包括41名消防、4名保安局人員、兩名入境處人員、醫管局兩名醫生和兩名護士。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798020_2_20250329160034.jpg&q=90)
-  
-
-特區政府派出51人組成的救援隊到緬甸，協助地震災區的搜救工作。保安局局長鄧炳強說，昨日發生大地震後，救援隊已經隨時候命，今日正式收到緬甸駐港總領事館要求後，人員在很短時間就到機場出發。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm)
-
----
-
-# 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
-
-![李家超與救援隊成員握手，又提醒他們要注意自身安全。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_2_20250329154656.jpg&q=85)
-![李家超形容，救援隊無懼挑戰，在救急扶危的大前提下，展現專業精神。（保安局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_3_20250329160247.jpg&q=85)
-  
-
-特區政府派出保安局、消防處、入境處和醫管局人員組成的51人救援隊前往緬甸，協助地震災區的搜救工作。行政長官李家超將區旗授予救援隊代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm)
 
 ---
