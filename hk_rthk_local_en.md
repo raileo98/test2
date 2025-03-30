@@ -1,3 +1,27 @@
+# 'As Sevens hosts, Kai Tak keeps improving'
+
+![Rosanna Law says the atmosphere and operations at the Kai Tak Sports Park are very good in general. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798129_1_20250330173648.jpg&q=75)
+  
+
+Culture, sports and tourism minister Rosanna Law said operators of Kai Tak Sports Park made improvements every day during the three-day Rugby Sevens tournament.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798129-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798129-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798129-20250330.htm)
+
+---
+
 # Cathay plane flyover marks old airport's centennial
 
 ![A Cathay Pacific aircraft passes over the Kai Tak Stadium, where the Hong Kong Sevens is being held. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798127_1_20250330171537.jpg&q=90)
@@ -1439,29 +1463,5 @@ In a first, M+ Museum is using artificial intelligence to transform its facade i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm)
-
----
-
-# Local airlines to ban in-flight charger use
-
-![Using or recharging portable chargers during flights will be banned from April 7. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797203_1_20250324210630.jpg&q=90)
-  
-
-The Civil Aviation Department on Monday announced that local airlines will no longer let passengers use or recharge their portable chargers during flights, while storing power banks in the overhead compartments is also banned.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm)
 
 ---

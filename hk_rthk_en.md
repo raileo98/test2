@@ -1,3 +1,27 @@
+# 'As Sevens hosts, Kai Tak keeps improving'
+
+![Rosanna Law says the atmosphere and operations at the Kai Tak Sports Park are very good in general. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798129_1_20250330173648.jpg&q=75)
+  
+
+Culture, sports and tourism minister Rosanna Law said operators of Kai Tak Sports Park made improvements every day during the three-day Rugby Sevens tournament.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798129-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798129-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798129-20250330.htm)
+
+---
+
 # Cathay plane flyover marks old airport's centennial
 
 ![A Cathay Pacific aircraft passes over the Kai Tak Stadium, where the Hong Kong Sevens is being held. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798127_1_20250330171537.jpg&q=90)
@@ -1436,29 +1460,5 @@ When Hong Kong artist Movana Chen moved to Lisbon in 2021, she started knitting 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797813-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797813-20250328.htm)
-
----
-
-# Rubio warns Venezuela against Guyana attacks
-
-![Guyanese President Mohamed Irfaan Ali, left, with Marco Rubio in Georgetown, Guyana. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797818_1_20250328105815.jpg&q=90)
-  
-
-Top US diplomat Marco Rubio bluntly warned Venezuela against attacking its oil-rich neighbour Guyana, brandishing the power of the US military to protect the small South American nation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm)
 
 ---
