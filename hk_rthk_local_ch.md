@@ -1,3 +1,27 @@
+# 代理：周末二手交投活躍　受一手帶動
+
+![地產代理表示，一手熱賣帶動本月不少屋苑二手交投亦按月上升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798173_1_20250331054025.jpg&q=85)
+  
+
+美聯物業表示，本港一手樓市氣氛持續向好攤薄二手購買力。本月最後一個周末十大二手指標屋苑錄得約12宗成交，按周持平，連續3周維持雙位數。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm)
+
+---
+
 # 香港救援隊連夜由內比都趕赴曼德勒搜救
 
 ![香港特區政府派出的救援隊抵達緬甸首都內比都短暫休整。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798164_1_20250331024427.jpg&q=90)
@@ -1425,29 +1449,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798031-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798031-20250329.htm)
-
----
-
-# 國家救援隊83名隊員赴緬甸災區　國航派包機搭載隊員
-
-![國航接到緊急運輸任務後，迅速完成航班運行準備工作，派出救援包機搭載救援隊員。（中國民航報）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798029_1_20250329175858.jpg&q=90)
-  
-
-國家救援隊83名隊員，帶備通信、搜救、指揮、醫療、應急食品等近22噸應急救援物資，下午近1時從北京首都機場起飛，前往緬甸地震災區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm)
 
 ---

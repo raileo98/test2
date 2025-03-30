@@ -1,3 +1,27 @@
+# 代理：周末二手交投活躍　受一手帶動
+
+![地產代理表示，一手熱賣帶動本月不少屋苑二手交投亦按月上升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798173_1_20250331054025.jpg&q=85)
+  
+
+美聯物業表示，本港一手樓市氣氛持續向好攤薄二手購買力。本月最後一個周末十大二手指標屋苑錄得約12宗成交，按周持平，連續3周維持雙位數。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm)
+
+---
+
 # 四家國有大行擬向財政部等發A股集資不超過5200億元人民幣
 
 ![中行等4家國有大行計劃向財政部等機構發行A股集資增加核心一級資本。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798172_1_20250331052959.jpg&q=90)
@@ -1422,29 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798099-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798099-20250330.htm)
-
----
-
-# 緬甸地震逾1600人死亡　十多名中國公民受傷
-
-![緬甸地震增至1600多人死亡，3400多人受傷，百多人失蹤。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798098_2_20250330122453.jpg&q=90)
-  
-
-緬甸中部大地震至今，增至1600多人死亡，3400多人受傷，百多人失蹤。雲南救援醫療隊凌晨在內比都救出1名被困近40小時的長者。中國駐緬甸大使館至今確認十多名中國公民在地震中受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm)
 
 ---

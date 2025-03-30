@@ -1,3 +1,27 @@
+# Bagnaia wins USA MotoGP after Márquez crash
+
+![Francesco Bagnaia of Italy rides during the 2025 Grand Prix of the Americas at Circuit of The Americas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798175_1_20250331060812.jpg&q=90)
+  
+
+Francesco Bagnaia won an eventful Grand Prix of the Americas to end crash-victim Marc Márquez's perfect start to the MotoGP season.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798175-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798175-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798175-20250331.htm)
+
+---
+
 # Barcelona restore Liga lead in Girona romp
 
 ![Lewandowski scored twice as Barca remain unbeaten this year in 20 matches. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798174_1_20250331055012.jpg&q=90)
@@ -1423,29 +1447,5 @@ Lando Norris was fastest in practice on Friday for the Chinese Grand Prix, the c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796771-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796771-20250321.htm)
-
----
-
-# Vinicius dashes Colombia hopes with late winner
-
-![Vinicius Jr and a teammate celebrate after the stoppage-time winner against Colombia at the Mane Garrincha stadium in Brasilia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796760_1_20250321123836.jpg&q=85)
-  
-
-Vinicius Junior struck a dramatic winner in the ninth minute of stoppage time to give Brazil a 2-1 win over Colombia in their South American World Cup qualifier.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm)
 
 ---

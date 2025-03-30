@@ -1,3 +1,27 @@
+# Bagnaia wins USA MotoGP after Márquez crash
+
+![Francesco Bagnaia of Italy rides during the 2025 Grand Prix of the Americas at Circuit of The Americas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798175_1_20250331060812.jpg&q=90)
+  
+
+Francesco Bagnaia won an eventful Grand Prix of the Americas to end crash-victim Marc Márquez's perfect start to the MotoGP season.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798175-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798175-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798175-20250331.htm)
+
+---
+
 # Barcelona restore Liga lead in Girona romp
 
 ![Lewandowski scored twice as Barca remain unbeaten this year in 20 matches. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798174_1_20250331055012.jpg&q=90)
@@ -1429,29 +1453,5 @@ Josh Giddey buried a miracle shot from beyond halfcourt at the final buzzer as t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm)
-
----
-
-# 'Use AI chatbots in triage system to avoid mistakes'
-
-![A patients' rights group has proposed the use of AI chatbots in triage system at public hospitals to help patients gain a better understanding of their conditions. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797824_1_20250328114303.jpg&q=90)
-  
-
-A patients' rights group says it hopes the government can use AI chatbots in its triage system at public hospitals to help patients gain a better understanding of their conditions and symptoms.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797824-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797824-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797824-20250328.htm)
 
 ---
