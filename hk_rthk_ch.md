@@ -1,5 +1,26 @@
+# 羅淑佩稱已要求啟德體育園加強食品供應　排隊情況有改善
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798106-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798106-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798106-20250330.htm)
+
+---
+
 # 緬甸反對軍政府武裝提出停火兩星期以便救災工作
 
+![緬甸地震增至1600多人死亡，反軍政府武裝提出停火以便救災。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798105_1_20250330142828.jpg&q=90)
   
 
 緬甸地震增至1600多人死亡，3400多人受傷，百多人失蹤。
@@ -1416,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm)
-
----
-
-# 蕭澤頤檢閱結業會操勉勵學員時刻謹記「君子慎其獨」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798024_1_20250329180557.jpg&q=90)
-  
-
-警察學院結業會操早上舉行，由警務處處長蕭澤頤擔任檢閱官。今次共有29名見習督察及158名警員結業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm)
 
 ---
