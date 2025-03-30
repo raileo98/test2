@@ -1,3 +1,27 @@
+# 香港救援隊連夜由內比都趕赴曼德勒搜救
+
+![香港特區政府派出的救援隊抵達緬甸首都內比都短暫休整。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798164_1_20250331024427.jpg&q=90)
+  
+
+央視新聞報道，香港特區政府派出的救援隊抵達緬甸首都內比都，在疾控中心短暫休整後，連夜趕往曼德勒進行搜救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798164-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798164-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798164-20250331.htm)
+
+---
+
 # 七欖三日賽事共逾11萬名觀眾入場　創歷史新高
 
 ![七欖賽事晚上結束，阿根廷男子隊和新西蘭女子隊分別奪標。啟德主場館舉行煙火表演。（啟德提育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798155_1_20250330235841.jpg&q=55)
@@ -1425,29 +1449,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm)
-
----
-
-# 13班來往香港及泰國航班延誤　沒有航班取消
-
-![機管局表示，截至下午4時半，共有13班本港來往泰國的航班延誤。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798028_1_20250329173955.jpg&q=90)
-  
-
-機場管理局表示，截至下午4時半，共有13班本港來往泰國的航班延誤，分別是5班從泰國抵港，以及8班由香港前往泰國，並沒有航班取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798028-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798028-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798028-20250329.htm)
 
 ---
