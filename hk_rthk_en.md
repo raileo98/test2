@@ -1,3 +1,27 @@
+# Cathay plane flyover marks old airport's centennial
+
+![A Cathay Pacific aircraft passes over the Kai Tak Stadium, where the Hong Kong Sevens is being held. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798127_1_20250330171537.jpg&q=90)
+  
+
+A Cathay Pacific aircraft on Sunday flew near Kai Tak during the Hong Kong Sevens, an area where the city's former international airport began operations 100 years ago.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm)
+
+---
+
 # HK, China sweep Melrose Claymores
 
 ![Matteo Avitabile is among the scorers for Hong Kong, China. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798126_1_20250330171036.jpg&q=90)
@@ -1436,30 +1460,5 @@ Top US diplomat Marco Rubio bluntly warned Venezuela against attacking its oil-r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm)
-
----
-
-# Yankees, Dodgers victorious in MLB season openers
-
-![Carlos Rodon's pitching was key to the Yankees' win to open the new season. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797817_1_20250328105734.jpg&q=90)
-![Shohei Ohtani and the Los Angeles Dodgers were also winners to start the new campaign. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797817_2_20250328105734.jpg&q=90)
-  
-
-Carlos Rodon pitched effectively into the sixth inning and was backed by two early homers as the host New York Yankees hung on for a 4-2 victory over the Milwaukee Brewers in the season opener for both teams.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797817-20250328.htm)
 
 ---

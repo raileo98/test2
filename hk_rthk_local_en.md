@@ -1,3 +1,27 @@
+# Cathay plane flyover marks old airport's centennial
+
+![A Cathay Pacific aircraft passes over the Kai Tak Stadium, where the Hong Kong Sevens is being held. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798127_1_20250330171537.jpg&q=90)
+  
+
+A Cathay Pacific aircraft on Sunday flew near Kai Tak during the Hong Kong Sevens, an area where the city's former international airport began operations 100 years ago.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm)
+
+---
+
 # Who's who at the Rugby Sevens, and it's quite a cast!
 
 ![Enthusiastic rugby fans enjoy the last day of the annual Hong Kong Sevens at the Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_1_20250330161122.jpg&q=85)
@@ -1439,29 +1463,5 @@ The Civil Aviation Department on Monday announced that local airlines will no lo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797203-20250324.htm)
-
----
-
-# New public hospital fees to start next year: sources
-
-![Sources say the fixed accident and emergency fee will be raised to no more than HK$400 from the current HK$180, with exemptions for critically ill and urgent patients. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797197_1_20250324194549.jpg&q=90)
-  
-
-Sources say new fees for public hospital services will be rolled out in three phases starting as early as January next year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797197-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797197-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797197-20250324.htm)
 
 ---
