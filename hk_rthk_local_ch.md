@@ -1,3 +1,26 @@
+# 七欖銀劍賽　中國香港男女子隊稱王封后
+
+  
+
+香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm)
+
+---
+
 # 七欖女子銀劍賽港隊擊敗哈薩克奪魁
 
 ![稍後舉行的銀劍賽男子組決賽，港隊會迎戰國家隊。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798120_1_20250330163847.jpg&q=65)
@@ -1424,30 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm)
-
----
-
-# 陳美寶：本港航運物流3月份於「提量」「提質」均有不少進展
-
-![陳美寶提到，去年第四季，香港港口與廣西北部灣的港口吞吐量按年上升47.4%。（陳美寶網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797989_1_20250329112408.jpg&q=90)
-![陳美寶訪問廣西，親身探討港桂加強港口貨運合作的機會。（陳美寶網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797989_2_20250329112408.jpg&q=85)
-  
-
-運輸及物流局局長陳美寶表示，本港3月份在航運物流「提量」及「提質」上均有不少進展，會繼續致力增強香港貨物中轉樞紐角色，積極研究將航空貨物轉運計劃延伸至其他多式轉運模式，吸引更多貨物來港中轉，提升香港的航運物流競爭力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm)
 
 ---

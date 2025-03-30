@@ -1,3 +1,26 @@
+# 七欖銀劍賽　中國香港男女子隊稱王封后
+
+  
+
+香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm)
+
+---
+
 # 七欖女子銀劍賽港隊擊敗哈薩克奪魁
 
 ![稍後舉行的銀劍賽男子組決賽，港隊會迎戰國家隊。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798120_1_20250330163847.jpg&q=65)
@@ -1435,29 +1458,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm)
-
----
-
-# 港隊於殘疾人劍擊世界盃奪2銀4銅
-
-![香港輪椅劍擊隊在意大利舉行的殘疾人劍擊世界盃，奪得2銀4銅。（香港傷殘人士體育協會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796216_1_20250318125651.jpg&q=90)
-  
-
-香港輪椅劍擊隊在意大利舉行的殘疾人劍擊世界盃，奪得2銀4銅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796216-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796216-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796216-20250318.htm)
 
 ---

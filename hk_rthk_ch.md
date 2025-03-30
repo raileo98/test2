@@ -1,3 +1,26 @@
+# 七欖銀劍賽　中國香港男女子隊稱王封后
+
+  
+
+香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm)
+
+---
+
 # 七欖女子銀劍賽港隊擊敗哈薩克奪魁
 
 ![稍後舉行的銀劍賽男子組決賽，港隊會迎戰國家隊。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798120_1_20250330163847.jpg&q=65)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm)
-
----
-
-# 緬甸大地震逾千人死亡　中國救援隊抵達仰光
-
-![在曼德勒，救援人員在瓦礫中搜索生還者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798047_1_20250329213443.jpg&q=90)
-  
-
-緬甸中部昨日發生大地震至今，超過1千人死亡，2300多人受傷。領導人敏昂萊到災區視察。國家主席習近平向敏昂萊致慰問電。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798047-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798047-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798047-20250329.htm)
 
 ---
