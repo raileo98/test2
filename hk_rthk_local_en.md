@@ -1,3 +1,27 @@
+# Hong Kong Super March is a big draw: Paul Chan
+
+![Paul Chan says he hopes more people will do business in Hong Kong apart from enjoying art. Image courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798103_1_20250330133135.jpg&q=90)
+  
+
+Financial Secretary Paul Chan said "Super March" has attracted more than 3.4 million tourists to Hong Kong, a 12 percent increase from a year ago.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm)
+
+---
+
 # Young people see police in better light: Commissioner
 
 ![Police Commissioner Raymond Siu, who retires on Tuesday, said he would miss working for the force. Photo: Courtesy of Commercial Radio](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798097_3_20250330123521.jpg&q=90)
@@ -1434,29 +1458,5 @@ The secretary for culture, sports and tourism has called on the ticketing platfo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm)
-
----
-
-# Health officials to help pharmas register new drugs
-
-![Assistant Director of Health Frank Chan, centre, hopes the new arrangements can speed up the registration of new drugs in Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797180_1_20250324172745.jpg&q=90)
-  
-
-Pharmaceutical firms wishing to register new drugs in Hong Kong will soon be able to consult health officials before filing an actual application, saving both sides time and effort.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm)
 
 ---

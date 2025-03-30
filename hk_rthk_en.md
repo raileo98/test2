@@ -1,3 +1,27 @@
+# Hong Kong Super March is a big draw: Paul Chan
+
+![Paul Chan says he hopes more people will do business in Hong Kong apart from enjoying art. Image courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798103_1_20250330133135.jpg&q=90)
+  
+
+Financial Secretary Paul Chan said "Super March" has attracted more than 3.4 million tourists to Hong Kong, a 12 percent increase from a year ago.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm)
+
+---
+
 # Young people see police in better light: Commissioner
 
 ![Police Commissioner Raymond Siu, who retires on Tuesday, said he would miss working for the force. Photo: Courtesy of Commercial Radio](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798097_3_20250330123521.jpg&q=90)
@@ -1432,29 +1456,5 @@ Light rain offered some relief to South Korean authorities tackling the country'
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm)
-
----
-
-# Government strongly condemns UK report on HK
-
-![The SAR government urged the UK to "respect international law" and "immediately stop interfering in Hong Kong matters." File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797769_1_20250328093204.jpg&q=90)
-  
-
-The government on Thursday said it strongly disapproved of and must resolutely refute the untruthful remarks, slanders and smears against various aspects of the SAR in the UK's six-monthly report on Hong Kong.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm)
 
 ---
