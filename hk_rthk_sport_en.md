@@ -1,3 +1,28 @@
+# Argentina in seventh heaven for maiden HK title
+
+![Argentina won the Hong Kong Sevens for the first time ever. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798137_1_20250330193653.jpg&q=75)
+![New Zealand performed the haka following the victory over Australia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798137_2_20250330193653.jpg&q=85)
+  
+
+Argentina on Sunday captured the Hong Kong Sevens for the first time, defeating France in a hard-fought men's final at the Kai Tak Stadium.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798137-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798137-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798137-20250330.htm)
+
+---
+
 # 'Bigger house, bigger party' in new Kai Tak experience
 
 ![James Farndon says this year's Rugby Sevens has been an amazing experience for all those involved. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798130_2_20250330181531.jpg&q=90)
@@ -1424,29 +1449,5 @@ Third seed Coco Gauff crushed fellow American Sofia Kenin 6-0 6-0 at the Miami O
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796739-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796739-20250321.htm)
-
----
-
-# China gears up for F1 fever this weekend
-
-![McLaren's Lando Norris arrives in Shanghai atop the drivers’ standings for the first time. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796732_1_20250321100549.jpg&q=90)
-  
-
-McLaren’s dominance, Lewis Hamilton’s bid to bounce back after a disappointing debut for Ferrari, and the passing of Eddie Jordan have generated headlines as Formula 1 prepares for its first "Sprint weekend" of the season at the Chinese Grand Prix on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796732-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796732-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796732-20250321.htm)
 
 ---

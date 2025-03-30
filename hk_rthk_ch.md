@@ -97,6 +97,7 @@
 # 港隊男女子隊銀劍賽稱王封后　球迷大讚港隊表現
 
 ![有香港球迷在男子組勝利一刻，用手機紀錄珍貴一幕，大叫「香港隊勁」。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798132_1_20250330190550.jpg&q=70)
+![不少球迷也扮鬼扮馬，更無懼氣溫下降，赤膊上陣。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798132_2_20250330194219.jpg&q=85)
   
 
 香港國際七人欖球賽，港隊在男女子銀劍賽分別稱王封后，不少球迷也感到興奮，大讚港隊表現。

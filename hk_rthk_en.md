@@ -1,3 +1,28 @@
+# Argentina in seventh heaven for maiden HK title
+
+![Argentina won the Hong Kong Sevens for the first time ever. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798137_1_20250330193653.jpg&q=75)
+![New Zealand performed the haka following the victory over Australia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798137_2_20250330193653.jpg&q=85)
+  
+
+Argentina on Sunday captured the Hong Kong Sevens for the first time, defeating France in a hard-fought men's final at the Kai Tak Stadium.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798137-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798137-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798137-20250330.htm)
+
+---
+
 # SAR rescue team to begin work in quake-hit Myanmar
 
 ![International rescue organisations have called for support for the victims of Friday's tremor. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798131_1_20250330182417.jpg&q=60)
@@ -1430,29 +1455,5 @@ At the official opening of the Boao Forum for Asia on Thursday, Vice Premier Din
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797826-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797826-20250328.htm)
-
----
-
-# 'Kowloon City won't be congested during the Sevens'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797820_1_20250328112333.jpg&q=70)
-  
-
-A Kowloon City district councillor believes the area will not be congested when Hong Kong Rugby Sevens tournament games end every evening.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm)
 
 ---
