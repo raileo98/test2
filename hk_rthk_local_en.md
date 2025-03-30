@@ -1,3 +1,27 @@
+# Young people see police in better light: Commissioner
+
+![Police Commissioner Raymond Siu, who retires on Tuesday, said he would miss working for the force. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798097_1_20250330120859.jpg&q=90)
+  
+
+Police Commissioner Raymond Siu on Sunday said the force's efforts to raise its image among young people were bearing fruit.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm)
+
+---
+
 # HK sets aside HK$30 million for Myanmar quake victims
 
 ![A 51-member SAR rescue team has arrived in Yangon. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798095_1_20250330110807.jpg&q=90)
@@ -1434,29 +1458,5 @@ Pharmaceutical firms wishing to register new drugs in Hong Kong will soon be abl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797180-20250324.htm)
-
----
-
-# Subsidy level for public healthcare 'unsustainable'
-
-![Public Doctors' Association chairman Christopher Lung is calling for clear guidelines for frontline medics to handle future fee-related arguments with patients. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797138_2_20250324131612.jpg&q=80)
-  
-
-There's no way Hong Kong's public healthcare system will be sustainable in the long term if the government continues to subsidise nearly all of the expenses, according to an adviser tasked with reforming the body managing the hospitals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797138-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797138-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797138-20250324.htm)
 
 ---

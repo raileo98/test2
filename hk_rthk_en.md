@@ -1,3 +1,27 @@
+# Young people see police in better light: Commissioner
+
+![Police Commissioner Raymond Siu, who retires on Tuesday, said he would miss working for the force. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798097_1_20250330120859.jpg&q=90)
+  
+
+Police Commissioner Raymond Siu on Sunday said the force's efforts to raise its image among young people were bearing fruit.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm)
+
+---
+
 # HK sets aside HK$30 million for Myanmar quake victims
 
 ![A 51-member SAR rescue team has arrived in Yangon. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798095_1_20250330110807.jpg&q=90)
@@ -1432,29 +1456,5 @@ The government on Thursday said it strongly disapproved of and must resolutely r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm)
-
----
-
-# Arctic sea ice hits record low, says US agency
-
-![A polar bear is seen on ice floes in the Franz Josef Land archipelago in 2021. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797792_1_20250328084339.jpg&q=90)
-  
-
-Arctic sea ice had its weakest winter buildup since record-keeping began 47 years ago, a symptom of climate change that will have repercussions globally, scientists said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm)
 
 ---
