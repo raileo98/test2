@@ -1,3 +1,27 @@
+# 巴勒斯坦紅新月會8名醫務人員在加沙被殺害
+
+![加沙的巴勒斯坦民眾繼續排避戰火。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798169_1_20250331044650.jpg&q=85)
+  
+
+紅十字會與紅新月會國際聯合會發表聲明說，對於巴勒斯坦紅新月會8名醫務人員在加沙地帶執行任務時被殺害，感到強烈憤慨。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798169-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798169-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798169-20250331.htm)
+
+---
+
 # 馬克龍呼籲以色列停止襲擊加沙並重返停火
 
 ![馬克龍說，巴勒斯坦武裝組織哈馬斯也應該恢復停火，加沙地帶的人道救援應立刻重啟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798168_1_20250331043742.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm)
-
----
-
-# 縱橫遊取消4月出發泰國旅行團　涉及10團共約150人
-
-![縱橫遊宣布，將會取消所有4月份出發的泰國旅行團。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798011_1_20250329145442.jpg&q=80)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。旅行社縱橫遊宣布，將會取消所有4月份出發的泰國旅行團，當中涉及10團合共大約150人，團友可以選擇轉團或全數退款。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm)
 
 ---

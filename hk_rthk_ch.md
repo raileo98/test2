@@ -1,3 +1,27 @@
+# 巴勒斯坦紅新月會8名醫務人員在加沙被殺害
+
+![加沙的巴勒斯坦民眾繼續排避戰火。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798169_1_20250331044650.jpg&q=85)
+  
+
+紅十字會與紅新月會國際聯合會發表聲明說，對於巴勒斯坦紅新月會8名醫務人員在加沙地帶執行任務時被殺害，感到強烈憤慨。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798169-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798169-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798169-20250331.htm)
+
+---
+
 # 馬克龍呼籲以色列停止襲擊加沙並重返停火
 
 ![馬克龍說，巴勒斯坦武裝組織哈馬斯也應該恢復停火，加沙地帶的人道救援應立刻重啟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798168_1_20250331043742.jpg&q=90)
@@ -1423,30 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm)
-
----
-
-# 香港母乳庫已收集約550公升母乳　開展第二階段服務
-
-![香港母乳庫已開展第二階段服務，向有臨床需要的初生嬰兒派發捐贈母乳。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798091_1_20250330103440.jpg&q=90)
-![新生兒深切治療部的醫護團隊會因應嬰兒的臨床情況處方捐贈母乳，並持續監察嬰兒的臨床情況。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798091_2_20250330103440.jpg&q=90)
-  
-
-醫管局宣布，香港母乳庫已開展第二階段服務，向有臨床需要的極早產及患有危疾的初生嬰兒派發母乳，以提供全面充足的營養，幫助他們預防感染及併發症，建立健康保護屏障。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm)
 
 ---
