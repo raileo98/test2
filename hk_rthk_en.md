@@ -1,3 +1,27 @@
+# Foreign aid, rescuers come to Myanmar's assistance
+
+![This building in Mandalay is among those that collapsed in Friday's killer earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798150_1_20250330223525.jpg&q=80)
+  
+
+The toll from Myanmar's earthquake continued to rise on Sunday, as foreign rescue teams and aid rushed into the country where hospitals were overwhelmed and some communities scrambled to mount rescue efforts with limited resources.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm)
+
+---
+
 # Rugby Sevens a successful try, says John Lee
 
 ![The three-day Hong Kong Sevens concludes its first showcase at the brand new Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798148_1_20250330214352.jpg&q=75)
@@ -1431,29 +1455,5 @@ President Xi Jinping met with representatives of the international business comm
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797830-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797830-20250328.htm)
-
----
-
-# Rubio says too early for high-level Russia talks
-
-![Marco Rubio says US President Donald Trump's administration would hold consultations to discuss the outcome of the meetings with Russia. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797827_1_20250328115755.jpg&q=90)
-  
-
-US Secretary of State Marco Rubio warned on Thursday it was premature to expect high-level talks with Russia, while the United States weighs Moscow's response to Washington's efforts to end the Ukraine war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797827-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797827-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797827-20250328.htm)
 
 ---

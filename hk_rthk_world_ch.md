@@ -1,3 +1,27 @@
+# 敏昂萊稱緬甸地震遇難人數或上升　須盡快恢復交通以更有效救援
+
+![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798149_1_20250330223300.jpg&q=75)
+  
+
+緬甸地震增至1700人死亡，3400多人受傷，300多人失蹤。中國駐緬甸大使館確認至今有14名中國公民在地震中受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798149-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798149-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798149-20250330.htm)
+
+---
+
 # 湯加發生7.3級地震　未有人員傷亡報告　美國當局發海嘯警報
 
 ![湯加發生7.3級地震　未有人員傷亡報告　美國當局發海嘯警報](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798144_1_20250330210203.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm)
-
----
-
-# 美國聯邦航空管理局調查達美客機險些與美軍飛機相撞事件
-
-![一架達美航空客機，在從華盛頓列根國家機場起飛時，據報差點與一架美國軍機相撞。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797990_1_20250329111307.jpg&q=90)
-  
-
-美國聯邦航空管理局將調查達美航空客機與美軍飛機險些相撞事件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797990-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797990-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797990-20250329.htm)
 
 ---

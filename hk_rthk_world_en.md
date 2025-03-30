@@ -1,3 +1,27 @@
+# Foreign aid, rescuers come to Myanmar's assistance
+
+![This building in Mandalay is among those that collapsed in Friday's killer earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798150_1_20250330223525.jpg&q=80)
+  
+
+The toll from Myanmar's earthquake continued to rise on Sunday, as foreign rescue teams and aid rushed into the country where hospitals were overwhelmed and some communities scrambled to mount rescue efforts with limited resources.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm)
+
+---
+
 # Protesters target Tesla in anti-Musk campaign
 
 ![Protesters hold up signs outside a Tesla dealership in Michigan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798089_1_20250330101458.jpg&q=80)
@@ -1415,29 +1439,5 @@ Top Trump administration officials, including US Vice President JD Vance and Sec
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797229-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797229-20250325.htm)
-
----
-
-# Thai PM set to survive no-confidence vote
-
-![Paetongtarn Shinawatra attends the first day of the no-confidence motion against her. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797189_1_20250324183239.jpg&q=80)
-  
-
-Thai Prime Minister Paetongtarn Shinawatra on Monday faced a no-confidence motion in parliament as the opposition alleged she was being unduly influenced by her father, a former prime minister, and is mismanaging the country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797189-20250324.htm)
 
 ---
