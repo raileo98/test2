@@ -1,3 +1,51 @@
+# 七欖閉幕禮　啟德主場館上空發放約一分鐘煙火
+
+![在閉幕禮上，啟德主場館上空發放約一分鐘煙火。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798143_1_20250330204644.jpg&q=90)
+![四方看台上蓋共安裝28個發射點，以多角度發放25米高的十色煙火。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798143_2_20250330204644.jpg&q=90)
+  
+
+首度移師啟德主場館舉行的香港國際七人欖球賽晚上結束。在閉幕禮上，主場館上空發放約一分鐘煙火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm)
+
+---
+
+# 李家超：啟德主場館首場大賽圓滿達陣　期待未來盛事精彩不斷
+
+  
+
+首度移師啟德體育園、一連三日舉行的香港國際七人欖球賽晚上結束。到場觀賽的行政長官李家超表示，「香港七欖」已是本地旗艦盛事之一，推動香港成為國際體育盛事之都。啟德體育園主場館首場大賽已圓滿「達陣」，這個香港的新主場，一流設備已準備好，之後等待精彩體育、文化活動輪番上演，期待未來盛事精彩不斷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm)
+
+---
+
 # 運輸署：宋皇臺道輪候的士人數較多　籲乘搭港鐵離開啟德體育園
 
   
@@ -23,6 +71,7 @@
 
 # 國泰航班飛越啟德上空紀念舊機場百周年　林紹波形容非常成功
 
+![林紹波接受本台訪問時表示，安排A350-1000客機飛過，他感到非常感動，而且對曾經在啟德機場工作的員工，意義非常重大。(張連登攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798139_1_20250330204758.jpg&q=80)
   
 
 國泰航空特別航班CX8100下午4時低飛越過維港，並掠過啟德主場館鄰近上空，以紀念舊啟德機場100周年。國泰行政總裁林紹波接受本台訪問時表示，整個團隊都非常興奮，形容非常成功。他指國泰贊助七欖超過40年，今年七欖重返啟德，亦是國泰發源的地方，因此安排A350-1000客機飛過，他感到非常感動，而且對曾經在啟德機場工作的員工，意義非常重大。
@@ -46,6 +95,8 @@
 
 # 陳茂波：七欖各隊好手瞓身拼搏　觀眾全力喝采　盡情度過暢快周末
 
+![陳茂波說，現場4萬名觀眾全力喝采歡呼，盡情忘我度過一個開心暢快的周末。(陳茂波社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798138_1_20250330205059.jpg&q=75)
+![陳茂波表示，銀劍賽男子組決賽由中國隊對中國香港隊，兩隊好手全力競技，為觀眾上演了一場精彩賽事。(陳茂波社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798138_2_20250330205059.jpg&q=85)
   
 
 香港國際七人欖球賽在啟德體育園閉幕，財政司司長陳茂波表示，他下午主持銀劍賽男子組決賽的頒獎禮。賽事由中國隊對中國香港隊，兩隊好手全力競技，為觀眾上演了一場精彩賽事，最後中國香港隊成功奪標。
@@ -1397,54 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm)
-
----
-
-# 特區救援隊51人前赴緬甸災區　抵達現場後將立即加入救援
-
-![特區政府救援隊一行51人在機場集合，前往緬甸災區協助搜救。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_3_20250329151729.jpg&q=70)
-![搜救隊由保安局、消防處、入境處和醫管局組成。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_4_20250329151946.jpg&q=85)
-  
-
-特區政府救援隊一行51人今日前往緬甸災區，協助搜救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm)
-
----
-
-# 青衣住宅單位疑作毒品儲存庫　25歲男子涉販運危險藥物被捕
-
-![警方檢獲市值約139萬元懷疑毒品，拘捕一名25歲男子涉嫌「販運危險藥物」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798014_1_20250329151353.jpg&q=40)
-  
-
-警方在青衣路一個住宅單位搗破懷疑毒品儲存倉庫，檢獲市值約139萬元懷疑毒品，拘捕一名25歲男子涉嫌「販運危險藥物」，正被扣查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm)
 
 ---
