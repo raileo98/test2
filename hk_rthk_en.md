@@ -1,3 +1,32 @@
+# Who's who at the Rugby Sevens, and it's quite a cast!
+
+![Enthusiastic rugby fans enjoy the last day of the annual Hong Kong Sevens at the Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_1_20250330161122.jpg&q=85)
+![Brian Hopkins (right) is celebrating his 40th birthday. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_2_20250330161122.jpg&q=90)
+![Brett Muntz, who's supporting Fiji, says the Sevens is "all about the people". Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_3_20250330161122.jpg&q=90)
+![Epeli Buliciri shows off his pin collection. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_4_20250330161122.jpg&q=90)
+![These Smurfs are confident that they have the best costume. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_5_20250330161122.jpg&q=90)
+![This group decides to draw inspiration from Freddy the weatherman. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_6_20250330161122.jpg&q=70)
+  
+
+Rugby lovers from Hong Kong and beyond filled up the Kai Tak Stadium on Sunday to enjoy a final day of sport and partying at the Hong Kong Sevens.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm)
+
+---
+
 # 'Hutchison deal won't stop family offices coming here'
 
 ![Christopher Hui says the SAR is an attractive destination for capital and family offices. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798116_1_20250330155453.jpg&q=90)
@@ -1431,30 +1460,5 @@ US President Donald Trump withdrew right-wing firebrand Elise Stefanik as his no
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797812-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797812-20250328.htm)
-
----
-
-# Djokovic, teenager Mensik make Miami Open semi-finals
-
-![Novak Djokovic became the oldest player to make an ATP Masters 1000 semi-final. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797810_1_20250328102853.jpg&q=90)
-![Czech teenager Jakub Mensik also made it to the last four at the Miami Open. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797810_2_20250328102853.jpg&q=90)
-  
-
-Novak Djokovic turned on the style to take his place in the last four of the Miami Open with an impressive 6-3, 7-6 win over American Sebastian Korda, becoming the oldest man to reach a Masters 1000 semi-final.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm)
 
 ---

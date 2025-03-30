@@ -1,3 +1,27 @@
+# 緬甸地震增至1700人死亡　曼德勒下午發生5.1級餘震
+
+![緬甸地震增至1700人死亡。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798123_1_20250330164920.jpg&q=60)
+  
+
+緬甸地震增至1700人死亡，3400多人受傷，300多人失蹤。中國駐緬甸大使館至今確認10多名中國公民受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798123-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798123-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798123-20250330.htm)
+
+---
+
 # 南韓當局稱慶尚道山火明火已撲滅　事故疑犯被立案調查
 
 ![南韓當局表示，這次山火造成的傷亡和財產損失規模前所未有。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798117_1_20250330160656.jpg&q=45)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797964-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797964-20250329.htm)
-
----
-
-# 萬斯指對格陵蘭島人民來說丹麥辦事不力　美國需介入
-
-![萬斯表示美國毋須動用軍事力量擴大在格陵蘭島的存在，因為當地人會選擇與美國同一陣營。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797962_1_20250329041630.jpg&q=90)
-  
-
-美國副總統萬斯到丹麥自治領地格陵蘭島，探訪美軍基地駐軍。他發表演說時表示，美國毋須動用軍事力量擴大在格陵蘭島的存在，因為當地人會選擇與美國同一陣營，而不是丹麥。他指對格陵蘭島人民來說，丹麥辦事不力，美國需要介入，又指俄羅斯與中國正擴大在區內的足印，形容世界對此不能視而不見，將頭埋在白雪中。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797962-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797962-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797962-20250329.htm)
 
 ---

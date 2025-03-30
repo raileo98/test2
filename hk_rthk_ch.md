@@ -1,3 +1,27 @@
+# 緬甸地震增至1700人死亡　曼德勒下午發生5.1級餘震
+
+![緬甸地震增至1700人死亡。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798123_1_20250330164920.jpg&q=60)
+  
+
+緬甸地震增至1700人死亡，3400多人受傷，300多人失蹤。中國駐緬甸大使館至今確認10多名中國公民受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798123-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798123-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798123-20250330.htm)
+
+---
+
 # 七欖銀劍賽　中國香港男女子隊稱王封后
 
   
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm)
-
----
-
-# 蕭澤頤：有待中央政府決定他去留問題
-
-![蕭澤頤出席警察學院結業會操，擔任檢閱官。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798048_1_20250329222349.jpg&q=80)
-  
-
-下月任期屆滿的警務處處長蕭澤頤，出席警察學院結業會操，他形容自己心情百感交集，此生無憾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm)
 
 ---
