@@ -24,6 +24,7 @@
 
 # 西甲巴塞4:1勝基羅納　意甲國米2:1擊敗烏甸尼斯
 
+![利雲度夫斯基為巴塞羅那攻入兩球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798176_1_20250331073441.jpg&q=85)
   
 
 巴塞羅那在西甲主場以4:1擊敗基羅納。
