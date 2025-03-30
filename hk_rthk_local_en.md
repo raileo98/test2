@@ -24,7 +24,7 @@ An SAR government rescue team is set to begin inspection work on the ground in e
 
 # 'Bigger house, bigger party' in new Kai Tak experience
 
-![James Farndon says this year's Rugby Sevens has been an amazing experience for all those involved. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798130_2_20250330181531.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798130_2_20250330181531.jpg&q=90)
   
 
 The head of the Hong Kong, China Rugby Association, James Farndon, on Sunday hailed the first-ever Sevens at the Kai Tak Stadium, calling the event a massive success for the SAR.
@@ -72,7 +72,7 @@ Culture, sports and tourism minister Rosanna Law said operators of Kai Tak Sport
 
 # Cathay plane flyover marks old airport's centennial
 
-![A Cathay Pacific aircraft passes over the Kai Tak Stadium, where the Hong Kong Sevens is being held. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798127_1_20250330171537.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798127_1_20250330171537.jpg&q=90)
   
 
 A Cathay Pacific aircraft on Sunday flew near Kai Tak during the Hong Kong Sevens, an area where the city's former international airport began operations 100 years ago.

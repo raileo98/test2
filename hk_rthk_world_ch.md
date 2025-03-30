@@ -73,7 +73,6 @@
 
 # 緬甸地震增至1700人死亡　曼德勒下午發生5.1級餘震
 
-![緬甸地震增至1700人死亡。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798123_1_20250330164920.jpg&q=60)
 ![緬甸地震增至1700人死亡，3400多人受傷，300多人失蹤。中國駐緬甸大使館至今確認10多名中國公民受傷。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798123_2_20250330180352.jpg&q=90)
   
 

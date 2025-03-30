@@ -1,3 +1,26 @@
+# 陳茂波：七欖各隊好手瞓身拼搏　觀眾全力喝采　盡情度過暢快周末
+
+  
+
+香港國際七人欖球賽在啟德體育園閉幕，財政司司長陳茂波表示，他下午主持銀劍賽男子組決賽的頒獎禮。賽事由中國隊對中國香港隊，兩隊好手全力競技，為觀眾上演了一場精彩賽事，最後中國香港隊成功奪標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798138-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798138-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798138-20250330.htm)
+
+---
+
 # 港澳辦轉載文章籲長和懸崖勒馬　各界支持市監總局依法審查交易
 
 ![港澳辦轉載的文章引述政商界人士指，當前國際形勢下，相關交易的影響已遠超商業範疇。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798136_1_20250330191246.jpg&q=75)
@@ -1425,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm)
-
----
-
-# 特區政府救援隊前赴緬甸　李家超及多名官員將到機場送行
-
-![李家超下午將到機場送行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798008_1_20250329135721.jpg&q=90)
-  
-
-特區政府派出保安局、消防處、入境處和醫管局人員組成的救援隊前往緬甸，協助地震災區的搜救工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm)
 
 ---
