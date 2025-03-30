@@ -1,3 +1,26 @@
+# 中國國際救援隊抵達緬甸內比都軍用機場
+
+  
+
+再有中國救援力量抵達緬甸，準備展開地震救援行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798160-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798160-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798160-20250331.htm)
+
+---
+
 # 伊朗回信拒絕與美國直接談判　總統：間接談判始終開放
 
 ![佩澤希齊揚說，間接談判始終開放，美方行動將決定談判前景。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798159_1_20250331013331.jpg&q=90)
@@ -1424,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798080-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798080-20250330.htm)
-
----
-
-# 諾定咸森林憑互射12碼淘汰白禮頓　34年來首次晉級英足盃4強
-
-![諾定咸森林自1991年以來首次殺入足總盃4強。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798079_1_20250330072655.jpg&q=85)
-  
-
-英格蘭足總盃，諾定咸森林作客同白禮頓踢到加時，結果森林在憑互射12碼勝出，34年來首次晉級4強。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798079-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798079-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798079-20250330.htm)
 
 ---
