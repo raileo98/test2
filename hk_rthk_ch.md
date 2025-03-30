@@ -1,3 +1,27 @@
+# 馬克龍呼籲以色列停止襲擊加沙並重返停火
+
+![馬克龍說，巴勒斯坦武裝組織哈馬斯也應該恢復停火，加沙地帶的人道救援應立刻重啟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798168_1_20250331043742.jpg&q=90)
+  
+
+法國總統馬克龍在社交媒體發文說，他周日與以色列總理內塔尼亞胡通話，呼籲以色列停止對加沙地帶的襲擊並重返停火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798168-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798168-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798168-20250331.htm)
+
+---
+
 # 特朗普：尋求第三度擔任總統並非開玩笑
 
 ![特朗普接受訪問時談到尋求第三個任期問題。他說，不是開玩笑，但現在考慮這個問題為時尚早。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798167_1_20250331034814.jpg&q=90)
@@ -1424,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm)
-
----
-
-# 蕭澤頤：前線警員對社會由治及興有很大貢獻
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798088_1_20250330101954.jpg&q=90)
-  
-
-警務處處長蕭澤頤任期即將於下月初屆滿，他說反修例事件期間，警隊面對前所未有挑戰，對此有很深感受，警務人員即使面對非常大的壓力，也遇強越強，齊心應對，認為前線警員對社會由亂到治、由治及興有很大貢獻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798088-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798088-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798088-20250330.htm)
 
 ---
