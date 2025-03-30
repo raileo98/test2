@@ -1,3 +1,50 @@
+# 丹麥有民眾遊行抗議美國計劃奪取格陵蘭島控制權
+
+![哥本哈根有民眾出席集會，表達對格陵蘭島及當地人民的支持。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798140_1_20250330201545.jpg&q=90)
+  
+
+丹麥首都哥本哈根有民眾遊行，抗議美國政府計劃奪取丹麥自治領地格陵蘭島的控制權，以及美國副總統萬斯日前訪問格陵蘭島。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm)
+
+---
+
+# 國泰航班飛越啟德上空紀念舊機場百周年　林紹波形容非常成功
+
+  
+
+國泰航空特別航班CX8100下午4時低飛越過維港，並掠過啟德主場館鄰近上空，以紀念舊啟德機場100周年。國泰行政總裁林紹波接受本台訪問時表示，整個團隊都非常興奮，形容非常成功。他指國泰贊助七欖超過40年，今年七欖重返啟德，亦是國泰發源的地方，因此安排A350-1000客機飛過，他感到非常感動，而且對曾經在啟德機場工作的員工，意義非常重大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm)
+
+---
+
 # 陳茂波：七欖各隊好手瞓身拼搏　觀眾全力喝采　盡情度過暢快周末
 
   
@@ -1393,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798062-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798062-20250329.htm)
-
----
-
-# 一名男子涉嫌在啟德放飛無人機被捕
-
-![一名30歲本地男子涉嫌在啟德放飛無人機，被警方拘捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798061_1_20250329232741.jpg&q=90)
-  
-
-一名30歲本地男子涉嫌在啟德放飛無人機，因「未經許可在限制飛行區以內飛行」被捕，現正被扣留調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798061-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798061-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798061-20250329.htm)
-
----
-
-# 因應緬甸地震　特區政府從賑災基金預留3千萬元作為緊急賑災之用
-
-![緬甸大地震，震央附近的曼德勒，損毀嚴重。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798060_1_20250329232750.jpg&q=90)
-  
-
-特區政府表示，因應緬甸地震，已從賑災基金預留3千萬元，作為緊急賑災項目之用，並正與本地救援機構緊密溝通，落實具體賑災計劃，務求為災民提供適切援助，協助他們渡過難關，早日回復正常生活。賑災基金諮詢委員會亦會從速處理有關撥款申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798060-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798060-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798060-20250329.htm)
 
 ---

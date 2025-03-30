@@ -3,7 +3,7 @@
 ![International rescue organisations have called for support for the victims of Friday's tremor. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798131_1_20250330182417.jpg&q=60)
   
 
-An SAR government rescue team is set to begin inspection work on the ground in earthquake-stricken Myanmar as they arrive in the country's capital Naypyidaw.
+An SAR government rescue team is set to begin inspection work on the ground in earthquake-stricken Myanmar as they arrived in the country's capital Naypyidaw.
 
   
 

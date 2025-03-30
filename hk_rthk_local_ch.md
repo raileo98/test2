@@ -1,3 +1,49 @@
+# 運輸署：宋皇臺道輪候的士人數較多　籲乘搭港鐵離開啟德體育園
+
+  
+
+首度移師啟德體育園舉行的香港國際七人欖球賽，一連三日賽事晚上結束，運輸署表示，現時宋皇臺道的士上落客區現時輪候人數較多，輪候時間會較長，呼籲觀眾請選擇乘搭港鐵離開啟德體育園。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798141-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798141-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798141-20250330.htm)
+
+---
+
+# 國泰航班飛越啟德上空紀念舊機場百周年　林紹波形容非常成功
+
+  
+
+國泰航空特別航班CX8100下午4時低飛越過維港，並掠過啟德主場館鄰近上空，以紀念舊啟德機場100周年。國泰行政總裁林紹波接受本台訪問時表示，整個團隊都非常興奮，形容非常成功。他指國泰贊助七欖超過40年，今年七欖重返啟德，亦是國泰發源的地方，因此安排A350-1000客機飛過，他感到非常感動，而且對曾經在啟德機場工作的員工，意義非常重大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm)
+
+---
+
 # 陳茂波：七欖各隊好手瞓身拼搏　觀眾全力喝采　盡情度過暢快周末
 
   
@@ -1400,53 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm)
-
----
-
-# 馬莎百貨一款打發忌廉總含菌量超標　食安中心籲勿食用
-
-![食安中心呼籲市民不要食用受影響批次的產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798013_1_20250329151311.jpg&q=90)
-  
-
-一款從英國進口以巴士德消毒法處理的馬莎百貨預先包裝打發忌廉樣本，被檢出總含菌量超出法例標準，食安中心呼籲市民不要食用受影響批次的產品。業界如持有相關批次的產品，應立即停止使用或出售。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm)
-
----
-
-# 縱橫遊取消4月出發泰國旅行團　涉及10團共約150人
-
-![縱橫遊宣布，將會取消所有4月份出發的泰國旅行團。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798011_1_20250329145442.jpg&q=80)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。旅行社縱橫遊宣布，將會取消所有4月份出發的泰國旅行團，當中涉及10團合共大約150人，團友可以選擇轉團或全數退款。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm)
 
 ---

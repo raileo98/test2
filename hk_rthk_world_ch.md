@@ -1,3 +1,27 @@
+# 丹麥有民眾遊行抗議美國計劃奪取格陵蘭島控制權
+
+![哥本哈根有民眾出席集會，表達對格陵蘭島及當地人民的支持。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798140_1_20250330201545.jpg&q=90)
+  
+
+丹麥首都哥本哈根有民眾遊行，抗議美國政府計劃奪取丹麥自治領地格陵蘭島的控制權，以及美國副總統萬斯日前訪問格陵蘭島。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm)
+
+---
+
 # 中方救援隊在緬甸曼德勒救出一名倖存者
 
 ![救援隊透過生命探測器在曼德勒佛學禮堂發現一名被困者仍有生命體徵。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798134_1_20250330184542.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797985-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797985-20250329.htm)
-
----
-
-# 《環看天下》：南韓歷來最嚴重山火　救援隊伍高齡化惹關注
-
-![南韓山林大火規模打破當地紀錄，數以萬計居民緊急疏散。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797983_1_20250329093955.jpg&q=80)
-  
-
-南韓東南部的山林大火，持續至今一個星期。截至昨日，山火累計範圍據報增至4萬8千公頃，相當於香港面積四成，規模打破了當地紀錄；傷亡人數增至28人，亦是歷來最嚴重。數以萬計居民緊急疏散。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797983-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797983-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797983-20250329.htm)
 
 ---
