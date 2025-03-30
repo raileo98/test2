@@ -1,3 +1,27 @@
+# 中石油去年盈利創新高　按年升2%
+
+![中石油去年盈利1646.84億元人民幣，創新高，按年上升2%。末期息每股0.25元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798170_1_20250331050934.jpg&q=90)
+  
+
+中石油去年盈利1646.84億元人民幣，創新高，按年上升2%。末期息每股0.25元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798170-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798170-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798170-20250331.htm)
+
+---
+
 # 港澳辦轉載文章籲長和懸崖勒馬　各界支持市監總局依法審查交易
 
 ![港澳辦轉載的文章引述政商界人士指，當前國際形勢下，相關交易的影響已遠超商業範疇。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798136_1_20250330191246.jpg&q=75)
@@ -1419,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797836-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797836-20250328.htm)
-
----
-
-# 習近平談外商投資遭政治干擾　稱吹滅別人的燈不會讓自己更光明
-
-![國家主席習近平在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797834_1_20250328122935.jpg&q=90)
-  
-
-國家主席習近平在北京人民大會堂會見國際工商界代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm)
 
 ---

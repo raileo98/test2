@@ -1,3 +1,51 @@
+# 中石油去年盈利創新高　按年升2%
+
+![中石油去年盈利1646.84億元人民幣，創新高，按年上升2%。末期息每股0.25元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798170_1_20250331050934.jpg&q=90)
+  
+
+中石油去年盈利1646.84億元人民幣，創新高，按年上升2%。末期息每股0.25元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798170-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798170-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798170-20250331.htm)
+
+---
+
+# 特朗普稱對普京非常生氣　威脅對俄石油徵收「二級關稅」
+
+![特朗普說，他對於普京最近批評烏克蘭總統澤連斯基的可信度等言論「非常生氣」和「惱火」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798171_1_20250331051441.jpg&q=90)
+  
+
+美國總統特朗普表示，他對俄羅斯總統普京「非常生氣」，如果因俄羅斯的原因導致俄烏不能達成停火協議，美國可能對俄羅斯石油買家徵收「二級關稅」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm)
+
+---
+
 # 巴勒斯坦紅新月會8名醫務人員在加沙被殺害
 
 ![加沙的巴勒斯坦民眾繼續排避戰火。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798169_1_20250331044650.jpg&q=85)
@@ -1397,55 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm)
-
----
-
-# 陳茂波稱本港續推盛事經濟　吸引更多高增值客帶動商機
-
-![陳茂波在巴塞爾藝術展上與來自歐洲的藝廊負責人交流。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798094_1_20250330113405.jpg&q=90)
-![陳茂波上周四在彭博家族辦公室峰會上出席對談環節。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798094_2_20250330113405.jpg&q=90)
-![陳茂波上周三在「裕澤香江」高峰論壇上致辭。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798094_3_20250330113405.jpg&q=90)
-  
-
-財政司司長陳茂波表示，連串大型盛事推動下，香港在「超級三月」吸引了大量訪客，截至上周五，本港在3月已接待超過340萬名旅客，按年增加約12%，包括約96萬名非內地旅客。酒店業界亦表示，旺區酒店最近入住率近九成，零售業界反映市面人流明顯增多，對生意有一定幫助。他說當局會繼續推動「盛事經濟」，特別是舉辦主題鮮明、具吸引力的大型活動、峰會和展會，吸引更多高增值商務旅客來港，為向行業帶來更多生意機會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm)
-
----
-
-# 中日韓經貿部長會議在首爾舉行
-
-![中國商務部長王文濤（右）、日本經濟產業大臣武藤容治（左），和南韓產業部長安德根出席會議。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798093_1_20250330103434.jpg&q=90)
-  
-
-中日韓經貿部長會議在南韓首爾舉行，中國商務部長王文濤、日本經濟產業大臣武藤容治，和南韓產業部長安德根出席，是三國經貿部長會議時隔5年再次舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm)
 
 ---

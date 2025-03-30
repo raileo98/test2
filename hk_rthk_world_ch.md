@@ -1,3 +1,27 @@
+# 特朗普稱對普京非常生氣　威脅對俄石油徵收「二級關稅」
+
+![特朗普說，他對於普京最近批評烏克蘭總統澤連斯基的可信度等言論「非常生氣」和「惱火」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798171_1_20250331051441.jpg&q=90)
+  
+
+美國總統特朗普表示，他對俄羅斯總統普京「非常生氣」，如果因俄羅斯的原因導致俄烏不能達成停火協議，美國可能對俄羅斯石油買家徵收「二級關稅」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm)
+
+---
+
 # 巴勒斯坦紅新月會8名醫務人員在加沙被殺害
 
 ![加沙的巴勒斯坦民眾繼續排避戰火。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798169_1_20250331044650.jpg&q=85)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm)
-
----
-
-# 美國地質勘探局推算緬甸地震死亡人數或超過1萬
-
-![外國救援物資開始運到緬甸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798012_1_20250329142835.jpg&q=90)
-  
-
-緬甸中部7級以上強烈地震，增至超過1千人死亡，2千多人受傷。接近震央的曼德勒近7百人死亡，首都內比都近百人喪生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm)
 
 ---
