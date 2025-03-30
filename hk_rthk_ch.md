@@ -1,3 +1,27 @@
+# 湯加發生7.3級地震　未有人員傷亡報告　美國當局發海嘯警報
+
+![湯加發生7.3級地震　未有人員傷亡報告　美國當局發海嘯警報](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798144_1_20250330210203.jpg&q=90)
+  
+
+太平洋島國湯加群島發生地震，中國地震台網測定，強度達到7.3級，目前未有人員傷亡和財產損失報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798144-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798144-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798144-20250330.htm)
+
+---
+
 # 七欖閉幕禮　啟德主場館上空發放約一分鐘煙火
 
 ![在閉幕禮上，啟德主場館上空發放約一分鐘煙火。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798143_1_20250330204644.jpg&q=90)

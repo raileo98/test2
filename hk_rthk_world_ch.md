@@ -1,3 +1,27 @@
+# 湯加發生7.3級地震　未有人員傷亡報告　美國當局發海嘯警報
+
+![湯加發生7.3級地震　未有人員傷亡報告　美國當局發海嘯警報](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798144_1_20250330210203.jpg&q=90)
+  
+
+太平洋島國湯加群島發生地震，中國地震台網測定，強度達到7.3級，目前未有人員傷亡和財產損失報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798144-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798144-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798144-20250330.htm)
+
+---
+
 # 丹麥有民眾遊行抗議美國計劃奪取格陵蘭島控制權
 
 ![哥本哈根有民眾出席集會，表達對格陵蘭島及當地人民的支持。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798140_1_20250330201545.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797990-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797990-20250329.htm)
-
----
-
-# 南部戰區南海海域例行巡航　發言人斥菲方拉攏域外國家破壞和平
-
-![南部戰區南海海域例行巡航　發言人斥菲方拉攏域外國家破壞和平](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797985_1_20250329101044.jpg&q=90)
-  
-
-解放軍南部戰區新聞發言人田軍里表示，南部戰區昨日在南海海域進行例行巡航。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797985-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797985-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797985-20250329.htm)
 
 ---
