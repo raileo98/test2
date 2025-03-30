@@ -1,3 +1,28 @@
+# 英足盃八強曼城反勝般尼茅夫　維拉三蛋贈普雷斯頓
+
+![曼城反勝對手晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798162_1_20250331021820.jpg&q=90)
+![維拉的拉舒福特與隊友慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798162_2_20250331021820.jpg&q=80)
+  
+
+英格蘭足總盃八強，曼城上半場落後下，2:1反勝般尼茅夫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798162-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798162-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798162-20250331.htm)
+
+---
+
 # 港隊男女子隊銀劍賽稱王封后　球迷大讚港隊表現
 
 ![有香港球迷在男子組勝利一刻，用手機紀錄珍貴一幕，大叫「香港隊勁」。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798132_1_20250330190550.jpg&q=70)
@@ -1436,29 +1461,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796344-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796344-20250319.htm)
-
----
-
-# 32歲之年齡首度入選　英格蘭中堅丹般稱可擔任領袖角色
-
-![英格蘭中堅丹般說，會好好把握這次入選機會，協助球隊。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796343_2_20250319080911.jpg&q=90)
-  
-
-英格蘭正備戰世界盃歐洲區兩場外圍賽，中堅丹般以32歲之年齡首度入選。他說，可以在球場內及球場外擔任領袖角色。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796343-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796343-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796343-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 中國救援隊在緬甸曼德勒救出一名被困60小時女子
+
+![中國救援隊在緬甸曼德勒市的長城飯店救援。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798163_1_20250331023225.jpg&q=90)
+  
+
+中國救援隊在緬甸曼德勒市的長城飯店，經過5個多小時救援，在當地時間周一淩晨，救出一名被困人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm)
+
+---
+
 # 中國國際救援隊抵達緬甸內比都軍用機場
 
   
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797840-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797840-20250328.htm)
-
----
-
-# 習近平談外商投資遭政治干擾　稱吹滅別人的燈不會讓自己更光明
-
-![國家主席習近平在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797834_1_20250328122935.jpg&q=90)
-  
-
-國家主席習近平在北京人民大會堂會見國際工商界代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm)
 
 ---

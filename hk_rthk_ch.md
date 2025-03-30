@@ -1,3 +1,28 @@
+# 英足盃八強曼城反勝般尼茅夫　維拉三蛋贈普雷斯頓
+
+![曼城反勝對手晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798162_1_20250331021820.jpg&q=90)
+![維拉的拉舒福特與隊友慶祝入球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798162_2_20250331021820.jpg&q=80)
+  
+
+英格蘭足總盃八強，曼城上半場落後下，2:1反勝般尼茅夫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798162-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798162-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798162-20250331.htm)
+
+---
+
 # 國際社會繼續援助緬甸
 
 ![救援人員在緬甸曼德勒展開救援。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798161_1_20250331015452.jpg&q=40)
@@ -1423,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm)
-
----
-
-# 漁護署在郊野公園安裝智能山火監察器實時監察山火
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798082_1_20250330081602.jpg&q=85)
-  
-
-漁護署正分階段展開智能山火監察器及控制系統安裝工程，進一步提升監察郊野公園內發生山火的效率，並於本月完成首階段安裝工作。安裝山火監察器的地點，包括於大欖郊野公園的田夫仔及八鄉山火瞭望台、西貢西郊野公園海下山火瞭望台和馬鞍山郊野公園黃竹洋山火瞭望台；山火控制中心亦會安裝監察器和控制系統，整個項目將在明年4月完成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798082-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798082-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798082-20250330.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 中國救援隊在緬甸曼德勒救出一名被困60小時女子
+
+![中國救援隊在緬甸曼德勒市的長城飯店救援。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798163_1_20250331023225.jpg&q=90)
+  
+
+中國救援隊在緬甸曼德勒市的長城飯店，經過5個多小時救援，在當地時間周一淩晨，救出一名被困人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm)
+
+---
+
 # 國際社會繼續援助緬甸
 
 ![救援人員在緬甸曼德勒展開救援。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798161_1_20250331015452.jpg&q=40)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798006-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798006-20250329.htm)
-
----
-
-# 緬甸領導人視察重災區　曼谷倒塌大樓發現至少15人生命跡象
-
-![敏昂萊昨日在內比都一間醫院探望傷者。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798003_1_20250329124954.jpg&q=90)
-  
-
-緬甸中部7級以上強烈地震，在重災區曼德勒省造成至少694人死亡，1670人受傷，暫時未有中國公民死亡報告，緬甸領導人敏昂萊上午乘坐直升機，抵達曼德勒省視察災情。中國派出多支救援隊伍趕赴災區協助搜救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm)
 
 ---
