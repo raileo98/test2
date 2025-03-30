@@ -3,7 +3,7 @@
 ![Paul Chan says he hopes more people will do business in Hong Kong apart from enjoying art. Image courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798103_1_20250330133135.jpg&q=90)
   
 
-Financial Secretary Paul Chan said "Super March" has attracted more than 3.4 million tourists to Hong Kong, a 12 percent increase from a year ago.
+Financial Secretary Paul Chan said "Super March" has attracted more than 3.4 million visitors to Hong Kong, a 12 percent increase from a year ago.
 
   
 

@@ -1,8 +1,29 @@
-# 文憑試學生壓力增料與競爭加劇有關　學友社籲勿將問題災難化
+# 羅淑佩稱已要求啟德體育園加強食品供應　排隊情況有改善
 
   
+  
 
-中學文憑試主科即將開考，學友社調查發現，本屆考生自評壓力指數平均達6.9分，較去年微升0.13分，其中對出路的壓力最高。
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798106-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798106-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798106-20250330.htm)
+
+---
+
+# 文憑試考生壓力增料與競爭加劇有關　學友社籲勿將問題災難化
+
+![本屆考生自評壓力指數平均達6.9分，較去年微升0.13分，其中對出路的壓力最高。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798104_1_20250330142200.jpg&q=85)
+  
+
+中學文憑試主科即將開考，學友社調查發現，本屆考生自評壓力指數，以10分為極大壓力，平均達6.9分，較去年微升0.13分，其中對出路的壓力最高。
 
   
 
@@ -23,6 +44,7 @@
 
 # 許正宇認為長和擬售巴拿馬港口事件不影響家辦投資意欲
 
+![許正宇認為長和擬售巴拿馬港口事件不影響家辦投資意欲](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798102_1_20250330142009.jpg&q=90)
   
 
 財經事務及庫務局局長許正宇表示，全球政經環境複雜，反而對香港的家族辦公室業務更為有利，因為香港的投資環境穩定，亦有預見性，可讓投資者或家族辦公室的財富增值或保值。
@@ -46,6 +68,7 @@
 
 # 許正宇：政府正就家族辦公室稅務寬免草擬修訂
 
+![許正宇：政府正就家族辦公室稅務寬免草擬修訂](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798100_1_20250330142026.jpg&q=90)
   
 
 財經事務及庫務局局長許正宇表示，全球政經環境複雜，反而對香港的家族辦公室業務更為有利，因為香港的投資環境穩定，亦有預見性，可讓投資者或家族辦公室的財富增值或保值。
@@ -1421,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797981-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797981-20250329.htm)
-
----
-
-# 曾國衞：將藉下月全民國家安全教育日大力推廣國安知識
-
-![曾國衞表示，局方將協調統籌各相關部門，藉此機會大力推廣國家安全知識。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797980_1_20250329091303.jpg&q=85)
-  
-
-下月15日是「全民國家安全教育日」，政制及內地事務局局長曾國衞表示，局方將協調統籌各相關部門，藉此機會大力推廣國家安全知識，從學校、社區、公務員、商界及國際等層面做好宣傳工作，形容力求無死角，全方位達至「無處不愛國」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797980-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797980-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797980-20250329.htm)
 
 ---

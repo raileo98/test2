@@ -1,8 +1,32 @@
-# 文憑試學生壓力增料與競爭加劇有關　學友社籲勿將問題災難化
+# 緬甸反對軍政府武裝提出停火兩星期以便救災工作
 
   
 
-中學文憑試主科即將開考，學友社調查發現，本屆考生自評壓力指數平均達6.9分，較去年微升0.13分，其中對出路的壓力最高。
+緬甸地震增至1600多人死亡，3400多人受傷，百多人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm)
+
+---
+
+# 文憑試考生壓力增料與競爭加劇有關　學友社籲勿將問題災難化
+
+![本屆考生自評壓力指數平均達6.9分，較去年微升0.13分，其中對出路的壓力最高。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798104_1_20250330142200.jpg&q=85)
+  
+
+中學文憑試主科即將開考，學友社調查發現，本屆考生自評壓力指數，以10分為極大壓力，平均達6.9分，較去年微升0.13分，其中對出路的壓力最高。
 
   
 
@@ -23,6 +47,7 @@
 
 # 許正宇認為長和擬售巴拿馬港口事件不影響家辦投資意欲
 
+![許正宇認為長和擬售巴拿馬港口事件不影響家辦投資意欲](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798102_1_20250330142009.jpg&q=90)
   
 
 財經事務及庫務局局長許正宇表示，全球政經環境複雜，反而對香港的家族辦公室業務更為有利，因為香港的投資環境穩定，亦有預見性，可讓投資者或家族辦公室的財富增值或保值。
@@ -46,6 +71,7 @@
 
 # 許正宇：政府正就家族辦公室稅務寬免草擬修訂
 
+![許正宇：政府正就家族辦公室稅務寬免草擬修訂](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798100_1_20250330142026.jpg&q=90)
   
 
 財經事務及庫務局局長許正宇表示，全球政經環境複雜，反而對香港的家族辦公室業務更為有利，因為香港的投資環境穩定，亦有預見性，可讓投資者或家族辦公室的財富增值或保值。
@@ -1414,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm)
-
----
-
-# 何永賢：簡約公屋讓公屋輪候者更好籌劃及思考未來住屋階梯
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798027_1_20250329180249.jpg&q=90)
-  
-
-元朗攸壆路首個「簡約公屋」昨日起入伙，房屋局局長何永賢指，「簡約公屋」可以讓市民輪候公屋期間有「落腳點」，更能籌劃及思考未來的住屋階梯，例如入住月租1600元「簡約公屋」的家庭，儲蓄數年可能足夠購買居屋首期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm)
 
 ---

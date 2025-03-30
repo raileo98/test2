@@ -1,3 +1,26 @@
+# 緬甸反對軍政府武裝提出停火兩星期以便救災工作
+
+  
+
+緬甸地震增至1600多人死亡，3400多人受傷，百多人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm)
+
+---
+
 # 緬甸地震逾1600人死亡　十多名中國公民受傷
 
 ![緬甸地震增至1600多人死亡，3400多人受傷，百多人失蹤。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798098_2_20250330122453.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797954-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797954-20250329.htm)
-
----
-
-# 特朗普與卡尼通話　稱成果極為豐碩並達成很多共識
-
-![特朗普說這次通話的成果極為豐碩。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797953_1_20250329023126.jpg&q=90)
-  
-
-美國總統特朗普與加拿大總理卡尼通話。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797953-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797953-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797953-20250329.htm)
 
 ---
