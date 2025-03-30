@@ -1,3 +1,27 @@
+# 漁護署在郊野公園安裝智能山火監察器實時監察山火
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798082_1_20250330081602.jpg&q=85)
+  
+
+漁護署正分階段展開智能山火監察器及控制系統安裝工程，進一步提升監察郊野公園內發生山火的效率，並於本月完成首階段安裝工作。安裝山火監察器的地點，包括於大欖郊野公園的田夫仔及八鄉山火瞭望台、西貢西郊野公園海下山火瞭望台和馬鞍山郊野公園黃竹洋山火瞭望台；山火控制中心亦會安裝監察器和控制系統，整個項目將在明年4月完成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798082-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798082-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798082-20250330.htm)
+
+---
+
 # 美媒披露防長赫格塞思曾兩次攜妻出席機密會議
 
 ![美國傳媒報道，赫格塞思曾經兩次攜同妻子參加與外國軍事官員的機密會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798080_1_20250330072810.jpg&q=90)
@@ -1418,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm)
-
----
-
-# 美國地質勘探局推算緬甸地震死亡人數或超過1萬
-
-![外國救援物資開始運到緬甸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798012_1_20250329142835.jpg&q=90)
-  
-
-緬甸中部7級以上強烈地震，增至超過1千人死亡，2千多人受傷。接近震央的曼德勒近7百人死亡，首都內比都近百人喪生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798012-20250329.htm)
 
 ---

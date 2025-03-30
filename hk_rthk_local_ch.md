@@ -1,3 +1,27 @@
+# 漁護署在郊野公園安裝智能山火監察器實時監察山火
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798082_1_20250330081602.jpg&q=85)
+  
+
+漁護署正分階段展開智能山火監察器及控制系統安裝工程，進一步提升監察郊野公園內發生山火的效率，並於本月完成首階段安裝工作。安裝山火監察器的地點，包括於大欖郊野公園的田夫仔及八鄉山火瞭望台、西貢西郊野公園海下山火瞭望台和馬鞍山郊野公園黃竹洋山火瞭望台；山火控制中心亦會安裝監察器和控制系統，整個項目將在明年4月完成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798082-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798082-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798082-20250330.htm)
+
+---
+
 # 香港特區救援隊抵達緬甸　賑災基金預留3千萬元賑災
 
 ![特區政府派出的救援隊昨晚抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798076_1_20250330061016.jpg&q=90)
@@ -1423,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm)
-
----
-
-# 54歲女子李忠離開觀塘雲漢街住所後失蹤　警方呼籲提供消息
-
-![失蹤女子身高約1.63米，體重約55公斤，瘦身材，尖面型，黃皮膚及蓄短黑髮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797936_1_20250328215419.jpg&q=90)
-  
-
-54歲女子李忠，本星期三下午離開位於觀塘雲漢街的住所後失蹤，家人昨日向警方報案，警方呼籲市民提供消息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797936-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797936-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797936-20250328.htm)
 
 ---
