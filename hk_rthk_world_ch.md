@@ -1,3 +1,27 @@
+# 國際社會繼續援助緬甸
+
+![救援人員在緬甸曼德勒展開救援。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798161_1_20250331015452.jpg&q=40)
+  
+
+國際社會繼續援助遭遇強震的緬甸，紅十字會與紅新月會國際聯合會向緬甸地震災區撥款200萬瑞士法郎，多國繼續向災區派出救援力量。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798161-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798161-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798161-20250331.htm)
+
+---
+
 # 中國國際救援隊抵達緬甸內比都軍用機場
 
   
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798003-20250329.htm)
-
----
-
-# 有來自泰國旅客對地震感到震驚　有轉機旅客指曼谷機場有較多旅客
-
-![有抵港的泰國旅客表示，地震發生時在25樓，當時感到震驚。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798002_1_20250329135915.jpg&q=85)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm)
 
 ---
