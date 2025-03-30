@@ -1,5 +1,54 @@
+# 蕭澤頤：前線警員對社會由治及興有很大貢獻
+
+![蕭澤頤說，警方在不同年代面對不同挑戰，也一直進步。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798088_1_20250330101954.jpg&q=90)
+  
+
+警務處處長蕭澤頤任期即將於下月初屆滿，他說反修例事件期間，警隊面對前所未有挑戰，對此有很深感受，警務人員即使面對非常大的壓力，也遇強越強，齊心應對，認為前線警員對社會由亂到治、由治及興有很大貢獻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798088-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798088-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798088-20250330.htm)
+
+---
+
+# 積金局加強規管杜絕電話推銷　籲市民收可疑來電立即收線
+
+![劉麥嘉軒說，如果市民日後收到來歷不明的cold call，聲稱是中介人並銷售強積金，建議立即收線。（積金局網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798086_1_20250330092756.jpg&q=90)
+  
+
+積金局主席劉麥嘉軒關注俗稱cold call的來歷不明推銷電話泛濫，甚至有不法之徒冒充強積金中介人進行電話詐騙。積金局早前已就強積金中介人的cold call進一步制訂嚴格的規管要求。因應積金局一系列措施，自去年起以cold call銷售強積金產品或服務的中介人比以往已大幅減少。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm)
+
+---
+
 # 雲南救援醫療隊在緬甸內比都救出1名倖存者
 
+![救援人員在緬甸內比都一間醫院的廢墟下救出一名倖存者。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798085_1_20250330093740.jpg&q=90)
   
 
 新華社報道，雲南救援醫療隊在緬甸內比都救出1名被困近40小時的長者。
@@ -23,7 +72,6 @@
 
 # 特區政府救援隊抵達緬甸仰光　乘車赴首都內比都
 
-![救援隊昨晚抵達緬甸仰光。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798084_2_20250330091844.jpg&q=90)
 ![救援隊抵埗後不久就乘車出發前往首都內比都，車程預計需要10個小時。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798084_1_20250330091844.jpg&q=80)
   
 
@@ -48,6 +96,7 @@
 
 # 美國一架小型飛機墜毀在明尼蘇達州墜毀　無人生還
 
+![小型飛機墜毀後，地面一棟房屋起火。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798083_2_20250330095148.jpg&q=90)
   
 
 美國一架小型飛機在明尼蘇達州布魯克林帕克市墜毀，導致地面一棟房屋起火。當地消防部門官員說，飛機上無人生還，起火房屋內沒有人員傷亡報告。
@@ -1392,53 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm)
-
----
-
-# 緬甸大地震逾千人死亡　中方決定提供1億元人民幣緊急救災援助
-
-![在緬甸曼德勒，救援人員帶備儀器在倒塌建築物的瓦礫中搜救。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798017_1_20250329152018.jpg&q=90)
-  
-
-緬甸中部7.7級地震，增至超過1千人死亡，2300多人受傷。領導人敏昂萊乘坐直升機抵達災情嚴重的曼德勒省視察。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm)
-
----
-
-# 麥美娟稱計劃舉辦關愛隊分享會　讓外界更認識關愛隊工作
-
-![麥美娟表示，新一屆區議會特別訂立履職監察制度，以確保區議員盡責履職。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798016_1_20250329172944.jpg&q=90)
-  
-
-現屆470名區議員日前已經提交年度工作報告，民政及青年事務局局長麥美娟表示，民政事務總署和各區民政事務專員會整理報告，方便市民查閱。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm)
 
 ---

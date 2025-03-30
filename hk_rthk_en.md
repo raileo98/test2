@@ -1,3 +1,75 @@
+# Sabalenka beats Pegula to take Miami Open
+
+![The title was the Belarusian's first at Miami. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798090_1_20250330101920.jpg&q=90)
+  
+
+World number one Aryna Sabalenka powered her way to the Miami Open title on Saturday, beating American Jessica Pegula 7-5 6-2 in the WTA 1000 event at Hard Rock Stadium.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm)
+
+---
+
+# Protesters target Tesla in anti-Musk campaign
+
+![Protesters hold up signs outside a Tesla dealership in Michigan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798089_1_20250330101458.jpg&q=80)
+  
+
+Demonstrators descended on Tesla dealerships across the United States and in Europe and Canada on Saturday to protest company chief Elon Musk, who has amassed extraordinary power as a top advisor to US President Donald Trump.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798089-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798089-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798089-20250330.htm)
+
+---
+
+# Police arrest Indonesian woman in TKO drugs bust
+
+![During a raid on a flat, police found suspected drugs and suspected drug-making equipment. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798087_2_20250330095027.jpg&q=80)
+  
+
+A 43-year-old Indonesian woman remains in police custody on Sunday following her arrest in a Tseung Kwan O drugs operation late on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798087-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798087-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798087-20250330.htm)
+
+---
+
 # Mexico brings in junk food ban
 
 ![A man walks past a sign that refers to the labelling of products, in the subway of Mexico City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798081_1_20250330075336.jpg&q=90)
@@ -1384,77 +1456,5 @@ The SAR’s men’s basketball team have made history by qualifying for the FIBA
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm)
-
----
-
-# Australian PM calls general election for May 3
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797791_1_20250328083609.jpg&q=90)
-  
-
-Australia will hold a general election on May 3, Prime Minister Anthony Albanese said on Friday, locking in a showdown over climate action, nuclear power and a runaway housing market.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm)
-
----
-
-# Barcelona go three points atop La Liga with win
-
-![Ferran Torres (7) opened the scoring for Barcelona. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797785_1_20250328073805.jpg&q=90)
-  
-
-Barcelona swept to a comfortable 3-0 victory over Osasuna to move three points clear at the top of La Liga despite their discontent at having to play their match on Thursday local time.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797785-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797785-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797785-20250328.htm)
-
----
-
-# Autos lead market losses after Trump's new tariffs
-
-![A line of Porsche cars is displayed outside a dealership in Edmonton, Canada. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797782_1_20250328071224.jpg&q=85)
-  
-
-Automakers were battered on Thursday as stock markets fell on both sides of the Atlantic after US President Donald Trump announced significant tariffs on imported vehicles and parts, pressing ahead with tough trade policies many fear will spark a recession.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797782-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797782-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797782-20250328.htm)
 
 ---

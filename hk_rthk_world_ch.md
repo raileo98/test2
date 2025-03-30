@@ -1,5 +1,6 @@
 # 雲南救援醫療隊在緬甸內比都救出1名倖存者
 
+![救援人員在緬甸內比都一間醫院的廢墟下救出一名倖存者。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798085_1_20250330093740.jpg&q=90)
   
 
 新華社報道，雲南救援醫療隊在緬甸內比都救出1名被困近40小時的長者。
@@ -23,7 +24,6 @@
 
 # 特區政府救援隊抵達緬甸仰光　乘車赴首都內比都
 
-![救援隊昨晚抵達緬甸仰光。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798084_2_20250330091844.jpg&q=90)
 ![救援隊抵埗後不久就乘車出發前往首都內比都，車程預計需要10個小時。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798084_1_20250330091844.jpg&q=80)
   
 
@@ -48,6 +48,7 @@
 
 # 美國一架小型飛機墜毀在明尼蘇達州墜毀　無人生還
 
+![小型飛機墜毀後，地面一棟房屋起火。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798083_2_20250330095148.jpg&q=90)
   
 
 美國一架小型飛機在明尼蘇達州布魯克林帕克市墜毀，導致地面一棟房屋起火。當地消防部門官員說，飛機上無人生還，起火房屋內沒有人員傷亡報告。

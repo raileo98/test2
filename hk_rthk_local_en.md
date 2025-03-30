@@ -1,3 +1,27 @@
+# Police arrest Indonesian woman in TKO drugs bust
+
+![During a raid on a flat, police found suspected drugs and suspected drug-making equipment. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798087_2_20250330095027.jpg&q=80)
+  
+
+A 43-year-old Indonesian woman remains in police custody on Sunday following her arrest in a Tseung Kwan O drugs operation late on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798087-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798087-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798087-20250330.htm)
+
+---
+
 # Fans revel in electric second day of HK Sevens
 
 ![Rugby fans fill up the Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_2_20250329184242.jpg&q=20)
@@ -1434,29 +1458,5 @@ The Secretary for Financial Services and the Treasury Christopher Hui said on Mo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm)
-
----
-
-# 'Public flat tenants will have ample time to move out'
-
-![The Housing Authority's Cleresa Wong expects at least a few hundred flats could be released after rules are tightened. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797127_1_20250324121128.jpg&q=80)
-  
-
-The Housing Authority on Monday said well-off public housing tenants will be given sufficient time to move out of their flats once rules are tightened.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797127-20250324.htm)
 
 ---

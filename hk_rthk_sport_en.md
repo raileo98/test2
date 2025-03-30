@@ -1,3 +1,27 @@
+# Sabalenka beats Pegula to take Miami Open
+
+![The title was the Belarusian's first at Miami. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798090_1_20250330101920.jpg&q=90)
+  
+
+World number one Aryna Sabalenka powered her way to the Miami Open title on Saturday, beating American Jessica Pegula 7-5 6-2 in the WTA 1000 event at Hard Rock Stadium.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm)
+
+---
+
 # Newcastle holding parade to celebrate League Cup win
 
 ![The Toon Army had waited 70 years to see their beloved team lift a domestic trophy. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798039_1_20250329194334.jpg&q=70)
@@ -1418,29 +1442,5 @@ Zimbabwean Kirsty Coventry became the first woman and African to be elected pres
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm)
-
----
-
-# Japan first team to qualify for 2026 World Cup
-
-![Daichi Kamada's ninth goal for Japan sends the 60,000-strong crowd wild. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796672_1_20250320214131.jpg&q=75)
-  
-
-Japan became the first team to qualify for the 2026 World Cup after second-half goals from Daichi Kamada and Takefusa Kubo gave them a 2-0 win over Bahrain on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796672-20250320.htm)
 
 ---

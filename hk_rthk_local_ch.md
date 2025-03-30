@@ -1,6 +1,53 @@
+# 蕭澤頤：前線警員對社會由治及興有很大貢獻
+
+![蕭澤頤說，警方在不同年代面對不同挑戰，也一直進步。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798088_1_20250330101954.jpg&q=90)
+  
+
+警務處處長蕭澤頤任期即將於下月初屆滿，他說反修例事件期間，警隊面對前所未有挑戰，對此有很深感受，警務人員即使面對非常大的壓力，也遇強越強，齊心應對，認為前線警員對社會由亂到治、由治及興有很大貢獻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798088-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798088-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798088-20250330.htm)
+
+---
+
+# 積金局加強規管杜絕電話推銷　籲市民收可疑來電立即收線
+
+![劉麥嘉軒說，如果市民日後收到來歷不明的cold call，聲稱是中介人並銷售強積金，建議立即收線。（積金局網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798086_1_20250330092756.jpg&q=90)
+  
+
+積金局主席劉麥嘉軒關注俗稱cold call的來歷不明推銷電話泛濫，甚至有不法之徒冒充強積金中介人進行電話詐騙。積金局早前已就強積金中介人的cold call進一步制訂嚴格的規管要求。因應積金局一系列措施，自去年起以cold call銷售強積金產品或服務的中介人比以往已大幅減少。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm)
+
+---
+
 # 特區政府救援隊抵達緬甸仰光　乘車赴首都內比都
 
-![救援隊昨晚抵達緬甸仰光。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798084_2_20250330091844.jpg&q=90)
 ![救援隊抵埗後不久就乘車出發前往首都內比都，車程預計需要10個小時。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798084_1_20250330091844.jpg&q=80)
   
 
@@ -1400,53 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797941-20250328.htm)
-
----
-
-# 入境處與警方拘捕7名非法勞工4名僱主及3名逾期居留人士
-
-![懷疑非法勞工在行動中被捕。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797939_1_20250328222251.jpg&q=85)
-  
-
-入境處本星期一起，連續四日在全港多區展開反非法勞工行動，又聯同警方執法，共拘捕7名懷疑非法勞工、4名涉嫌聘用非法勞工的僱主及3名逾期逗留人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797939-20250328.htm)
-
----
-
-# 菲律賓旅客走私63隻瀕危龜隻被判監30個月
-
-![部銹檢獲的瀕危龜隻。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797938_1_20250328221255.jpg&q=85)
-  
-
-一名菲律賓籍男子因走私63隻瀕危龜隻到香港，違反《保護瀕危動植物物種條例》，在區域法院被裁定罪名成立，判處監禁30個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797938-20250328.htm)
 
 ---
