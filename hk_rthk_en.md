@@ -1,3 +1,27 @@
+# Barcelona restore Liga lead in Girona romp
+
+![Lewandowski scored twice as Barca remain unbeaten this year in 20 matches. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798174_1_20250331055012.jpg&q=90)
+  
+
+Robert Lewandowski bagged a brace as Barcelona eased to a 4-1 victory over Girona to move three points clear at the top of La Liga.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798174-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798174-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798174-20250331.htm)
+
+---
+
 # Foreign aid, rescuers come to Myanmar's assistance
 
 ![This building in Mandalay is among those that collapsed in Friday's killer earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798150_1_20250330223525.jpg&q=80)
@@ -1429,29 +1453,5 @@ A patients' rights group says it hopes the government can use AI chatbots in its
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797824-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797824-20250328.htm)
-
----
-
-# Xi meets heads of international business community
-
-![Xi Jinping had also met with foreign business leaders after the China Development Forum last year. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797830_1_20250328121558.jpg&q=90)
-  
-
-President Xi Jinping met with representatives of the international business community in Beijing following last weekend's China Development Forum (CDF), Xinhua News Agency reported on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797830-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797830-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797830-20250328.htm)
 
 ---

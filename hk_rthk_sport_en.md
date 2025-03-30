@@ -1,3 +1,27 @@
+# Barcelona restore Liga lead in Girona romp
+
+![Lewandowski scored twice as Barca remain unbeaten this year in 20 matches. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798174_1_20250331055012.jpg&q=90)
+  
+
+Robert Lewandowski bagged a brace as Barcelona eased to a 4-1 victory over Girona to move three points clear at the top of La Liga.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798174-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798174-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798174-20250331.htm)
+
+---
+
 # Argentina in seventh heaven over maiden HK title
 
 ![Argentina won the Hong Kong Sevens for the first time ever. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798137_1_20250330193653.jpg&q=75)
@@ -1423,29 +1447,5 @@ Vinicius Junior struck a dramatic winner in the ninth minute of stoppage time to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796760-20250321.htm)
-
----
-
-# Gauff breezes through in Miami as Rybakina falls
-
-![Naomi Osaka after winning a set against Liudmila Samsonova. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796739_1_20250321104637.jpg&q=90)
-  
-
-Third seed Coco Gauff crushed fellow American Sofia Kenin 6-0 6-0 at the Miami Open, the former U.S. Open champion producing a flawless display to reach the third round.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796739-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796739-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796739-20250321.htm)
 
 ---
