@@ -1,3 +1,26 @@
+# 文憑試學生壓力增料與競爭加劇有關　學友社籲勿將問題災難化
+
+  
+
+中學文憑試主科即將開考，學友社調查發現，本屆考生自評壓力指數平均達6.9分，較去年微升0.13分，其中對出路的壓力最高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798104-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798104-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798104-20250330.htm)
+
+---
+
 # 許正宇認為長和擬售巴拿馬港口事件不影響家辦投資意欲
 
   
@@ -1422,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797980-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797980-20250329.htm)
-
----
-
-# 積金局就強積金「全自由行」諮詢公眾1個月
-
-![積金局就強積金「全自由行」展開為期1個月的公眾諮詢。（積金局圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797977_1_20250329071935.jpg&q=90)
-  
-
-積金局就強積金「全自由行」展開為期1個月的公眾諮詢，公眾可於4月28日前提交回應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm)
 
 ---

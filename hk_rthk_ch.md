@@ -1,3 +1,26 @@
+# 文憑試學生壓力增料與競爭加劇有關　學友社籲勿將問題災難化
+
+  
+
+中學文憑試主科即將開考，學友社調查發現，本屆考生自評壓力指數平均達6.9分，較去年微升0.13分，其中對出路的壓力最高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798104-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798104-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798104-20250330.htm)
+
+---
+
 # 許正宇認為長和擬售巴拿馬港口事件不影響家辦投資意欲
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm)
-
----
-
-# 勞工顧問委員會僱員代表補選　香港海員工會副主席楊開强當選
-
-![勞工顧問委員會僱員代表補選完成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798031_1_20250329180346.jpg&q=80)
-  
-
-勞工顧問委員會僱員代表補選完成，香港海員工會副主席楊開强當選。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798031-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798031-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798031-20250329.htm)
 
 ---
