@@ -1,3 +1,26 @@
+# 羅淑佩：煙火匯演為今年七欖畫上完美句號
+
+  
+
+首度移師啟德主場館舉行的香港國際七人欖球賽結束，三日合計有超過11萬人入場。行政長官李家超以及多名司局長今日到場觀賞賽事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm)
+
+---
+
 # 香港紅十字會：緬甸災區食水供應受阻衞生設施受損　憂爆發傳染病
 
   
@@ -47,7 +70,7 @@
 
 # 七欖三日合計逾11萬人入場　運輸署稱離場整體交通大致暢順
 
-![移師啟德體育園的七欖賽事，三日合計有超過11萬人入場，單計今日就有38352人入場。(游樹榮攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798147_1_20250330220944.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798147_1_20250330225152.jpg&q=90)
   
 
 首度移師啟德體育園舉行的香港國際七人欖球賽結束，中國香港欖球總會表示，三日合計有超過11萬人入場，單計今日就有38352人入場。

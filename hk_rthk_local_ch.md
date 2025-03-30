@@ -1,3 +1,26 @@
+# 羅淑佩：煙火匯演為今年七欖畫上完美句號
+
+  
+
+首度移師啟德主場館舉行的香港國際七人欖球賽結束，三日合計有超過11萬人入場。行政長官李家超以及多名司局長今日到場觀賞賽事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm)
+
+---
+
 # 香港紅十字會：緬甸災區食水供應受阻衞生設施受損　憂爆發傳染病
 
   
@@ -23,7 +46,7 @@
 
 # 七欖三日合計逾11萬人入場　運輸署稱離場整體交通大致暢順
 
-![移師啟德體育園的七欖賽事，三日合計有超過11萬人入場，單計今日就有38352人入場。(游樹榮攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798147_1_20250330220944.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798147_1_20250330225152.jpg&q=90)
   
 
 首度移師啟德體育園舉行的香港國際七人欖球賽結束，中國香港欖球總會表示，三日合計有超過11萬人入場，單計今日就有38352人入場。
@@ -1420,33 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm)
-
----
-
-# 七欖第二日賽事場內氣氛熱鬧　港隊男女子隊晉級銀劍賽決賽
-
-![賽事繼續吸引大批觀眾入場觀賽，不少人盛裝打扮。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_3_20250329165525.jpg&q=85)
-![今日賽事在場館天幕打開下進行，場內氣氛熱鬧。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_4_20250329165525.jpg&q=80)
-![李卡度賽後表示，場館天幕打開，令球場更光猛。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_2_20250329165525.jpg&q=90)
-  
-
-香港國際七人欖球賽在啟德體育園上演第二日賽事，繼續吸引大批觀眾入場觀賽，不少人盛裝打扮。
-  
-![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1798021_3_L_20250329165525.jpg)
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm)
 
 ---
