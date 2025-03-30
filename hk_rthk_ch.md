@@ -1,3 +1,26 @@
+# 許正宇：政府正就家族辦公室稅務寬免草擬修訂
+
+  
+
+財經事務及庫務局局長許正宇表示，全球政經環境複雜，反而對香港的家族辦公室業務更為有利，因為香港的投資環境穩定，亦有預見性，可讓投資者或家族辦公室的財富增值或保值。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798100-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798100-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798100-20250330.htm)
+
+---
+
 # 港島環島長廊已駁通八成　五大主題路徑各有特色
 
 ![環島長廊有五段主題路徑，每段各有特色。（發展局網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798099_1_20250330123012.jpg&q=85)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798030-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798030-20250329.htm)
-
----
-
-# 國家救援隊83名隊員赴緬甸災區　國航派包機搭載隊員
-
-![國航接到緊急運輸任務後，迅速完成航班運行準備工作，派出救援包機搭載救援隊員。（中國民航報）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798029_1_20250329175858.jpg&q=90)
-  
-
-國家救援隊83名隊員，帶備通信、搜救、指揮、醫療、應急食品等近22噸應急救援物資，下午近1時從北京首都機場起飛，前往緬甸地震災區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm)
 
 ---

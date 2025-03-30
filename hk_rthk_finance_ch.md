@@ -1,3 +1,26 @@
+# 許正宇：政府正就家族辦公室稅務寬免草擬修訂
+
+  
+
+財經事務及庫務局局長許正宇表示，全球政經環境複雜，反而對香港的家族辦公室業務更為有利，因為香港的投資環境穩定，亦有預見性，可讓投資者或家族辦公室的財富增值或保值。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798100-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798100-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798100-20250330.htm)
+
+---
+
 # 陳茂波稱本港續推盛事經濟　吸引更多高增值客帶動商機
 
 ![陳茂波在巴塞爾藝術展上與來自歐洲的藝廊負責人交流。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798094_1_20250330113405.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797822-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797822-20250328.htm)
-
----
-
-# 習近平在北京會見國際工商界代表
-
-![習近平上午在北京人民大會堂會見國際工商界代表。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797819_1_20250328111018.jpg&q=90)
-  
-
-新華社報道，國家主席習近平上午在北京人民大會堂會見國際工商界代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797819-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797819-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797819-20250328.htm)
 
 ---
