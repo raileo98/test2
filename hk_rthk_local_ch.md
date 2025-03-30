@@ -77,7 +77,7 @@
 
 # 蕭澤頤：前線警員對社會由治及興有很大貢獻
 
-![蕭澤頤說，警方在不同年代面對不同挑戰，也一直進步。（商台片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798088_1_20250330101954.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798088_1_20250330101954.jpg&q=90)
   
 
 警務處處長蕭澤頤任期即將於下月初屆滿，他說反修例事件期間，警隊面對前所未有挑戰，對此有很深感受，警務人員即使面對非常大的壓力，也遇強越強，齊心應對，認為前線警員對社會由亂到治、由治及興有很大貢獻。
