@@ -1,5 +1,29 @@
+# 港島環島長廊已駁通八成　五大主題路徑各有特色
+
+  
+
+發展局表示，將繼續與不同部門、持份者及專業團體協作，落實駁通多區的步行徑，以期在2031年底前大致完成環島長廊，餘下路段包括連接香港仔海濱至深灣碼頭徑、杏花邨至筲箕灣，南朗山至苗鍾徑；期待環島長廊既連接城市空間，更是社區與自然互動的重要紐帶。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798099-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798099-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798099-20250330.htm)
+
+---
+
 # 緬甸地震逾1600人死亡　十多名中國公民受傷
 
+![緬甸地震增至1600多人死亡，3400多人受傷，百多人失蹤。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798098_2_20250330122453.jpg&q=90)
   
 
 緬甸中部大地震至今，增至1600多人死亡，3400多人受傷，百多人失蹤。雲南救援醫療隊凌晨在內比都救出1名被困近40小時的長者。中國駐緬甸大使館至今確認十多名中國公民在地震中受傷。
@@ -23,6 +47,7 @@
 
 # 中國駐緬甸大使館︰至少10名中國公民在地震中受傷
 
+![中國駐緬甸大使館確認10多名中國公民在地震中受傷。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798096_1_20250330122529.jpg&q=90)
   
 
 中國駐緬甸大使館表示，已確認至少10名中國公民在地震中受傷，都在醫院接受治療。由於災區救援工作仍在進行，後續傷亡人數可能還會增加，使館將全力協調救援。
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm)
-
----
-
-# 13班來往香港及泰國航班延誤　沒有航班取消
-
-![機管局表示，截至下午4時半，共有13班本港來往泰國的航班延誤。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798028_1_20250329173955.jpg&q=90)
-  
-
-機場管理局表示，截至下午4時半，共有13班本港來往泰國的航班延誤，分別是5班從泰國抵港，以及8班由香港前往泰國，並沒有航班取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798028-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798028-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798028-20250329.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 港島環島長廊已駁通八成　五大主題路徑各有特色
+
+  
+
+發展局表示，將繼續與不同部門、持份者及專業團體協作，落實駁通多區的步行徑，以期在2031年底前大致完成環島長廊，餘下路段包括連接香港仔海濱至深灣碼頭徑、杏花邨至筲箕灣，南朗山至苗鍾徑；期待環島長廊既連接城市空間，更是社區與自然互動的重要紐帶。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798099-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798099-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798099-20250330.htm)
+
+---
+
 # 陳茂波稱本港續推盛事經濟　吸引更多高增值客帶動商機
 
 ![陳茂波在巴塞爾藝術展上與來自歐洲的藝廊負責人交流。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798094_1_20250330113405.jpg&q=90)
@@ -1422,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797951-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797951-20250328.htm)
-
----
-
-# 吳秋北稱國家機關介入審查順理成章　檢視有否壟斷國安發展範圍
-
-![吳秋北指如涉及不合規的做法，就要立即停止。圖為巴拿馬運河港口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797948_1_20250328235045.jpg&q=75)
-  
-
-長和本月初宣布，向美國貝萊德牽頭的財團出售巴拿馬運河港口等業務。國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm)
 
 ---
