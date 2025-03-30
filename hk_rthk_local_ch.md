@@ -1,3 +1,27 @@
+# 蕭澤頤指前線人員對本港由治及興貢獻很大
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798125_1_20250330175429.jpg&q=90)
+  
+
+警務處處長蕭澤頤任期即將屆滿，他說，在30多年警務生涯中，最難忘是2019年反修例事件期間，警隊面對前所未有挑戰，警察及其家人都受很大壓力甚至襲擊。他認為，本港社會由亂到治、由治及興，警隊前線人員有很大貢獻。他又勉勵警隊上下繼續努力，讚揚他們是世界上其中一支最有效率、最有心，及最有熱誠的警務隊伍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798125-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798125-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798125-20250330.htm)
+
+---
+
 # 運輸署籲稍後盡量乘港鐵離場　特別巴士路線提前下午6時起服務
 
 ![運輸署預計較多觀眾同一時間離場，呼籲離場人士盡量乘搭港鐵。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798128_1_20250330172757.jpg&q=60)
@@ -1424,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm)
-
----
-
-# 特區政府救援隊赴緬甸助搜救　李家超：短時間應召集結展無私精神
-
-![李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797996_1_20250329121806.jpg&q=25)
-  
-
-行政長官李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救，盡全力協助當地拯救生命。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm)
 
 ---

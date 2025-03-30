@@ -1,3 +1,27 @@
+# 'Bigger house, bigger party' in new Kai Tak experience
+
+![James Farndon says this year's Rugby Sevens has been an amazing experience for all those involved. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798130_1_20250330175310.jpg&q=85)
+  
+
+The head of the Hong Kong, China Rugby Association, James Farndon, on Sunday hailed the first-ever Sevens at the Kai Tak Stadium, calling the event a massive success for the SAR.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm)
+
+---
+
 # 'As Sevens hosts, Kai Tak keeps improving'
 
 ![Rosanna Law says the atmosphere and operations at the Kai Tak Sports Park are very good in general. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798129_1_20250330173648.jpg&q=75)
@@ -1430,35 +1454,5 @@ President Xi Jinping met Bangladesh leader Muhammad Yunus in Beijing on Friday, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm)
-
----
-
-# Lines, fire and hair: Art Basel 2025 kicks off
-
-![Chen is performing at Art Basel with her partner, dancer Francisco Borges. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_2_20250328104141.jpg&q=90)
-![The "Questioning the Line" art performance piece also explores the entanglement between human and nature. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_6_20250328105506.jpg&q=85)
-![American painter Alec Egan's new works pays homage to the work he lost in the Los Angeles fire and captures the eerie beauty of ash-filled skies. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_3_20250328104141.jpg&q=90)
-![The gallery representing Egan says they hope that audiences will feel "hopefulness" after viewing his work. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_7_20250328112516.jpg&q=80)
-![Shin Min says her "Ew! There is hair in the food!!" exhibition highlights misogyny in Korea. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_4_20250328104141.jpg&q=90)
-![Shin's work also challenges the notion of never saying no to customers. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_8_20250328112516.jpg&q=85)
-![The SAR's largest international art fair brings together more than 240 galleries from around the world this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_5_20250328104141.jpg&q=85)
-  
-
-When Hong Kong artist Movana Chen moved to Lisbon in 2021, she started knitting together maps collected during Covid isolation in an attempt to unravel physical boundaries.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797813-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797813-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797813-20250328.htm)
 
 ---
