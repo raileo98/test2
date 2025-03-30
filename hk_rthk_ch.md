@@ -1,3 +1,26 @@
+# 運輸署料七欖閉幕較多觀眾同時間離場　籲盡量乘搭港鐵
+
+  
+
+一連3日國際七人欖球賽最後一天在啟德主場館舉行，晚上約7時舉行閉幕式，啟德體育園表示，主場館2樓和5樓均為理想觀賞地點，呼籲觀眾經F和H閘口乘搭電梯到達5樓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm)
+
+---
+
 # 赫格塞斯：日本是遏制中國不可或缺的夥伴
 
 ![赫格塞斯在東京與日本防衛大臣中谷元會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798108_1_20250330144518.jpg&q=90)
@@ -48,7 +71,11 @@
 
 # 羅淑佩稱已要求啟德體育園加強食品供應　排隊情況有改善
 
+![羅淑佩說，已要求啟德體育園加強食品供應。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798106_1_20250330150358.jpg&q=90)
   
+
+文化體育及旅遊局局長羅淑佩到啟德體育園主場館，視察香港國際七人欖球賽第三日賽事。她提到，自己昨日需要排隊一段時間才買到漢堡包，今日見到啟德體育園加強食品供應，排隊情況有改善。整體而言，她認為，三日賽事每日都有進展。
+
   
 
 
@@ -1413,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm)
-
----
-
-# 緬甸中部大地震　逾10班香港往返泰國航班延誤
-
-![機管局表示，截至下午4時半，共有5班從泰國抵港，以及8班由香港往泰國的航班延誤。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798034_1_20250329191017.jpg&q=80)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。保安局表示，至今收到54名香港居民查詢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm)
 
 ---
