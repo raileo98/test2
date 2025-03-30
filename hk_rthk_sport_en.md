@@ -1,3 +1,28 @@
+# HK, China sweep Melrose Claymores
+
+![Matteo Avitabile is among the scorers for Hong Kong, China. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798126_1_20250330171036.jpg&q=90)
+![It's the second straight year that the Hong Kong, China men's team has won the Melrose Claymore. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798126_2_20250330171036.jpg&q=75)
+  
+
+Both the SAR men's and women's teams won an invitational in style at the first Hong Kong Sevens at Kai Tak Stadium on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798126-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798126-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798126-20250330.htm)
+
+---
+
 # Who's who at the Rugby Sevens, and it's quite a cast!
 
 ![Enthusiastic rugby fans enjoy the last day of the annual Hong Kong Sevens at the Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_1_20250330161122.jpg&q=85)
@@ -1423,29 +1448,5 @@ China suffered a narrow 1-0 defeat to Saudi Arabia in a Fifa 2026 World Cup qual
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm)
-
----
-
-# Perisic stars as Croatia stun France in Nations League
-
-![Croatia's Ivan Perisic celebrates after scoring his team's second goal against France. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796706_1_20250321061557.jpg&q=90)
-  
-
-Ivan Perisic scored one goal and made another as Croatia beat France 2-0 to seize the upper hand in the first leg of their Uefa Nations League quarter-final tie.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm)
 
 ---

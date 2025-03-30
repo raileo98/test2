@@ -1,5 +1,29 @@
+# 運輸署籲稍後盡量乘港鐵離場　特別巴士路線提前下午6時起服務
+
+  
+
+運輸署表示，正在啟德體育園舉行的香港國際七人欖球賽預計今晚7時後完成所有賽事。由於預計較多觀眾同一時間離場，呼籲離場人士盡量乘搭港鐵。署方一直督導公共運輸服務安排，整體交通至今大致暢順。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798128-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798128-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798128-20250330.htm)
+
+---
+
 # 特區救援隊抵達緬甸首都　隨即展開勘察及部署
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798124_1_20250330171217.jpg&q=80)
   
 
 緬甸日前發生大地震，特區政府派出救援隊協助救援。保安局在社交網站表示，救援隊昨晚大約9時抵達仰光機場，凌晨3時半出發前往首都內比都，經過大約10小時車程，當地時間中午後到達，之後將立即進行勘察工作，並與其他國家救援隊聯絡，了解當前狀況並再作部署。
@@ -1423,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm)
-
----
-
-# 5班來往香港與曼谷航班延誤　未有航班取消
-
-![機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797993_1_20250329121733.jpg&q=85)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm)
 
 ---
