@@ -1,3 +1,49 @@
+# 本港下午各區氣溫較昨日低兩三度　18間臨時避寒中心開放
+
+  
+
+寒冷天氣警告現正效，天文台表示，東北季候風正影響廣東沿岸，本港下午各區氣溫較昨日低兩三度。民政事務總署已在各區開放共18間臨時避寒中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798133-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798133-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798133-20250330.htm)
+
+---
+
+# 港隊男女子隊銀劍賽稱王封后　球迷大讚港隊表現
+
+  
+
+香港國際七人欖球賽，港隊在男女子銀劍賽分別稱王封后，不少球迷也感到興奮，大讚港隊表現。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm)
+
+---
+
 # 蕭澤頤指前線人員對本港由治及興貢獻很大
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798125_1_20250330175429.jpg&q=90)
@@ -1393,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798056-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798056-20250329.htm)
-
----
-
-# 馬鞍山錦英路13金塔被毀　警方正調查暫未有人被捕
-
-![馬鞍山錦英路有13個金塔被毀壞，警方列作刑事毀壞處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798055_1_20250329231937.jpg&q=90)
-  
-
-警方下午約1時許接報，指馬鞍山錦英路有13個金塔被毀壞，經初步調查後，案件列作刑事毀壞處理，交由沙田警區刑事調查隊第六隊跟進，暫未有人被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798055-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798055-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798055-20250329.htm)
-
----
-
-# 瑪麗醫院心胸外科病房47歲男病人自行離院　院方報警求助
-
-![瑪麗醫院一名47歲男病人自行離開醫院，院方已即時聯絡病人家屬及報警求助。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798054_1_20250329225531.jpg&q=80)
-  
-
-瑪麗醫院一名47歲男病人自行離開醫院。院方非常重視事件，已即時聯絡病人家屬及報警求助。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798054-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798054-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798054-20250329.htm)
 
 ---

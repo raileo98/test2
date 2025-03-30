@@ -1,3 +1,49 @@
+# 本港下午各區氣溫較昨日低兩三度　18間臨時避寒中心開放
+
+  
+
+寒冷天氣警告現正效，天文台表示，東北季候風正影響廣東沿岸，本港下午各區氣溫較昨日低兩三度。民政事務總署已在各區開放共18間臨時避寒中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798133-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798133-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798133-20250330.htm)
+
+---
+
+# 港隊男女子隊銀劍賽稱王封后　球迷大讚港隊表現
+
+  
+
+香港國際七人欖球賽，港隊在男女子銀劍賽分別稱王封后，不少球迷也感到興奮，大讚港隊表現。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm)
+
+---
+
 # 蕭澤頤指前線人員對本港由治及興貢獻很大
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798125_1_20250330175429.jpg&q=90)
@@ -1399,53 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm)
-
----
-
-# 有來自泰國旅客對地震感到震驚　有轉機旅客指曼谷機場有較多旅客
-
-![有抵港的泰國旅客表示，地震發生時在25樓，當時感到震驚。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798002_1_20250329135915.jpg&q=85)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm)
-
----
-
-# 高拔陞稱會細化公營醫療收費改革流程　聽取市民員工意見多做解說
-
-![高拔陞說，1萬元收費上限合適，相信相關申請不多。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798000_1_20250329135941.jpg&q=80)
-  
-
-政府公布公營醫療收費改革，包括提出急症室收費方面，第三至五類病人的費用升至400元，第一、二類危殆危急的病人獲得豁免。另外，住院門診費用就新設1萬元收費上限。改革方案明年起生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798000-20250329.htm)
 
 ---

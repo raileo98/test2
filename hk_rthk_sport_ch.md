@@ -1,3 +1,26 @@
+# 港隊男女子隊銀劍賽稱王封后　球迷大讚港隊表現
+
+  
+
+香港國際七人欖球賽，港隊在男女子銀劍賽分別稱王封后，不少球迷也感到興奮，大讚港隊表現。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm)
+
+---
+
 # 七欖銀劍賽　中國香港男女子隊稱王封后
 
 ![香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798122_1_20250330170028.jpg&q=45)
@@ -1435,29 +1458,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796343-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796343-20250319.htm)
-
----
-
-# 楊永杰促設恆常機制處理應急事件　劉永松倡啟德體育園設發言人
-
-![楊永杰（左）建議文體旅局與園方的恆常會議機制；劉永松（右）認為如果恆常會議機制加入太多持份者會影響決策效率。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796254_1_20250318170149.jpg&q=90)
-  
-
-行政長官李家超出席行政會議前表示，啟德體育園自開園至今一些安排不理想，已經要求園方強化機制建設。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796254-20250318.htm)
 
 ---
