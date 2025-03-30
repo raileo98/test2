@@ -1,3 +1,27 @@
+# 'Bigger house, bigger party' in new Kai Tak experience
+
+![James Farndon says this year's Rugby Sevens has been an amazing experience for all those involved. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798130_1_20250330175310.jpg&q=85)
+  
+
+The head of the Hong Kong, China Rugby Association, James Farndon, on Sunday hailed the first-ever Sevens at the Kai Tak Stadium, calling the event a massive success for the SAR.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm)
+
+---
+
 # 'As Sevens hosts, Kai Tak keeps improving'
 
 ![Rosanna Law says the atmosphere and operations at the Kai Tak Sports Park are very good in general. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798129_1_20250330173648.jpg&q=75)
@@ -1437,31 +1461,5 @@ Cat and dog owners will soon be able to bring pets on board the light rail on we
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm)
-
----
-
-# AI installation showcases HK reel heritage
-
-![The animation features AI-generated characters performing scenes inspired by cinema icons. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797269_1_20250325104802.jpg&q=90)
-![Singaporean artist Ho Tzu-nyen says the project is a homage to Hong Kong's cinema heritage. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797269_2_20250325104802.jpg&q=90)
-![M+ moving image curator Silke Schmickl says the project shows the expansion of art into public spaces. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797269_3_20250325104802.jpg&q=90)
-  
-
-In a first, M+ Museum is using artificial intelligence to transform its facade into a canvas celebrating Hong Kong's golden age of film during Art Basel.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797269-20250325.htm)
 
 ---

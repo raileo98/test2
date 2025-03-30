@@ -1,3 +1,27 @@
+# 'Bigger house, bigger party' in new Kai Tak experience
+
+![James Farndon says this year's Rugby Sevens has been an amazing experience for all those involved. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798130_1_20250330175310.jpg&q=85)
+  
+
+The head of the Hong Kong, China Rugby Association, James Farndon, on Sunday hailed the first-ever Sevens at the Kai Tak Stadium, calling the event a massive success for the SAR.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm)
+
+---
+
 # HK, China sweep Melrose Claymores
 
 ![Matteo Avitabile is among the scorers for Hong Kong, China. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798126_1_20250330171036.jpg&q=90)
@@ -1424,29 +1448,5 @@ McLaren’s dominance, Lewis Hamilton’s bid to bounce back after a disappointi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796732-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796732-20250321.htm)
-
----
-
-# China fall to Saudi Arabia in key World Cup qualifier
-
-![The 1-0 defeat leaves China at the bottom of Group C in Asian qualifying for the 2026 World Cup. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796733_1_20250321101136.jpg&q=90)
-  
-
-China suffered a narrow 1-0 defeat to Saudi Arabia in a Fifa 2026 World Cup qualifying match on Thursday, leaving it struggling at the bottom of Group C in the Asian zone.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796733-20250321.htm)
 
 ---
