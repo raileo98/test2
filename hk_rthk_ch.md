@@ -1,3 +1,26 @@
+# 七欖三日賽事共逾11萬名觀眾入場　較去年多1.4萬
+
+  
+
+啟德體育園公布，主場館舉行的香港國際七人欖球賽，三日賽事共有超過11萬名本地及海外觀眾參加，較去年在香港大球場舉行的賽事多1萬4千人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm)
+
+---
+
 # 廣東省茂名市3級地震　震央附近東岸鎮有輕微震感
 
 ![廣東省茂名市3級地震　震央附近東岸鎮有輕微震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798154_1_20250330231533.jpg&q=90)
