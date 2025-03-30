@@ -1,3 +1,27 @@
+# 渤海海峽黃海北部執行軍事任務　大連海事局發警告禁止駛入
+
+![渤海海峽黃海北部執行軍事任務　大連海事局發警告禁止駛入](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798112_1_20250330153043.jpg&q=90)
+  
+
+大連海事局發布航行警告，今日下午4時至下月13日下午4時，渤海海峽黃海北部部分海域執行軍事任務，禁止船隻駛入。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm)
+
+---
+
 # 赫格塞斯：日本是遏制中國不可或缺的夥伴
 
 ![赫格塞斯在東京與日本防衛大臣中谷元會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798108_1_20250330144518.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm)
-
----
-
-# 國防部：日方最沒有資格拿台灣說事
-
-![吳謙指出，台灣問題不關日本甚麼事，日方也最沒有資格拿台灣說事。（國防部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797740_1_20250327212745.jpg&q=90)
-  
-
-在北京，國防部新聞發言人吳謙指出，台灣問題不關日本甚麼事，日方也最沒有資格拿台灣說事。他說，只有堅持一個中國原則、堅決反對「台獨」，台海和平穩定才有保障。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm)
 
 ---

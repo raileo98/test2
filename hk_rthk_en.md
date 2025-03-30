@@ -1,3 +1,27 @@
+# France, Argentina to battle in Sevens men's final
+
+![Enahemo Artaud (48) and his French teammates celebrate their dramatic victory over Fiji. Photo courtesy of World Rugby](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798111_1_20250330151645.jpg&q=85)
+  
+
+France's emphatic run at the Hong Kong Sevens continued on Sunday as they scored a dramatic, nail-biting victory over Fiji to book a place in the final where they will battle Argentina.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm)
+
+---
+
 # Hong Kong Super March is a big draw: Paul Chan
 
 ![Paul Chan says he hopes more people will do business in Hong Kong apart from enjoying art. Image courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798103_1_20250330133135.jpg&q=90)
@@ -1432,29 +1456,5 @@ It's unclear what next year's NBA All-Star Game will look like, but commissioner
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm)
-
----
-
-# Light rain aids firefighters in South Korea
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797801_1_20250328093036.jpg&q=90)
-  
-
-Light rain offered some relief to South Korean authorities tackling the country's worst wildfires on record, with exhausted firefighters making another push on Friday to contain blazes stretching 70 km.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm)
 
 ---

@@ -1,3 +1,27 @@
+# France, Argentina to battle in Sevens men's final
+
+![Enahemo Artaud (48) and his French teammates celebrate their dramatic victory over Fiji. Photo courtesy of World Rugby](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798111_1_20250330151645.jpg&q=85)
+  
+
+France's emphatic run at the Hong Kong Sevens continued on Sunday as they scored a dramatic, nail-biting victory over Fiji to book a place in the final where they will battle Argentina.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm)
+
+---
+
 # Sabalenka beats Pegula to take Miami Open
 
 ![The title was the Belarusian's first at Miami. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798090_1_20250330101920.jpg&q=90)
@@ -1418,29 +1442,5 @@ The NBA's Boston Celtics are being sold to the head of a California private equi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796701-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796701-20250321.htm)
-
----
-
-# Kirsty Coventry elected first woman president of IOC
-
-![The two-time Olympic swimming champion succeeds Thomas Bach. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796684_1_20250321001616.jpg&q=90)
-  
-
-Zimbabwean Kirsty Coventry became the first woman and African to be elected president of the International Olympic Committee on Thursday declaring it to be an "extraordinary moment."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796684-20250321.htm)
 
 ---
