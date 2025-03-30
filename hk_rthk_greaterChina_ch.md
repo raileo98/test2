@@ -1,3 +1,26 @@
+# 雲南救援醫療隊在緬甸內比都救出1名倖存者
+
+  
+
+新華社報道，雲南救援醫療隊在緬甸內比都救出1名被困近40小時的長者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm)
+
+---
+
 # 中國駐緬大使：將全力協助中國救援隊開展工作
 
 ![中國救援隊抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798071_1_20250330023800.jpg&q=90)
@@ -1413,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm)
-
----
-
-# 澳門與內地警方聯手破兩個犯罪集團共拘60多人
-
-![澳門司警展示在行動中檢獲的現金、電子設備和賬簿等證物。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797730_1_20250327202004.jpg&q=85)
-![涉案被捕的犯罪集團成員由司警押解往檢察院偵訊。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797730_2_20250327202004.jpg&q=80)
-  
-
-澳門司警與內地警方聯手破獲兩個涉及因賭博非法兌換款項的團伙，共拘捕60多人，在過去五個月涉及的不法兌換金額共7億9000萬港元，相信當中有2100萬港元是不法利潤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797730-20250327.htm)
 
 ---

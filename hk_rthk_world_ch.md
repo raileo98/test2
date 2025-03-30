@@ -1,3 +1,72 @@
+# 雲南救援醫療隊在緬甸內比都救出1名倖存者
+
+  
+
+新華社報道，雲南救援醫療隊在緬甸內比都救出1名被困近40小時的長者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm)
+
+---
+
+# 特區政府救援隊抵達緬甸仰光　乘車赴首都內比都
+
+  
+
+緬甸發生大地震後，特區政府派出救援隊協助救援，保安局今早在社交平台表示，救援隊昨晚抵達緬甸仰光，並獲中國駐緬甸大使館外交官及香港緬甸商會代表到機場迎接。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm)
+
+---
+
+# 美國一架小型飛機墜毀在明尼蘇達州墜毀　無人生還
+
+  
+
+美國一架小型飛機在明尼蘇達州布魯克林帕克市墜毀，導致地面一棟房屋起火。當地消防部門官員說，飛機上無人生還，起火房屋內沒有人員傷亡報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm)
+
+---
+
 # 美媒披露防長赫格塞思曾兩次攜妻出席機密會議
 
 ![美國傳媒報道，赫格塞思曾經兩次攜同妻子參加與外國軍事官員的機密會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798080_1_20250330072810.jpg&q=90)
@@ -1369,78 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm)
-
----
-
-# 丘應樺稱全力建設香港成為區域知識產權貿易中心
-
-![丘應樺（前排右一）到訪一家內地著名的潮流文化娛樂公司，了解營運情況和內地知識產權產品的發展。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797932_1_20250328215451.jpg&q=85)
-  
-
-商務及經濟發展局局長丘應樺表示，特區政府正透過一系列措施保障創新和創意成果，推動知識產權貿易，並會加強知識產權人才培訓，全力建設香港成為區域知識產權貿易中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm)
-
----
-
-# 羅淑佩視察七欖賽事　稱新場館座位空調舒適氣氛熾熱
-
-![羅淑佩與姚錦成拍照留念並詢問對場地觀感，形容對方反應很正面。（羅淑佩社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797931_1_20250328210638.jpg&q=90)
-![羅淑佩說，新場館燈光及氣氛都非常亮麗熾熱。（羅淑佩社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797931_2_20250328210638.jpg&q=70)
-  
-
-國際七人欖球賽揭幕，文化體育及旅遊局局長羅淑佩說，早上去了啟德主場館接受海外傳媒直播訪問，同時視察七欖開打的實況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797931-20250328.htm)
-
----
-
-# 緬甸7.7級地震　據報已造成逾50死300傷
-
-![緬甸今次大地震在泰國曼谷都有震感，曼谷有建築物倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797922_1_20250328200849.jpg&q=65)
-  
-
-緬甸中部發生7.7級地震，央視新聞引述緬甸傳媒報道，地震已造成超過50人死亡，300人受傷。大多數遇難者遺體在曼德勒、內比都等地被發現，政府呼籲民眾積極為傷者捐血。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797922-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797922-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797922-20250328.htm)
 
 ---

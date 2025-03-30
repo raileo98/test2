@@ -1,3 +1,72 @@
+# 雲南救援醫療隊在緬甸內比都救出1名倖存者
+
+  
+
+新華社報道，雲南救援醫療隊在緬甸內比都救出1名被困近40小時的長者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm)
+
+---
+
+# 特區政府救援隊抵達緬甸仰光　乘車赴首都內比都
+
+  
+
+緬甸發生大地震後，特區政府派出救援隊協助救援，保安局今早在社交平台表示，救援隊昨晚抵達緬甸仰光，並獲中國駐緬甸大使館外交官及香港緬甸商會代表到機場迎接。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm)
+
+---
+
+# 美國一架小型飛機墜毀在明尼蘇達州墜毀　無人生還
+
+  
+
+美國一架小型飛機在明尼蘇達州布魯克林帕克市墜毀，導致地面一棟房屋起火。當地消防部門官員說，飛機上無人生還，起火房屋內沒有人員傷亡報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm)
+
+---
+
 # 漁護署在郊野公園安裝智能山火監察器實時監察山火
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798082_1_20250330081602.jpg&q=85)
@@ -1369,78 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm)
-
----
-
-# 特區救援隊51人前赴緬甸災區　抵達現場後將立即加入救援
-
-![特區政府救援隊一行51人在機場集合，前往緬甸災區協助搜救。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_3_20250329151729.jpg&q=70)
-![搜救隊由保安局、消防處、入境處和醫管局組成。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_4_20250329151946.jpg&q=85)
-  
-
-特區政府救援隊一行51人今日前往緬甸災區，協助搜救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm)
-
----
-
-# 青衣住宅單位疑作毒品儲存庫　25歲男子涉販運危險藥物被捕
-
-![警方檢獲市值約139萬元懷疑毒品，拘捕一名25歲男子涉嫌「販運危險藥物」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798014_1_20250329151353.jpg&q=40)
-  
-
-警方在青衣路一個住宅單位搗破懷疑毒品儲存倉庫，檢獲市值約139萬元懷疑毒品，拘捕一名25歲男子涉嫌「販運危險藥物」，正被扣查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798014-20250329.htm)
-
----
-
-# 馬莎百貨一款打發忌廉總含菌量超標　食安中心籲勿食用
-
-![食安中心呼籲市民不要食用受影響批次的產品。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798013_1_20250329151311.jpg&q=90)
-  
-
-一款從英國進口以巴士德消毒法處理的馬莎百貨預先包裝打發忌廉樣本，被檢出總含菌量超出法例標準，食安中心呼籲市民不要食用受影響批次的產品。業界如持有相關批次的產品，應立即停止使用或出售。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798013-20250329.htm)
 
 ---
