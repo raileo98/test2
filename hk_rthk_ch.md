@@ -1,5 +1,8 @@
 # 港島環島長廊已駁通八成　五大主題路徑各有特色
 
+![環島長廊有五段主題路徑，每段各有特色。（發展局網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798099_1_20250330123012.jpg&q=85)
+![夕霞徑可以欣賞壯麗日落，沉醉於夕陽與晚霞交織的美景，圖為沙灣泳棚。（發展局網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798099_2_20250330123012.jpg&q=90)
+![漁怡徑可以認識漁民生活，發掘香港漁業文化和歷史，圖為香港仔避風塘。（發展局網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798099_3_20250330123012.jpg&q=80)
   
 
 發展局表示，將繼續與不同部門、持份者及專業團體協作，落實駁通多區的步行徑，以期在2031年底前大致完成環島長廊，餘下路段包括連接香港仔海濱至深灣碼頭徑、杏花邨至筲箕灣，南朗山至苗鍾徑；期待環島長廊既連接城市空間，更是社區與自然互動的重要紐帶。

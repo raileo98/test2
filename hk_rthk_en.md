@@ -1,6 +1,6 @@
 # Young people see police in better light: Commissioner
 
-![Police Commissioner Raymond Siu, who retires on Tuesday, said he would miss working for the force. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798097_1_20250330120859.jpg&q=90)
+![Police Commissioner Raymond Siu, who retires on Tuesday, said he would miss working for the force. Photo: Courtesy of Commercial Radio](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798097_3_20250330123521.jpg&q=90)
   
 
 Police Commissioner Raymond Siu on Sunday said the force's efforts to raise its image among young people were bearing fruit.
