@@ -1,3 +1,26 @@
+# 香港紅十字會：緬甸災區食水供應受阻衞生設施受損　憂爆發傳染病
+
+  
+
+緬甸大地震後，多方派出救援隊伍到當地協助救災。香港紅十字會國際及賑災服務主管程德君表示，香港方面已準備好提供衞生及心理健康支援，正與緬甸紅十字會等溝通協調。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm)
+
+---
+
 # 敏昂萊稱緬甸地震遇難人數或上升　須盡快恢復交通以更有效救援
 
 ![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798149_1_20250330223300.jpg&q=75)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797992-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797992-20250329.htm)
-
----
-
-# 有在曼谷旅遊港人稱地震後到室外暫避　未見有餘震暫不會縮短行程
-
-![蕭先生說，巿面未見有太大影響，暫時應該不會縮短行程。（市民蕭先生提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797991_2_20250329141558.jpg&q=85)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感，有正在興建中的大樓整幢倒塌。有在當地旅遊的港人表示，地震後撤出室內，其後返回酒店，由於巿面未見有太大影響，暫時應該不會縮短行程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm)
 
 ---

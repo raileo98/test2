@@ -1,3 +1,26 @@
+# 香港紅十字會：緬甸災區食水供應受阻衞生設施受損　憂爆發傳染病
+
+  
+
+緬甸大地震後，多方派出救援隊伍到當地協助救災。香港紅十字會國際及賑災服務主管程德君表示，香港方面已準備好提供衞生及心理健康支援，正與緬甸紅十字會等溝通協調。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm)
+
+---
+
 # 七欖三日合計逾11萬人入場　運輸署稱離場整體交通大致暢順
 
 ![移師啟德體育園的七欖賽事，三日合計有超過11萬人入場，單計今日就有38352人入場。(游樹榮攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798147_1_20250330220944.jpg&q=90)
@@ -1425,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm)
-
----
-
-# 鄧炳強：特區救援隊汲取土耳其救援經驗　第二梯隊準備好可支援
-
-![救援隊共51人，包括41名消防、4名保安局人員、兩名入境處人員、醫管局兩名醫生和兩名護士。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798020_2_20250329160034.jpg&q=90)
-  
-
-特區政府派出51人組成的救援隊到緬甸，協助地震災區的搜救工作。保安局局長鄧炳強說，昨日發生大地震後，救援隊已經隨時候命，今日正式收到緬甸駐港總領事館要求後，人員在很短時間就到機場出發。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm)
 
 ---

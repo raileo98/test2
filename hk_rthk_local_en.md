@@ -120,7 +120,6 @@ A Cathay Pacific aircraft on Sunday flew near Kai Tak during the Hong Kong Seven
 
 # Who's who at the Rugby Sevens, and it's quite a cast!
 
-![Enthusiastic rugby fans enjoy the last day of the annual Hong Kong Sevens at the Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_1_20250330161122.jpg&q=85)
 ![Brian Hopkins (right) is celebrating his 40th birthday. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_2_20250330161122.jpg&q=90)
 ![Brett Muntz, who's supporting Fiji, says the Sevens is "all about the people". Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_3_20250330161122.jpg&q=90)
 ![Epeli Buliciri shows off his pin collection. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_4_20250330161122.jpg&q=90)
