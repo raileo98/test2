@@ -47,7 +47,6 @@
 
 # 七欖閉幕禮　啟德主場館上空發放約一分鐘煙火
 
-![在閉幕禮上，啟德主場館上空發放約一分鐘煙火。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798143_1_20250330204644.jpg&q=90)
 ![四方看台上蓋共安裝28個發射點，以多角度發放25米高的十色煙火。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798143_2_20250330204644.jpg&q=90)
   
 
