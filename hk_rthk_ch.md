@@ -1,3 +1,26 @@
+# 特朗普：尋求第三度任總統並非開玩笑
+
+  
+
+美國總統特朗普表示，尋求第三度擔任總統並非講笑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm)
+
+---
+
 # 內塔尼亞胡：以色列準備好下一階段停火談判　哈馬斯必須放下武器
 
 ![內塔尼亞胡說，要實現談判，哈馬斯要放下武器。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798166_1_20250331031615.jpg&q=90)
@@ -1424,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798088-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798088-20250330.htm)
-
----
-
-# 積金局加強規管杜絕電話推銷　籲市民收可疑來電立即收線
-
-![劉麥嘉軒說，如果市民日後收到來歷不明的cold call，聲稱是中介人並銷售強積金，建議立即收線。（積金局網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798086_1_20250330092756.jpg&q=90)
-  
-
-積金局主席劉麥嘉軒關注俗稱cold call的來歷不明推銷電話泛濫，甚至有不法之徒冒充強積金中介人進行電話詐騙。積金局早前已就強積金中介人的cold call進一步制訂嚴格的規管要求。因應積金局一系列措施，自去年起以cold call銷售強積金產品或服務的中介人比以往已大幅減少。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 特朗普：尋求第三度任總統並非開玩笑
+
+  
+
+美國總統特朗普表示，尋求第三度擔任總統並非講笑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm)
+
+---
+
 # 內塔尼亞胡：以色列準備好下一階段停火談判　哈馬斯必須放下武器
 
 ![內塔尼亞胡說，要實現談判，哈馬斯要放下武器。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798166_1_20250331031615.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798010-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798010-20250329.htm)
-
----
-
-# 特區政府救援隊前赴緬甸　李家超及多名官員將到機場送行
-
-![李家超下午將到機場送行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798008_1_20250329135721.jpg&q=90)
-  
-
-特區政府派出保安局、消防處、入境處和醫管局人員組成的救援隊前往緬甸，協助地震災區的搜救工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm)
 
 ---
