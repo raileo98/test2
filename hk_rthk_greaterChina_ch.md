@@ -1,3 +1,27 @@
+# 中方多支救援隊在緬甸地震災區全力搜救
+
+![中國救援隊在緬甸曼德勒長城飯店救援3名被困人士。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798158_1_20250331005458.jpg&q=90)
+  
+
+中方多支救援隊在緬甸地震災區全力搜救。在當地救援力量配合下至今救出兩名幸存者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798158-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798158-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798158-20250331.htm)
+
+---
+
 # 廣東省茂名市3級地震　震央附近東岸鎮有輕微震感
 
 ![廣東省茂名市3級地震　震央附近東岸鎮有輕微震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798154_1_20250330231533.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797819-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797819-20250328.htm)
-
----
-
-# 《環看天下》：卡尼稱加中貿易關係須謹慎    中方冀相向而行
-
-![卡尼日前表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面，需要非常謹慎。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797796_1_20250328091436.jpg&q=90)
-  
-
-加拿大總理卡尼日前表示，中國在貿易方面並不認同加拿大的價值觀，加拿大在加強雙邊貿易關係方面，需要非常謹慎。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm)
 
 ---

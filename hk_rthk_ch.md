@@ -1,3 +1,27 @@
+# 中方多支救援隊在緬甸地震災區全力搜救
+
+![中國救援隊在緬甸曼德勒長城飯店救援3名被困人士。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798158_1_20250331005458.jpg&q=90)
+  
+
+中方多支救援隊在緬甸地震災區全力搜救。在當地救援力量配合下至今救出兩名幸存者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798158-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798158-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798158-20250331.htm)
+
+---
+
 # 美國海嘯預警中心解除對湯加海嘯警報
 
 ![美國海嘯預警中心解除對湯加海嘯警報](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798157_1_20250331004003.jpg&q=90)
@@ -1423,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798077-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798077-20250330.htm)
-
----
-
-# 香港特區救援隊抵達緬甸　賑災基金預留3千萬元賑災
-
-![特區政府派出的救援隊昨晚抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798076_1_20250330061016.jpg&q=90)
-  
-
-特區政府派出的51人救援隊已經抵達緬甸，準備協助搜救工作。行政長官李家超表示，一收到緬甸駐港總領事合的要求後，特區政府短時間內就成立救援隊，感謝各隊員迅速響應，同時寄語他們要注意安全。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm)
 
 ---
