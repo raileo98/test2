@@ -1,3 +1,27 @@
+# 四家國有大行擬向財政部等發A股集資不超過5200億元人民幣
+
+![中行等4家國有大行計劃向財政部等機構發行A股集資增加核心一級資本。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798172_1_20250331052959.jpg&q=90)
+  
+
+中國銀行等4家國有大行計劃向中國財政部等機構發行A股集資，總規模不超過5200億元人民幣，用於增加核心一級資本，更好服務實體經濟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798172-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798172-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798172-20250331.htm)
+
+---
+
 # 中石油去年盈利創新高　按年升2%
 
 ![中石油去年盈利1646.84億元人民幣，創新高，按年上升2%。末期息每股0.25元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798170_1_20250331050934.jpg&q=90)
@@ -1422,29 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm)
-
----
-
-# 中國駐緬甸大使館︰至少10名中國公民在地震中受傷
-
-![中國駐緬甸大使館確認10多名中國公民在地震中受傷。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798096_1_20250330122529.jpg&q=90)
-  
-
-中國駐緬甸大使館表示，已確認至少10名中國公民在地震中受傷，都在醫院接受治療。由於災區救援工作仍在進行，後續傷亡人數可能還會增加，使館將全力協調救援。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 四家國有大行擬向財政部等發A股集資不超過5200億元人民幣
+
+![中行等4家國有大行計劃向財政部等機構發行A股集資增加核心一級資本。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798172_1_20250331052959.jpg&q=90)
+  
+
+中國銀行等4家國有大行計劃向中國財政部等機構發行A股集資，總規模不超過5200億元人民幣，用於增加核心一級資本，更好服務實體經濟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798172-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798172-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798172-20250331.htm)
+
+---
+
 # 中石油去年盈利創新高　按年升2%
 
 ![中石油去年盈利1646.84億元人民幣，創新高，按年上升2%。末期息每股0.25元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798170_1_20250331050934.jpg&q=90)
@@ -1419,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797840-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797840-20250328.htm)
-
----
-
-# 李寧：不會為維繫生意而犧牲部分專業屬性
-
-![錢煒（左）稱中國體育用品賽道未來前景積極樂觀；李寧（中）稱國家推進體育強國建設，行業前景廣闊。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797836_1_20250328123702.jpg&q=90)
-  
-
-李寧去年淨利潤率10.5%，收入按年升約4%至286.8億元人民幣。集團預計，今年全年收入按年持平，全年淨利潤率料於高單位數水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797836-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797836-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797836-20250328.htm)
 
 ---
