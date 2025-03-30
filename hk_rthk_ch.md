@@ -1,3 +1,26 @@
+# 東電結束福島處理水第十一次排海　氚濃度無異常
+
+  
+
+日本東京電力公司公布，福島第一核電站第11次核污水排海作業已結束，是本財政年度的最後一次，共排放約7800噸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm)
+
+---
+
 # 七欖賽事最後一日　啟德美食海灣有檔主推折扣吸客
 
   
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm)
-
----
-
-# 天文台：緬甸昨天大地震因震源距離香港較遠　本地沒有震感
-
-![天文台稱，緬甸昨天發生的大地震因震源距離香港較遠，本地沒有震感。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798041_1_20250329200137.jpg&q=90)
-  
-
-天文台表示，緬甸昨日下午發生的大地震，發生於緬甸中部的走滑斷層上。天文台的地震儀探測到地震引起的地震波，透過實時分析全球及本地地震儀數據，地震數據處理系統計算出地震參數。香港寶珊寬頻地震站探測到這次地震的地震波形，由於震源距離香港較遠，本地沒有震感。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798041-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798041-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798041-20250329.htm)
 
 ---

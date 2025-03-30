@@ -1,3 +1,26 @@
+# 東電結束福島處理水第十一次排海　氚濃度無異常
+
+  
+
+日本東京電力公司公布，福島第一核電站第11次核污水排海作業已結束，是本財政年度的最後一次，共排放約7800噸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm)
+
+---
+
 # 緬甸領導人敏昂萊慰問中國雲南救援醫療隊　感謝協助救援
 
 ![救援人員在內比都一間醫院的倒塌樓層下救出一名長者。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798113_1_20250330153825.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm)
-
----
-
-# 以軍襲貝魯特建築物指真主黨存放無人機　馬克龍批評違反停火協議
-
-![貝魯特一處社區遇襲，民防組織在現場善後。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797957_1_20250329023920.jpg&q=85)
-  
-
-以色列國防軍發表聲明指出，以軍攻擊位於黎巴嫩首都貝魯特一處黎巴嫩真主黨用於存放無人機的重要據點，指責真主黨將有關設施設於社區中，強調事前已向當地民眾發出撤離警告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797957-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797957-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797957-20250329.htm)
 
 ---
