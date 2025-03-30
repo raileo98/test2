@@ -1,3 +1,26 @@
+# 許正宇認為長和擬售巴拿馬港口事件不影響家辦投資意欲
+
+  
+
+財經事務及庫務局局長許正宇表示，全球政經環境複雜，反而對香港的家族辦公室業務更為有利，因為香港的投資環境穩定，亦有預見性，可讓投資者或家族辦公室的財富增值或保值。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798102-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798102-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798102-20250330.htm)
+
+---
+
 # 許正宇：政府正就家族辦公室稅務寬免草擬修訂
 
   
@@ -1423,29 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm)
-
----
-
-# 長和擬售港口將被國家監管當局審查　多名議員支持以保護公平競爭
-
-![多名立法會議員發文支持國家市場監督管理總局依法審查。圖為巴拿馬運河港口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797958_1_20250329024031.jpg&q=75)
-  
-
-多名立法會議員在社交專頁發文，支持國家市場監督管理總局依法對長和計劃出售巴拿馬港口進行審查，以保護市場公平競爭，維護社會公共利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm)
 
 ---
