@@ -1,3 +1,26 @@
+# 七欖散場前啟德有大量巴士及的士等候　有觀眾建議增加英文指示牌
+
+  
+
+香港國際七人欖球賽落幕，啟德體育園主場館晚上有煙火匯演。位於青年運動場附近的特別巴士站和的士站，未完場已經有大量空巴士和空的士等候。有觀眾擔心散場後多人，因此提早離開，但沒想到的士站也會「打蛇餅」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm)
+
+---
+
 # 七欖閉幕禮　啟德主場館上空發放約一分鐘煙火
 
 ![在閉幕禮上，啟德主場館上空發放約一分鐘煙火。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798143_1_20250330204644.jpg&q=90)
@@ -1424,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm)
-
----
-
-# 麥美娟稱計劃舉辦關愛隊分享會　讓外界更認識關愛隊工作
-
-![麥美娟表示，新一屆區議會特別訂立履職監察制度，以確保區議員盡責履職。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798016_1_20250329172944.jpg&q=90)
-  
-
-現屆470名區議員日前已經提交年度工作報告，民政及青年事務局局長麥美娟表示，民政事務總署和各區民政事務專員會整理報告，方便市民查閱。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798016-20250329.htm)
 
 ---

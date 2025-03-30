@@ -1,3 +1,50 @@
+# 廣東茂名高州市晚上發生3級地震　震源深度10公里
+
+![廣東茂名高州市晚上發生3級地震　震源深度10公里](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798146_1_20250330211004.jpg&q=90)
+  
+
+廣東茂名高州市發生地震，中國地震台網測定，強度達到3級。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798146-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798146-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798146-20250330.htm)
+
+---
+
+# 七欖散場前啟德有大量巴士及的士等候　有觀眾建議增加英文指示牌
+
+  
+
+香港國際七人欖球賽落幕，啟德體育園主場館晚上有煙火匯演。位於青年運動場附近的特別巴士站和的士站，未完場已經有大量空巴士和空的士等候。有觀眾擔心散場後多人，因此提早離開，但沒想到的士站也會「打蛇餅」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm)
+
+---
+
 # 湯加發生7.3級地震　未有人員傷亡報告　美國當局發海嘯警報
 
 ![湯加發生7.3級地震　未有人員傷亡報告　美國當局發海嘯警報](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798144_1_20250330210203.jpg&q=90)
