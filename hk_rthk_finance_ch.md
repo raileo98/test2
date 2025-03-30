@@ -24,7 +24,9 @@
 
 # 國泰客機低空掠過啟德主場館鄰近上空　千禧飛機迷感難得
 
-![國泰航空A350客機下低空掠過啟德主場館鄰近上空，以紀念啟德機場100周年。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_1_20250330190807.jpg&q=90)
+![有七欖觀眾表示自己飛機迷，在啟德主場館見證飛機低飛實屬難得。（鄧鈞尤攝）.jpg](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_4_20250330221354.jpg&q=20)
+![國泰航空特別航班CX8100掠過啟德主場館鄰近上空。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_2_20250330221354.jpg&q=85)
+![不少觀眾爭取有利位置觀看飛機越過。 （鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_3_20250330221354.jpg&q=90)
   
 
 國泰航空特別航班CX8100下午4時低飛越過維港，並掠過啟德主場館鄰近上空。

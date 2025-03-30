@@ -1,3 +1,27 @@
+# Rugby Sevens a successful try, says John Lee
+
+![The three-day Hong Kong Sevens concludes its first showcase at the brand new Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798148_1_20250330214352.jpg&q=75)
+  
+
+A fireworks display capped off a three-day rugby extravaganza at the Kai Tak Stadium on Sunday, bringing an end to the Hong Kong Sevens at its new home.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798148-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798148-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798148-20250330.htm)
+
+---
+
 # SAR rescue team to begin work in quake-hit Myanmar
 
 ![International rescue organisations have called for support for the victims of Friday's tremor. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798131_1_20250330182417.jpg&q=60)
@@ -1437,29 +1461,5 @@ Non-urgent patients seeking help at the city's public accident and emergency war
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797291-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797291-20250325.htm)
-
----
-
-# Relief as billiards keep Tier A status
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797283_1_20250325120446.jpg&q=90)
-  
-
-The chairman of the Billiard Sports Council of Hong Kong China welcomes the government's decision to retain the sport's Tier A status, saying the impact would have been devastating had the sport been downgraded.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm)
 
 ---

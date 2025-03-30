@@ -1,3 +1,27 @@
+# Rugby Sevens a successful try, says John Lee
+
+![The three-day Hong Kong Sevens concludes its first showcase at the brand new Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798148_1_20250330214352.jpg&q=75)
+  
+
+A fireworks display capped off a three-day rugby extravaganza at the Kai Tak Stadium on Sunday, bringing an end to the Hong Kong Sevens at its new home.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798148-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798148-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798148-20250330.htm)
+
+---
+
 # Argentina in seventh heaven over maiden HK title
 
 ![Argentina won the Hong Kong Sevens for the first time ever. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798137_1_20250330193653.jpg&q=75)
@@ -1431,29 +1455,5 @@ US Secretary of State Marco Rubio warned on Thursday it was premature to expect 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797827-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797827-20250328.htm)
-
----
-
-# 'Innovation the way to go for China'
-
-![Speakers at the Boao Forum for Asia highlighted China's continued efforts at technological innovation. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797826_1_20250328115333.jpg&q=90)
-  
-
-At the official opening of the Boao Forum for Asia on Thursday, Vice Premier Ding Xuexiang said China's economy was remaking itself with the growing capacity to drive growth through innovation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797826-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797826-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797826-20250328.htm)
 
 ---

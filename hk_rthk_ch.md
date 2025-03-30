@@ -1,5 +1,6 @@
 # 七欖三日合計逾11萬人入場　運輸署稱離場整體交通大致暢順
 
+![移師啟德體育園的七欖賽事，三日合計有超過11萬人入場，單計今日就有38352人入場。(游樹榮攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798147_1_20250330220944.jpg&q=90)
   
 
 首度移師啟德體育園舉行的香港國際七人欖球賽結束，中國香港欖球總會表示，三日合計有超過11萬人入場，單計今日就有38352人入場。
@@ -119,7 +120,6 @@
 
 # 李家超：啟德主場館首場大賽圓滿達陣　期待未來盛事精彩不斷
 
-![李家超說，主場館上蓋打開，球迷的喝彩聲響徹場館，氣氛更勝過往。（李家超社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798142_1_20250330212035.jpg&q=90)
 ![李家超又到賽事首設、面積達7800呎的球迷村，形容如同嘉年華。(李家超社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798142_2_20250330215717.jpg&q=85)
   
 
@@ -265,7 +265,9 @@
 
 # 國泰客機低空掠過啟德主場館鄰近上空　千禧飛機迷感難得
 
-![國泰航空A350客機下低空掠過啟德主場館鄰近上空，以紀念啟德機場100周年。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_1_20250330190807.jpg&q=90)
+![有七欖觀眾表示自己飛機迷，在啟德主場館見證飛機低飛實屬難得。（鄧鈞尤攝）.jpg](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_4_20250330221354.jpg&q=20)
+![國泰航空特別航班CX8100掠過啟德主場館鄰近上空。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_2_20250330221354.jpg&q=85)
+![不少觀眾爭取有利位置觀看飛機越過。 （鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_3_20250330221354.jpg&q=90)
   
 
 國泰航空特別航班CX8100下午4時低飛越過維港，並掠過啟德主場館鄰近上空。
