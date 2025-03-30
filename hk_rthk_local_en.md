@@ -1,4 +1,4 @@
-# SAR rescue team begins work in quake-hit Myanmar
+# SAR rescue team to begin work in quake-hit Myanmar
 
 ![International rescue organisations have called for support for the victims of Friday's tremor. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798131_1_20250330182417.jpg&q=60)
   

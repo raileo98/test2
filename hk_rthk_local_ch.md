@@ -1,3 +1,26 @@
+# 國泰客機低空掠過啟德主場館鄰近上空　千禧飛機迷感難得
+
+  
+
+國泰航空A350客機下午飛越維港，低空掠過啟德主場館鄰近上空，以紀念啟德機場100周年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm)
+
+---
+
 # 本港下午各區氣溫較昨日低兩三度　18間臨時避寒中心開放
 
 ![民政事務總署在各區開放共18間臨時避寒中心，供有需要的市民避寒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798133_1_20250330184909.jpg&q=90)
@@ -1422,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798005-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798005-20250329.htm)
-
----
-
-# 七欖移師啟德舉行　蕭澤頤稱整體運作暢順已與運輸署商討改善安排
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798004_1_20250329135846.jpg&q=90)
-  
-
-一連三日的香港國際七人欖球賽昨日首度移師啟德體育園主場館舉行，警務處處長蕭澤頤表示，昨日的交通管制、人流進場或離場等整體運作非常暢順。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798004-20250329.htm)
 
 ---

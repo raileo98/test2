@@ -1,3 +1,26 @@
+# 國泰客機低空掠過啟德主場館鄰近上空　千禧飛機迷感難得
+
+  
+
+國泰航空A350客機下午飛越維港，低空掠過啟德主場館鄰近上空，以紀念啟德機場100周年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm)
+
+---
+
 # 許正宇認為長和擬售巴拿馬港口事件不影響家辦投資意欲
 
 ![許正宇認為長和擬售巴拿馬港口事件不影響家辦投資意欲](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798102_1_20250330142009.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm)
-
----
-
-# 恒指半日轉跌210點　科指跌近1.7%
-
-![恒指中午收市報23368點，跌210點，跌幅近0.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797828_1_20250328121259.jpg&q=75)
-  
-
-期指結算日，港股先高後低，恒生指數初段一度升近200點，其後最多轉跌近260點，中午收市報23368點，跌210點，跌幅近0.9%，半日主板成交額1317億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797828-20250328.htm)
 
 ---
