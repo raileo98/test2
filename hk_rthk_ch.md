@@ -1,3 +1,26 @@
+# 中醫醫院辦招聘會　醫衞局稱反應熱烈彰顯社會重視
+
+  
+
+醫務衞生局表示，香港中醫醫院昨日舉辦招聘活動，招聘醫院行政及前線員工，公眾反應熱烈，彰顯社會對中醫藥事業的重視。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798110-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798110-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798110-20250330.htm)
+
+---
+
 # 運輸署料七欖閉幕較多觀眾同時間離場　籲盡量乘搭港鐵
 
   
@@ -71,7 +94,7 @@
 
 # 羅淑佩稱已要求啟德體育園加強食品供應　排隊情況有改善
 
-![羅淑佩說，已要求啟德體育園加強食品供應。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798106_1_20250330150358.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798106_1_20250330150358.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩到啟德體育園主場館，視察香港國際七人欖球賽第三日賽事。她提到，自己昨日需要排隊一段時間才買到漢堡包，今日見到啟德體育園加強食品供應，排隊情況有改善。整體而言，她認為，三日賽事每日都有進展。
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm)
-
----
-
-# 入境處共接獲55宗有關緬甸最新情況查詢
-
-![入境處表示，截至下午5時，共接獲55宗有關緬甸最新情況的查詢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798036_1_20250329191359.jpg&q=75)
-  
-
-入境處表示，截至下午5時，共接獲55宗有關緬甸最新情況的查詢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm)
 
 ---
