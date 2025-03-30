@@ -1,3 +1,26 @@
+# 運輸署料七欖閉幕較多觀眾同時間離場　籲盡量乘搭港鐵
+
+  
+
+一連3日國際七人欖球賽最後一天在啟德主場館舉行，晚上約7時舉行閉幕式，啟德體育園表示，主場館2樓和5樓均為理想觀賞地點，呼籲觀眾經F和H閘口乘搭電梯到達5樓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm)
+
+---
+
 # 諾定咸森林憑互射12碼淘汰白禮頓　34年來首次晉級英足盃4強
 
 ![諾定咸森林自1991年以來首次殺入足總盃4強。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798079_1_20250330072655.jpg&q=85)
@@ -1435,29 +1458,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796167-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796167-20250318.htm)
-
----
-
-# 國際奧委會全會周三起舉行　將選出新主席接替巴赫
-
-![巴赫向繼任人提出建議，首先始終將運動員置於奧林匹克運動的核心；其次要保持奧林匹克運動的團結。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796165_1_20250318070437.jpg&q=90)
-  
-
-國際奧委會第144次全會將於星期三起一連三天在希臘納瓦里諾海岸舉行，選舉產生第十任主席，接替任期即將結束的現任主席巴赫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796165-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796165-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796165-20250318.htm)
 
 ---

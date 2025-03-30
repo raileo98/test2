@@ -1,3 +1,26 @@
+# 運輸署料七欖閉幕較多觀眾同時間離場　籲盡量乘搭港鐵
+
+  
+
+一連3日國際七人欖球賽最後一天在啟德主場館舉行，晚上約7時舉行閉幕式，啟德體育園表示，主場館2樓和5樓均為理想觀賞地點，呼籲觀眾經F和H閘口乘搭電梯到達5樓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm)
+
+---
+
 # 羅淑佩稱已要求啟德體育園加強食品供應　排隊情況有改善
 
   
@@ -1420,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797982-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797982-20250329.htm)
-
----
-
-# 何永賢：簡約公屋居民儲蓄數年或可能足夠支付購買居屋首期
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797981_1_20250329094102.jpg&q=90)
-  
-
-位於元朗攸壆路的首個簡約公屋項目昨日起陸續入伙，房屋局局長何永賢表示，預計每日有50至100戶居民入伙，到5月底全部2100個單位會全部入伙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797981-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797981-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797981-20250329.htm)
 
 ---
