@@ -192,6 +192,7 @@
 
 # 特區救援隊抵達緬甸首都　隨即展開勘察及部署
 
+![緬甸日前發生大地震，特區政府派出救援隊協助救援。（保安局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798124_2_20250330190435.jpg&q=90)
 ![救援隊領隊趙汝珏說，昨晚大約9時抵達仰光機場，凌晨3時半出發前往首都內比都。（保安局片段）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798124_1_20250330171217.jpg&q=80)
   
 
@@ -217,6 +218,7 @@
 # 緬甸地震增至1700人死亡　曼德勒下午發生5.1級餘震
 
 ![緬甸地震增至1700人死亡。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798123_1_20250330164920.jpg&q=60)
+![緬甸地震增至1700人死亡，3400多人受傷，300多人失蹤。中國駐緬甸大使館至今確認10多名中國公民受傷。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798123_2_20250330180352.jpg&q=90)
   
 
 緬甸地震增至1700人死亡，3400多人受傷，300多人失蹤。中國駐緬甸大使館至今確認10多名中國公民受傷。
