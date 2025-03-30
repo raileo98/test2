@@ -1,3 +1,50 @@
+# 赫格塞斯：日本是遏制中國不可或缺的夥伴
+
+  
+
+美國國防部長赫格塞斯表示，日本是遏制中國不可或缺的夥伴，協助華府在包括台灣海峽等地區建立可靠的嚇阻力量。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm)
+
+---
+
+# 泰國曼谷17人於緬甸大地震死亡　83人仍失蹤
+
+![救援人員持續在倒塌的建築物搜索。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798107_1_20250330142843.jpg&q=45)
+  
+
+泰國曼谷市政府表示，截至當地今早6時，緬甸中部大地震已造成曼谷17人死亡，32人受傷，83人仍然失蹤。當局正加緊搜救工作，並緊急撥款2億泰銖救災。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm)
+
+---
+
 # 緬甸反對軍政府武裝提出停火兩星期以便救災工作
 
 ![緬甸地震增至1600多人死亡，反軍政府武裝提出停火以便救災。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798105_1_20250330142828.jpg&q=90)
@@ -1393,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797956-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797956-20250329.htm)
-
----
-
-# 萬斯專機降落格陵蘭島　行程包括探訪美軍基地駐軍
-
-![萬斯行程包括探訪美軍基地的駐軍。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797955_1_20250329023326.jpg&q=90)
-  
-
-美國副總統萬斯乘坐的專機在格陵蘭島降落。他與夫人烏莎在當地的行程，包括探訪美軍基地的駐軍，並視察安全狀況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797955-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797955-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797955-20250329.htm)
-
----
-
-# 格陵蘭島組成新一屆自治政府　尼爾森出任自治政府總理
-
-![四個政黨在格陵蘭島首府努克的文化中心簽署聯合執政協議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797954_1_20250329023507.jpg&q=90)
-  
-
-丹麥自治領地格陵蘭島在當地星期五，組成新一屆自治政府。尼爾森出任自治政府總理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797954-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797954-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797954-20250329.htm)
 
 ---

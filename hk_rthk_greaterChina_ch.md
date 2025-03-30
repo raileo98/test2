@@ -1,3 +1,26 @@
+# 赫格塞斯：日本是遏制中國不可或缺的夥伴
+
+  
+
+美國國防部長赫格塞斯表示，日本是遏制中國不可或缺的夥伴，協助華府在包括台灣海峽等地區建立可靠的嚇阻力量。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm)
+
+---
+
 # 緬甸地震逾1600人死亡　十多名中國公民受傷
 
 ![緬甸地震增至1600多人死亡，3400多人受傷，百多人失蹤。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798098_2_20250330122453.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797740-20250327.htm)
-
----
-
-# 中方：奉勸美方反思對拉美和加勒比國家的霸權霸凌　停止抺黑中國
-
-![外交部說，美方惡意散布虛假信息，目的是挑撥中國同其他國家關係，不會得逞。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797737_1_20250327211131.jpg&q=80)
-  
-
-在北京，外交部發言人郭嘉昆表示，中方同世界各國開展投資合作，有力地促進各國經濟發展和民生改善。奉勸美方好好反思自身對拉美和加勒比發展中國家的霸權霸凌和巧取豪奪，停止對中國的歪曲抹黑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm)
 
 ---

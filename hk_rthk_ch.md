@@ -1,3 +1,27 @@
+# 泰國曼谷17人於緬甸大地震死亡　83人仍失蹤
+
+![救援人員持續在倒塌的建築物搜索。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798107_1_20250330142843.jpg&q=45)
+  
+
+泰國曼谷市政府表示，截至當地今早6時，緬甸中部大地震已造成曼谷17人死亡，32人受傷，83人仍然失蹤。當局正加緊搜救工作，並緊急撥款2億泰銖救災。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm)
+
+---
+
 # 羅淑佩稱已要求啟德體育園加強食品供應　排隊情況有改善
 
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm)
-
----
-
-# 公營醫療增收費　盧寵茂不同意「收費就是道德不正確」的說法
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798026_1_20250329181706.jpg&q=90)
-  
-
-公營醫療收費改革下，急症室收費明年起增至400元，危殆、危急病人或傷者獲豁免。醫務衞生局局長盧寵茂表示，目前急症室有6成求診人士，情況屬於相對不緊急，增加收費可以發揮導向作用，減少濫用。他又不同意外界指，「收費就是道德不正確」的說法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm)
 
 ---
