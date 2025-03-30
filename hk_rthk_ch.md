@@ -96,7 +96,7 @@
 
 # 巴勒斯坦紅新月會8名醫務人員在加沙被殺害
 
-![加沙的巴勒斯坦民眾繼續排避戰火。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798169_1_20250331044650.jpg&q=85)
+![加沙的巴勒斯坦民眾繼續逃避戰火。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798169_1_20250331044650.jpg&q=85)
   
 
 紅十字會與紅新月會國際聯合會發表聲明說，對於巴勒斯坦紅新月會8名醫務人員在加沙地帶執行任務時被殺害，感到強烈憤慨。
