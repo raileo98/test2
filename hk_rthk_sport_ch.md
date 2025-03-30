@@ -1,3 +1,26 @@
+# 西甲巴塞4:1勝基羅納　意甲國米2:1擊敗烏甸尼斯
+
+  
+
+巴塞羅那在西甲主場以4:1擊敗基羅納。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798176-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798176-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798176-20250331.htm)
+
+---
+
 # 英足盃八強曼城反勝般尼茅夫　維拉三蛋贈普雷斯頓
 
 ![曼城反勝對手晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798162_1_20250331021820.jpg&q=90)
@@ -1437,29 +1460,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm)
-
----
-
-# 比利時門將古圖奧斯獲重召　冀球迷接受他回歸
-
-![古圖奧斯說，希望球迷接受他回歸。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796344_1_20250319072249.jpg&q=90)
-  
-
-比利時將在歐國聯附加賽對烏克蘭，比利時門將古圖奧斯相隔一段時間再獲重召。他說，希望球迷接受他回歸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796344-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796344-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796344-20250319.htm)
 
 ---

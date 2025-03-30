@@ -1,3 +1,27 @@
+# 施紀賢與特朗普通話討論英美貿易協議問題
+
+![施紀賢曾於2月訪問白宮，與特朗普會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798178_1_20250331071945.jpg&q=85)
+  
+
+英國首相施紀賢和美國總統特朗普通話，英國首相府說，兩人討論了有關英美貿易協議「富有成效」的談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm)
+
+---
+
 # 特朗普稱對普京非常生氣　威脅對俄石油徵收「二級關稅」
 
 ![特朗普說，他對於普京最近批評烏克蘭總統澤連斯基的可信度等言論「非常生氣」和「惱火」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798171_1_20250331051441.jpg&q=90)
@@ -1416,30 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm)
-
----
-
-# 特區救援隊51人前赴緬甸災區　抵達現場後將立即加入救援
-
-![特區政府救援隊一行51人在機場集合，前往緬甸災區協助搜救。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_3_20250329151729.jpg&q=70)
-![搜救隊由保安局、消防處、入境處和醫管局組成。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798015_4_20250329151946.jpg&q=85)
-  
-
-特區政府救援隊一行51人今日前往緬甸災區，協助搜救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798015-20250329.htm)
 
 ---

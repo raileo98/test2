@@ -1,3 +1,50 @@
+# 施紀賢與特朗普通話討論英美貿易協議問題
+
+![施紀賢曾於2月訪問白宮，與特朗普會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798178_1_20250331071945.jpg&q=85)
+  
+
+英國首相施紀賢和美國總統特朗普通話，英國首相府說，兩人討論了有關英美貿易協議「富有成效」的談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm)
+
+---
+
+# 西甲巴塞4:1勝基羅納　意甲國米2:1擊敗烏甸尼斯
+
+  
+
+巴塞羅那在西甲主場以4:1擊敗基羅納。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798176-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798176-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798176-20250331.htm)
+
+---
+
 # 代理：周末二手交投活躍　受一手帶動
 
 ![地產代理表示，一手熱賣帶動本月不少屋苑二手交投亦按月上升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798173_1_20250331054025.jpg&q=85)
@@ -1396,55 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798102-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798102-20250330.htm)
-
----
-
-# 許正宇：政府正就家族辦公室稅務寬免草擬修訂
-
-![許正宇：政府正就家族辦公室稅務寬免草擬修訂](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798100_1_20250330142026.jpg&q=90)
-  
-
-財經事務及庫務局局長許正宇表示，全球政經環境複雜，反而對香港的家族辦公室業務更為有利，因為香港的投資環境穩定，亦有預見性，可讓投資者或家族辦公室的財富增值或保值。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798100-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798100-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798100-20250330.htm)
-
----
-
-# 港島環島長廊已駁通八成　五大主題路徑各有特色
-
-![環島長廊有五段主題路徑，每段各有特色。（發展局網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798099_1_20250330123012.jpg&q=85)
-![夕霞徑可以欣賞壯麗日落，沉醉於夕陽與晚霞交織的美景，圖為沙灣泳棚。（發展局網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798099_2_20250330123012.jpg&q=90)
-![漁怡徑可以認識漁民生活，發掘香港漁業文化和歷史，圖為香港仔避風塘。（發展局網誌）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798099_3_20250330123012.jpg&q=80)
-  
-
-發展局表示，將繼續與不同部門、持份者及專業團體協作，落實駁通多區的步行徑，以期在2031年底前大致完成環島長廊，餘下路段包括連接香港仔海濱至深灣碼頭徑、杏花邨至筲箕灣，南朗山至苗鍾徑；期待環島長廊既連接城市空間，更是社區與自然互動的重要紐帶。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798099-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798099-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798099-20250330.htm)
 
 ---
