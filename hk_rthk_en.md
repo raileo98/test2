@@ -1,3 +1,27 @@
+# Four large state-owned banks recapitalise
+
+![The fundraising will boost the ability of the banks to bolster the real economy. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798177_1_20250331072356.jpg&q=90)
+  
+
+Four of the mainland's largest state-owned banks said on Sunday they plan to raise a combined 520 billion yuan (US$71.60 billion) in private placements from investors, including the finance ministry, after Beijing pledged to help them support the economy.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798177-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798177-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798177-20250331.htm)
+
+---
+
 # Bagnaia wins USA MotoGP after Márquez crash
 
 ![Francesco Bagnaia of Italy rides during the 2025 Grand Prix of the Americas at Circuit of The Americas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798175_1_20250331060812.jpg&q=90)
@@ -1429,29 +1453,5 @@ Public transport operators are boosting services to accommodate the large crowds
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm)
-
----
-
-# Bulls score 6 points in 6 seconds in win over Lakers
-
-![Late triples from Coby White (L) and Josh Giddey helped the Bulls to a win over the Lakers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797835_1_20250328123014.jpg&q=90)
-  
-
-Josh Giddey buried a miracle shot from beyond halfcourt at the final buzzer as the Chicago Bulls overturned an 18-point fourth-quarter deficit to beat the Los Angeles Lakers 119-117.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797835-20250328.htm)
 
 ---

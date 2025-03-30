@@ -1,5 +1,6 @@
 # Four large state-owned banks recapitalise
 
+![The fundraising will boost the ability of the banks to bolster the real economy. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798177_1_20250331072356.jpg&q=90)
   
 
 Four of the mainland's largest state-owned banks said on Sunday they plan to raise a combined 520 billion yuan (US$71.60 billion) in private placements from investors, including the finance ministry, after Beijing pledged to help them support the economy.
