@@ -1,3 +1,26 @@
+# 七欖三日合計逾11萬人入場　運輸署稱離場整體交通大致暢順
+
+  
+
+首度移師啟德體育園舉行的香港國際七人欖球賽結束，中國香港欖球總會表示，三日合計有超過11萬人入場，單計今日就有38352人入場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm)
+
+---
+
 # 廣東茂名高州市晚上發生3級地震　震源深度10公里
 
 ![廣東茂名高州市晚上發生3級地震　震源深度10公里](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798146_1_20250330211004.jpg&q=90)

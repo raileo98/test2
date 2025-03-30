@@ -1,3 +1,26 @@
+# 七欖三日合計逾11萬人入場　運輸署稱離場整體交通大致暢順
+
+  
+
+首度移師啟德體育園舉行的香港國際七人欖球賽結束，中國香港欖球總會表示，三日合計有超過11萬人入場，單計今日就有38352人入場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm)
+
+---
+
 # 七欖散場前啟德有大量巴士及的士等候　有觀眾建議增加英文指示牌
 
 ![有市民表示不清楚原來可以先預約的士等候，看到車站人龍，就選擇邊等的士邊預約。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798145_1_20250330212149.jpg&q=80)
@@ -1424,30 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm)
-
----
-
-# 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
-
-![李家超與救援隊成員握手，又提醒他們要注意自身安全。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_2_20250329154656.jpg&q=85)
-![李家超形容，救援隊無懼挑戰，在救急扶危的大前提下，展現專業精神。（保安局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_3_20250329160247.jpg&q=85)
-  
-
-特區政府派出保安局、消防處、入境處和醫管局人員組成的51人救援隊前往緬甸，協助地震災區的搜救工作。行政長官李家超將區旗授予救援隊代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm)
 
 ---
