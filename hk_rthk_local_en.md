@@ -46,7 +46,7 @@ Chief Executive John Lee says the SAR government has earmarked HK$30 million fro
 
 ---
 
-# Police arrest Indonesian woman in TKO drugs bust
+# Police arrest woman in Tseung Kwan O drugs bust
 
 ![During a raid on a flat, police found suspected drugs and suspected drug-making equipment. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798087_2_20250330095027.jpg&q=80)
   

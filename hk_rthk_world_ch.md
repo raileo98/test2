@@ -1,3 +1,26 @@
+# 緬甸地震逾1600人死亡　十多名中國公民受傷
+
+  
+
+緬甸中部大地震至今，增至1600多人死亡，3400多人受傷，百多人失蹤。雲南救援醫療隊凌晨在內比都救出1名被困近40小時的長者。中國駐緬甸大使館至今確認十多名中國公民在地震中受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm)
+
+---
+
 # 中日韓經貿部長會議在首爾舉行
 
 ![中國商務部長王文濤（右）、日本經濟產業大臣武藤容治（左），和南韓產業部長安德根出席會議。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798093_1_20250330103434.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797953-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797953-20250329.htm)
-
----
-
-# 緬甸地震增至144死732傷　曼谷有建築物倒塌5死逾百人失蹤
-
-![緬甸發生大地震，曼德勒有建築物倒塌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797943_1_20250328225226.jpg&q=90)
-  
-
-緬甸中部發生7.7級地震，領導人敏昂萊在當地傳媒發表講話，表示地震已經導致144人死亡，732人受傷。他呼籲任何國家和任何組織向緬甸提供援助。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797943-20250328.htm)
 
 ---

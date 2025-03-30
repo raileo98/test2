@@ -1,3 +1,26 @@
+# 緬甸地震逾1600人死亡　十多名中國公民受傷
+
+  
+
+緬甸中部大地震至今，增至1600多人死亡，3400多人受傷，百多人失蹤。雲南救援醫療隊凌晨在內比都救出1名被困近40小時的長者。中國駐緬甸大使館至今確認十多名中國公民在地震中受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm)
+
+---
+
 # 中國駐緬甸大使館︰至少10名中國公民在地震中受傷
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798028-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798028-20250329.htm)
-
----
-
-# 丘應樺及麥美娟等政府官員明赴河南省出席黃帝故里拜祖大典
-
-![丘應樺、麥美娟和劉震明日前往河南省鄭州市，出席乙巳年黃帝故里拜祖大典。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798025_1_20250329173019.jpg&q=85)
-  
-
-商務及經濟發展局局長丘應樺、民政及青年事務局局長麥美娟和文化體育及旅遊局副局長劉震，明日前往河南省鄭州市，代表香港特別行政區政府出席乙巳年黃帝故里拜祖大典。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm)
 
 ---

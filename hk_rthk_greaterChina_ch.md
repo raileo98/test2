@@ -1,3 +1,26 @@
+# 緬甸地震逾1600人死亡　十多名中國公民受傷
+
+  
+
+緬甸中部大地震至今，增至1600多人死亡，3400多人受傷，百多人失蹤。雲南救援醫療隊凌晨在內比都救出1名被困近40小時的長者。中國駐緬甸大使館至今確認十多名中國公民在地震中受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm)
+
+---
+
 # 中國駐緬甸大使館︰至少10名中國公民在地震中受傷
 
   
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797737-20250327.htm)
-
----
-
-# 特首政策組與全國港澳研究會合辦全國兩會精神研討會
-
-![特首政策組與全國港澳研究會聯合主辦全國「兩會」精神與「新時代香港融入國家發展大局」專題研討會。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797734_1_20250327211837.jpg&q=90)
-  
-
-特首政策組與全國港澳研究會聯合主辦全國「兩會」精神與「新時代香港融入國家發展大局」專題研討會，就今年全國兩會的重要內容及對香港未來發展的重要啓示，作深入交流和互動研討。共有近120名來自本地民間智庫、大學智庫、專業機構、商會、特首政策組專家組，以及全國港澳研究會副會長、理事及顧問等不同領域和界別的代表參加。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm)
 
 ---
