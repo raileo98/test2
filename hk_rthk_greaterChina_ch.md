@@ -1,3 +1,26 @@
+# 中國駐緬甸大使館︰至少10名中國公民在地震中受傷
+
+  
+
+中國駐緬甸大使館表示，已確認至少10名中國公民在地震中受傷，都在醫院接受治療。由於災區救援工作仍在進行，後續傷亡人數可能還會增加，使館將全力協調救援。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm)
+
+---
+
 # 雲南救援醫療隊在緬甸內比都救出1名倖存者
 
 ![救援人員在緬甸內比都一間醫院的廢墟下救出一名倖存者。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798085_2_20250330104841.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797734-20250327.htm)
-
----
-
-# 李強晤法國外長　冀法方為赴法投資中企營造公平發展環境
-
-![國務院總理李強在北京會見法國外長巴羅。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797732_1_20250327203707.jpg&q=90)
-  
-
-國務院總理李強在北京會見法國外長巴羅時表示，中法雙方要共同抵制保護主義、單邊主義，繼續本著開放態度加強合作，充分發揮互補優勢，為兩國經濟發展不斷增添動力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797732-20250327.htm)
 
 ---

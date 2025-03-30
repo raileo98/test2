@@ -1,5 +1,31 @@
+# 中國駐緬甸大使館︰至少10名中國公民在地震中受傷
+
+  
+
+中國駐緬甸大使館表示，已確認至少10名中國公民在地震中受傷，都在醫院接受治療。由於災區救援工作仍在進行，後續傷亡人數可能還會增加，使館將全力協調救援。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm)
+
+---
+
 # 陳茂波稱本港續推盛事經濟　吸引更多高增值客帶動商機
 
+![陳茂波在巴塞爾藝術展上與來自歐洲的藝廊負責人交流。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798094_1_20250330113405.jpg&q=90)
+![陳茂波上周四在彭博家族辦公室峰會上出席對談環節。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798094_2_20250330113405.jpg&q=90)
+![陳茂波上周三在「裕澤香江」高峰論壇上致辭。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798094_3_20250330113405.jpg&q=90)
   
 
 財政司司長陳茂波表示，連串大型盛事推動下，香港在「超級三月」吸引了大量訪客，截至上周五，本港在3月已接待超過340萬名旅客，按年增加約12%，包括約96萬名非內地旅客。酒店業界亦表示，旺區酒店最近入住率近九成，零售業界反映市面人流明顯增多，對生意有一定幫助。他說當局會繼續推動「盛事經濟」，特別是舉辦主題鮮明、具吸引力的大型活動、峰會和展會，吸引更多高增值商務旅客來港，為向行業帶來更多生意機會。
@@ -1412,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm)
-
----
-
-# 印尼否認以色列傳媒有關加沙居民計劃遷居印尼報道
-
-![印尼否認以色列傳媒有關加沙居民計劃遷居印尼報道](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798022_1_20250329164147.jpg&q=90)
-  
-
-印尼外交部回應以色列傳媒有關部分加沙居民計劃遷居印尼的報道，發言人說，印尼並未與包括以色列在內的任何一方就加沙居民遷居議題進行過討論或達成相關協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798022-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798022-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798022-20250329.htm)
 
 ---
