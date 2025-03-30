@@ -1,3 +1,26 @@
+# 七欖賽事最後一日　啟德美食海灣有檔主推折扣吸客
+
+  
+
+啟德體育園七人欖球賽最後一日，主場館旁的「美食海灣嘉年華」有檔主稱生意未及預期，有檔主計劃推折扣吸客。本台記者曾向主場館部分閘口工作人員查詢「美食海灣」位置，他們均表示不清楚。亦有部分市民向他們查詢，他們均表示不清楚。由啟德主場館沿路走，要到青年運動場位置，才有「美食海灣」相關指示標示。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798114-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798114-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798114-20250330.htm)
+
+---
+
 # 緬甸領導人敏昂萊慰問中國雲南救援醫療隊　感謝協助救援
 
 ![救援人員在內比都一間醫院的倒塌樓層下救出一名長者。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798113_1_20250330153825.jpg&q=90)
@@ -48,6 +71,7 @@
 
 # 中醫醫院辦招聘會　醫衞局稱反應熱烈彰顯社會重視
 
+![醫務衞生局表示，香港中醫醫院昨日舉辦招聘活動，招聘醫院行政及前線員工，公眾反應熱烈。（醫務衞生局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798110_1_20250330154337.jpg&q=90)
   
 
 醫務衞生局表示，香港中醫醫院昨日舉辦招聘活動，招聘醫院行政及前線員工，公眾反應熱烈，彰顯社會對中醫藥事業的重視。
@@ -71,6 +95,7 @@
 
 # 運輸署料七欖閉幕較多觀眾同時間離場　籲盡量乘搭港鐵
 
+![運輸署表示，預計今晚較多觀眾可能同一時間離場，呼籲觀眾盡量乘搭港鐵。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798109_1_20250330154304.jpg&q=80)
   
 
 一連3日國際七人欖球賽最後一天在啟德主場館舉行，晚上約7時舉行閉幕式，啟德體育園表示，主場館2樓和5樓均為理想觀賞地點，呼籲觀眾經F和H閘口乘搭電梯到達5樓。
@@ -1415,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798041-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798041-20250329.htm)
-
----
-
-# 丹麥首相指萬斯有關對格陵蘭島防衛不力言論不公平
-
-![弗雷澤里克森認為萬斯有關丹麥對格陵蘭島防衛不力的言論不公平。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798040_1_20250329195701.jpg&q=90)
-  
-
-丹麥首相弗雷澤里克森回應美國副總統萬斯指責丹麥對格陵蘭島防衛不力的言論，認為萬斯的說法不公平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798040-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798040-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798040-20250329.htm)
 
 ---
