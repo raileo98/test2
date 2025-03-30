@@ -1,3 +1,27 @@
+# 伊朗回信拒絕與美國直接談判　總統：間接談判始終開放
+
+![佩澤希齊揚說，間接談判始終開放，美方行動將決定談判前景。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798159_1_20250331013331.jpg&q=90)
+  
+
+伊朗總統佩澤希齊揚表示，已通過阿曼向美方遞交回信，拒絕與美國進行直接談判，但間接談判始終開放，又說美方行動將決定談判前景。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798159-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798159-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798159-20250331.htm)
+
+---
+
 # 中方多支救援隊在緬甸地震災區全力搜救
 
 ![中國救援隊在緬甸曼德勒長城飯店救援3名被困人士。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798158_1_20250331005458.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm)
-
----
-
-# 特區政府救援隊赴緬甸助搜救　李家超：短時間應召集結展無私精神
-
-![李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797996_1_20250329121806.jpg&q=25)
-  
-
-行政長官李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救，盡全力協助當地拯救生命。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm)
 
 ---

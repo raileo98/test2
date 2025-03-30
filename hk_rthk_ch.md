@@ -1,3 +1,27 @@
+# 伊朗回信拒絕與美國直接談判　總統：間接談判始終開放
+
+![佩澤希齊揚說，間接談判始終開放，美方行動將決定談判前景。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798159_1_20250331013331.jpg&q=90)
+  
+
+伊朗總統佩澤希齊揚表示，已通過阿曼向美方遞交回信，拒絕與美國進行直接談判，但間接談判始終開放，又說美方行動將決定談判前景。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798159-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798159-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798159-20250331.htm)
+
+---
+
 # 中方多支救援隊在緬甸地震災區全力搜救
 
 ![中國救援隊在緬甸曼德勒長城飯店救援3名被困人士。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798158_1_20250331005458.jpg&q=90)
@@ -1424,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798079-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798079-20250330.htm)
-
----
-
-# 西甲聯賽　皇家馬德里主場3:2險勝雷加尼斯
-
-![皇家馬德里主場險勝雷加尼斯，麥巴比射入2球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798078_1_20250330072954.jpg&q=90)
-  
-
-西甲聯賽，皇家馬德里憑麥巴比射入2球，主場3:2險勝雷加尼斯，追至同榜首的巴塞羅那同分。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798078-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798078-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798078-20250330.htm)
 
 ---
