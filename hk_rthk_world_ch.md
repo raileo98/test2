@@ -1,3 +1,27 @@
+# 中日韓經貿部長會議　商定繼續擴大經貿領域合作
+
+![中日韓經貿部長會議在南韓首爾舉行。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798121_1_20250330162709.jpg&q=90)
+  
+
+中日韓經貿部長會議在南韓首爾舉行，重申在促進區域及全球經濟繁榮穩定方面加強三邊合作的必要性，商定繼續擴大經貿領域合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm)
+
+---
+
 # 特區救援隊抵達緬甸首都　隨即展開勘察及部署
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798124_1_20250330171217.jpg&q=80)
@@ -72,6 +96,7 @@
 
 # 東電結束福島處理水第十一次排海　氚濃度無異常
 
+![日本東京電力公司公布，福島第一核電站第11次核污水排海作業已結束。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798115_1_20250330173357.jpg&q=75)
   
 
 日本東京電力公司公布，福島第一核電站第11次核污水排海作業已結束，是本財政年度的最後一次，共排放約7800噸。
@@ -1416,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797979-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797979-20250329.htm)
-
----
-
-# 緬甸地震災區大量基礎設施遭受破壞　中國派出救援醫療隊救災
-
-![中國雲南救援醫療隊共37人早上從昆明長水國際機場乘坐包機趕赴震區。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797978_1_20250329074902.jpg&q=80)
-  
-
-緬甸中部7級以上強烈地震，至少144人死亡，732人受傷，暫時未有中國公民死亡報告，緬甸當局已經請求國際社會提供援助。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797978-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797978-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797978-20250329.htm)
 
 ---

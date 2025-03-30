@@ -1,3 +1,27 @@
+# 中日韓經貿部長會議　商定繼續擴大經貿領域合作
+
+![中日韓經貿部長會議在南韓首爾舉行。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798121_1_20250330162709.jpg&q=90)
+  
+
+中日韓經貿部長會議在南韓首爾舉行，重申在促進區域及全球經濟繁榮穩定方面加強三邊合作的必要性，商定繼續擴大經貿領域合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm)
+
+---
+
 # 運輸署籲稍後盡量乘港鐵離場　特別巴士路線提前下午6時起服務
 
 ![運輸署預計較多觀眾同一時間離場，呼籲離場人士盡量乘搭港鐵。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798128_1_20250330172757.jpg&q=60)
@@ -168,6 +192,7 @@
 
 # 東電結束福島處理水第十一次排海　氚濃度無異常
 
+![日本東京電力公司公布，福島第一核電站第11次核污水排海作業已結束。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798115_1_20250330173357.jpg&q=75)
   
 
 日本東京電力公司公布，福島第一核電站第11次核污水排海作業已結束，是本財政年度的最後一次，共排放約7800噸。
@@ -1417,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm)
-
----
-
-# 博物館高峰論壇結束　今屆逾7千人次報名創歷屆新高
-
-![陳詠雯（中)表示，博物館高峰論壇已邁入第四屆，與博物館及整個社會一樣，正在努力重塑模式並超越傳統界限。（政府新聞處提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798052_2_20250329232642.jpg&q=85)
-  
-
-一連兩日在香港會議展覽中心舉行，由康文署主辦、法國吉美國立亞洲藝術博物館協辦的「博物館高峰論壇2025」結束。累計超過7000人次報名，創歷屆新高，當中3分1為非本地人士，分別來自39個國家。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798052-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798052-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798052-20250329.htm)
 
 ---
