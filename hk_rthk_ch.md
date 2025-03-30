@@ -1,3 +1,27 @@
+# 中國救援隊在緬甸曼德勒救出一名被困60小時女子
+
+![中國救援隊在緬甸曼德勒市的長城飯店救援。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798163_1_20250331023225.jpg&q=90)
+  
+
+中國救援隊在緬甸曼德勒市的長城飯店，經過5個多小時救援，在當地時間周一淩晨，救出一名被困人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm)
+
+---
+
 # 英足盃八強曼城反勝般尼茅夫　維拉三蛋贈普雷斯頓
 
 ![曼城反勝對手晉級。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798162_1_20250331021820.jpg&q=90)
@@ -1424,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm)
-
----
-
-# 美國一架小型飛機墜毀在明尼蘇達州墜毀　無人生還
-
-![小型飛機墜毀後，地面一棟房屋起火。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798083_2_20250330095148.jpg&q=90)
-  
-
-美國一架小型飛機在明尼蘇達州布魯克林帕克市墜毀，導致地面一棟房屋起火。當地消防部門官員說，飛機上無人生還，起火房屋內沒有人員傷亡報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm)
 
 ---
