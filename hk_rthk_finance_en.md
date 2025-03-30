@@ -1,3 +1,26 @@
+# Four large state-owned banks recapitalise
+
+  
+
+Four of the mainland's largest state-owned banks said on Sunday they plan to raise a combined 520 billion yuan (US$71.60 billion) in private placements from investors, including the finance ministry, after Beijing pledged to help them support the economy.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798177-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798177-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798177-20250331.htm)
+
+---
+
 # Wall Street tumbles over economy, inflation fears
 
 ![All three major indices closed sharply lower, with the Dow tumbling 1.7 percent, the S&P 500 losing 2 percent and Nasdaq diving 2.7 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797974_1_20250329070631.jpg&q=75)
@@ -1413,29 +1436,5 @@ Hong Kong's Hang Seng Index gained 266.02 points, or 1.11 percent, to open at 24
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796006-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796006-20250317.htm)
-
----
-
-# 'Action plan to stabilise stock, property markets'
-
-![Central authorities have said arresting the protracted slide in the property market was among its major tasks this year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796002_1_20250317095840.jpg&q=80)
-  
-
-Mainland officials on Monday said a special action plan to boost consumption,will, for the first time, put an emphasis on the need to stabilise both the stock and property markets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm)
 
 ---
