@@ -1,5 +1,30 @@
+# 港澳辦轉載文章籲長和懸崖勒馬　各界支持市監總局依法審查交易
+
+![港澳辦轉載的文章引述政商界人士指，當前國際形勢下，相關交易的影響已遠超商業範疇。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798136_1_20250330191246.jpg&q=75)
+  
+
+國務院港澳辦再度轉載本港報章評論長和計劃出售巴拿馬運河資產的文章，文章引述本港政商界人士認為，在當前國際形勢下，相關交易的影響已遠超商業範疇，涉及國家安全、市場競爭、國家戰略發展等多方面，國家市場監督管理總局依法審查，不僅是對市場公平競爭和社會公共利益的維護，更是對國家核心利益的捍衛，希望長和懸崖勒馬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm)
+
+---
+
 # 國泰客機低空掠過啟德主場館鄰近上空　千禧飛機迷感難得
 
+![國泰航空A350客機下低空掠過啟德主場館鄰近上空，以紀念啟德機場100周年。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_1_20250330190807.jpg&q=90)
   
 
 國泰航空特別航班CX8100下午4時低飛越過維港，並掠過啟德主場館鄰近上空。
@@ -1416,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797834-20250328.htm)
-
----
-
-# 龔如心遺產受託人完成籌組理事會　開展準備工作管理慈善信託
-
-![律政司相信，在管理機構的監督下，受託人理事會會隨即開展相關準備工作，盡心盡力管理慈善信託。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797832_1_20250328130241.jpg&q=80)
-  
-
-就龔如心遺產案，龔如心慈善管理有限公司年初獲委任為已故龔如心遺產下的慈善信託的受託人，律政司表示，受託人已完成籌組理事會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797832-20250328.htm)
 
 ---

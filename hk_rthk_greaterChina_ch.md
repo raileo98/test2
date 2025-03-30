@@ -1,3 +1,27 @@
+# 港澳辦轉載文章籲長和懸崖勒馬　各界支持市監總局依法審查交易
+
+![港澳辦轉載的文章引述政商界人士指，當前國際形勢下，相關交易的影響已遠超商業範疇。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798136_1_20250330191246.jpg&q=75)
+  
+
+國務院港澳辦再度轉載本港報章評論長和計劃出售巴拿馬運河資產的文章，文章引述本港政商界人士認為，在當前國際形勢下，相關交易的影響已遠超商業範疇，涉及國家安全、市場競爭、國家戰略發展等多方面，國家市場監督管理總局依法審查，不僅是對市場公平競爭和社會公共利益的維護，更是對國家核心利益的捍衛，希望長和懸崖勒馬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm)
+
+---
+
 # 中方救援隊在緬甸曼德勒救出一名倖存者
 
 ![救援隊透過生命探測器在曼德勒佛學禮堂發現一名被困者仍有生命體徵。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798134_1_20250330184542.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797758-20250328.htm)
-
----
-
-# 外交部駐港公署強烈不滿英國涉港報告　促立即停止政治操弄
-
-![外交部駐港公署強烈不滿及堅決反對英國政府再次發布所謂「香港問題半年報告」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797755_1_20250327233719.jpg&q=85)
-  
-
-外交部駐港公署強烈不滿及堅決反對英國政府再次發布所謂「香港問題半年報告」，指有關內容對香港事務指手畫腳，抹黑香港人權法治，罔顧事實、顛倒黑白，公然踐踏包括「不干涉別國內政」在內的國際法與國際關係基本準則，敦促英方立即停止炮製涉港報告的政治操弄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797755-20250327.htm)
 
 ---

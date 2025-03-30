@@ -1,5 +1,30 @@
+# 港澳辦轉載文章籲長和懸崖勒馬　各界支持市監總局依法審查交易
+
+![港澳辦轉載的文章引述政商界人士指，當前國際形勢下，相關交易的影響已遠超商業範疇。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798136_1_20250330191246.jpg&q=75)
+  
+
+國務院港澳辦再度轉載本港報章評論長和計劃出售巴拿馬運河資產的文章，文章引述本港政商界人士認為，在當前國際形勢下，相關交易的影響已遠超商業範疇，涉及國家安全、市場競爭、國家戰略發展等多方面，國家市場監督管理總局依法審查，不僅是對市場公平競爭和社會公共利益的維護，更是對國家核心利益的捍衛，希望長和懸崖勒馬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm)
+
+---
+
 # 國泰客機低空掠過啟德主場館鄰近上空　千禧飛機迷感難得
 
+![國泰航空A350客機下低空掠過啟德主場館鄰近上空，以紀念啟德機場100周年。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_1_20250330190807.jpg&q=90)
   
 
 國泰航空特別航班CX8100下午4時低飛越過維港，並掠過啟德主場館鄰近上空。
@@ -71,6 +96,7 @@
 
 # 港隊男女子隊銀劍賽稱王封后　球迷大讚港隊表現
 
+![有香港球迷在男子組勝利一刻，用手機紀錄珍貴一幕，大叫「香港隊勁」。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798132_1_20250330190550.jpg&q=70)
   
 
 香港國際七人欖球賽，港隊在男女子銀劍賽分別稱王封后，不少球迷也感到興奮，大讚港隊表現。
@@ -166,10 +192,10 @@
 
 # 特區救援隊抵達緬甸首都　隨即展開勘察及部署
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798124_1_20250330171217.jpg&q=80)
+![救援隊領隊趙汝珏說，昨晚大約9時抵達仰光機場，凌晨3時半出發前往首都內比都。（保安局片段）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798124_1_20250330171217.jpg&q=80)
   
 
-緬甸日前發生大地震，特區政府派出救援隊協助救援。保安局在社交網站上載片段，救援隊領隊趙汝鈺說，昨晚大約9時抵達仰光機場，凌晨3時半出發前往首都內比都，經過大約10小時車程，當地時間中午後到達，之後將立即進行勘察工作，並與其他國家救援隊聯絡，了解當前狀況並再作部署。
+緬甸日前發生大地震，特區政府派出救援隊協助救援。保安局在社交網站上載片段，救援隊領隊趙汝珏說，昨晚大約9時抵達仰光機場，凌晨3時半出發前往首都內比都，經過大約10小時車程，當地時間中午後到達，之後將立即進行勘察工作，並與其他國家救援隊聯絡，了解當前狀況並再作部署。
 
   
 
@@ -1414,30 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798059-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798059-20250329.htm)
-
----
-
-# 新華社：中國香港特區救援隊抵達緬甸仰光國際機場
-
-![香港特區救援隊抵達仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798058_2_20250330012903.jpg&q=90)
-![香港特區救援隊攜同搜救犬抵達緬甸仰光機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798058_3_20250330012903.jpg&q=90)
-  
-
-新華社報道，緬甸時間星期六晚，中國香港特區救援隊抵達仰光國際機場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm)
 
 ---
