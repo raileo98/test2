@@ -1,8 +1,9 @@
-# 俄方稱已控制頓涅茨克地區扎波羅熱定居點
+# 內塔尼亞胡：以色列準備好下一階段停火談判　哈馬斯必須放下武器
 
+![內塔尼亞胡說，要實現談判，哈馬斯要放下武器。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798166_1_20250331031615.jpg&q=90)
   
 
-俄羅斯國防部說，俄軍已控制頓涅茨克地區扎波羅熱定居點。
+以色列總理內塔尼亞胡表示，以色列準備好就加沙停火協議進行下一階段談判，但巴勒斯坦武裝組織哈馬斯必須放下武器。
 
   
 
@@ -10,14 +11,14 @@
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798165-20250331.htm>
+<https://news.rthk.hk/rthk/ch/component/k2/1798166-20250331.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798165-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798165-20250331.htm)
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798166-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798166-20250331.htm)
 
 ---
 
