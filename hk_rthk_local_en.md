@@ -1,3 +1,27 @@
+# HK sets aside HK$30 million for Myanmar quake victims
+
+![A 51-member SAR rescue team has arrived in Yangon. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798095_1_20250330110807.jpg&q=90)
+  
+
+Chief Executive John Lee says the SAR government has earmarked HK$30 million from the Disaster Relief Fund to help victims of the severe earthquake that struck central Myanmar on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm)
+
+---
+
 # Police arrest Indonesian woman in TKO drugs bust
 
 ![During a raid on a flat, police found suspected drugs and suspected drug-making equipment. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798087_2_20250330095027.jpg&q=80)
@@ -1434,29 +1458,5 @@ There's no way Hong Kong's public healthcare system will be sustainable in the l
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797138-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797138-20250324.htm)
-
----
-
-# Govt to exceed family office target: treasury chief
-
-![Christopher Hui says about one fourth of the new family offices had set up shop in the SAR partly due to the 'Wealth for Good in Hong Kong Summit.' Photo: Courtesy of Financial Services and the Treasury Bureau](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797135_1_20250324130303.jpg&q=90)
-  
-
-The Secretary for Financial Services and the Treasury Christopher Hui said on Monday he is confident that the government will be able to beat the target of bringing in over 200 large family offices by the end of the year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797135-20250324.htm)
 
 ---

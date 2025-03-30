@@ -1,3 +1,27 @@
+# HK sets aside HK$30 million for Myanmar quake victims
+
+![A 51-member SAR rescue team has arrived in Yangon. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798095_1_20250330110807.jpg&q=90)
+  
+
+Chief Executive John Lee says the SAR government has earmarked HK$30 million from the Disaster Relief Fund to help victims of the severe earthquake that struck central Myanmar on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm)
+
+---
+
 # Sabalenka beats Pegula to take Miami Open
 
 ![The title was the Belarusian's first at Miami. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798090_1_20250330101920.jpg&q=90)
@@ -1432,29 +1456,5 @@ Arctic sea ice had its weakest winter buildup since record-keeping began 47 year
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm)
-
----
-
-# HK's men's 3x3 basketball team make Asia Cup history
-
-![The SAR's men's 3x3 basketball team qualified for the Asia Cup for the first time ever. Photo courtesy of FIBA](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797793_1_20250328085214.jpg&q=90)
-  
-
-The SAR’s men’s basketball team have made history by qualifying for the FIBA 3x3 Asia Cup for the first time ever, while their teammates from the women’s team representing Hong Kong, China fell just short of doing the same.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797793-20250328.htm)
 
 ---
