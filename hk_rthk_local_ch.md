@@ -1,5 +1,29 @@
+# 特區救援隊抵達緬甸首都　隨即展開勘察及部署
+
+  
+
+緬甸日前發生大地震，特區政府派出救援隊協助救援。保安局在社交網站表示，救援隊昨晚大約9時抵達仰光機場，凌晨3時半出發前往首都內比都，經過大約10小時車程，當地時間中午後到達，之後將立即進行勘察工作，並與其他國家救援隊聯絡，了解當前狀況並再作部署。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm)
+
+---
+
 # 七欖銀劍賽　中國香港男女子隊稱王封后
 
+![香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798122_1_20250330170028.jpg&q=45)
   
 
 香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。
@@ -1423,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm)
-
----
-
-# 有在曼谷旅遊港人稱地震後到室外暫避　未見有餘震暫不會縮短行程
-
-![蕭先生說，巿面未見有太大影響，暫時應該不會縮短行程。（市民蕭先生提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797991_2_20250329141558.jpg&q=85)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感，有正在興建中的大樓整幢倒塌。有在當地旅遊的港人表示，地震後撤出室內，其後返回酒店，由於巿面未見有太大影響，暫時應該不會縮短行程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm)
 
 ---

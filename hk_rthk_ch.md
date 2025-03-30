@@ -1,3 +1,26 @@
+# 特區救援隊抵達緬甸首都　隨即展開勘察及部署
+
+  
+
+緬甸日前發生大地震，特區政府派出救援隊協助救援。保安局在社交網站表示，救援隊昨晚大約9時抵達仰光機場，凌晨3時半出發前往首都內比都，經過大約10小時車程，當地時間中午後到達，之後將立即進行勘察工作，並與其他國家救援隊聯絡，了解當前狀況並再作部署。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm)
+
+---
+
 # 緬甸地震增至1700人死亡　曼德勒下午發生5.1級餘震
 
 ![緬甸地震增至1700人死亡。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798123_1_20250330164920.jpg&q=60)
@@ -24,6 +47,7 @@
 
 # 七欖銀劍賽　中國香港男女子隊稱王封后
 
+![香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798122_1_20250330170028.jpg&q=45)
   
 
 香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。
@@ -266,7 +290,7 @@
 ![赫格塞斯在東京與日本防衛大臣中谷元會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798108_1_20250330144518.jpg&q=90)
   
 
-美國國防部長赫格塞斯表示，日本是遏制中國不可或缺的夥伴，協助華府在包括台灣海峽等地區建立可靠的嚇阻力量。
+美國國防部長赫格塞斯表示，日本是遏制中國不可或缺的夥伴，協助華府在包括台灣海峽等地區建立可靠的阻嚇力量。
 
   
 
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798051-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798051-20250329.htm)
-
----
-
-# 寒冷天氣警告生效
-
-![寒冷天氣警告生效](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798049_1_20250329215230.jpg&q=90)
-  
-
-天文台在晚上9時45分發出寒冷天氣警告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm)
 
 ---

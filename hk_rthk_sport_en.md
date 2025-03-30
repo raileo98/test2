@@ -1,3 +1,32 @@
+# Who's who at the Rugby Sevens, and it's quite a cast!
+
+![Enthusiastic rugby fans enjoy the last day of the annual Hong Kong Sevens at the Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_1_20250330161122.jpg&q=85)
+![Brian Hopkins (right) is celebrating his 40th birthday. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_2_20250330161122.jpg&q=90)
+![Brett Muntz, who's supporting Fiji, says the Sevens is "all about the people". Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_3_20250330161122.jpg&q=90)
+![Epeli Buliciri shows off his pin collection. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_4_20250330161122.jpg&q=90)
+![These Smurfs are confident that they have the best costume. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_5_20250330161122.jpg&q=90)
+![This group decides to draw inspiration from Freddy the weatherman. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_6_20250330161122.jpg&q=70)
+  
+
+Rugby lovers from Hong Kong and beyond filled up the Kai Tak Stadium on Sunday to enjoy a final day of sport and partying at the Hong Kong Sevens.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm)
+
+---
+
 # France, Argentina to battle in Sevens men's final
 
 ![Enahemo Artaud (48) and his French teammates celebrate their dramatic victory over Fiji. Photo courtesy of World Rugby](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798111_1_20250330151645.jpg&q=85)
@@ -1418,29 +1447,5 @@ Ivan Perisic scored one goal and made another as Croatia beat France 2-0 to seiz
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796706-20250321.htm)
-
----
-
-# NBA's Boston Celtics sold for record US$6.1 billion
-
-![The US$6.1 billion sale of the Boston Celtics is a record price among US-based sports teams. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796701_1_20250321055144.jpg&q=80)
-  
-
-The NBA's Boston Celtics are being sold to the head of a California private equity firm for US$6.1 billion, a record price for a US sports franchise, according to reports by The Boston Globe.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796701-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796701-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796701-20250321.htm)
 
 ---

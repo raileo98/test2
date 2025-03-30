@@ -1,3 +1,26 @@
+# 特區救援隊抵達緬甸首都　隨即展開勘察及部署
+
+  
+
+緬甸日前發生大地震，特區政府派出救援隊協助救援。保安局在社交網站表示，救援隊昨晚大約9時抵達仰光機場，凌晨3時半出發前往首都內比都，經過大約10小時車程，當地時間中午後到達，之後將立即進行勘察工作，並與其他國家救援隊聯絡，了解當前狀況並再作部署。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm)
+
+---
+
 # 緬甸地震增至1700人死亡　曼德勒下午發生5.1級餘震
 
 ![緬甸地震增至1700人死亡。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798123_1_20250330164920.jpg&q=60)
@@ -98,7 +121,7 @@
 ![赫格塞斯在東京與日本防衛大臣中谷元會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798108_1_20250330144518.jpg&q=90)
   
 
-美國國防部長赫格塞斯表示，日本是遏制中國不可或缺的夥伴，協助華府在包括台灣海峽等地區建立可靠的嚇阻力量。
+美國國防部長赫格塞斯表示，日本是遏制中國不可或缺的夥伴，協助華府在包括台灣海峽等地區建立可靠的阻嚇力量。
 
   
 
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797978-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797978-20250329.htm)
-
----
-
-# 緬甸及泰國當局徹夜於地震災區尋找倖存者
-
-![當局出動犬隻及挖掘機器在樓宇倒塌現場搜尋生命跡象。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797964_1_20250329065408.jpg&q=55)
-  
-
-緬甸中部大地震後，緬甸及有強烈震感的泰國，徹夜在災區尋找倖存者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797964-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797964-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797964-20250329.htm)
 
 ---

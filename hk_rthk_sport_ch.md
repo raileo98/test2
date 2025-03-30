@@ -1,5 +1,6 @@
 # 七欖銀劍賽　中國香港男女子隊稱王封后
 
+![香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798122_1_20250330170028.jpg&q=45)
   
 
 香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。
