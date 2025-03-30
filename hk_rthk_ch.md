@@ -1,3 +1,26 @@
+# 俄方稱已控制頓涅茨克地區扎波羅熱定居點
+
+  
+
+俄羅斯國防部說，俄軍已控制頓涅茨克地區扎波羅熱定居點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798165-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798165-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798165-20250331.htm)
+
+---
+
 # 香港救援隊連夜由內比都趕赴曼德勒搜救
 
 ![香港特區政府派出的救援隊抵達緬甸首都內比都短暫休整。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798164_1_20250331024427.jpg&q=90)
@@ -71,7 +94,7 @@
 
 ---
 
-# 國際社會繼續援助緬甸
+# 國際社會繼續援助緬甸抗震救災
 
 ![救援人員在緬甸曼德勒展開救援。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798161_1_20250331015452.jpg&q=40)
   
@@ -1424,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm)
-
----
-
-# 雲南救援醫療隊在緬甸內比都救出1名倖存者
-
-![救援人員在緬甸內比都一間醫院的廢墟下救出一名倖存者。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798085_2_20250330104841.jpg&q=90)
-  
-
-新華社報道，雲南救援醫療隊在緬甸內比都救出1名被困近40小時的長者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm)
 
 ---

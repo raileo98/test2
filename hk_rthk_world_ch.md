@@ -1,3 +1,26 @@
+# 俄方稱已控制頓涅茨克地區扎波羅熱定居點
+
+  
+
+俄羅斯國防部說，俄軍已控制頓涅茨克地區扎波羅熱定居點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798165-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798165-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798165-20250331.htm)
+
+---
+
 # 中國救援隊在緬甸曼德勒救出一名被困60小時女子
 
 ![中國救援隊在緬甸曼德勒市的長城飯店救援。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798163_1_20250331023225.jpg&q=90)
@@ -22,7 +45,7 @@
 
 ---
 
-# 國際社會繼續援助緬甸
+# 國際社會繼續援助緬甸抗震救災
 
 ![救援人員在緬甸曼德勒展開救援。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798161_1_20250331015452.jpg&q=40)
   
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm)
-
----
-
-# 緬甸強烈地震死亡人數超過1千人
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798006_1_20250329131545.jpg&q=90)
-  
-
-緬甸中部7級以上強烈地震，軍政府說死亡人數超過1千人，超過2千人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798006-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798006-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798006-20250329.htm)
 
 ---
