@@ -1,3 +1,51 @@
+# Trump threatens Iran with bombings and tariffs
+
+![In a telephone interview with NBC News, Trump said US and Iranian officials were talking but did not elaborate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798156_2_20250331075407.jpg&q=90)
+  
+
+US President Donald Trump on Sunday threatened Iran with bombings and secondary tariffs if Tehran did not come to an agreement with Washington over its nuclear programme.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm)
+
+---
+
+# Mitchell magic as Cavs down Clippers to bag 60th win
+
+![Cavs guard Donovan Mitchell scored 24 points in the win over the Los Angeles Clippers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798179_1_20250331075136.jpg&q=90)
+  
+
+Donovan Mitchell led from the front as the Cleveland Cavaliers bagged their 60th win of the NBA season with a 127-122 victory over the in-form Los Angeles Clippers.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798179-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798179-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798179-20250331.htm)
+
+---
+
 # Four large state-owned banks recapitalise
 
 ![The fundraising will boost the ability of the banks to bolster the real economy. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798177_1_20250331072356.jpg&q=90)
@@ -1405,53 +1453,5 @@ Family and supporters of former Philippine president Rodrigo Duterte will rally 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm)
-
----
-
-# HK stock swings propel derivatives trade to highs
-
-![The number of outstanding futures and options contracts on the city's bourse has surpassed the record set last year by 70 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797841_1_20250328124759.jpg&q=80)
-  
-
-Big swings in stock markets and hedge fund activity have propelled Hong Kong's derivative trading to unprecedented highs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797841-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797841-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797841-20250328.htm)
-
----
-
-# Public transport enhanced for Rugby Sevens
-
-![Public transport operators are stepping up services during the Hong Kong Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797838_1_20250328123606.jpg&q=85)
-  
-
-Public transport operators are boosting services to accommodate the large crowds of passengers expected during the Hong Kong Sevens tournament.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm)
 
 ---

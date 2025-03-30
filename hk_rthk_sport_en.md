@@ -1,3 +1,27 @@
+# Mitchell magic as Cavs down Clippers to bag 60th win
+
+![Cavs guard Donovan Mitchell scored 24 points in the win over the Los Angeles Clippers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798179_1_20250331075136.jpg&q=90)
+  
+
+Donovan Mitchell led from the front as the Cleveland Cavaliers bagged their 60th win of the NBA season with a 127-122 victory over the in-form Los Angeles Clippers.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798179-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798179-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798179-20250331.htm)
+
+---
+
 # Bagnaia wins USA MotoGP after Márquez crash
 
 ![Francesco Bagnaia of Italy rides during the 2025 Grand Prix of the Americas at Circuit of The Americas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798175_1_20250331060812.jpg&q=90)
@@ -1423,29 +1447,5 @@ Italy's Olympic bronze medallist Andy Diaz Hernandez produced a stunning early e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm)
-
----
-
-# Norris chalks up fastest practice lap in Chinese GP
-
-![Mechanics work on Lando Norris' car in the pits during the first practice session of the Formula One Chinese Grand Prix at the Shanghai International Circuit. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796771_1_20250321132157.jpg&q=85)
-  
-
-Lando Norris was fastest in practice on Friday for the Chinese Grand Prix, the championship leader lapping almost half a second quicker than Ferrari's Charles Leclerc, with McLaren team-mate Oscar Piastri third.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796771-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796771-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796771-20250321.htm)
 
 ---

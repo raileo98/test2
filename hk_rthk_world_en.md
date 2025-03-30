@@ -1,3 +1,27 @@
+# Trump threatens Iran with bombings and tariffs
+
+![In a telephone interview with NBC News, Trump said US and Iranian officials were talking but did not elaborate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798156_2_20250331075407.jpg&q=90)
+  
+
+US President Donald Trump on Sunday threatened Iran with bombings and secondary tariffs if Tehran did not come to an agreement with Washington over its nuclear programme.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm)
+
+---
+
 # Foreign aid, rescuers come to Myanmar's assistance
 
 ![This building in Mandalay is among those that collapsed in Friday's killer earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798150_1_20250330223525.jpg&q=80)
@@ -1415,29 +1439,5 @@ The Foreign Ministry in Beijing on Tuesday called on the United States to stop i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm)
-
----
-
-# Journalist included in Houthi strike messaging group
-
-![Hours before those attacks started, US Defence Secretary Pete Hegseth posted operational details about the plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797229_1_20250325050810.jpg&q=90)
-  
-
-Top Trump administration officials, including US Vice President JD Vance and Secretary of Defence Pete Hegseth, mistakenly included a journalist in a messaging group discussing strikes against Yemen's Iran-aligned Houthis, according to a firsthand account by The Atlantic magazine.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797229-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797229-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797229-20250325.htm)
 
 ---
