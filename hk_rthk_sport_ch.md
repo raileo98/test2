@@ -1,3 +1,49 @@
+# 七欖女子銀劍賽港隊擊敗哈薩克奪魁
+
+  
+
+香港國際七人欖球賽，銀劍賽女子組決賽，港隊以45：5擊敗哈薩克，贏得冠軍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798120-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798120-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798120-20250330.htm)
+
+---
+
+# 七欖煞科現場氣氛熾熱　有觀眾稱啟德場館體驗佳
+
+  
+
+一連三日的香港國際七人欖球賽今日最後一日，現場氣氛熱烈，當有心儀球隊得分，觀眾高聲歡呼。在南看台，有入場人士按傳統「扮鬼扮馬」，有人打扮成卡通人物，高舉心儀球隊所屬的國家或地區旗幟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm)
+
+---
+
 # 運輸署料七欖閉幕較多觀眾同時間離場　籲盡量乘搭港鐵
 
 ![運輸署表示，預計今晚較多觀眾可能同一時間離場，呼籲觀眾盡量乘搭港鐵。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798109_1_20250330154304.jpg&q=80)
@@ -1411,53 +1457,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796216-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796216-20250318.htm)
-
----
-
-# 李家超要求啟德體育園管理層設應急機制　恆常向文體旅局匯報運作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796198_3_20250318120223.jpg&q=75)
-  
-
-行政長官李家超出席行政會議前回應提問時說，啟德體育園開園至今，部分安排不理想及出問題需要處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796198-20250318.htm)
-
----
-
-# 國際奧委會執委會建議將拳擊納入洛杉磯奧運會正式比賽項目
-
-![國際奧委會執委會召開會議。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796167_1_20250318070729.jpg&q=90)
-  
-
-國際奧委會執委會建議，將拳擊納入2028年洛杉磯奧運會正式比賽項目，相關提案將在全會上審議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796167-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796167-20250318.htm](https://news.rthk.hk/rthk/ch/component/k2/1796167-20250318.htm)
 
 ---

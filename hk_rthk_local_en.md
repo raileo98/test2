@@ -1,3 +1,27 @@
+# 'Hutchison deal won't stop family offices coming here'
+
+![Christopher Hui says the SAR is an attractive destination for capital and family offices. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798116_1_20250330155453.jpg&q=90)
+  
+
+The controversy over CK Hutchison's plans to sell dozens of ports won't affect family offices' interest in investing in Hong Kong, financial services minister Christopher Hui said on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm)
+
+---
+
 # Hong Kong Super March is a big draw: Paul Chan
 
 ![Paul Chan says he hopes more people will do business in Hong Kong apart from enjoying art. Image courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798103_1_20250330133135.jpg&q=90)
@@ -1434,29 +1458,5 @@ The government announced on Monday that tennis and billiards have retained their
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm)
-
----
-
-# Cityline 'must explain Coldplay ticket errors'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797187_1_20250324182435.jpg&q=90)
-  
-
-The secretary for culture, sports and tourism has called on the ticketing platform Cityline to explain misprints on Coldplay concert tickets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797187-20250324.htm)
 
 ---

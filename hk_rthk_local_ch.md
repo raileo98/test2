@@ -1,5 +1,52 @@
+# 七欖女子銀劍賽港隊擊敗哈薩克奪魁
+
+  
+
+香港國際七人欖球賽，銀劍賽女子組決賽，港隊以45：5擊敗哈薩克，贏得冠軍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798120-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798120-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798120-20250330.htm)
+
+---
+
+# 七欖煞科現場氣氛熾熱　有觀眾稱啟德場館體驗佳
+
+  
+
+一連三日的香港國際七人欖球賽今日最後一日，現場氣氛熱烈，當有心儀球隊得分，觀眾高聲歡呼。在南看台，有入場人士按傳統「扮鬼扮馬」，有人打扮成卡通人物，高舉心儀球隊所屬的國家或地區旗幟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm)
+
+---
+
 # 七欖賽事最後一日　啟德美食海灣有檔主推折扣吸客
 
+![有觀賽的市民特意到美食海灣買小食，期望比賽前嘗試美食海灣的食物。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798114_2_20250330161939.jpg&q=85)
 ![有熟食攤檔負責人表示，天氣等有利因素加持，今日銷情較過去兩日好。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798114_1_20250330160728.jpg&q=80)
   
 
@@ -96,7 +143,7 @@
 
 # 文憑試考生壓力增料與競爭加劇有關　學友社籲勿將問題災難化
 
-![本屆考生自評壓力指數平均達6.9分，較去年微升0.13分，其中對出路的壓力最高。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798104_1_20250330142200.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798104_1_20250330142200.jpg&q=85)
   
 
 中學文憑試主科即將開考，學友社調查發現，本屆考生自評壓力指數，以10分為極大壓力，平均達6.9分，較去年微升0.13分，其中對出路的壓力最高。
@@ -1400,53 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797989-20250329.htm)
-
----
-
-# 蕭澤頤任期至下月1日稱百感交集　信香港治安將繼續改善
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797988_1_20250329112328.jpg&q=80)
-  
-
-警務處處長蕭澤頤出席警察學院結業會操，擔任檢閱官。他致辭時表示，作為執法者，要時刻堅守有法必依，違法必究的大原則，執法不偏不倚，秉持公正及中立；要待人以嚴，也要嚴以律己。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797988-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797988-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797988-20250329.htm)
-
----
-
-# 盧寵茂質疑言論指急症室增收費會導致私營醫療加價是否真確或誤導
-
-![盧寵茂表示，公立醫院門診每年有200萬診症人次。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797987_1_20250329104507.jpg&q=85)
-  
-
-醫務衞生局局長盧寵茂在一個電台節目表示，對於有言論指，急症室收費增至400元會導致私營醫療加價，他質疑這個言論是真確抑或誤導引致公眾恐慌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797987-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797987-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797987-20250329.htm)
 
 ---

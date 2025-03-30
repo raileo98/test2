@@ -1,3 +1,27 @@
+# 'Hutchison deal won't stop family offices coming here'
+
+![Christopher Hui says the SAR is an attractive destination for capital and family offices. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798116_1_20250330155453.jpg&q=90)
+  
+
+The controversy over CK Hutchison's plans to sell dozens of ports won't affect family offices' interest in investing in Hong Kong, financial services minister Christopher Hui said on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm)
+
+---
+
 # France, Argentina to battle in Sevens men's final
 
 ![Enahemo Artaud (48) and his French teammates celebrate their dramatic victory over Fiji. Photo courtesy of World Rugby](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798111_1_20250330151645.jpg&q=85)
@@ -1432,29 +1456,5 @@ Novak Djokovic turned on the style to take his place in the last four of the Mia
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797810-20250328.htm)
-
----
-
-# New NBA All-Star Game format was 'a miss', says Silver
-
-![The NBA said the four-team mini-tournament for this year's All-Star Game will be scrapped. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797807_1_20250328094751.jpg&q=85)
-  
-
-It's unclear what next year's NBA All-Star Game will look like, but commissioner Adam Silver said the league is "a bit back to the drawing board" as it moves away from the three-game mini-tournament that was implemented this season.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797807-20250328.htm)
 
 ---
