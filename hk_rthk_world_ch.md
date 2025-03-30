@@ -1,3 +1,27 @@
+# 南韓當局稱慶尚道山火明火已撲滅　事故疑犯被立案調查
+
+![南韓當局表示，這次山火造成的傷亡和財產損失規模前所未有。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798117_1_20250330160656.jpg&q=45)
+  
+
+南韓中央災難安全對策本部表示，始於本月21日的慶尚道地區山火，明火已全部被撲滅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm)
+
+---
+
 # 東電結束福島處理水第十一次排海　氚濃度無異常
 
   
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797962-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797962-20250329.htm)
-
----
-
-# 卡尼與特朗普通話　揚言美方額外貿易行動後加方會實施報復式關稅
-
-![卡尼（圖）與特朗普討論兩國關係及關稅等問題。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797961_1_20250329031747.jpg&q=90)
-  
-
-加拿大總理卡尼與美國總統特朗普通話，討論兩國關係及關稅等問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797961-20250329.htm)
 
 ---

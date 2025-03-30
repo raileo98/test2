@@ -1,3 +1,27 @@
+# 南韓當局稱慶尚道山火明火已撲滅　事故疑犯被立案調查
+
+![南韓當局表示，這次山火造成的傷亡和財產損失規模前所未有。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798117_1_20250330160656.jpg&q=45)
+  
+
+南韓中央災難安全對策本部表示，始於本月21日的慶尚道地區山火，明火已全部被撲滅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm)
+
+---
+
 # 東電結束福島處理水第十一次排海　氚濃度無異常
 
   
@@ -23,6 +47,7 @@
 
 # 七欖賽事最後一日　啟德美食海灣有檔主推折扣吸客
 
+![有熟食攤檔負責人表示，天氣等有利因素加持，今日銷情較過去兩日好。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798114_1_20250330160728.jpg&q=80)
   
 
 啟德體育園七人欖球賽最後一日，主場館旁的「美食海灣嘉年華」有檔主稱生意未及預期，有檔主計劃推折扣吸客。本台記者曾向主場館部分閘口工作人員查詢「美食海灣」位置，他們均表示不清楚。亦有部分市民向他們查詢，他們均表示不清楚。由啟德主場館沿路走，要到青年運動場位置，才有「美食海灣」相關指示標示。
@@ -1415,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798043-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798043-20250329.htm)
-
----
-
-# 張軍晤林定國　稱最高人民法院持續推進與香港司法法律界交流合作
-
-![最高人民法院院長張軍(右)早上在北京會見律政司司長林定國。(人民法院報圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798042_1_20250329214059.jpg&q=90)
-  
-
-最高人民法院院長張軍早上在北京會見律政司司長林定國。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm)
 
 ---
