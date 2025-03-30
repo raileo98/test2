@@ -1,3 +1,26 @@
+# 陳茂波稱本港續推盛事經濟　吸引更多高增值客帶動商機
+
+  
+
+財政司司長陳茂波表示，連串大型盛事推動下，香港在「超級三月」吸引了大量訪客，截至上周五，本港在3月已接待超過340萬名旅客，按年增加約12%，包括約96萬名非內地旅客。酒店業界亦表示，旺區酒店最近入住率近九成，零售業界反映市面人流明顯增多，對生意有一定幫助。他說當局會繼續推動「盛事經濟」，特別是舉辦主題鮮明、具吸引力的大型活動、峰會和展會，吸引更多高增值商務旅客來港，為向行業帶來更多生意機會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm)
+
+---
+
 # 美元指數曾失守104　美國10年期債息創1星期新低
 
 ![美元指數一度跌穿104水平，低見103.89，是今個星期低位，跌逾0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797973_1_20250329070239.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797819-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797819-20250328.htm)
-
----
-
-# 「超級三月」帶動旅客人數升　羅淑佩稱重視為旅客打造優質體驗
-
-![羅淑佩認為，「香港盛匯超級三月」聚焦體育、藝術及旅遊活動，已成功帶動旅客人數顯著上升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797815_1_20250328110405.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩認為「香港盛匯超級三月」聚焦體育、藝術及旅遊活動，已成功帶動旅客人數顯著上升，但當局並非單純追求人數，更重視為旅客打造優質體驗，其中一項新策略是善用海岸線和離島，重塑旅遊產業面貌，吸引高消費旅客來港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797815-20250328.htm)
 
 ---

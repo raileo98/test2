@@ -1,3 +1,26 @@
+# 陳茂波稱本港續推盛事經濟　吸引更多高增值客帶動商機
+
+  
+
+財政司司長陳茂波表示，連串大型盛事推動下，香港在「超級三月」吸引了大量訪客，截至上周五，本港在3月已接待超過340萬名旅客，按年增加約12%，包括約96萬名非內地旅客。酒店業界亦表示，旺區酒店最近入住率近九成，零售業界反映市面人流明顯增多，對生意有一定幫助。他說當局會繼續推動「盛事經濟」，特別是舉辦主題鮮明、具吸引力的大型活動、峰會和展會，吸引更多高增值商務旅客來港，為向行業帶來更多生意機會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm)
+
+---
+
 # 香港母乳庫已收集約550公升母乳　開展第二階段服務
 
 ![香港母乳庫已開展第二階段服務，向有臨床需要的初生嬰兒派發捐贈母乳。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798091_1_20250330103440.jpg&q=90)
@@ -1420,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797948-20250328.htm)
-
----
-
-# 元朗謀殺及傷人案　多三名男子被捕明日提堂
-
-![案發在今年一月，案中兩名事主在元朗喜業街喜業工廠大廈外，遭多人持刀襲擊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797944_1_20250328223845.jpg&q=85)
-  
-
-元朗一月發生的一宗謀殺及傷人案，警方拘捕多三名懷疑涉案男子，其中兩名分別20歲及42歲男子各被暫控一項謀殺罪及一項意圖傷人罪，餘下一名23歲男子則被暫控一項協助罪犯罪，案件明日在屯門裁判法院提堂。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797944-20250328.htm)
 
 ---
