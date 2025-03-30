@@ -1,3 +1,27 @@
+# 美國海嘯預警中心解除對湯加海嘯警報
+
+![美國海嘯預警中心解除對湯加海嘯警報](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798157_1_20250331004003.jpg&q=90)
+  
+
+太平洋島國湯加發生7級地震後，美國國家海嘯預警中心一度發出海嘯警報，之後解除。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798157-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798157-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798157-20250331.htm)
+
+---
+
 # 七欖三日賽事共逾11萬名觀眾入場　較去年多1.4萬
 
 ![七欖賽事晚上結束，啟德主場館舉行煙火表演。（啟德提育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798155_1_20250330235841.jpg&q=55)
@@ -1424,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798077-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798077-20250330.htm)
-
----
-
-# 香港特區救援隊抵達緬甸　賑災基金預留3千萬元賑災
-
-![特區政府派出的救援隊昨晚抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798076_1_20250330061016.jpg&q=90)
-  
-
-特區政府派出的51人救援隊已經抵達緬甸，準備協助搜救工作。行政長官李家超表示，一收到緬甸駐港總領事合的要求後，特區政府短時間內就成立救援隊，感謝各隊員迅速響應，同時寄語他們要注意安全。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm)
 
 ---

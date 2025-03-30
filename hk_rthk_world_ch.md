@@ -1,5 +1,6 @@
 # 美國海嘯預警中心解除對湯加海嘯警報
 
+![美國海嘯預警中心解除對湯加海嘯警報](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798157_1_20250331004003.jpg&q=90)
   
 
 太平洋島國湯加發生7級地震後，美國國家海嘯預警中心一度發出海嘯警報，之後解除。
