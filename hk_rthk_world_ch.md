@@ -1,3 +1,27 @@
+# 緬甸領導人敏昂萊慰問中國雲南救援醫療隊　感謝協助救援
+
+![救援人員在內比都一間醫院的倒塌樓層下救出一名長者。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798113_1_20250330153825.jpg&q=90)
+  
+
+緬甸領導人敏昂萊在首都內比都一間醫院，慰問中國雲南救援醫療隊成員，並感謝醫療隊在震後第一時間到緬甸救援。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm)
+
+---
+
 # 赫格塞斯：日本是遏制中國不可或缺的夥伴
 
 ![赫格塞斯在東京與日本防衛大臣中谷元會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798108_1_20250330144518.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797957-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797957-20250329.htm)
-
----
-
-# 世貿證美國處於第一類拖欠費用狀態　已制定計劃維持運作
-
-![世貿組織日前表示，美國目前拖欠世貿組織的會費處於第一類狀態。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797956_1_20250329023641.jpg&q=85)
-  
-
-世界貿易組織發言人迪恩表示，世貿組織預算、財務與行政委員會主席，在2月舉行的總理事會會議上，向成員通報美國已處於第一類拖欠費用狀態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797956-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797956-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797956-20250329.htm)
 
 ---

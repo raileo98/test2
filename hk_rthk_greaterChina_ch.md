@@ -1,3 +1,27 @@
+# 緬甸領導人敏昂萊慰問中國雲南救援醫療隊　感謝協助救援
+
+![救援人員在內比都一間醫院的倒塌樓層下救出一名長者。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798113_1_20250330153825.jpg&q=90)
+  
+
+緬甸領導人敏昂萊在首都內比都一間醫院，慰問中國雲南救援醫療隊成員，並感謝醫療隊在震後第一時間到緬甸救援。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm)
+
+---
+
 # 渤海海峽黃海北部執行軍事任務　大連海事局發警告禁止駛入
 
 ![渤海海峽黃海北部執行軍事任務　大連海事局發警告禁止駛入](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798112_1_20250330153043.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797754-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797754-20250327.htm)
-
----
-
-# 林定國稱香港普通法制度具備「國際化、高水平、信譽好」優勢
-
-![林定國在北京出席「人民法院涉外涉港澳系列專題講座」。（林定國社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797744_1_20250327215754.jpg&q=90)
-  
-
-律政司司長林定國在北京出席「人民法院涉外涉港澳系列專題講座」，分享在「一國兩制」下香港普通法制度的歷史脈絡、特點、發展，以及其獨特優勢如何助力國家發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm](https://news.rthk.hk/rthk/ch/component/k2/1797744-20250327.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 緬甸領導人敏昂萊慰問中國雲南救援醫療隊　感謝協助救援
+
+![救援人員在內比都一間醫院的倒塌樓層下救出一名長者。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798113_1_20250330153825.jpg&q=90)
+  
+
+緬甸領導人敏昂萊在首都內比都一間醫院，慰問中國雲南救援醫療隊成員，並感謝醫療隊在震後第一時間到緬甸救援。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm)
+
+---
+
+# 渤海海峽黃海北部執行軍事任務　大連海事局發警告禁止駛入
+
+![渤海海峽黃海北部執行軍事任務　大連海事局發警告禁止駛入](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798112_1_20250330153043.jpg&q=90)
+  
+
+大連海事局發布航行警告，今日下午4時至下月13日下午4時，渤海海峽黃海北部部分海域執行軍事任務，禁止船隻駛入。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm)
+
+---
+
 # 中醫醫院辦招聘會　醫衞局稱反應熱烈彰顯社會重視
 
   
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798040-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798040-20250329.htm)
-
----
-
-# 港澳辦再轉載評論文章促長和作無愧於時代選擇　停止出售港口交易
-
-![港澳辦網站再次轉載《大公報》有關長和計劃出售巴拿馬運河港口等資產的文章。圖為巴拿馬運河港口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798038_1_20250329193851.jpg&q=75)
-  
-
-港澳辦網站再次轉載《大公報》有關長和計劃出售巴拿馬運河港口等資產的文章。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm)
-
----
-
-# 中國救援隊抵達緬甸仰光國際機場
-
-![中國救援隊乘坐的飛機抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798037_1_20250329184929.jpg&q=90)
-  
-
-緬甸發生大地震後，中國救援隊上午乘坐國航包機，從首都機場出發前往災區，在下午抵達緬甸仰光國際機場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm)
 
 ---
