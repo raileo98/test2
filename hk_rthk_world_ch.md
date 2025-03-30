@@ -1,3 +1,27 @@
+# 湯加地震　當局向所有沿海地區發海嘯警告　指示避開沿海低窪地區
+
+![湯加地震　當局向所有沿海地區發海嘯警告　指示避開沿海低窪地區](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798153_1_20250330225443.jpg&q=90)
+  
+
+太平洋島國湯加群島發生7級地震。湯加當局向所有沿海地區發出海嘯警告，指示有關地區民眾立即轉移至地勢較高的地方或內陸地區，避開海灘及沿海低窪地區，同時按當局的疏散路線及緊急指示轉移，警告民眾在官方解除警報前，切勿返回沿海地區。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798153-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798153-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798153-20250330.htm)
+
+---
+
 # 香港紅十字會：緬甸災區食水供應受阻衞生設施受損　憂爆發傳染病
 
   
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm)
-
----
-
-# 緬甸強震增至694死逾千六人傷　曼谷當局續搜索倒塌大樓失蹤者
-
-![曼谷救援人員繼續在倒塌建築物瓦礫中搜索失蹤者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797992_1_20250329111809.jpg&q=75)
-  
-
-緬甸中部7級以上強烈地震，官方公布在曼德勒地區造成694人死亡，1670人受傷，多處有建築物受損，電力和通訊亦受阻，軍政府預計死傷人數仍會上升，罕有地要求國際援助。中方表示，暫時未有中國公民死亡報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797992-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797992-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797992-20250329.htm)
 
 ---
