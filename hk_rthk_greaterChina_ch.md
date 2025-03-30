@@ -1,3 +1,27 @@
+# 廣東省茂名市3級地震　震央附近東岸鎮有輕微震感
+
+![廣東省茂名市3級地震　震央附近東岸鎮有輕微震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798154_1_20250330231533.jpg&q=90)
+  
+
+廣東省茂名市晚上發生3級地震 ，震源深度10公里，暫未收到災情報告。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798154-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798154-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798154-20250330.htm)
+
+---
+
 # 廣東茂名高州市晚上發生3級地震　震源深度10公里
 
 ![廣東茂名高州市晚上發生3級地震　震源深度10公里](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798146_1_20250330211004.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797796-20250328.htm)
-
----
-
-# 何立峰晤歐方經貿官員　稱中方願共同抵制單邊主義及保護主義
-
-![何立峰在釣魚台國賓館會見謝夫喬維奇。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797763_1_20250328014438.jpg&q=90)
-  
-
-中共中央政治局委員、國務院副總理何立峰，昨晚在釣魚台國賓館會見歐盟委員會貿易和經濟安全委員謝夫喬維奇。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797763-20250328.htm)
 
 ---

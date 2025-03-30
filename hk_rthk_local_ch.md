@@ -1,5 +1,7 @@
 # 羅淑佩：煙火匯演為今年七欖畫上完美句號
 
+![煙火匯演由旅發局支持，羅淑佩形容為七欖畫上完美句號。(旅遊發展局提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798152_1_20250330230856.jpg&q=90)
+![一連三日的七欖晚上閉幕。（旅遊發展局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798152_2_20250330230856.jpg&q=75)
   
 
 首度移師啟德主場館舉行的香港國際七人欖球賽結束，三日合計有超過11萬人入場。行政長官李家超以及多名司局長今日到場觀賞賽事。
@@ -23,6 +25,7 @@
 
 # 香港紅十字會：緬甸災區食水供應受阻衞生設施受損　憂爆發傳染病
 
+![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798151_1_20250330230731.jpg&q=45)
   
 
 緬甸大地震後，多方派出救援隊伍到當地協助救災。香港紅十字會國際及賑災服務主管程德君表示，香港方面已準備好提供衞生及心理健康支援，正與緬甸紅十字會等溝通協調。
@@ -167,6 +170,7 @@
 # 國泰航班飛越啟德上空紀念舊機場百周年　林紹波形容非常成功
 
 ![林紹波接受本台訪問時表示，安排A350-1000客機飛過，他感到非常感動，而且對曾經在啟德機場工作的員工，意義非常重大。(張連登攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798139_1_20250330204758.jpg&q=80)
+![國泰航空特別航班CX8100下午4時低飛越過維港，重現昔日低飛九龍城一帶的情景。（國泰提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798139_2_20250330231623.jpg&q=80)
   
 
 國泰航空特別航班CX8100下午4時低飛越過維港，並掠過啟德主場館鄰近上空，以紀念舊啟德機場100周年。國泰行政總裁林紹波接受本台訪問時表示，整個團隊都非常興奮，形容非常成功。他指國泰贊助七欖超過40年，今年七欖重返啟德，亦是國泰發源的地方，因此安排A350-1000客機飛過，他感到非常感動，而且對曾經在啟德機場工作的員工，意義非常重大。
@@ -239,7 +243,7 @@
 
 # 國泰客機低空掠過啟德主場館鄰近上空　千禧飛機迷感難得
 
-![有七欖觀眾表示自己飛機迷，在啟德主場館見證飛機低飛實屬難得。（鄧鈞尤攝）.jpg](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_4_20250330221354.jpg&q=20)
+![國泰航空特別航班CX8100下午4時低飛越過維港，並掠過啟德主場館鄰近上空。（國泰提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_5_20250330231350.jpg&q=80)
 ![國泰航空特別航班CX8100掠過啟德主場館鄰近上空。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_2_20250330221354.jpg&q=85)
 ![不少觀眾爭取有利位置觀看飛機越過。 （鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_3_20250330221354.jpg&q=90)
   
