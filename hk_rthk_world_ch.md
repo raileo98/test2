@@ -1,3 +1,27 @@
+# 中方救援隊在緬甸曼德勒救出一名倖存者
+
+![救援隊透過生命探測器在曼德勒佛學禮堂發現一名被困者仍有生命體徵。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798134_1_20250330184542.jpg&q=90)
+  
+
+中國救援隊再在緬甸地震災區救出倖存者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm)
+
+---
+
 # 中日韓經貿部長會議　商定繼續擴大經貿領域合作
 
 ![中日韓經貿部長會議在南韓首爾舉行。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798121_1_20250330162709.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797983-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797983-20250329.htm)
-
----
-
-# 南韓山火部分地區復燃　男子涉掃墓留下火種正被調查
-
-![消防部門派出6架直升機等前往撲救。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797979_1_20250329094152.jpg&q=90)
-  
-
-南韓慶尚北道的山火有死灰復燃跡象，繼安東市之後，義城郡部分地區山火復燃，消防部門派出6架直升機等前往撲救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797979-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797979-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797979-20250329.htm)
 
 ---

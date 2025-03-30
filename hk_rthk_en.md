@@ -1,3 +1,27 @@
+# SAR rescue team begins work in quake-hit Myanmar
+
+![International rescue organisations have called for support for the victims of Friday's tremor. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798131_1_20250330182417.jpg&q=60)
+  
+
+An SAR government rescue team is set to begin inspection work on the ground in earthquake-stricken Myanmar as they arrive in the country's capital Naypyidaw.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798131-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798131-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798131-20250330.htm)
+
+---
+
 # 'Bigger house, bigger party' in new Kai Tak experience
 
 ![James Farndon says this year's Rugby Sevens has been an amazing experience for all those involved. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798130_2_20250330181531.jpg&q=90)
@@ -1430,29 +1454,5 @@ A Kowloon City district councillor believes the area will not be congested when 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm)
-
----
-
-# Xi meets Bangladesh leader Yunus in Beijing
-
-![President Xi Jinping shakes hands with the Bangladeshi leader Muhammad Yunus. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797825_2_20250328222006.jpg&q=90)
-  
-
-President Xi Jinping met Bangladesh leader Muhammad Yunus in Beijing on Friday, state media reported, as Dhaka's relations with neighbouring India remains shaky.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797825-20250328.htm)
 
 ---

@@ -1,5 +1,53 @@
+# 國泰客機低空掠過啟德主場館鄰近上空　千禧飛機迷感難得
+
+  
+
+國泰航空A350客機下午飛越維港，低空掠過啟德主場館鄰近上空，以紀念啟德機場100周年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm)
+
+---
+
+# 中方救援隊在緬甸曼德勒救出一名倖存者
+
+![救援隊透過生命探測器在曼德勒佛學禮堂發現一名被困者仍有生命體徵。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798134_1_20250330184542.jpg&q=90)
+  
+
+中國救援隊再在緬甸地震災區救出倖存者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm)
+
+---
+
 # 本港下午各區氣溫較昨日低兩三度　18間臨時避寒中心開放
 
+![民政事務總署在各區開放共18間臨時避寒中心，供有需要的市民避寒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798133_1_20250330184909.jpg&q=90)
   
 
 寒冷天氣警告現正效，天文台表示，東北季候風正影響廣東沿岸，本港下午各區氣溫較昨日低兩三度。民政事務總署已在各區開放共18間臨時避寒中心。
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm)
-
----
-
-# 緬甸大地震增至1644人死亡3408人受傷
-
-![在緬甸曼德勒，有建築物倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798057_1_20250329230727.jpg&q=45)
-  
-
-緬甸中部昨日發生大地震至今，增至1644人死亡，3408人受傷。領導人敏昂萊到曼德勒省災區視察，探望災民。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798057-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798057-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798057-20250329.htm)
-
----
-
-# 19班本港來往泰國航班延誤　沒有航班取消
-
-![機場管理局表示，截至晚上8時半，共有19班本港來往泰國的航班延誤。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798056_1_20250329224026.jpg&q=80)
-  
-
-機場管理局表示，截至晚上8時半，共有19班本港來往泰國的航班延誤，分別是9班從泰國抵港，以及10班由香港前往泰國，並沒有航班取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798056-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798056-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798056-20250329.htm)
 
 ---

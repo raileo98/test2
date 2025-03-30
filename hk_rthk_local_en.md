@@ -1,3 +1,27 @@
+# SAR rescue team begins work in quake-hit Myanmar
+
+![International rescue organisations have called for support for the victims of Friday's tremor. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798131_1_20250330182417.jpg&q=60)
+  
+
+An SAR government rescue team is set to begin inspection work on the ground in earthquake-stricken Myanmar as they arrive in the country's capital Naypyidaw.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798131-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798131-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798131-20250330.htm)
+
+---
+
 # 'Bigger house, bigger party' in new Kai Tak experience
 
 ![James Farndon says this year's Rugby Sevens has been an amazing experience for all those involved. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798130_2_20250330181531.jpg&q=90)
@@ -1437,29 +1461,5 @@ The chairman of the Billiard Sports Council of Hong Kong China welcomes the gove
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm)
-
----
-
-# Cats and dogs allowed on light rail from May
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797287_1_20250325122816.jpg&q=85)
-  
-
-Cat and dog owners will soon be able to bring pets on board the light rail on weekends and public holidays once the MTR Corporation rolls out a HK$99 monthly pet pass from May as part of a trial scheme.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797287-20250325.htm)
 
 ---
