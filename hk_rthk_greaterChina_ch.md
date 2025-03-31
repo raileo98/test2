@@ -118,7 +118,6 @@
 
 # 李家超稱東江水供港承載家國深情　構築未雨綢繆長遠謀劃
 
-![李家超說，東江水佔全香港的食水用量，達到七成至八成。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_1_20250331201314.jpg&q=90)
 ![李家超出席東江水供港六十周年紀念典禮暨「舞動水滴展」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_2_20250331201314.jpg&q=85)
   
 

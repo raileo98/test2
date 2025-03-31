@@ -1,3 +1,27 @@
+# 恒大物業去年盈利跌近34%　不派末期息
+
+![恒大物業去年盈利按年跌近34%至10.2億元人民幣，不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798327_1_20250331210504.jpg&q=90)
+  
+
+恒大物業公布，去年盈利10.2億元人民幣，按年跌近34%，不派末期息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798327-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798327-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798327-20250331.htm)
+
+---
+
 # 支援大灣區醫管局病人先導計劃延展至明年三月底
 
 ![醫衞局指，2023年5月至今年2月底，累計5100名合資格病人已參加先導計劃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798326_1_20250331210147.jpg&q=80)
@@ -189,7 +213,6 @@
 
 # 李家超稱東江水供港承載家國深情　構築未雨綢繆長遠謀劃
 
-![李家超說，東江水佔全香港的食水用量，達到七成至八成。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_1_20250331201314.jpg&q=90)
 ![李家超出席東江水供港六十周年紀念典禮暨「舞動水滴展」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_2_20250331201314.jpg&q=85)
   
 

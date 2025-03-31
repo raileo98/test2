@@ -1,3 +1,27 @@
+# 恒大物業去年盈利跌近34%　不派末期息
+
+![恒大物業去年盈利按年跌近34%至10.2億元人民幣，不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798327_1_20250331210504.jpg&q=90)
+  
+
+恒大物業公布，去年盈利10.2億元人民幣，按年跌近34%，不派末期息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798327-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798327-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798327-20250331.htm)
+
+---
+
 # 嘉禾黃埔戲院租約期滿下月10日起結束營業
 
   
@@ -70,7 +94,6 @@
 
 # 李家超稱東江水供港承載家國深情　構築未雨綢繆長遠謀劃
 
-![李家超說，東江水佔全香港的食水用量，達到七成至八成。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_1_20250331201314.jpg&q=90)
 ![李家超出席東江水供港六十周年紀念典禮暨「舞動水滴展」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_2_20250331201314.jpg&q=85)
   
 
@@ -1410,30 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm)
-
----
-
-# 羅淑佩：煙火匯演為今年七欖畫上完美句號
-
-![煙火匯演由旅發局支持，羅淑佩形容為七欖畫上完美句號。(旅遊發展局提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798152_1_20250330230856.jpg&q=90)
-![一連三日的七欖晚上閉幕。（旅遊發展局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798152_2_20250330230856.jpg&q=75)
-  
-
-首度移師啟德主場館舉行的香港國際七人欖球賽結束，三日合計有超過11萬人入場。行政長官李家超以及多名司局長今日到場觀賞賽事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm)
 
 ---

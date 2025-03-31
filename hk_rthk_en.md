@@ -1,3 +1,27 @@
+# Kremlin says Putin 'remains open' to speaking to Trump
+
+![US President Donald Trump (Left) earlier criticised Russian President Vladimir Putin for the lack of progress on a ceasefire deal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798328_1_20250331211156.jpg&q=90)
+  
+
+The Kremlin on Monday said that President Vladimir Putin was still "open" to speaking to Donald Trump after the US president said he was "very angry" with the Russian leader over little progress on a ceasefire in Ukraine.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm)
+
+---
+
 # Tokyo updates toll for next potential 'megaquake'
 
 ![The Fukushima nuclear disaster was one of three 2011 chain of events that changed the way that Tokyo traditionally regarded the 'megaquake' scenario. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798306_1_20250331182035.jpg&q=90)
@@ -1417,32 +1441,5 @@ Ending a 70-year wait for a domestic trophy deserves an official party.
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798039-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798039-20250329.htm)
-
----
-
-# Fans revel in electric second day of HK Sevens
-
-![Rugby fans fill up the Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_2_20250329184242.jpg&q=20)
-![Fans watch the New Zealand men's squad battle it out against South Africa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_1_20250329183213.jpg&q=85)
-![Costumes were on full display at the South Stand. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_3_20250329183213.jpg&q=85)
-![Fiji fans cheer during day two of Rugby Sevens action. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_4_20250329183213.jpg&q=65)
-  
-
-Fans soaked up the raucous atmosphere at the new Kai Tak Stadium where the Hong Kong Sevens are being held for the first time.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Kremlin says Putin 'remains open' to speaking to Trump
+
+![US President Donald Trump (Left) earlier criticised Russian President Vladimir Putin for the lack of progress on a ceasefire deal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798328_1_20250331211156.jpg&q=90)
+  
+
+The Kremlin on Monday said that President Vladimir Putin was still "open" to speaking to Donald Trump after the US president said he was "very angry" with the Russian leader over little progress on a ceasefire in Ukraine.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm)
+
+---
+
 # Tokyo updates toll for next potential 'megaquake'
 
 ![The Fukushima nuclear disaster was one of three 2011 chain of events that changed the way that Tokyo traditionally regarded the 'megaquake' scenario. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798306_1_20250331182035.jpg&q=90)
@@ -1415,29 +1439,5 @@ US President Donald Trump and his top intelligence officials raced on Tuesday to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm)
-
----
-
-# Vietnam death row tycoon begins appeal
-
-![Vietnamese property tycoon Truong My Lan (centre) looks on at a court in Ho Chi Minh City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797356_1_20250325193707.jpg&q=90)
-  
-
-The appeal of a Vietnamese property tycoon convicted of money laundering began on Tuesday, three months after she lost a challenge against the death penalty in a separate case.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm)
 
 ---
