@@ -1,3 +1,27 @@
+# 英王查理斯三世本周將恢復參加公務活動
+
+![王室消息人士透露，查理斯三世本周將恢復參加公務活動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798343_1_20250401012450.jpg&q=90)
+  
+
+英國王室消息人士透露，英王查理斯三世本周將恢復參加公務活動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798343-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798343-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798343-20250401.htm)
+
+---
+
 # 普京簽署春季徵兵令　國防部強調與對烏軍事行動無關
 
 ![普京簽署關於春季徵召俄羅斯公民服兵役的法令。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798342_1_20250401004751.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm)
-
----
-
-# 緬甸反對軍政府武裝提出停火兩星期以便救災工作
-
-![緬甸地震增至1600多人死亡，反軍政府武裝提出停火以便救災。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798105_1_20250330142828.jpg&q=90)
-  
-
-緬甸地震增至1600多人死亡，3400多人受傷，百多人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm)
 
 ---
