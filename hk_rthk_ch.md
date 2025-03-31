@@ -1,3 +1,27 @@
+# 特朗普周三公布對等關稅政策　白宮稱對美不公國家應預料成為目標
+
+![萊維特說，關稅將扭轉幾十年來一直剝削美國的不公平貿易行為。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798348_1_20250401032921.jpg&q=75)
+  
+
+美國白宮表示，總統特朗普將於星期三在白宮玫瑰園的活動上，宣布對等關稅政策。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm)
+
+---
+
 # 美國制裁林定國蕭澤頤等　特區政府強烈譴責斥顯露霸權主義下野蠻
 
 ![特區政府發言人表示，特區官員對美國所謂制裁嗤之以鼻，會繼續堅定不移維護國家安全。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798347_1_20250401023338.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm)
-
----
-
-# 外交部重申美日軍事安全合作不得針對第三國
-
-![郭嘉昆表示，美日軍事安全合作不得針對第三國，不得危害地區和平發展。(外交部網站)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798275_1_20250331165936.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，美日軍事安全合作不得針對第三國，不得危害地區和平發展。美方以所謂「中國威脅」為藉口，挑動意識形態對立，鼓動分裂對抗，甚至煽動個別國家充當美國維護霸權的「炮灰」，地區國家應提高警惕，嚴加防範。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798275-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798275-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798275-20250331.htm)
 
 ---

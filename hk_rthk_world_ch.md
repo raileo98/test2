@@ -1,3 +1,27 @@
+# 特朗普周三公布對等關稅政策　白宮稱對美不公國家應預料成為目標
+
+![萊維特說，關稅將扭轉幾十年來一直剝削美國的不公平貿易行為。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798348_1_20250401032921.jpg&q=75)
+  
+
+美國白宮表示，總統特朗普將於星期三在白宮玫瑰園的活動上，宣布對等關稅政策。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm)
+
+---
+
 # 美國制裁林定國蕭澤頤等　特區政府強烈譴責斥顯露霸權主義下野蠻
 
 ![特區政府發言人表示，特區官員對美國所謂制裁嗤之以鼻，會繼續堅定不移維護國家安全。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798347_1_20250401023338.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm)
-
----
-
-# 緬甸領導人敏昂萊慰問中國雲南救援醫療隊　感謝協助救援
-
-![救援人員在內比都一間醫院的倒塌樓層下救出一名長者。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798113_1_20250330153825.jpg&q=90)
-  
-
-緬甸領導人敏昂萊在首都內比都一間醫院，慰問中國雲南救援醫療隊成員，並感謝醫療隊在震後第一時間到緬甸救援。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm)
 
 ---
