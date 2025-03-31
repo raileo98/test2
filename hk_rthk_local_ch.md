@@ -1,3 +1,27 @@
+# 外交部駐港公署強烈譴責美國制裁中央和特區官員　將堅決反制
+
+![發言人指，中方必將採取有力措施堅決反制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798350_1_20250401041931.jpg&q=85)
+  
+
+外交部駐港公署強烈譴責並堅決反對美國國務院制裁6名中央和香港特區政府官員，指美方所謂制裁再次暴露破壞香港繁榮穩定、遏制中國發展的險惡用心，中方必將採取有力措施堅決反制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm)
+
+---
+
 # 美國制裁林定國蕭澤頤等　特區政府強烈譴責斥顯露霸權主義下野蠻
 
 ![特區政府發言人表示，特區官員對美國所謂制裁嗤之以鼻，會繼續堅定不移維護國家安全。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798347_1_20250401023338.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798202-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798202-20250331.htm)
-
----
-
-# 港股季結日低開219點　恒指競價時段報23207點
-
-![港股在3月最後1個交易日下跌，恒生指數競價時段報23207點，跌219點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798198_1_20250331092445.jpg&q=40)
-  
-
-港股在3月最後1個交易日下跌，恒生指數競價時段報23207點，跌219點，跌幅0.94%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm)
 
 ---

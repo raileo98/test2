@@ -1,3 +1,27 @@
+# 外交部駐港公署強烈譴責美國制裁中央和特區官員　將堅決反制
+
+![發言人指，中方必將採取有力措施堅決反制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798350_1_20250401041931.jpg&q=85)
+  
+
+外交部駐港公署強烈譴責並堅決反對美國國務院制裁6名中央和香港特區政府官員，指美方所謂制裁再次暴露破壞香港繁榮穩定、遏制中國發展的險惡用心，中方必將採取有力措施堅決反制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm)
+
+---
+
 # 中日韓據報同意合作對沖美國關稅　中方希望進口日韓晶片產品
 
 ![中日韓經貿部長會議日前在首爾舉行。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798338_1_20250331232647.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm)
-
----
-
-# 習近平向緬甸領導人敏昂萊致慰問電
-
-![習近平說，中方願意向緬方提供需要的幫助，支持災區人民早日戰勝災害、重建家園。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797994_1_20250329121456.jpg&q=90)
-  
-
-國家主席習近平就緬甸遭受地震，向緬甸領導人敏昂萊致慰問電。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797994-20250329.htm)
 
 ---

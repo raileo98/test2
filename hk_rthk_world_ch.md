@@ -1,3 +1,27 @@
+# 外交部駐港公署強烈譴責美國制裁中央和特區官員　將堅決反制
+
+![發言人指，中方必將採取有力措施堅決反制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798350_1_20250401041931.jpg&q=85)
+  
+
+外交部駐港公署強烈譴責並堅決反對美國國務院制裁6名中央和香港特區政府官員，指美方所謂制裁再次暴露破壞香港繁榮穩定、遏制中國發展的險惡用心，中方必將採取有力措施堅決反制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm)
+
+---
+
 # 瑪麗娜勒龐批評判決帶有政治動機　目的是阻止她參選總統
 
 ![瑪麗娜勒龐接受電視台訪問時，強調自己無辜，批評判決帶有政治動機。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798349_1_20250401040835.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798123-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798123-20250330.htm)
-
----
-
-# 南韓當局稱慶尚道山火明火已撲滅　事故疑犯被立案調查
-
-![南韓當局表示，這次山火造成的傷亡和財產損失規模前所未有。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798117_1_20250330160656.jpg&q=45)
-  
-
-南韓中央災難安全對策本部表示，始於本月21日的慶尚道地區山火，明火已全部被撲滅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm)
 
 ---
