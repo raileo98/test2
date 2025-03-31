@@ -1,3 +1,49 @@
+# 羅淑佩明晚往北京訪問　將拜會港澳辦與相關部委
+
+  
+
+文化體育及旅遊局局長羅淑佩明日晚上啓程前往北京訪問，她將拜會國務院港澳事務辦公室、國家文化和旅遊部、國家體育總局及國家電影局，亦會與其他文博機構的相關官員會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm)
+
+---
+
+# 國家水利部稱國家心繫香港同胞　廣東省冀與香港共建世界級灣區
+
+  
+
+東江水供港六十周年紀念典禮暨「舞動水滴展」開幕禮在政府總部舉行。國家水利部部長李國英致辭說，60年來，中央始終心繫香港同胞，始終高度重視對港供水工作，在政策、資金、規劃等方面給予大力支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm)
+
+---
+
 # 克宮料普京未來幾日內與到訪的王毅會面
 
 ![佩斯科夫表示，預計普京將在未來幾日內與王毅會面。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798319_1_20250331201559.jpg&q=90)
@@ -1391,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797960-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797960-20250329.htm)
-
----
-
-# 中方高度關注緬甸地震災情並誠摯慰問　願提供緊急救援及支持
-
-![中方高度關注緬甸地震災情，並表示誠摯慰問。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797959_1_20250329024635.jpg&q=80)
-  
-
-在北京，外交部就緬甸地震回應傳媒查詢時表示，緬甸是中國的友好鄰邦，中方高度關注緬甸地震災情，表示誠摯慰問，希望並相信緬甸政府及人民將早日克服困難，重建家園。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797959-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797959-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797959-20250329.htm)
-
----
-
-# 王毅晤剛果共和國外長　強調推動中非合作高質量發展
-
-![王毅與剛果共和國外長加科索會面。（外交部網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797940_1_20250328223208.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅在北京會見剛果共和國外長加科索。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm)
 
 ---

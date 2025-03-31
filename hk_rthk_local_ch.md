@@ -1,3 +1,72 @@
+# 羅淑佩明晚往北京訪問　將拜會港澳辦與相關部委
+
+  
+
+文化體育及旅遊局局長羅淑佩明日晚上啓程前往北京訪問，她將拜會國務院港澳事務辦公室、國家文化和旅遊部、國家體育總局及國家電影局，亦會與其他文博機構的相關官員會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm)
+
+---
+
+# 洪水橋厦村粉嶺北新田科技城「片區開發」試點接獲22份意向書
+
+  
+
+發展局於去年12月31日就位於洪水橋/厦村新發展區、粉嶺北新發展區及新田科技城的三個「片區開發」試點邀請市場提交意向書，至今日截止，共收到22份意向書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm)
+
+---
+
+# 國家水利部稱國家心繫香港同胞　廣東省冀與香港共建世界級灣區
+
+  
+
+東江水供港六十周年紀念典禮暨「舞動水滴展」開幕禮在政府總部舉行。國家水利部部長李國英致辭說，60年來，中央始終心繫香港同胞，始終高度重視對港供水工作，在政策、資金、規劃等方面給予大力支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm)
+
+---
+
 # 李家超稱東江水供港承載家國深情　構築未雨綢繆長遠謀劃
 
 ![李家超說，東江水佔全香港的食水用量，達到七成至八成。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_1_20250331201314.jpg&q=90)
@@ -360,6 +429,7 @@
 
 # 利物浦熱刺及阿仙奴分別公開操練　讓球迷與球員接觸
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798292_1_20250331202455.jpg&q=85)
   
 
 四支歐洲勁旅，包括三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月來港，在啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
@@ -1365,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm)
-
----
-
-# 七欖閉幕禮　啟德主場館上空發放約一分鐘煙火
-
-![四方看台上蓋共安裝28個發射點，以多角度發放25米高的十色煙火。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798143_2_20250330204644.jpg&q=90)
-  
-
-首度移師啟德主場館舉行的香港國際七人欖球賽晚上結束。在閉幕禮上，主場館上空發放約一分鐘煙火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm)
-
----
-
-# 李家超：啟德主場館首場大賽圓滿達陣　期待未來盛事精彩不斷
-
-![李家超又到賽事首設、面積達7800呎的球迷村，形容如同嘉年華。(李家超社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798142_2_20250330215717.jpg&q=85)
-  
-
-首度移師啟德體育園、一連三日舉行的香港國際七人欖球賽晚上結束。到場觀賽的行政長官李家超表示，「香港七欖」已是本地旗艦盛事之一，推動香港成為國際體育盛事之都。啟德體育園主場館首場大賽已圓滿「達陣」，這個香港的新主場，一流設備已準備好，之後等待精彩體育、文化活動輪番上演，期待未來盛事精彩不斷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm)
-
----
-
-# 運輸署：宋皇臺道輪候的士人數較多　籲乘搭港鐵離開啟德體育園
-
-![運輸署表示，現時宋皇臺道的士上落客區現時輪候人數較多，輪候時間會較長。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798141_1_20250330212308.jpg&q=85)
-  
-
-首度移師啟德體育園舉行的香港國際七人欖球賽，一連三日賽事晚上結束，運輸署表示，現時宋皇臺道的士上落客區現時輪候人數較多，輪候時間會較長，呼籲觀眾請選擇乘搭港鐵離開啟德體育園。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798141-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798141-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798141-20250330.htm)
 
 ---

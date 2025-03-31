@@ -1,3 +1,72 @@
+# 羅淑佩明晚往北京訪問　將拜會港澳辦與相關部委
+
+  
+
+文化體育及旅遊局局長羅淑佩明日晚上啓程前往北京訪問，她將拜會國務院港澳事務辦公室、國家文化和旅遊部、國家體育總局及國家電影局，亦會與其他文博機構的相關官員會面。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm)
+
+---
+
+# 洪水橋厦村粉嶺北新田科技城「片區開發」試點接獲22份意向書
+
+  
+
+發展局於去年12月31日就位於洪水橋/厦村新發展區、粉嶺北新發展區及新田科技城的三個「片區開發」試點邀請市場提交意向書，至今日截止，共收到22份意向書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm)
+
+---
+
+# 國家水利部稱國家心繫香港同胞　廣東省冀與香港共建世界級灣區
+
+  
+
+東江水供港六十周年紀念典禮暨「舞動水滴展」開幕禮在政府總部舉行。國家水利部部長李國英致辭說，60年來，中央始終心繫香港同胞，始終高度重視對港供水工作，在政策、資金、規劃等方面給予大力支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm)
+
+---
+
 # 克宮料普京未來幾日內與到訪的王毅會面
 
 ![佩斯科夫表示，預計普京將在未來幾日內與王毅會面。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798319_1_20250331201559.jpg&q=90)
@@ -577,6 +646,7 @@
 
 # 利物浦熱刺及阿仙奴分別公開操練　讓球迷與球員接觸
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798292_1_20250331202455.jpg&q=85)
   
 
 四支歐洲勁旅，包括三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月來港，在啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。

@@ -1,3 +1,49 @@
+# 洪水橋厦村粉嶺北新田科技城「片區開發」試點接獲22份意向書
+
+  
+
+發展局於去年12月31日就位於洪水橋/厦村新發展區、粉嶺北新發展區及新田科技城的三個「片區開發」試點邀請市場提交意向書，至今日截止，共收到22份意向書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm)
+
+---
+
+# 國家水利部稱國家心繫香港同胞　廣東省冀與香港共建世界級灣區
+
+  
+
+東江水供港六十周年紀念典禮暨「舞動水滴展」開幕禮在政府總部舉行。國家水利部部長李國英致辭說，60年來，中央始終心繫香港同胞，始終高度重視對港供水工作，在政策、資金、規劃等方面給予大力支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm)
+
+---
+
 # 李家超稱東江水供港承載家國深情　構築未雨綢繆長遠謀劃
 
 ![李家超說，東江水佔全香港的食水用量，達到七成至八成。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_1_20250331201314.jpg&q=90)
@@ -217,6 +263,7 @@
 
 # 利物浦熱刺及阿仙奴分別公開操練　讓球迷與球員接觸
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798292_1_20250331202455.jpg&q=85)
   
 
 四支歐洲勁旅，包括三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月來港，在啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
@@ -1388,54 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm)
-
----
-
-# 七欖散場前啟德有大量巴士及的士等候　有觀眾建議增加英文指示牌
-
-![有市民表示不清楚原來可以先預約的士等候，看到車站人龍，就選擇邊等的士邊預約。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798145_1_20250330212149.jpg&q=80)
-![當局安排多架特別巴士疏散人潮。(鄧鈞尤攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798145_2_20250330232410.jpg&q=80)
-  
-
-香港國際七人欖球賽落幕，啟德體育園主場館晚上有煙火匯演。位於青年運動場附近的特別巴士站和的士站，未完場已經有大量空巴士和空的士等候。有觀眾擔心散場後多人，因此提早離開，但沒想到的士站也會「打蛇餅」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm)
-
----
-
-# 七欖閉幕禮　啟德主場館上空發放約一分鐘煙火
-
-![四方看台上蓋共安裝28個發射點，以多角度發放25米高的十色煙火。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798143_2_20250330204644.jpg&q=90)
-  
-
-首度移師啟德主場館舉行的香港國際七人欖球賽晚上結束。在閉幕禮上，主場館上空發放約一分鐘煙火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm)
 
 ---
