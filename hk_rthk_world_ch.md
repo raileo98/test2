@@ -1,3 +1,27 @@
+# 克宮：莫斯科正繼續與華盛頓合作　普京仍願意與特朗普接觸
+
+![佩斯科夫表示，普京仍願意與特朗普接觸。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798323_1_20250331203714.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，莫斯科正繼續與華盛頓合作，總統普京仍願意與美國總統特朗普接觸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm)
+
+---
+
 # 克宮料普京未來幾日內與到訪的王毅會面
 
 ![佩斯科夫表示，預計普京將在未來幾日內與王毅會面。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798319_1_20250331201559.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm)
-
----
-
-# 聯合國緊急撥款500萬美元用於緬甸地震救援
-
-![在緬甸曼德勒，一名女子從瓦礫中獲救。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798075_1_20250330053327.jpg&q=90)
-  
-
-聯合國人道主義事務協調辦公室說，聯合國中央應急基金已緊急撥款500萬美元，支援緬甸救災行動。此外，衛生合作伙伴正準備部署移動外科和醫療隊以及臨時醫院，以提供緊急救生護理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798075-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798075-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798075-20250330.htm)
 
 ---

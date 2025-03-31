@@ -1,5 +1,52 @@
+# 嘉禾黃埔戲院租約期滿下月10日起結束營業
+
+  
+
+嘉禾院線表示，由於租約期滿，嘉禾黃埔戲院將於下月10日起結束營業，衷心感謝大家多年來的支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm)
+
+---
+
+# 中央港澳辦與社科院簽訂協議做好一國兩制理論和實踐研究
+
+  
+
+中央港澳辦與中國社科院在北京簽署戰略合作框架協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm)
+
+---
+
 # 羅淑佩明晚往北京訪問　將拜會港澳辦與相關部委
 
+![羅淑佩將拜會國務院港澳辦、國家文化和旅遊部、國家體育總局及國家電影局等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798322_1_20250331205348.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩明日晚上啓程前往北京訪問，她將拜會國務院港澳事務辦公室、國家文化和旅遊部、國家體育總局及國家電影局，亦會與其他文博機構的相關官員會面。
@@ -21,8 +68,9 @@
 
 ---
 
-# 洪水橋厦村粉嶺北新田科技城「片區開發」試點接獲22份意向書
+# 北部都會區三個「片區開發」試點收到22份意向書
 
+![發展局表示，提交意向書的企業或機構包括本地和內地的發展商、承建商、綜合企業和電商物流公司等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798321_1_20250331204741.jpg&q=90)
   
 
 發展局於去年12月31日就位於洪水橋/厦村新發展區、粉嶺北新發展區及新田科技城的三個「片區開發」試點邀請市場提交意向書，至今日截止，共收到22份意向書。
@@ -334,7 +382,7 @@
 
 # 醫管局陸續於急症室裝設地理圍欄定位系統防止病人走失
 
-![醫管局陸續於急症室裝設地理圍欄定位系統防止病人走失](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798301_1_20250331191058.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798301_1_20250331191058.jpg&q=90)
   
 
 醫管局引進多項科技措施，陸續在急症室裝設地理圍欄定位系統，預計今年底前所有急症室完成安裝並全面投入使用，判斷未回應應診的病人是否仍在急症室。系統包括適用於精神或認知障礙，或無法溝通的病人，他們會配戴設有藍牙裝置的手帶，如果病人離開走近大門時會發出警報，提醒職員及時阻止。
@@ -380,7 +428,7 @@
 
 ---
 
-# 不法份子以免費旅遊招攬販毒　警方機場拘捕一對涉案情侶
+# 不法分子以免費旅遊招攬販毒　警方機場拘捕一對涉案情侶
 
   
 
@@ -1386,54 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm)
-
----
-
-# 七欖三日合計逾11萬人入場　運輸署稱離場整體交通大致暢順
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798147_1_20250330225152.jpg&q=90)
-  
-
-首度移師啟德體育園舉行的香港國際七人欖球賽結束，中國香港欖球總會表示，三日合計有超過11萬人入場，單計今日就有38352人入場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm)
-
----
-
-# 七欖散場前啟德有大量巴士及的士等候　有觀眾建議增加英文指示牌
-
-![有市民表示不清楚原來可以先預約的士等候，看到車站人龍，就選擇邊等的士邊預約。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798145_1_20250330212149.jpg&q=80)
-![當局安排多架特別巴士疏散人潮。(鄧鈞尤攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798145_2_20250330232410.jpg&q=80)
-  
-
-香港國際七人欖球賽落幕，啟德體育園主場館晚上有煙火匯演。位於青年運動場附近的特別巴士站和的士站，未完場已經有大量空巴士和空的士等候。有觀眾擔心散場後多人，因此提早離開，但沒想到的士站也會「打蛇餅」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm)
 
 ---

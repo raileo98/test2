@@ -1,5 +1,29 @@
+# 中央港澳辦與社科院簽訂協議做好一國兩制理論和實踐研究
+
+  
+
+中央港澳辦與中國社科院在北京簽署戰略合作框架協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm)
+
+---
+
 # 羅淑佩明晚往北京訪問　將拜會港澳辦與相關部委
 
+![羅淑佩將拜會國務院港澳辦、國家文化和旅遊部、國家體育總局及國家電影局等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798322_1_20250331205348.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩明日晚上啓程前往北京訪問，她將拜會國務院港澳事務辦公室、國家文化和旅遊部、國家體育總局及國家電影局，亦會與其他文博機構的相關官員會面。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797985-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797985-20250329.htm)
-
----
-
-# 雲南瑞麗多處房屋受損涉1700人　德宏州停電區域已全恢復供電
-
-![雲南瑞麗財富廣場在緬甸地震後的情況。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797960_1_20250329024506.jpg&q=85)
-  
-
-緬甸大地震導致位於中緬邊境的雲南省瑞麗市內多處房屋受損，截至昨晚7時，已發現有450多戶受損，涉及超過1700人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797960-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797960-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797960-20250329.htm)
 
 ---

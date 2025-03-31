@@ -1,5 +1,76 @@
+# 嘉禾黃埔戲院租約期滿下月10日起結束營業
+
+  
+
+嘉禾院線表示，由於租約期滿，嘉禾黃埔戲院將於下月10日起結束營業，衷心感謝大家多年來的支持。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm)
+
+---
+
+# 中央港澳辦與社科院簽訂協議做好一國兩制理論和實踐研究
+
+  
+
+中央港澳辦與中國社科院在北京簽署戰略合作框架協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm)
+
+---
+
+# 克宮：莫斯科正繼續與華盛頓合作　普京仍願意與特朗普接觸
+
+![佩斯科夫表示，普京仍願意與特朗普接觸。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798323_1_20250331203714.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，莫斯科正繼續與華盛頓合作，總統普京仍願意與美國總統特朗普接觸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm)
+
+---
+
 # 羅淑佩明晚往北京訪問　將拜會港澳辦與相關部委
 
+![羅淑佩將拜會國務院港澳辦、國家文化和旅遊部、國家體育總局及國家電影局等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798322_1_20250331205348.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩明日晚上啓程前往北京訪問，她將拜會國務院港澳事務辦公室、國家文化和旅遊部、國家體育總局及國家電影局，亦會與其他文博機構的相關官員會面。
@@ -21,8 +92,9 @@
 
 ---
 
-# 洪水橋厦村粉嶺北新田科技城「片區開發」試點接獲22份意向書
+# 北部都會區三個「片區開發」試點收到22份意向書
 
+![發展局表示，提交意向書的企業或機構包括本地和內地的發展商、承建商、綜合企業和電商物流公司等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798321_1_20250331204741.jpg&q=90)
   
 
 發展局於去年12月31日就位於洪水橋/厦村新發展區、粉嶺北新發展區及新田科技城的三個「片區開發」試點邀請市場提交意向書，至今日截止，共收到22份意向書。
@@ -503,7 +575,7 @@
 
 # 醫管局陸續於急症室裝設地理圍欄定位系統防止病人走失
 
-![醫管局陸續於急症室裝設地理圍欄定位系統防止病人走失](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798301_1_20250331191058.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798301_1_20250331191058.jpg&q=90)
   
 
 醫管局引進多項科技措施，陸續在急症室裝設地理圍欄定位系統，預計今年底前所有急症室完成安裝並全面投入使用，判斷未回應應診的病人是否仍在急症室。系統包括適用於精神或認知障礙，或無法溝通的病人，他們會配戴設有藍牙裝置的手帶，如果病人離開走近大門時會發出警報，提醒職員及時阻止。
@@ -573,7 +645,7 @@
 
 ---
 
-# 不法份子以免費旅遊招攬販毒　警方機場拘捕一對涉案情侶
+# 不法分子以免費旅遊招攬販毒　警方機場拘捕一對涉案情侶
 
   
 
