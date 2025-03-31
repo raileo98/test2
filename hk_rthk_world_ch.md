@@ -1,3 +1,27 @@
+# 英國首相府稱冷靜應對關稅問題　不排除採取報復措施
+
+![發言人強調，英國將採取冷靜務實態度應對關稅問題。圖為英國首相施紀賢離開首相府。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798340_1_20250401003425.jpg&q=75)
+  
+
+英國首相府發言人表示，英國預計會受到美國加徵關稅的影響，不排除採取報復措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798340-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798340-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798340-20250401.htm)
+
+---
+
 # 瑪麗娜勒龐挪用歐洲議會資金罪成禁選公職　或無緣2027選總統
 
 ![瑪麗娜勒龐星期一到庭聽取裁決結果。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798339_1_20250401002257.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm)
-
----
-
-# 雲南救援醫療隊在緬甸內比都救出1名倖存者
-
-![救援人員在緬甸內比都一間醫院的廢墟下救出一名倖存者。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798085_2_20250330104841.jpg&q=90)
-  
-
-新華社報道，雲南救援醫療隊在緬甸內比都救出1名被困近40小時的長者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm)
 
 ---

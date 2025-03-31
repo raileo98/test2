@@ -1,3 +1,27 @@
+# 英國首相府稱冷靜應對關稅問題　不排除採取報復措施
+
+![發言人強調，英國將採取冷靜務實態度應對關稅問題。圖為英國首相施紀賢離開首相府。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798340_1_20250401003425.jpg&q=75)
+  
+
+英國首相府發言人表示，英國預計會受到美國加徵關稅的影響，不排除採取報復措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798340-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798340-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798340-20250401.htm)
+
+---
+
 # 瑪麗娜勒龐挪用歐洲議會資金罪成禁選公職　或無緣2027選總統
 
 ![瑪麗娜勒龐星期一到庭聽取裁決結果。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798339_1_20250401002257.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798267-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798267-20250331.htm)
-
----
-
-# 緬甸全國哀悼7日　對地震遇難者下半旗致哀
-
-![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798263_1_20250331160712.jpg&q=75)
-  
-
-緬甸軍政府宣布今日至下月6日為全國哀悼日，對地震遇難者下半旗致哀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798263-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798263-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798263-20250331.htm)
 
 ---
