@@ -96,7 +96,7 @@ Kai Tak Sports Park will "learn a good lesson" from hosting the Hong Kong Sevens
 
 # SAR rescue team heads for quake-stricken Mandalay
 
-![The SAR rescue team has been redirected to Mandalay to help out with relief efforts. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798216_1_20250331104806.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798216_1_20250331104806.jpg&q=90)
   
 
 An SAR government rescue team is on its way to quake-hit Mandalay in Myanmar.

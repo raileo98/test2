@@ -75,7 +75,7 @@ The government is looking into the possibility of having a single contractor des
 ![Donald Trump chats with Secretary of Commerce Howard Lutnick, left, on board Marine One upon arrival at the White House on Sunday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798236_1_20250331125457.jpg&q=90)
   
 
-President Donald Trump said “I’m not joking” about trying to serve a third term, the clearest indication he is considering ways to breach a constitutional barrier against continuing to lead the country after his second term ends at the beginning of 2029.
+US President Donald Trump said “I’m not joking” about trying to serve a third term, the clearest indication he is considering ways to breach a constitutional barrier against continuing to lead the country after his second term ends at the beginning of 2029.
 
   
 
@@ -169,7 +169,7 @@ Novak Djokovic faced a series of obstacles in the Miami Open final: a delay of m
 
 # SAR rescue team heads for quake-stricken Mandalay
 
-![The SAR rescue team has been redirected to Mandalay to help out with relief efforts. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798216_1_20250331104806.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798216_1_20250331104806.jpg&q=90)
   
 
 An SAR government rescue team is on its way to quake-hit Mandalay in Myanmar.
