@@ -1,3 +1,27 @@
+# 中國海外去年盈利跌約39%　末期息減少33%
+
+![中國海外派發末期息每股30港仙，全年派息60港仙，按年分別跌33%和25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798232_1_20250331123252.jpg&q=90)
+  
+
+中國海外去年盈利156.4億元人民幣，按年跌約39%。派發末期息每股30港仙，全年派息60港仙，按年分別跌33%和25%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798232-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798232-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798232-20250331.htm)
+
+---
+
 # 港股半日跌近2%　長和跌約4%
 
 ![港股中午收市前跌幅擴大，創近1個月低位。恒生指數中午收市報23022點，跌404點，跌幅1.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798228_1_20250331121035.jpg&q=85)
@@ -1423,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797918-20250328.htm)
-
----
-
-# 證監會就首次公開招股個案及上市後事宜提出多項優化建議
-
-![證監會就首次公開招股個案及上市後事宜，對《證券市場上市規則》提出多項優化建議，今日起至5月23日諮詢市場。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797917_1_20250328190717.jpg&q=90)
-  
-
-證監會就首次公開招股個案及上市後事宜，對《證券市場上市規則》提出多項優化建議，目的為提升香港上市市場監管效率及更廣泛保障投資大眾免受財務損失。證監會今日起至5月23日就建議措施諮詢市場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797917-20250328.htm)
 
 ---

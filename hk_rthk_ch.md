@@ -1,3 +1,49 @@
+# 西藏愈來愈多老年人日間照料中心為長者服務
+
+  
+
+今年是西藏自治區成立60周年，記者到西藏採訪，了解當地民生及社會發展情況。中國人口老齡化問題日益加劇，西藏自治區政府近年著力健全養老服務體系，發展銀髮經濟，當地愈來愈多老年人日間照料中心建成，為長者提供集養護、醫療、教育、娛樂、創業於一身的服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798231-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798231-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798231-20250331.htm)
+
+---
+
+# 內地學者稱「TikTok難民」現象未必持續
+
+  
+
+美國前總統拜登任內要求短片分享平台TikTok的美國業務，要脫離中國母公司字節跳動，否則禁用；到總統特朗普上任，就將有關行政命令暫緩至4月初。當時衍生出被形容為「TikTok難民」的外國人士，轉用中國社交平台「小紅書」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798230-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798230-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798230-20250331.htm)
+
+---
+
 # 港股半日跌近2%　長和跌約4%
 
 ![港股中午收市前跌幅擴大，創近1個月低位。恒生指數中午收市報23022點，跌404點，跌幅1.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798228_1_20250331121035.jpg&q=85)
@@ -1386,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm)
-
----
-
-# 香港紅十字會：緬甸災區食水供應受阻衞生設施受損　憂爆發傳染病
-
-![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798151_1_20250330230731.jpg&q=45)
-  
-
-緬甸大地震後，多方派出救援隊伍到當地協助救災。香港紅十字會國際及賑災服務主管程德君表示，香港方面已準備好提供衞生及心理健康支援，正與緬甸紅十字會等溝通協調。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm)
-
----
-
-# 敏昂萊稱緬甸地震遇難人數或上升　須盡快恢復交通以更有效救援
-
-![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798149_1_20250330223300.jpg&q=75)
-  
-
-緬甸地震增至1700人死亡，3400多人受傷，300多人失蹤。中國駐緬甸大使館確認至今有14名中國公民在地震中受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798149-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798149-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798149-20250330.htm)
 
 ---

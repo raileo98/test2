@@ -1,3 +1,49 @@
+# 西藏愈來愈多老年人日間照料中心為長者服務
+
+  
+
+今年是西藏自治區成立60周年，記者到西藏採訪，了解當地民生及社會發展情況。中國人口老齡化問題日益加劇，西藏自治區政府近年著力健全養老服務體系，發展銀髮經濟，當地愈來愈多老年人日間照料中心建成，為長者提供集養護、醫療、教育、娛樂、創業於一身的服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798231-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798231-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798231-20250331.htm)
+
+---
+
+# 內地學者稱「TikTok難民」現象未必持續
+
+  
+
+美國前總統拜登任內要求短片分享平台TikTok的美國業務，要脫離中國母公司字節跳動，否則禁用；到總統特朗普上任，就將有關行政命令暫緩至4月初。當時衍生出被形容為「TikTok難民」的外國人士，轉用中國社交平台「小紅書」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798230-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798230-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798230-20250331.htm)
+
+---
+
 # 一名中國公民在緬甸地震中遇難
 
   
@@ -1390,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm)
-
----
-
-# 外交部：美方應停止在南海挑事生非　奉勸菲方勿「倚美鬧海」
-
-![郭嘉昆說，美方應停止在南海挑事生非，不要做南海的攪局者和肇事方。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797876_1_20250328161658.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，美方應摒棄冷戰思維，停止挑動意識形態對抗，停止在南海挑事生非、在地區挑撥離間，不要做南海的攪局者和肇事方。中方也奉勸菲方，不要「倚美鬧海」，更不要試圖挑起軍事對抗。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797876-20250328.htm)
-
----
-
-# 易綱：轉型金融須國際合作　周小川：不能說賠錢亦要企業轉型
-
-![易綱（右）表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確。周小川（左）支持轉型金融過程中，需要注意價格機制。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797874_1_20250328163029.jpg&q=90)
-  
-
-人民銀行前行長，中國金融學會理事會會長易綱表示，轉型金融需要國際合作、非常明確標準及披露要求。他在博鰲亞洲論壇一個分論壇上表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確，以防止綠「綠漂」，同時亦提供奬勵。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm)
 
 ---
