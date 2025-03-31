@@ -1,3 +1,26 @@
+# 港深西部鐵路下半年邀請意向書　陳美寶：對招標持開放態度
+
+  
+
+運輸及物流局局長陳美寶表示，就連接洪水橋至深圳前海的港深西部鐵路，將於下半年邀請意向書，了解市場反應，包括是否可以採取「計劃，建造，營運」一站式合約，強調希望「摸一摸市場脈搏」，至於鐵路日後採取「一地兩檢」，口岸會設在深圳灣還是前海就仍在與深圳方面商討。就鐵路的成本效益方面，已做了兩期研究，就乘客量的評估，估計2038年本地及跨境客量介乎29萬至35萬人次，到2046年估計有38萬至46萬人次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm)
+
+---
+
 # 恒指下午開市後跌逾300點
 
 ![恒指下午初段報23086點，跌339點，跌幅1.45%；科技指數報5371點，跌幅2.45%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798238_1_20250331131133.jpg&q=75)
@@ -1425,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm)
-
----
-
-# 19班本港來往泰國航班延誤　沒有航班取消
-
-![機場管理局表示，截至晚上8時半，共有19班本港來往泰國的航班延誤。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798056_1_20250329224026.jpg&q=80)
-  
-
-機場管理局表示，截至晚上8時半，共有19班本港來往泰國的航班延誤，分別是9班從泰國抵港，以及10班由香港前往泰國，並沒有航班取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798056-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798056-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798056-20250329.htm)
 
 ---
