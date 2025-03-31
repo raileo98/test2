@@ -1,3 +1,28 @@
+# 緬甸地震全國哀悼7日　泰國曼谷市長稱關鍵拯救時間過去仍會搜救
+
+![在緬甸曼德勒，救援人員繼續在倒塌建築物的瓦礫中搜索。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798293_1_20250331173359.jpg&q=90)
+![泰國總理佩通坦到倒塌的建築物現場視察。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798293_2_20250331173359.jpg&q=85)
+  
+
+緬甸7級以上地震救援黃金72小時過去，救援隊繼續爭分奪秒搜救被困人士。中方救援隊先後救出6名倖存者，中方首批物資亦已運抵仰光。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm)
+
+---
+
 # 利物浦熱刺及阿仙奴分別公開操練　讓球迷與球員接觸
 
   
@@ -47,6 +72,7 @@
 
 # 特區救援隊展開於曼德勒兩個受災區域搜救
 
+![抵達緬甸曼德勒的特區救援隊，正於其中兩個受災區域進行搜救行動。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798271_1_20250331180952.jpg&q=80)
   
 
 保安局表示，抵達緬甸曼德勒的特區救援隊，帶上專業裝備及搜救犬，正於其中兩個受災區域進行搜救行動。
@@ -1407,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798070-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798070-20250330.htm)
-
----
-
-# 聯合國稱緬甸基礎設施受損阻礙救災工作
-
-![聯合國人道主義事務協調辦公室表示，人道主義行動因道路和基礎設施受損而受阻。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798069_1_20250330021251.jpg&q=75)
-  
-
-緬甸發生7.7級強烈地震後，多方伸出援手。聯合國人道主義事務協調辦公室表示，人道主義行動因道路和基礎設施受損而受阻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798069-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798069-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798069-20250330.htm)
 
 ---

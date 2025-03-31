@@ -1,3 +1,51 @@
+# HA unveils smart measures to better monitor patients
+
+![The Hospital Authority is bringing new technology to public hospitals. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798304_1_20250331180722.jpg&q=90)
+  
+
+The Hospital Authority (HA) on Monday announced a series of smart measures in accident and emergency departments and wards to better monitor patients and reduce medical mishaps.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798304-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798304-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798304-20250331.htm)
+
+---
+
+# HK set to see Reds, Arsenal, Spurs and Milan in action
+
+![Liverpool and AC Milan will face off on July 26 for the Standard Chartered Trophy while Arsenal will play Tottenham Hotspur on July 31. Photo courtesy of Hong Kong Football Festival](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798296_1_20250331174722.jpg&q=80)
+  
+
+Four of the world’s top football teams will be coming to Hong Kong this summer for pre-season friendlies as they gear up for the 2025-26 season, organisers said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm)
+
+---
+
 # Hygiene black spot list shrinks after clean-up
 
 ![Warner Cheuk expressed gratitude for efforts to improve hygiene conditions. Photo courtesy of Information Services Department.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798281_1_20250331170515.jpg&q=90)
@@ -1409,53 +1457,5 @@ The organiser of Art Basel Hong Kong said on Wednesday this year's edition aims 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm)
-
----
-
-# 'Youngsters respond positively to govt youth schemes'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797448_1_20250326113912.jpg&q=75)
-  
-
-Secretary for Home and Youth Affairs Alice Mak said there has been a strong response to various government youth programmes.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797448-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797448-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797448-20250326.htm)
-
----
-
-# 'All systems go at Kai Tak for rugby showcase'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797464_1_20250326133017.jpg&q=85)
-  
-
-The Kai Tak Sports Park said it's ready to host the Hong Kong Rugby Sevens tournament later this week.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm)
 
 ---

@@ -1,3 +1,75 @@
+# Tokyo updates toll for next potential 'megaquake'
+
+![The Fukushima nuclear disaster was one of three 2011 chain of events that changed the way that Tokyo traditionally regarded the 'megaquake' scenario. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798306_1_20250331182035.jpg&q=90)
+  
+
+A "megaquake" and subsequent tsunami could cause up to 298,000 deaths in Japan and damage costing up to US$2 trillion, the government said on Monday in a new estimate.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm)
+
+---
+
+# HA unveils smart measures to better monitor patients
+
+![The Hospital Authority is bringing new technology to public hospitals. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798304_1_20250331180722.jpg&q=90)
+  
+
+The Hospital Authority (HA) on Monday announced a series of smart measures in accident and emergency departments and wards to better monitor patients and reduce medical mishaps.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798304-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798304-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798304-20250331.htm)
+
+---
+
+# HK set to see Reds, Arsenal, Spurs and Milan in action
+
+![Liverpool and AC Milan will face off on July 26 for the Standard Chartered Trophy while Arsenal will play Tottenham Hotspur on July 31. Photo courtesy of Hong Kong Football Festival](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798296_1_20250331174722.jpg&q=80)
+  
+
+Four of the world’s top football teams will be coming to Hong Kong this summer for pre-season friendlies as they gear up for the 2025-26 season, organisers said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm)
+
+---
+
 # Retail sales slip again in February
 
 ![Hong Kong's retail sales dropped by 13 percent year on year in February, partly due to high pre-festival spending from the Lunar New Year holiday falling in the same month last year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798288_1_20250331172638.jpg&q=90)
@@ -216,7 +288,7 @@ South Korean police plan to question a 56-year-old man on suspicion of starting 
 
 # Chinese rescuers find six quake survivors in Myanmar
 
-![Chinese rescuers pull to safety a survivor in quake-hit Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798255_1_20250331151517.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798255_1_20250331151517.jpg&q=90)
   
 
 Rescuers from China have found six survivors so far in earthquake-rattled Myanmar.
@@ -1372,77 +1444,5 @@ Fans soaked up the raucous atmosphere at the new Kai Tak Stadium where the Hong 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm)
-
----
-
-# S Korea firefighters use helicopters as fires reignite
-
-![Charred houses stand in ruins in Namhu, a village ravaged by the wildfires in Andong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798033_1_20250329183107.jpg&q=80)
-  
-
-South Korean firefighters deployed helicopters on Saturday as the country's biggest wildfires on record that ravaged wide areas of its southeast reignited in one of the region's cities, an official said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798033-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798033-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798033-20250329.htm)
-
----
-
-# Police make 157 space oil drug arrests
-
-![Police commissioner Raymond Siu says the force arrested 157 people in relation to the space oil drug between February 14 and March 27. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798023_1_20250329170940.jpg&q=90)
-  
-
-Police Commissioner Raymond Siu revealed on Saturday that the force has arrested 157 people in relation to the space oil drug.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798023-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798023-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798023-20250329.htm)
-
----
-
-# Pistons top Cavs to secure winning season
-
-![Tim Hardaway Jr connected on seven of 11 from three-point range for Detroit. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798019_1_20250329151714.jpg&q=90)
-  
-
-Tim Hardaway Jr scored 32 points to lead Detroit to a 133-122 victory over the Eastern Conference-leading Cleveland Cavaliers on Friday, a triumph that assured the Pistons of their first winning NBA season since 2016.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm)
 
 ---

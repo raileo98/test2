@@ -1,3 +1,75 @@
+# 緬甸地震全國哀悼7日　泰國曼谷市長稱關鍵拯救時間過去仍會搜救
+
+![在緬甸曼德勒，救援人員繼續在倒塌建築物的瓦礫中搜索。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798293_1_20250331173359.jpg&q=90)
+![泰國總理佩通坦到倒塌的建築物現場視察。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798293_2_20250331173359.jpg&q=85)
+  
+
+緬甸7級以上地震救援黃金72小時過去，救援隊繼續爭分奪秒搜救被困人士。中方救援隊先後救出6名倖存者，中方首批物資亦已運抵仰光。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm)
+
+---
+
+# 北部都會區三個「片區開發」試點最少收12份意向書
+
+  
+
+發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，最少收到12份意向書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm)
+
+---
+
+# 一站式「墳場及火葬場服務平台」方便市民處理先人後事
+
+![一站式網上服務，提供轄下所有墳場及火葬場的服務，簡化電子申請程序及個人化服務。（墳場及火葬場服務平台網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798303_1_20250331182559.jpg&q=90)
+  
+
+食環署推出「墳場及火葬場服務平台」，透過一站式網上服務，提供轄下所有墳場及火葬場的服務，簡化電子申請程序及個人化服務，進一步利便市民處理先人後事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798303-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798303-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798303-20250331.htm)
+
+---
+
 # 越秀地產去年盈利跌67%　不派末期息
 
 ![越秀地產去年盈利10.4億元人民幣，按年跌67.3%，不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798300_1_20250331175248.jpg&q=80)
@@ -93,11 +165,12 @@
 
 ---
 
-# 胡耀邦兒子胡德華據報逝世　享年77歲
+# 胡耀邦兒子胡德華據報逝世　終年77歲
 
+![內地媒體報道，胡德華昨晚病逝。（紅船融媒網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798298_1_20250331181141.jpg&q=90)
   
 
-有內地新媒體平台報道，中共已故總書記胡耀邦的兒子胡德華，昨晚因病逝世，享年77歲。
+有內地新媒體平台報道，中共已故總書記胡耀邦的兒子胡德華，昨晚因病逝世，終年77歲。
 
   
 
@@ -118,6 +191,7 @@
 
 # 房委會加入6名新委員　另有5人再獲委任
 
+![行政長官委任6名新委員加入房委會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798297_1_20250331182030.jpg&q=85)
   
 
 行政長官委任6名新委員加入房委會，包括梁文廣、梁邦媛、趙子翹、羅啟華、張仁良及陸頌雄，任期由明天開始，為期兩年。
@@ -164,6 +238,7 @@
 
 # 海關機場檢逾100公斤懷疑氯胺酮　3名女遊客被捕
 
+![海關共檢獲約102公斤，估計市值約5000萬元的懷疑氯胺酮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798294_1_20250331180357.jpg&q=85)
   
 
 海關過去兩日在機場偵破兩宗行李藏毒的販毒案件，共檢獲約102公斤，估計市值約5000萬元的懷疑氯胺酮。
@@ -281,6 +356,7 @@
 
 # 議員憂業主減租誘劏房戶不舉報　何永賢：機制有助防止地下化問題
 
+![何永賢表示，目前考慮以每個住宅單位收取認證費。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798285_1_20250331180458.jpg&q=90)
   
 
 立法會一個委員會討論簡樸房最新規管制度建議方案，財政司副司長黃偉綸表示，針對工廈違規劏房的執法，現時的過程較為迂迴，發展局和民青局將會在「簡樸房」規管制度通過後，很大可能分別就《建築物條例》和《床位寓所條例》作相適應的調整，並會在下一屆立法會會期處理。
@@ -520,6 +596,7 @@
 
 # 特區救援隊展開於曼德勒兩個受災區域搜救
 
+![抵達緬甸曼德勒的特區救援隊，正於其中兩個受災區域進行搜救行動。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798271_1_20250331180952.jpg&q=80)
   
 
 保安局表示，抵達緬甸曼德勒的特區救援隊，帶上專業裝備及搜救犬，正於其中兩個受災區域進行搜救行動。

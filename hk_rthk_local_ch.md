@@ -1,3 +1,50 @@
+# 北部都會區三個「片區開發」試點最少收12份意向書
+
+  
+
+發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，最少收到12份意向書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm)
+
+---
+
+# 一站式「墳場及火葬場服務平台」方便市民處理先人後事
+
+![一站式網上服務，提供轄下所有墳場及火葬場的服務，簡化電子申請程序及個人化服務。（墳場及火葬場服務平台網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798303_1_20250331182559.jpg&q=90)
+  
+
+食環署推出「墳場及火葬場服務平台」，透過一站式網上服務，提供轄下所有墳場及火葬場的服務，簡化電子申請程序及個人化服務，進一步利便市民處理先人後事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798303-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798303-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798303-20250331.htm)
+
+---
+
 # 證監會引入新的「市場偵測模型」　AI分析數據及早識別風險
 
 ![證監會引入新的「市場偵測模型」，運用AI協助數據分析，及時識別風險預警跡象。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798299_1_20250331175241.jpg&q=90)
@@ -71,6 +118,7 @@
 
 # 房委會加入6名新委員　另有5人再獲委任
 
+![行政長官委任6名新委員加入房委會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798297_1_20250331182030.jpg&q=85)
   
 
 行政長官委任6名新委員加入房委會，包括梁文廣、梁邦媛、趙子翹、羅啟華、張仁良及陸頌雄，任期由明天開始，為期兩年。
@@ -117,6 +165,7 @@
 
 # 海關機場檢逾100公斤懷疑氯胺酮　3名女遊客被捕
 
+![海關共檢獲約102公斤，估計市值約5000萬元的懷疑氯胺酮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798294_1_20250331180357.jpg&q=85)
   
 
 海關過去兩日在機場偵破兩宗行李藏毒的販毒案件，共檢獲約102公斤，估計市值約5000萬元的懷疑氯胺酮。
@@ -186,6 +235,7 @@
 
 # 議員憂業主減租誘劏房戶不舉報　何永賢：機制有助防止地下化問題
 
+![何永賢表示，目前考慮以每個住宅單位收取認證費。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798285_1_20250331180458.jpg&q=90)
   
 
 立法會一個委員會討論簡樸房最新規管制度建議方案，財政司副司長黃偉綸表示，針對工廈違規劏房的執法，現時的過程較為迂迴，發展局和民青局將會在「簡樸房」規管制度通過後，很大可能分別就《建築物條例》和《床位寓所條例》作相適應的調整，並會在下一屆立法會會期處理。
@@ -305,6 +355,7 @@
 
 # 特區救援隊展開於曼德勒兩個受災區域搜救
 
+![抵達緬甸曼德勒的特區救援隊，正於其中兩個受災區域進行搜救行動。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798271_1_20250331180952.jpg&q=80)
   
 
 保安局表示，抵達緬甸曼德勒的特區救援隊，帶上專業裝備及搜救犬，正於其中兩個受災區域進行搜救行動。
@@ -1386,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798125-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798125-20250330.htm)
-
----
-
-# 運輸署籲稍後盡量乘港鐵離場　特別巴士路線提前下午6時起服務
-
-![運輸署預計較多觀眾同一時間離場，呼籲離場人士盡量乘搭港鐵。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798128_1_20250330172757.jpg&q=60)
-  
-
-運輸署表示，正在啟德體育園舉行的香港國際七人欖球賽預計今晚7時後完成所有賽事。由於預計較多觀眾同一時間離場，呼籲離場人士盡量乘搭港鐵。署方一直督導公共運輸服務安排，整體交通至今大致暢順。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798128-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798128-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798128-20250330.htm)
-
----
-
-# 特區救援隊抵達緬甸首都　隨即展開勘察及部署
-
-![緬甸日前發生大地震，特區政府派出救援隊協助救援。（保安局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798124_2_20250330190435.jpg&q=90)
-  
-
-緬甸日前發生大地震，特區政府派出救援隊協助救援。保安局在社交網站上載片段，救援隊領隊趙汝珏說，昨晚大約9時抵達仰光機場，凌晨3時半出發前往首都內比都，經過大約10小時車程，當地時間中午後到達，之後將立即進行勘察工作，並與其他國家救援隊聯絡，了解當前狀況並再作部署。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm)
 
 ---

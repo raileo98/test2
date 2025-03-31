@@ -1,3 +1,27 @@
+# HK set to see Reds, Arsenal, Spurs and Milan in action
+
+![Liverpool and AC Milan will face off on July 26 for the Standard Chartered Trophy while Arsenal will play Tottenham Hotspur on July 31. Photo courtesy of Hong Kong Football Festival](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798296_1_20250331174722.jpg&q=80)
+  
+
+Four of the world’s top football teams will be coming to Hong Kong this summer for pre-season friendlies as they gear up for the 2025-26 season, organisers said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm)
+
+---
+
 # Teenage ace Mensik beats childhood hero Djokovic
 
 ![Jakub Mensik slammed 14 aces past Novak Djokovic, who could only manage half that number. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798220_1_20250331110937.jpg&q=90)
@@ -1424,29 +1448,5 @@ Former heavyweight champion George Foreman, who fought and lost against Muhammad
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796902-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796902-20250322.htm)
-
----
-
-# Tuchel starts his reign as England coach with a win
-
-![England beat Albania 2-0 in their opening World Cup qualifier on Friday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796888_1_20250322075914.jpg&q=90)
-  
-
-Thomas Tuchel made a winning start to his England reign without delivering on his promise of a vibrant new era as the Three Lions beat Albania 2-0 in their opening World Cup qualifier on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796888-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796888-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796888-20250322.htm)
 
 ---

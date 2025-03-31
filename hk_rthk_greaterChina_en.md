@@ -1,6 +1,6 @@
 # Chinese rescuers find six quake survivors in Myanmar
 
-![Chinese rescuers pull to safety a survivor in quake-hit Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798255_1_20250331151517.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798255_1_20250331151517.jpg&q=90)
   
 
 Rescuers from China have found six survivors so far in earthquake-rattled Myanmar.

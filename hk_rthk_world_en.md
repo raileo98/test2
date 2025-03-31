@@ -1,3 +1,27 @@
+# Tokyo updates toll for next potential 'megaquake'
+
+![The Fukushima nuclear disaster was one of three 2011 chain of events that changed the way that Tokyo traditionally regarded the 'megaquake' scenario. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798306_1_20250331182035.jpg&q=90)
+  
+
+A "megaquake" and subsequent tsunami could cause up to 298,000 deaths in Japan and damage costing up to US$2 trillion, the government said on Monday in a new estimate.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm)
+
+---
+
 # Le Pen found guilty putting presidential hopes at risk
 
 ![Marine Le Pen arrives in court for the verdict. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798290_1_20250331172739.jpg&q=85)
@@ -96,7 +120,7 @@ South Korean police plan to question a 56-year-old man on suspicion of starting 
 
 # Chinese rescuers find six quake survivors in Myanmar
 
-![Chinese rescuers pull to safety a survivor in quake-hit Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798255_1_20250331151517.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798255_1_20250331151517.jpg&q=90)
   
 
 Rescuers from China have found six survivors so far in earthquake-rattled Myanmar.
@@ -1415,29 +1439,5 @@ The appeal of a Vietnamese property tycoon convicted of money laundering began o
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797356-20250325.htm)
-
----
-
-# Microplastics fear for those who chew gum
-
-![Researchers say a gram of gum releases an average of 100 microplastic fragments and that some shed more than 600. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797333_1_20250325172205.jpg&q=90)
-  
-
-Chewing gum releases hundreds of tiny plastic pieces straight into people's mouths, researchers said on Tuesday, also warning of the pollution created by the rubber-based sweet.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797333-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797333-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797333-20250325.htm)
 
 ---
