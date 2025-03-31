@@ -1,3 +1,27 @@
+# Hong Kong stocks close lower
+
+![The Hang Seng Index finished down 1.3 percent at 23,119. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798291_1_20250331172815.jpg&q=55)
+  
+
+Hong Kong stocks ended lower on Monday, with the benchmark Hang Seng Index down 1.3 percent at 23,119.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798291-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798291-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798291-20250331.htm)
+
+---
+
 # China's factory PMI expands at fastest pace in a year
 
 ![Official data shows the purchasing managers' index for manufacturing was up 0.3 percentage points from February. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798209_1_20250331101633.jpg&q=80)
@@ -1413,29 +1437,5 @@ Wall Street stocks rose for the second straight day on Monday following better U
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm)
-
----
-
-# Stocks end up on news of China's consumption drive
-
-![The Hang Seng Index rose 0.77 percent to close at 24,145.57. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796083_1_20250317174259.jpg&q=75)
-  
-
-Markets rose on Monday as investors welcomed China's plans to kickstart consumption in the world's number two economy, though worries about US President Donald Trump's tariffs war continue to cast a shadow over trading floors.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm)
 
 ---

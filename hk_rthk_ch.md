@@ -1,3 +1,73 @@
+# 七姊妹道爆水管致煤氣管受損　煤氣公司目標明天中午前恢復供氣
+
+  
+
+煤氣公司表示，受七姊妹道爆水管事故影響，該處地下煤氣喉管受損，正配合相關水務工程進行緊急維修，目標明天中午前恢復供氣，具體時間須視乎水務工程復修進展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm)
+
+---
+
+# 本港上月認可機構港元存款升2.1%　人民幣存款升4.9%
+
+![金管局公布，上月認可機構港元存款上升2.1%，香港人民幣存款上升4.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798283_1_20250331170731.jpg&q=80)
+  
+
+金管局公布，上月認可機構存款總額上升1.3%，港元存款及外幣存款分別上升2.1%及0.6%。今年首兩個月，存款總額及港元存款分別上升2.7%及3.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm)
+
+---
+
+# 議員憂業主減租誘劏房戶不舉報　何永賢：機制有助防止地下化問題
+
+  
+
+立法會一個委員會討論簡樸房最新規管制度建議方案，財政司副司長黃偉綸表示，針對工廈違規劏房的執法，現時的過程較為迂迴，發展局和民青局將會在「簡樸房」規管制度通過後，很大可能分別就《建築物條例》和《床位寓所條例》作相適應的調整，並會在下一屆立法會會期處理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798285-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798285-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798285-20250331.htm)
+
+---
+
 # 會財局定下3年策略　倡導可持續發展及數碼化轉型
 
 ![會財局發布2025年至2027年策略重點，包括倡導可持續發展、數碼化轉型及人才管理，促進會計專業發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798280_1_20250331170516.jpg&q=90)
@@ -169,6 +239,9 @@
 # 二月零售業總銷貨價值臨時估計為294億元　按年跌13%
 
   
+
+政府統計處公布，今年2月零售業總銷貨價值的臨時估計為294億元，較去年同月下跌13%。與去年同期比較，今年首兩個月合計的零售業總銷貨價值的臨時估計下跌7.8%。
+
   
 
 
@@ -736,7 +809,7 @@
 
 # 特區救援隊抵達曼德勒　將與國家隊分工展開搜救
 
-![保安局表示，特區救援隊剛抵達緬甸地震災區曼德勒，立即與中國救援隊會合，聽取國家隊對當地災情的簡介。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798239_1_20250331135742.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798239_1_20250331135742.jpg&q=75)
   
 
 保安局表示，特區救援隊剛抵達緬甸地震災區曼德勒，立即與中國救援隊會合，聽取國家隊對當地災情的簡介。沿途見到不少房屋倒塌，災民在空地搭建臨時帳篷。

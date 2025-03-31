@@ -1,3 +1,51 @@
+# Hong Kong stocks close lower
+
+![The Hang Seng Index finished down 1.3 percent at 23,119. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798291_1_20250331172815.jpg&q=55)
+  
+
+Hong Kong stocks ended lower on Monday, with the benchmark Hang Seng Index down 1.3 percent at 23,119.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798291-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798291-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798291-20250331.htm)
+
+---
+
+# Le Pen found guilty putting presidential hopes at risk
+
+![Marine Le Pen arrives in court for the verdict. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798290_1_20250331172739.jpg&q=85)
+  
+
+A French court found far-right leader Marine Le Pen guilty on Monday of misappropriating EU funds, in a trial that could potentially see her barred from the 2027 presidential race.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798290-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798290-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798290-20250331.htm)
+
+---
+
 # Myanmar marks quake with week of mourning
 
 ![A residential building in Mandalay is left in a perilous state by Friday's earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798284_1_20250331171253.jpg&q=75)
@@ -1396,53 +1444,5 @@ Secretary for Constitutional and Mainland Affairs Erick Tsang said on Saturday t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm)
-
----
-
-# Hong Kong sends rescue team to quake-stricken Myanmar
-
-![Members of the Fire Services Department, along with the Security Bureau and the Hospital Authority are part of the SAR's 51-strong rescue team. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798001_3_20250329162817.jpg&q=80)
-  
-
-Chief Executive John Lee on Saturday said Hong Kong will send a search and rescue team to Myanmar, after a magnitude 7.7 earthquake struck the country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798001-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798001-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798001-20250329.htm)
-
----
-
-# Some people need to seek alternatives to A&E, Lo says
-
-![Health chief Lo Chung-mau hopes the public can turn to other choices than A&E when the new fees take effect next year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797998_1_20250329122451.jpg&q=85)
-  
-
-The Secretary for Health Lo Chung-mau says he hopes some people can find alternatives to accident and emergency wards at public hospitals at all times when new fees take effect.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm)
 
 ---

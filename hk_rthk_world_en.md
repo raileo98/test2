@@ -1,3 +1,27 @@
+# Le Pen found guilty putting presidential hopes at risk
+
+![Marine Le Pen arrives in court for the verdict. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798290_1_20250331172739.jpg&q=85)
+  
+
+A French court found far-right leader Marine Le Pen guilty on Monday of misappropriating EU funds, in a trial that could potentially see her barred from the 2027 presidential race.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798290-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798290-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798290-20250331.htm)
+
+---
+
 # Myanmar marks quake with week of mourning
 
 ![A residential building in Mandalay is left in a perilous state by Friday's earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798284_1_20250331171253.jpg&q=75)
@@ -1415,29 +1439,5 @@ Chewing gum releases hundreds of tiny plastic pieces straight into people's mout
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797333-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797333-20250325.htm)
-
----
-
-# Red Army Faction fugitive faces trial at last
-
-![Daniela Klette is led away to a helicopter after a detention review hearing in Karlsruhe last March. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797316_1_20250325155616.jpg&q=90)
-  
-
-A former member of Germany's far-left Baader-Meinhof gang who was arrested last year after more than 30 years on the run will face trial on Tuesday for a series of armed robberies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 七姊妹道爆水管致煤氣管受損　煤氣公司目標明天中午前恢復供氣
+
+  
+
+煤氣公司表示，受七姊妹道爆水管事故影響，該處地下煤氣喉管受損，正配合相關水務工程進行緊急維修，目標明天中午前恢復供氣，具體時間須視乎水務工程復修進展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm)
+
+---
+
+# 本港上月認可機構港元存款升2.1%　人民幣存款升4.9%
+
+![金管局公布，上月認可機構港元存款上升2.1%，香港人民幣存款上升4.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798283_1_20250331170731.jpg&q=80)
+  
+
+金管局公布，上月認可機構存款總額上升1.3%，港元存款及外幣存款分別上升2.1%及0.6%。今年首兩個月，存款總額及港元存款分別上升2.7%及3.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm)
+
+---
+
 # 會財局定下3年策略　倡導可持續發展及數碼化轉型
 
 ![會財局發布2025年至2027年策略重點，包括倡導可持續發展、數碼化轉型及人才管理，促進會計專業發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798280_1_20250331170516.jpg&q=90)
@@ -145,6 +192,9 @@
 # 二月零售業總銷貨價值臨時估計為294億元　按年跌13%
 
   
+
+政府統計處公布，今年2月零售業總銷貨價值的臨時估計為294億元，較去年同月下跌13%。與去年同期比較，今年首兩個月合計的零售業總銷貨價值的臨時估計下跌7.8%。
+
   
 
 
@@ -1389,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797968-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797968-20250329.htm)
-
----
-
-# 油價低收　全周累計連升3星期
-
-![憂慮美國關稅措施引發全球經濟衰退，英美期油分別低收0.5%及0.8%，但全周累計連升3星期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797967_1_20250329060156.jpg&q=90)
-  
-
-國際油價轉跌，由於憂慮美國關稅措施引發全球經濟衰退，但美國加大對委內瑞拉及伊朗施壓，以致油價全周累計連升3星期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797967-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797967-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797967-20250329.htm)
-
----
-
-# 歐洲股市普遍低收近1%　英股全日跌7點
-
-![德國、法國、意大利、西班牙股市都跌近1%，德國DAX指數收報22461點，創近3星期新低。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797966_1_20250329055625.jpg&q=90)
-  
-
-歐洲股市低收，德國、法國、意大利、西班牙股市都跌近1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797966-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797966-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797966-20250329.htm)
 
 ---
