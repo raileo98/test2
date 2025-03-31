@@ -1,3 +1,27 @@
+# 瑪麗娜勒龐批評判決帶有政治動機　目的是阻止她參選總統
+
+![瑪麗娜勒龐接受電視台訪問時，強調自己無辜，批評判決帶有政治動機。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798349_1_20250401040835.jpg&q=85)
+  
+
+法國極右國民聯盟領袖瑪麗娜勒龐，被法院裁定挪用歐洲議會公款罪名成立，判監4年，其中兩年緩刑，5年內不得參選公職，意味她無法參加2027年總統選舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798349-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798349-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798349-20250401.htm)
+
+---
+
 # 特朗普周三公布對等關稅政策　白宮稱對美不公國家應預料成為目標
 
 ![萊維特說，關稅將扭轉幾十年來一直剝削美國的不公平貿易行為。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798348_1_20250401032921.jpg&q=75)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm)
-
----
-
-# 東電結束福島處理水第十一次排海　氚濃度無異常
-
-![日本東京電力公司公布，福島第一核電站第11次核污水排海作業已結束。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798115_1_20250330173357.jpg&q=75)
-  
-
-日本東京電力公司公布，福島第一核電站第11次核污水排海作業已結束，是本財政年度的最後一次，共排放約7800噸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm)
 
 ---

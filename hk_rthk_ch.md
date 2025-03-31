@@ -1,3 +1,27 @@
+# 瑪麗娜勒龐批評判決帶有政治動機　目的是阻止她參選總統
+
+![瑪麗娜勒龐接受電視台訪問時，強調自己無辜，批評判決帶有政治動機。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798349_1_20250401040835.jpg&q=85)
+  
+
+法國極右國民聯盟領袖瑪麗娜勒龐，被法院裁定挪用歐洲議會公款罪名成立，判監4年，其中兩年緩刑，5年內不得參選公職，意味她無法參加2027年總統選舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798349-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798349-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798349-20250401.htm)
+
+---
+
 # 特朗普周三公布對等關稅政策　白宮稱對美不公國家應預料成為目標
 
 ![萊維特說，關稅將扭轉幾十年來一直剝削美國的不公平貿易行為。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798348_1_20250401032921.jpg&q=75)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798274-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798274-20250331.htm)
-
----
-
-# 李家超稱重視發展人工智能　加大投資革新創科產業思路
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798276_1_20250331165722.jpg&q=90)
-  
-
-行政長官李家超說，總理的政府工作報告提出，要健全因地制宜發展新質生產力體制機制，完善推動人工智能等戰略產業發展政策和治理體系，人工智能是新一輪科技革命和產業變革的核心推動力量，也是發展新質生產力重要引擎，對全球經濟社會發展和人類文明進步影響深遠。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm)
 
 ---
