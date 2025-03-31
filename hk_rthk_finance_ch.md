@@ -1,3 +1,50 @@
+# 利物浦AC米蘭7.26　阿仙奴熱刺7.31啟德主場館表演賽
+
+  
+
+三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月到港於啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm)
+
+---
+
+# 滬指3月升近0.5%　首季跌約0.5%
+
+![上證綜合指數收市報3335點，跌15點，跌幅0.46%。指數3月升0.45%，首季則跌0.48%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798258_1_20250331152023.jpg&q=85)
+  
+
+滬深股市3大指數收市下跌，3月和首季度則個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798258-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798258-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798258-20250331.htm)
+
+---
+
 # 韓股失守2500點　3月跌2%　首季升逾3%
 
 ![首爾綜合指數收市報2481點，跌幅3%。3月累計跌2%，首季升3.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798252_1_20250331144731.jpg&q=85)
@@ -1398,53 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797933-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797933-20250328.htm)
-
----
-
-# 美股初段向下　投資者憂慮關稅推高物價
-
-![美股初段向下，市場憂慮總統特朗普提高關稅的措施再次推高物價。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797935_1_20250328214029.jpg&q=90)
-  
-
-美股初段向下。美國上月核心通脹高於預期，市場憂慮美國總統特朗普提高關稅的措施再次推高物價。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797935-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797935-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797935-20250328.htm)
-
----
-
-# 建造業「油漆工」「砌磚工」訂定灣區標準推展「一試多證」安排
-
-![當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797934_1_20250328215518.jpg&q=75)
-  
-
-當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排，有關標準已上載香港建造學院的網頁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm)
 
 ---

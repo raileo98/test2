@@ -1,3 +1,26 @@
+# 利物浦AC米蘭7.26　阿仙奴熱刺7.31啟德主場館表演賽
+
+  
+
+三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月到港於啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm)
+
+---
+
 # 黃澤林期待於啟德體育園作賽　今年目標爭取排名世界前100
 
 ![黃澤林指以「搏盡無悔」的心態，希望用成績令其他球手對香港網球運動員改觀。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798253_1_20250331150941.jpg&q=90)
@@ -1436,29 +1459,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm)
-
----
-
-# 羅淑佩稱啟德體育園公司已積極找發言人　冀七欖消息發放得更好
-
-![羅淑佩指政府下達要求後，啟德體育園公司已積極尋找發言人，會建立相關制度。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796405_1_20250319141721.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩表示，就啟德體育園啟用初期的情況，已向營運公司管理層表達高度關注，並指示要迅速調整體制，包括優化決策、溝通及處理突發事件機制，亦要求改善員工的敏感度及向外發放信息的安排，包括設立專職發言人，以加強公眾對啟德體育園的認知和信心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796405-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796405-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796405-20250319.htm)
 
 ---

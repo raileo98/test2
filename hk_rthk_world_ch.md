@@ -1,3 +1,26 @@
+# 利物浦AC米蘭7.26　阿仙奴熱刺7.31啟德主場館表演賽
+
+  
+
+三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月到港於啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm)
+
+---
+
 # 世衞指急需8百萬美元為緬甸地震傷者提供創傷護理並預防疾病爆發
 
 ![世衞表示正組織全球緊急醫療團隊，到緬甸開展救援行動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798248_1_20250331142730.jpg&q=70)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm)
-
----
-
-# 緬甸大地震逾千人死亡　中國救援隊抵達仰光
-
-![在曼德勒，救援人員在瓦礫中搜索生還者。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798047_1_20250329213443.jpg&q=90)
-  
-
-緬甸中部昨日發生大地震至今，超過1千人死亡，2300多人受傷。領導人敏昂萊到災區視察。國家主席習近平向敏昂萊致慰問電。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798047-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798047-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798047-20250329.htm)
 
 ---

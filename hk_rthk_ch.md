@@ -1,5 +1,53 @@
+# 利物浦AC米蘭7.26　阿仙奴熱刺7.31啟德主場館表演賽
+
+  
+
+三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月到港於啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm)
+
+---
+
+# 滬指3月升近0.5%　首季跌約0.5%
+
+![上證綜合指數收市報3335點，跌15點，跌幅0.46%。指數3月升0.45%，首季則跌0.48%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798258_1_20250331152023.jpg&q=85)
+  
+
+滬深股市3大指數收市下跌，3月和首季度則個別發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798258-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798258-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798258-20250331.htm)
+
+---
+
 # 《求是》雜誌發表文章　習近平稱朝著建成科技強國目標奮勇前進
 
+![習近平在將出版的《求是》雜誌發表重要文章。（資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798257_1_20250331152942.jpg&q=90)
   
 
 中共中央總書記、國家主席、中央軍委主席習近平在將出版的《求是》雜誌發表重要文章。

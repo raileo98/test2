@@ -1,3 +1,26 @@
+# 利物浦AC米蘭7.26　阿仙奴熱刺7.31啟德主場館表演賽
+
+  
+
+三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月到港於啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm)
+
+---
+
 # 謝展寰：本港空氣質素持續改善　三區排水口污染量大減九成
 
 ![謝展寰表示，政府在多年努力下，香港的空氣質素和水質均已大幅改善。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798254_1_20250331151913.jpg&q=90)
@@ -1425,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm)
-
----
-
-# 漁護署在郊野公園安裝智能山火監察器實時監察山火
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798082_1_20250330081602.jpg&q=85)
-  
-
-漁護署正分階段展開智能山火監察器及控制系統安裝工程，進一步提升監察郊野公園內發生山火的效率，並於本月完成首階段安裝工作。安裝山火監察器的地點，包括於大欖郊野公園的田夫仔及八鄉山火瞭望台、西貢西郊野公園海下山火瞭望台和馬鞍山郊野公園黃竹洋山火瞭望台；山火控制中心亦會安裝監察器和控制系統，整個項目將在明年4月完成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798082-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798082-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798082-20250330.htm)
 
 ---
