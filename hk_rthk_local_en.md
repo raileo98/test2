@@ -1,3 +1,27 @@
+# Hygiene black spot list shrinks after clean-up
+
+![Warner Cheuk expressed gratitude for efforts to improve hygiene conditions. Photo courtesy of Information Services Department.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798281_1_20250331170515.jpg&q=90)
+  
+
+Hong Kong has become a lot cleaner in recent times with scores of rear lanes tidied up, dog mess issues resolved and waste dumping brought to an end in various locations, the government said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm)
+
+---
+
 # No extension in registering subdivided homes: govt
 
 ![The government is hoping to introduce a bill on regulating compact homes in the latter half of 2025. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798272_1_20250331163658.jpg&q=80)
@@ -1433,29 +1457,5 @@ The Kai Tak Sports Park said it's ready to host the Hong Kong Rugby Sevens tourn
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797464-20250326.htm)
-
----
-
-# Malls set to get more room for business
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797456_1_20250326120826.jpg&q=80)
-  
-
-Secretary for Development Bernadette Linn said on Wednesday officials will soon come up with measures to allow shopping malls to host more business activities within their public open spaces.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm)
 
 ---

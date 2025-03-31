@@ -1,3 +1,51 @@
+# Myanmar marks quake with week of mourning
+
+![A residential building in Mandalay is left in a perilous state by Friday's earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798284_1_20250331171253.jpg&q=75)
+  
+
+Myanmar's ruling junta declared a week of national mourning on Monday for the country's devastating earthquake, which has killed more than 1,700 people, as hopes faded of finding more survivors in the rubble of ruined buildings.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm)
+
+---
+
+# Hygiene black spot list shrinks after clean-up
+
+![Warner Cheuk expressed gratitude for efforts to improve hygiene conditions. Photo courtesy of Information Services Department.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798281_1_20250331170515.jpg&q=90)
+  
+
+Hong Kong has become a lot cleaner in recent times with scores of rear lanes tidied up, dog mess issues resolved and waste dumping brought to an end in various locations, the government said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm)
+
+---
+
 # No extension in registering subdivided homes: govt
 
 ![The government is hoping to introduce a bill on regulating compact homes in the latter half of 2025. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798272_1_20250331163658.jpg&q=80)
@@ -1396,56 +1444,5 @@ The Secretary for Health Lo Chung-mau says he hopes some people can find alterna
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm)
-
----
-
-# Myanmar quake death toll passes 1,600
-
-![A rescuer works at the site of the skyscraper that collapsed in Bangkok. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797995_1_20250329121851.jpg&q=70)
-  
-
-The death toll from the massive earthquake in Myanmar has passed 1,600, the ruling junta there said on Saturday, with more than 3,400 injured.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797995-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797995-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797995-20250329.htm)
-
----
-
-# 'Amazing, crazy' action on day two of Rugby Sevens
-
-![Team France celebrate after downing New Zealand 21-14. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_4_20250329210652.jpg&q=90)
-![The Hong Kong China men’s squad beat Japan 43-21 in the Melrose Claymores competition. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_3_20250329161738.jpg&q=90)
-![Fiji and Britain's women's teams face off at Kai Tak Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_1_20250329121802.jpg&q=85)
-![Argentina beats Fiji in the men's Rugby Sevens match. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_2_20250329131539.jpg&q=90)
-  
-
-Both the men’s and women’s squads for the SAR on Saturday kept their winning streak alive on day two of the Hong Kong Sevens, which also saw an end to New Zealand's campaign to win a third-straight title.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm)
 
 ---

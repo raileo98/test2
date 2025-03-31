@@ -1,3 +1,27 @@
+# Myanmar marks quake with week of mourning
+
+![A residential building in Mandalay is left in a perilous state by Friday's earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798284_1_20250331171253.jpg&q=75)
+  
+
+Myanmar's ruling junta declared a week of national mourning on Monday for the country's devastating earthquake, which has killed more than 1,700 people, as hopes faded of finding more survivors in the rubble of ruined buildings.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm)
+
+---
+
 # US tariffs to target 'all countries'
 
 ![Donald Trump arrives back at the White House. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798259_1_20250331152712.jpg&q=90)
@@ -1415,29 +1439,5 @@ A former member of Germany's far-left Baader-Meinhof gang who was arrested last 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797316-20250325.htm)
-
----
-
-# Abe assassination probe leads to church's dissolution
-
-![The Unification Church's Tokyo headquarters in Shibuya. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797307_1_20250325151020.jpg&q=85)
-  
-
-A court ordered the dissolution of the Unification Church in Japan, upholding a government request for a revocation spurred by the investigation into the 2022 assassination of former Prime Minister Shinzo Abe.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm)
 
 ---

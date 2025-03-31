@@ -1,3 +1,27 @@
+# 會財局定下3年策略　倡導可持續發展及數碼化轉型
+
+![會財局發布2025年至2027年策略重點，包括倡導可持續發展、數碼化轉型及人才管理，促進會計專業發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798280_1_20250331170516.jpg&q=90)
+  
+
+會計及財務匯報局發布2025年至2027年策略重點，涉及4個核心支柱，包括監管、管治、發展、組織效能。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm)
+
+---
+
 # 香港今個財政年度首11個月赤字923億元
 
 ![政府公布，本港今個財政年度首11個月，亦即截至2月底，錄得赤字923億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798277_1_20250331165029.jpg&q=85)
@@ -22,8 +46,9 @@
 
 ---
 
-# 李家超稱重視發展人工智能　將加大投資私營市場資金
+# 李家超稱重視發展人工智能　加大投資革新創科產業思路
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798276_1_20250331165722.jpg&q=90)
   
 
 行政長官李家超說，總理的政府工作報告提出，要健全因地制宜發展新質生產力體制機制，完善推動人工智能等戰略產業發展政策和治理體系，人工智能是新一輪科技革命和產業變革的核心推動力量，也是發展新質生產力重要引擎，對全球經濟社會發展和人類文明進步影響深遠。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798102-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798102-20250330.htm)
-
----
-
-# 許正宇：政府正就家族辦公室稅務寬免草擬修訂
-
-![許正宇：政府正就家族辦公室稅務寬免草擬修訂](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798100_1_20250330142026.jpg&q=90)
-  
-
-財經事務及庫務局局長許正宇表示，全球政經環境複雜，反而對香港的家族辦公室業務更為有利，因為香港的投資環境穩定，亦有預見性，可讓投資者或家族辦公室的財富增值或保值。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798100-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798100-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798100-20250330.htm)
 
 ---

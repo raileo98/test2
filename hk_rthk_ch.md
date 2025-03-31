@@ -1,3 +1,99 @@
+# 會財局定下3年策略　倡導可持續發展及數碼化轉型
+
+![會財局發布2025年至2027年策略重點，包括倡導可持續發展、數碼化轉型及人才管理，促進會計專業發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798280_1_20250331170516.jpg&q=90)
+  
+
+會計及財務匯報局發布2025年至2027年策略重點，涉及4個核心支柱，包括監管、管治、發展、組織效能。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm)
+
+---
+
+# 外匯基金上月總資產減少1029億港元
+
+![金管局公布，截至2月底，外匯基金總資產40090億港元，按月減少1029億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798278_1_20250331165401.jpg&q=90)
+  
+
+金管局公布，截至2月底，外匯基金總資產40090億港元，按月減少1029億元，其中，港元資產減少760億元，外幣資產減少269億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798278-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798278-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798278-20250331.htm)
+
+---
+
+# 香港今個財政年度首11個月赤字923億元
+
+![政府公布，本港今個財政年度首11個月，亦即截至2月底，錄得赤字923億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798277_1_20250331165029.jpg&q=85)
+  
+
+政府公布，本港今個財政年度首11個月，亦即截至2月底，錄得赤字923億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm)
+
+---
+
+# 本港上月新申請住宅按揭貸款個案按月增加0.4%
+
+![金管局公布，2月新申請住宅按揭貸款個案按月增加0.4%至6542宗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798279_1_20250331165523.jpg&q=85)
+  
+
+金管局公布，2月新申請住宅按揭貸款個案按月增加0.4%至6542宗。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798279-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798279-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798279-20250331.htm)
+
+---
+
 # 證監會：2月底在港註冊的開放式基金型公司增至502間
 
 ![證監會表示，至2月底，在港註冊的開放式基金型公司按年增加81%至502間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798274_1_20250331164619.jpg&q=90)
@@ -22,8 +118,9 @@
 
 ---
 
-# 李家超稱重視發展人工智能　將加大投資私營市場資金
+# 李家超稱重視發展人工智能　加大投資革新創科產業思路
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798276_1_20250331165722.jpg&q=90)
   
 
 行政長官李家超說，總理的政府工作報告提出，要健全因地制宜發展新質生產力體制機制，完善推動人工智能等戰略產業發展政策和治理體系，人工智能是新一輪科技革命和產業變革的核心推動力量，也是發展新質生產力重要引擎，對全球經濟社會發展和人類文明進步影響深遠。
@@ -47,6 +144,7 @@
 
 # 外交部重申美日軍事安全合作不得針對第三國
 
+![郭嘉昆表示，美日軍事安全合作不得針對第三國，不得危害地區和平發展。(外交部網站)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798275_1_20250331165936.jpg&q=90)
   
 
 在北京，外交部發言人郭嘉昆表示，美日軍事安全合作不得針對第三國，不得危害地區和平發展。美方以所謂「中國威脅」為藉口，挑動意識形態對立，鼓動分裂對抗，甚至煽動個別國家充當美國維護霸權的「炮灰」，地區國家應提高警惕，嚴加防範。
@@ -232,6 +330,7 @@
 
 # 市監局查長和交易　北京：一貫反對霸道霸凌損害他國正當權益行為
 
+![郭嘉昆重申，中方一貫堅決反對利用經濟脅迫、霸道霸凌侵犯損害他國正當權益的行為。(外交部網站)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798266_1_20250331170054.jpg&q=90)
   
 
 在北京，外交部發言人郭嘉昆回應國家市場監督管理總局將審查長和與貝萊德財團計劃簽署巴拿馬港口的交易協議時重申，中方一貫堅決反對利用經濟脅迫、霸道霸凌侵犯損害他國正當權益的行為。
