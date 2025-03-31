@@ -1,3 +1,27 @@
+# 'Design, build, run model possible for new link to SZ'
+
+![The government is hoping that a cross-border railway link between Hung Shui Kiu and Qianhai will become operational in 2035. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798240_1_20250331131812.jpg&q=80)
+  
+
+The government is looking into the possibility of having a single contractor design, build and operate a planned cross-border railway in the northwestern New Territories and says officials will start gauging developers' interest later this year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm)
+
+---
+
 # Trump 'not joking' about bid for third term
 
 ![Donald Trump chats with Secretary of Commerce Howard Lutnick, left, on board Marine One upon arrival at the White House on Sunday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798236_1_20250331125457.jpg&q=90)
@@ -1425,29 +1449,5 @@ A controversial ports deal between CK Hutchison and a consortium led by US inves
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm)
-
----
-
-# Hong Kong victorious on opening day of Rugby Sevens
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797928_1_20250328205342.jpg&q=90)
-  
-
-There were winning starts for the Hong Kong, China men's and women's squads on Friday as the Rugby Sevens got underway to much fanfare at the Kai Tak Sports Park.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 港深西部鐵路下半年邀請意向書　陳美寶：對招標持開放態度
+
+  
+
+運輸及物流局局長陳美寶表示，就連接洪水橋至深圳前海的港深西部鐵路，將於下半年邀請意向書，了解市場反應，包括是否可以採取「計劃，建造，營運」一站式合約，強調希望「摸一摸市場脈搏」，至於鐵路日後採取「一地兩檢」，口岸會設在深圳灣還是前海就仍在與深圳方面商討。就鐵路的成本效益方面，已做了兩期研究，就乘客量的評估，估計2038年本地及跨境客量介乎29萬至35萬人次，到2046年估計有38萬至46萬人次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm)
+
+---
+
 # 恒指下午開市後跌逾300點
 
 ![恒指下午初段報23086點，跌339點，跌幅1.45%；科技指數報5371點，跌幅2.45%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798238_1_20250331131133.jpg&q=75)
@@ -1422,29 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797926-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797926-20250328.htm)
-
----
-
-# 李強主持國務院會議　強調堅決遏制新增拖欠　提升口岸通關便利度
-
-![國務院總理李強主持召開國務院常務會議。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797925_1_20250328203647.jpg&q=90)
-  
-
-國務院總理李強主持召開國務院常務會議，聽取推進跨境電子商務綜合試驗區建設匯報，部署加快加力清理拖欠企業賬款工作，研究推動農機裝備高質量發展有關措施，審議通過《關於優化口岸開放佈局的若干意見》。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm)
 
 ---

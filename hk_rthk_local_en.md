@@ -1,3 +1,27 @@
+# 'Design, build, run model possible for new link to SZ'
+
+![The government is hoping that a cross-border railway link between Hung Shui Kiu and Qianhai will become operational in 2035. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798240_1_20250331131812.jpg&q=80)
+  
+
+The government is looking into the possibility of having a single contractor design, build and operate a planned cross-border railway in the northwestern New Territories and says officials will start gauging developers' interest later this year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm)
+
+---
+
 # Kai Tak operators 'inexperienced in serving big crowd'
 
 ![Allan Zeman believes operators will learn a lesson from the Sevens, after some fans complained about not being able to get food at the venue. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798224_1_20250331112814.jpg&q=35)
@@ -1433,29 +1457,5 @@ A family physician said on Tuesday that the government's overhaul of healthcare 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797359-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797359-20250325.htm)
-
----
-
-# AI a game-changer for climate transition: FS
-
-![Paul Chan says AI will act as a catalyst in helping Hong Kong become a more sustainable society. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797342_1_20250325181504.jpg&q=80)
-  
-
-Financial Secretary Paul Chan on Tuesday said that artificial intelligence is a game changer for Hong Kong in its goal to become a more sustainable society, as the city goes all out to achieve its carbon emission goals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm)
 
 ---
