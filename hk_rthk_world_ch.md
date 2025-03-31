@@ -1,3 +1,26 @@
+# 市監局查長和交易　北京：一貫反對霸道霸凌損害他國正當權益行為
+
+  
+
+在北京，外交部發言人郭嘉昆回應國家市場監督管理總局將審查長和與貝萊德財團計劃簽署巴拿馬港口的交易協議時重申，中方一貫堅決反對利用經濟脅迫、霸道霸凌侵犯損害他國正當權益的行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm)
+
+---
+
 # 利物浦AC米蘭7.26　阿仙奴熱刺7.31啟德主場館表演賽
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798057-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798057-20250329.htm)
-
----
-
-# 澳門特首岑浩輝向緬甸領導人致慰問電
-
-![岑浩輝向緬甸領導人敏昂萊（圖中）致慰問電。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798053_1_20250329231807.jpg&q=90)
-  
-
-澳門特區行政長官岑浩輝向緬甸領導人敏昂萊致慰問電，表示願向緬方抗震救災和災後重建提供力所能及的幫助。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm)
 
 ---

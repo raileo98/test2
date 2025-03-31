@@ -1,3 +1,26 @@
+# 市監局查長和交易　北京：一貫反對霸道霸凌損害他國正當權益行為
+
+  
+
+在北京，外交部發言人郭嘉昆回應國家市場監督管理總局將審查長和與貝萊德財團計劃簽署巴拿馬港口的交易協議時重申，中方一貫堅決反對利用經濟脅迫、霸道霸凌侵犯損害他國正當權益的行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm)
+
+---
+
 # 《求是》雜誌發表文章　習近平稱朝著建成科技強國目標奮勇前進
 
 ![習近平在將出版的《求是》雜誌發表重要文章。（資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798257_1_20250331152942.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm)
-
----
-
-# 習近平：希望外資企業打消疑慮　放手到中國發展
-
-![國家主席習近平在北京人民大會堂會見國際工商界代表。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797905_1_20250328175350.jpg&q=90)
-  
-
-國家主席習近平在北京人民大會堂會見國際工商界代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm)
 
 ---

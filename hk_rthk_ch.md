@@ -1,3 +1,26 @@
+# 市監局查長和交易　北京：一貫反對霸道霸凌損害他國正當權益行為
+
+  
+
+在北京，外交部發言人郭嘉昆回應國家市場監督管理總局將審查長和與貝萊德財團計劃簽署巴拿馬港口的交易協議時重申，中方一貫堅決反對利用經濟脅迫、霸道霸凌侵犯損害他國正當權益的行為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm)
+
+---
+
 # 上月27日兩貨機分隔高度未符預期　民航處調查：涉人為因素
 
   
