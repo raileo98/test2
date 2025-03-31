@@ -1,3 +1,27 @@
+# 緬甸地震增至2056人死亡　近4千人受傷
+
+![緬甸地震增至2056人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798316_1_20250331192640.jpg&q=75)
+  
+
+緬甸地震增至2056人死亡，近4千人受傷，270人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm)
+
+---
+
 # 緬甸地震造成3名中國公民遇難　另14人受傷
 
 ![在緬甸，搜救人員繼續搜救被困人士。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798310_1_20250331184926.jpg&q=90)
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798073-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798073-20250330.htm)
-
----
-
-# 中國駐緬大使：將全力協助中國救援隊開展工作
-
-![中國救援隊抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798071_1_20250330023800.jpg&q=90)
-  
-
-中國救援隊抵達緬甸仰光國際機場後，立即坐車前往在地震中受災嚴重的曼德勒省。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798071-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798071-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798071-20250330.htm)
 
 ---

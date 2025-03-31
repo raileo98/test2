@@ -1,3 +1,27 @@
+# 緬甸地震增至2056人死亡　近4千人受傷
+
+![緬甸地震增至2056人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798316_1_20250331192640.jpg&q=75)
+  
+
+緬甸地震增至2056人死亡，近4千人受傷，270人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm)
+
+---
+
 # 分析指北都片區開發規模大　各階段資金回籠及融資需求風險考量大
 
   
