@@ -195,7 +195,6 @@ The head of the Hong Kong, China Rugby Association, James Farndon, on Sunday hai
 
 # Hong Kong, China sweep Melrose Claymores
 
-![Matteo Avitabile is among the scorers for Hong Kong, China. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798126_1_20250330171036.jpg&q=90)
 ![It's the second straight year that the Hong Kong, China men's team has won the Melrose Claymore. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798126_2_20250330171036.jpg&q=75)
   
 
