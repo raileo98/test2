@@ -94,7 +94,7 @@
 
 ---
 
-# 美股首季下跌　納指低收逾10%
+# 美股首季下跌　納指累計跌逾10%
 
 ![美股收市個別發展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798352_1_20250401052630.jpg&q=90)
   
