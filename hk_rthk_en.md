@@ -24,7 +24,7 @@ The Office of the Privacy Commissioner for Personal Data says a data breach inci
 
 # Privacy watchdog issues AI guidelines for employees
 
-![Privacy Commissioner Ada Chung says secure use of AI is an essential part of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798247_1_20250331141847.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798247_1_20250331141847.jpg&q=90)
   
 
 The Office of the Privacy Commissioner for Personal Data (PCPD) on Monday issued a checklist to guide organisations in regulating their employees’ use of generative artificial intelligence.
