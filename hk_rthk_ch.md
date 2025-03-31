@@ -1,3 +1,97 @@
+# 證監會引入新的「市場偵測模型」　AI分析數據及早識別風險
+
+![證監會引入新的「市場偵測模型」，運用AI協助數據分析，及時識別風險預警跡象。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798299_1_20250331175241.jpg&q=90)
+  
+
+證監會重新刊發《執法通訊》，闡述當局打擊企業失當行為的主要執法工作。當局引入新的「市場偵測模型」，運用以人工智能（AI）驅動的分析方法，來評估財務披露、市場趨勢及各項管治指標，以識別風險狀況加劇的公司。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm)
+
+---
+
+# 私隱公署發表僱員使用AI指引　建議訂明禁止輸入資料種類
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798286_1_20250331175358.jpg&q=90)
+  
+
+個人資料私隱專員公署發表《僱員使用生成式AI的指引清單》，協助機構制定僱員在工作時使用生成式AI的內部政策或指引，包括建議機構訂明獲准許使用的生成式人工智能工具和用途，以及要清晰指示可以和禁止輸入資料的種類。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm)
+
+---
+
+# 醫管局陸續於急症室裝設地理圍欄定位系統防止病人走失
+
+  
+
+醫管局引進多項科技措施，陸續在急症室裝設地理圍欄定位系統，預計今年底前所有急症室完成安裝並全面投入使用，判斷未回應應診的病人是否仍在急症室。系統包括適用於精神或認知障礙，或無法溝通的病人，他們會配戴設有藍牙裝置的手帶，如果病人離開走近大門時會發出警報，提醒職員及時阻止。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798301-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798301-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798301-20250331.htm)
+
+---
+
+# 胡耀邦兒子胡德華據報逝世　享年77歲
+
+  
+
+有內地新媒體平台報道，中共已故總書記胡耀邦的兒子胡德華，昨晚因病逝世，享年77歲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798298-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798298-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798298-20250331.htm)
+
+---
+
 # 房委會加入6名新委員　另有5人再獲委任
 
   

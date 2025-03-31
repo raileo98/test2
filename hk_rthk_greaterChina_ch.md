@@ -1,3 +1,26 @@
+# 胡耀邦兒子胡德華據報逝世　享年77歲
+
+  
+
+有內地新媒體平台報道，中共已故總書記胡耀邦的兒子胡德華，昨晚因病逝世，享年77歲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798298-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798298-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798298-20250331.htm)
+
+---
+
 # 外交部重申美日軍事安全合作不得針對第三國
 
 ![郭嘉昆表示，美日軍事安全合作不得針對第三國，不得危害地區和平發展。(外交部網站)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798275_1_20250331165936.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797927-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797927-20250328.htm)
-
----
-
-# 李強主持國務院會議　強調堅決遏制新增拖欠　提升口岸通關便利度
-
-![國務院總理李強主持召開國務院常務會議。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797925_1_20250328203647.jpg&q=90)
-  
-
-國務院總理李強主持召開國務院常務會議，聽取推進跨境電子商務綜合試驗區建設匯報，部署加快加力清理拖欠企業賬款工作，研究推動農機裝備高質量發展有關措施，審議通過《關於優化口岸開放佈局的若干意見》。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm)
 
 ---

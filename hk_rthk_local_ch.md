@@ -1,3 +1,74 @@
+# 證監會引入新的「市場偵測模型」　AI分析數據及早識別風險
+
+![證監會引入新的「市場偵測模型」，運用AI協助數據分析，及時識別風險預警跡象。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798299_1_20250331175241.jpg&q=90)
+  
+
+證監會重新刊發《執法通訊》，闡述當局打擊企業失當行為的主要執法工作。當局引入新的「市場偵測模型」，運用以人工智能（AI）驅動的分析方法，來評估財務披露、市場趨勢及各項管治指標，以識別風險狀況加劇的公司。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm)
+
+---
+
+# 私隱公署發表僱員使用AI指引　建議訂明禁止輸入資料種類
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798286_1_20250331175358.jpg&q=90)
+  
+
+個人資料私隱專員公署發表《僱員使用生成式AI的指引清單》，協助機構制定僱員在工作時使用生成式AI的內部政策或指引，包括建議機構訂明獲准許使用的生成式人工智能工具和用途，以及要清晰指示可以和禁止輸入資料的種類。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm)
+
+---
+
+# 醫管局陸續於急症室裝設地理圍欄定位系統防止病人走失
+
+  
+
+醫管局引進多項科技措施，陸續在急症室裝設地理圍欄定位系統，預計今年底前所有急症室完成安裝並全面投入使用，判斷未回應應診的病人是否仍在急症室。系統包括適用於精神或認知障礙，或無法溝通的病人，他們會配戴設有藍牙裝置的手帶，如果病人離開走近大門時會發出警報，提醒職員及時阻止。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798301-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798301-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798301-20250331.htm)
+
+---
+
 # 房委會加入6名新委員　另有5人再獲委任
 
   
@@ -1363,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm)
-
----
-
-# 七欖銀劍賽　中國香港男女子隊稱王封后
-
-![香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798122_1_20250330170028.jpg&q=45)
-  
-
-香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm)
-
----
-
-# 七欖女子銀劍賽港隊擊敗哈薩克奪魁
-
-![稍後舉行的銀劍賽男子組決賽，港隊會迎戰國家隊。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798120_1_20250330163847.jpg&q=65)
-  
-
-香港國際七人欖球賽，銀劍賽女子組決賽，港隊以45：5擊敗哈薩克，贏得冠軍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798120-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798120-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798120-20250330.htm)
-
----
-
-# 七欖煞科現場氣氛熾熱　有觀眾稱啟德場館體驗佳
-
-![香港國際七人欖球賽今日最後一日，現場氣氛熱烈。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798119_1_20250330163808.jpg&q=55)
-  
-
-一連三日的香港國際七人欖球賽今日最後一日，現場氣氛熱烈，當有心儀球隊得分，觀眾高聲歡呼。在南看台，有入場人士按傳統「扮鬼扮馬」，有人打扮成卡通人物，高舉心儀球隊所屬的國家或地區旗幟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 證監會引入新的「市場偵測模型」　AI分析數據及早識別風險
+
+![證監會引入新的「市場偵測模型」，運用AI協助數據分析，及時識別風險預警跡象。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798299_1_20250331175241.jpg&q=90)
+  
+
+證監會重新刊發《執法通訊》，闡述當局打擊企業失當行為的主要執法工作。當局引入新的「市場偵測模型」，運用以人工智能（AI）驅動的分析方法，來評估財務披露、市場趨勢及各項管治指標，以識別風險狀況加劇的公司。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm)
+
+---
+
 # 在岸人民幣兌美元創逾1星期收市高位
 
 ![在岸人民幣收市創逾1星期高位，報7.2516兌1美元，較上周五收市升121點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798287_1_20250331172618.jpg&q=75)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797973-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797973-20250329.htm)
-
----
-
-# 港股美國預託證券普遍偏軟　長和跌約4%
-
-![長和ADR比本港昨日收市價跌約4%，以港元計折合報43.4元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797970_1_20250329065027.jpg&q=65)
-  
-
-港股美國預託證券(ADR)普遍偏軟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797970-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797970-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797970-20250329.htm)
 
 ---
