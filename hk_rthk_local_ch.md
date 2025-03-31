@@ -1,3 +1,27 @@
+# 美國制裁林定國蕭澤頤等6名中央及特區官員　特區政府強烈譴責
+
+![特區政府發言人表示，特區官員對美國所謂制裁嗤之以鼻，會繼續堅定不移維護國家安全。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798347_1_20250401023338.jpg&q=85)
+  
+
+特區政府強烈譴責美國制裁六名中央及香港特區官員，指特區官員對美國所謂制裁嗤之以鼻，會繼續堅定不移維護國家安全，特區政府全力保障各人的合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm)
+
+---
+
 # 元朗1月謀殺及傷人案　警方再拘4人至今共20人被捕
 
 ![警方前日在油麻地再拘捕4人，至今共20人被捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798344_1_20250401013627.jpg&q=60)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm)
-
----
-
-# 代理：周末二手交投活躍　受一手帶動
-
-![地產代理表示，一手熱賣帶動本月不少屋苑二手交投亦按月上升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798173_1_20250331054025.jpg&q=85)
-  
-
-美聯物業表示，本港一手樓市氣氛持續向好攤薄二手購買力。本月最後一個周末十大二手指標屋苑錄得約12宗成交，按周持平，連續3周維持雙位數。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm)
 
 ---

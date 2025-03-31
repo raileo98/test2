@@ -1,3 +1,27 @@
+# 美國制裁林定國蕭澤頤等6名中央及特區官員　特區政府強烈譴責
+
+![特區政府發言人表示，特區官員對美國所謂制裁嗤之以鼻，會繼續堅定不移維護國家安全。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798347_1_20250401023338.jpg&q=85)
+  
+
+特區政府強烈譴責美國制裁六名中央及香港特區官員，指特區官員對美國所謂制裁嗤之以鼻，會繼續堅定不移維護國家安全，特區政府全力保障各人的合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm)
+
+---
+
 # 意大利Tesla展廳火警17輛車被毀　馬斯克斥恐怖主義行為
 
 ![火警導致展廳內17輛汽車被燒毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798345_1_20250401015100.jpg&q=75)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm)
-
----
-
-# 赫格塞斯：日本是遏制中國不可或缺的夥伴
-
-![赫格塞斯在東京與日本防衛大臣中谷元會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798108_1_20250330144518.jpg&q=90)
-  
-
-美國國防部長赫格塞斯表示，日本是遏制中國不可或缺的夥伴，協助華府在包括台灣海峽等地區建立可靠的阻嚇力量。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm)
 
 ---
