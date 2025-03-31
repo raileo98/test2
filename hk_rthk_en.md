@@ -1,3 +1,27 @@
+# Duterte lawyer insists ICC 'has no jurisdiction'
+
+![Friends and relatives of some of the thousands killed during former Philippine president Rodrigo Duterte's 'war on drugs' call for justice and his conviction by the International Criminal Court in Manila on Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798229_1_20250331121432.jpg&q=90)
+  
+
+Rodrigo Duterte's lead lawyer said there was a "compelling" argument to throw out the International Criminal Court case against the former Philippines president before it even comes to trial.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm)
+
+---
+
 # Kai Tak operators 'inexperienced in serving big crowd'
 
 ![Allan Zeman believes operators will learn a lesson from the Sevens, after some fans complained about not being able to get food at the venue. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798224_1_20250331112814.jpg&q=35)
@@ -1425,29 +1449,5 @@ A Cathay Pacific flight to Bangkok was forced to return to Hong Kong after take-
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm)
-
----
-
-# Xi urges global CEOs to protect trade as tariffs loom
-
-![President Xi Jinping and representatives of the international business community pose for a group photo at the Great Hall of the People in Beijing. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797914_1_20250328185208.jpg&q=80)
-  
-
-President Xi Jinping on Friday urged a gathering of multinational CEOs to protect global industry and supply chains, amid threats of more US tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm)
 
 ---

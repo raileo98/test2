@@ -1,3 +1,27 @@
+# 港股半日跌近2%　長和跌約4%
+
+![港股中午收市前跌幅擴大，創近1個月低位。恒生指數中午收市報23022點，跌404點，跌幅1.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798228_1_20250331121035.jpg&q=85)
+  
+
+港股連續兩日向下，中午收市前跌幅擴大，創近1個月低位。恒生指數今早低開逾200點後，跌幅一度收窄至不足30點，中午收市報23022點，跌404點，跌幅1.73%，主板半日成交約1438億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798228-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798228-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798228-20250331.htm)
+
+---
+
 # 北都3個「片區開發」試點中午截收意向書　現場所見收12份
 
 ![北部都會區3個「片區開發」試點中午截收意向書，華懋派代表遞交意向書。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798227_1_20250331120705.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798149-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798149-20250330.htm)
-
----
-
-# 七欖三日合計逾11萬人入場　運輸署稱離場整體交通大致暢順
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798147_1_20250330225152.jpg&q=90)
-  
-
-首度移師啟德體育園舉行的香港國際七人欖球賽結束，中國香港欖球總會表示，三日合計有超過11萬人入場，單計今日就有38352人入場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm)
 
 ---

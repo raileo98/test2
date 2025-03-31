@@ -1,3 +1,27 @@
+# Duterte lawyer insists ICC 'has no jurisdiction'
+
+![Friends and relatives of some of the thousands killed during former Philippine president Rodrigo Duterte's 'war on drugs' call for justice and his conviction by the International Criminal Court in Manila on Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798229_1_20250331121432.jpg&q=90)
+  
+
+Rodrigo Duterte's lead lawyer said there was a "compelling" argument to throw out the International Criminal Court case against the former Philippines president before it even comes to trial.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm)
+
+---
+
 # Venezuela says high-level criminal among US deportees
 
 ![Repatriation flight with migrants deported from the US lands in at Simon Bolivar International Airport in Maiquetia, Venezuela. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798190_1_20250331090008.jpg&q=90)
@@ -1415,29 +1439,5 @@ Chinese authorities have released all employees of a US corporate due diligence 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm)
-
----
-
-# Boeing 'wants to bail out of 737 MAX guilty plea deal'
-
-![Two 737 MAX crashes that killed 346 people have fuelled deep concern over Boeing's quality and manufacturing processes. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797265_1_20250325103519.jpg&q=60)
-  
-
-Boeing is seeking to withdraw an agreement to plead guilty in a criminal case that blamed the company for deceiving regulators before two deadly crashes of 737 MAX jets, the Wall Street Journal reported on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm)
 
 ---
