@@ -1,3 +1,27 @@
+# 元朗1月謀殺及傷人案　警方再拘4人至今共20人被捕
+
+![警方前日在油麻地再拘捕4人，至今共20人被捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798344_1_20250401013627.jpg&q=60)
+  
+
+元朗1月發生的謀殺及傷人案，警方前日在油麻地再拘捕4人，至今共20人被捕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798344-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798344-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798344-20250401.htm)
+
+---
+
 # 特區救援隊緬甸展開工作　透過無人機或根據居民資訊搜尋生還者
 
 ![消防處派出兩支隊伍去到最近瓦礫的位置嘗試搜救。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798337_1_20250331230318.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm)
-
----
-
-# 香港救援隊連夜由內比都趕赴曼德勒搜救
-
-![香港特區政府派出的救援隊抵達緬甸首都內比都短暫休整。（央視新聞圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798164_1_20250331024427.jpg&q=90)
-  
-
-央視新聞報道，香港特區政府派出的救援隊抵達緬甸首都內比都，在疾控中心短暫休整後，連夜趕往曼德勒進行搜救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798164-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798164-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798164-20250331.htm)
 
 ---

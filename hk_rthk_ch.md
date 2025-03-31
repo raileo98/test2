@@ -1,3 +1,27 @@
+# 元朗1月謀殺及傷人案　警方再拘4人至今共20人被捕
+
+![警方前日在油麻地再拘捕4人，至今共20人被捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798344_1_20250401013627.jpg&q=60)
+  
+
+元朗1月發生的謀殺及傷人案，警方前日在油麻地再拘捕4人，至今共20人被捕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798344-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798344-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798344-20250401.htm)
+
+---
+
 # 英王查理斯三世本周將恢復參加公務活動
 
 ![王室消息人士透露，查理斯三世本周將恢復參加公務活動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798343_1_20250401012450.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm)
-
----
-
-# 特區救援隊展開於曼德勒兩個受災區域搜救
-
-![抵達緬甸曼德勒的特區救援隊，正於其中兩個受災區域進行搜救行動。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798271_1_20250331180952.jpg&q=80)
-  
-
-保安局表示，抵達緬甸曼德勒的特區救援隊，帶上專業裝備及搜救犬，正於其中兩個受災區域進行搜救行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm)
 
 ---
