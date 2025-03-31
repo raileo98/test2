@@ -1,3 +1,27 @@
+# 佳兆業集團去年虧損擴大43%　不派末期息
+
+![佳兆業集團去年虧損285.3億元人民幣，按年擴大43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798332_1_20250331214824.jpg&q=90)
+  
+
+佳兆業集團公布，去年虧損285.3億元人民幣，按年擴大43%，不派末期息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm)
+
+---
+
 # 美股初段下跌　大型科技股向下
 
 ![道瓊斯指數較早時報41299點，跌284點，跌幅0.68%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798330_1_20250331213846.jpg&q=90)
@@ -72,6 +96,7 @@
 
 # 嘉禾黃埔戲院租約期滿下月10日起結束營業
 
+![嘉禾黃埔戲院租約期滿下月10日起結束營業](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798325_1_20250331220030.jpg&q=90)
   
 
 嘉禾院線表示，由於租約期滿，嘉禾黃埔戲院將於下月10日起結束營業，衷心感謝大家多年來的支持。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798170-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798170-20250331.htm)
-
----
-
-# 特朗普稱對普京非常生氣　威脅對俄石油徵收「二級關稅」
-
-![特朗普說，他對於普京最近批評烏克蘭總統澤連斯基的可信度等言論「非常生氣」和「惱火」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798171_1_20250331051441.jpg&q=90)
-  
-
-美國總統特朗普表示，他對俄羅斯總統普京「非常生氣」，如果因俄羅斯的原因導致俄烏不能達成停火協議，美國可能對俄羅斯石油買家徵收「二級關稅」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm)
 
 ---

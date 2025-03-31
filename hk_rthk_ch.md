@@ -1,3 +1,27 @@
+# 佳兆業集團去年虧損擴大43%　不派末期息
+
+![佳兆業集團去年虧損285.3億元人民幣，按年擴大43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798332_1_20250331214824.jpg&q=90)
+  
+
+佳兆業集團公布，去年虧損285.3億元人民幣，按年擴大43%，不派末期息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm)
+
+---
+
 # 瑪麗娜勒龐被裁定挪用歐盟公款罪成　禁止從事公職5年
 
 ![瑪麗娜勒龐被裁定挪用歐盟公款罪成。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798333_1_20250331215051.jpg&q=85)
@@ -144,6 +168,7 @@
 
 # 嘉禾黃埔戲院租約期滿下月10日起結束營業
 
+![嘉禾黃埔戲院租約期滿下月10日起結束營業](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798325_1_20250331220030.jpg&q=90)
   
 
 嘉禾院線表示，由於租約期滿，嘉禾黃埔戲院將於下月10日起結束營業，衷心感謝大家多年來的支持。
@@ -793,6 +818,7 @@
 
 # 不法分子以免費旅遊招攬販毒　警方機場拘捕一對涉案情侶
 
+![警方拘捕一男一女，檢獲約50公斤懷疑氯胺酮，市值逾2470萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798295_1_20250331215827.jpg&q=60)
   
 
 警方昨日在機場展開反毒品行動，以「販運危險藥物」罪拘捕一男一女，檢獲約50公斤懷疑氯胺酮，市值逾2470萬港元。
