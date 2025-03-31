@@ -1,3 +1,26 @@
+# 緬甸地震造成3名中國公民遇難　另14人受傷
+
+  
+
+中國駐緬甸使館說，緬甸地震造成3名中國公民遇難，另外14人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm)
+
+---
+
 # 緬甸地震全國哀悼7日　泰國曼谷市長稱關鍵拯救時間過去仍會搜救
 
 ![在緬甸曼德勒，救援人員繼續在倒塌建築物的瓦礫中搜索。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798293_1_20250331173359.jpg&q=90)
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798071-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798071-20250330.htm)
-
----
-
-# 以軍擴大對加沙地帶南部地面攻勢
-
-![加沙地帶南部汗尤尼斯多座建築物在戰火中變成廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798070_1_20250330022630.jpg&q=80)
-  
-
-以色列軍方說，已擴大對加沙地帶南部的地面攻勢，以軍進入拉法的杰尼納地區採取行動，目的是擴大加沙南部的邊界緩衝區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798070-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798070-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798070-20250330.htm)
 
 ---

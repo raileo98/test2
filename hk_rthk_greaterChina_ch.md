@@ -1,3 +1,26 @@
+# 緬甸地震造成3名中國公民遇難　另14人受傷
+
+  
+
+中國駐緬甸使館說，緬甸地震造成3名中國公民遇難，另外14人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm)
+
+---
+
 # 陳美寶：港深西部鐵路一地兩檢口岸設於深圳灣或前海仍待商討
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm)
-
----
-
-# 緬甸大地震導致雲南德宏2人輕傷
-
-![緬甸大地震導致雲南德宏2人輕傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797929_1_20250328205841.jpg&q=90)
-  
-
-緬甸發生7級以上地震。新華社引述雲南省地震局表示，緬甸今次地震已導致雲南省德宏傣族景頗族自治州2人輕傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797929-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797929-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797929-20250328.htm)
 
 ---

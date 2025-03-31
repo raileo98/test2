@@ -1,3 +1,49 @@
+# 緬甸地震造成3名中國公民遇難　另14人受傷
+
+  
+
+中國駐緬甸使館說，緬甸地震造成3名中國公民遇難，另外14人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm)
+
+---
+
+# 私隱公署公布指引協助機構制定僱員使用生成式AI的內部政策
+
+  
+
+個人資料私隱專員公署公布指引，協助機構制定僱員使用生成式AI的內部政策。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798309-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798309-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798309-20250331.htm)
+
+---
+
 # 何永賢：業主有充足時間登記簡樸房　設舉報機制嚴重違規屬刑事
 
   
