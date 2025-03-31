@@ -1,3 +1,26 @@
+# 陳美寶：港深西部鐵路一地兩檢口岸設於深圳灣或前海仍待商討
+
+  
+
+運輸及物流局局長陳美寶表示，連接洪水橋至前海的「港深西部鐵路」將探用「一地兩檢」，至於口岸設在深圳灣還是前海，仍有待與深圳商討。她透露已就乘客量作初步評估，估計2038年本地及跨境客量介乎29萬至35萬人次，到2046年估計有38萬至46萬人次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm)
+
+---
+
 # 胡耀邦兒子胡德華據報逝世　終年77歲
 
 ![內地媒體報道，胡德華昨晚病逝。（紅船融媒網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798298_1_20250331181141.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797929-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797929-20250328.htm)
-
----
-
-# 台中新光三越百貨上月爆炸事故　調查報告判定是天然氣爆炸
-
-![台中新光三越百貨爆炸事故上月13日發生，造成5死30多傷。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797927_1_20250328204623.jpg&q=80)
-  
-
-上月造成5死30多傷的台中新光三越百貨爆炸事故，消防部門公布調查報告，判定發生原因是天然氣爆炸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797927-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797927-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797927-20250328.htm)
 
 ---

@@ -22,12 +22,12 @@ A "megaquake" and subsequent tsunami could cause up to 298,000 deaths in Japan a
 
 ---
 
-# Le Pen found guilty putting presidential hopes at risk
+# Le Pen hit with immediate court ban on public office
 
 ![Marine Le Pen arrives in court for the verdict. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798290_1_20250331172739.jpg&q=85)
   
 
-A French court found far-right leader Marine Le Pen guilty on Monday of misappropriating EU funds, in a trial that could potentially see her barred from the 2027 presidential race.
+A French court on Monday banned far-right leader Marine Le Pen from running for office after her conviction over a fake jobs scheme, specifying that the sanction should come into force with immediate effect even if an appeal is lodged.
 
   
 
@@ -48,7 +48,7 @@ A French court found far-right leader Marine Le Pen guilty on Monday of misappro
 
 # Myanmar marks quake with week of mourning
 
-![A residential building in Mandalay is left in a perilous state by Friday's earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798284_1_20250331171253.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798284_1_20250331171253.jpg&q=75)
   
 
 Myanmar's ruling junta declared a week of national mourning on Monday for the country's devastating earthquake, which has killed more than 1,700 people, as hopes faded of finding more survivors in the rubble of ruined buildings.

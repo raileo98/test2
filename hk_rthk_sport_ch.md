@@ -1,3 +1,27 @@
+# 黃澤林稱邁阿密賽增強自信　冀改變外界輕視本港運動員態度
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798282_1_20250331183435.jpg&q=85)
+  
+
+在美國邁阿密網球公開賽打入男單第三圈的本港網球員黃澤林，返港後接受訪問。他說，在大賽造出理想成績，令他更有自信，過去一年的打法亦更進取及成熟。他希望以成績改變一些人輕視本港運動員的態度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm)
+
+---
+
 # 利物浦熱刺及阿仙奴分別公開操練　讓球迷與球員接觸
 
   
@@ -1433,29 +1457,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796522-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796522-20250320.htm)
-
----
-
-# 港隊足球友誼賽2:0挫澳門
-
-![港隊足球友誼賽2:0挫澳門。（中國香港足球總會社交平台）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796521_1_20250320071157.jpg&q=90)
-  
-
-港隊為備戰下周作客新加坡的亞洲盃外圍賽，昨晚與澳門隊在旺角場進行友誼賽，結果淨勝兩球。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm)
 
 ---

@@ -1,3 +1,73 @@
+# 何永賢：業主有充足時間登記簡樸房　設舉報機制嚴重違規屬刑事
+
+  
+
+政府建議就「簡樸房」認證收取費用，並在推出初期提供寬減優惠，吸引業主盡早登記。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798308-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798308-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798308-20250331.htm)
+
+---
+
+# 黃澤林稱邁阿密賽增強自信　冀改變外界輕視本港運動員態度
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798282_1_20250331183435.jpg&q=85)
+  
+
+在美國邁阿密網球公開賽打入男單第三圈的本港網球員黃澤林，返港後接受訪問。他說，在大賽造出理想成績，令他更有自信，過去一年的打法亦更進取及成熟。他希望以成績改變一些人輕視本港運動員的態度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm)
+
+---
+
+# 陳美寶：港深西部鐵路一地兩檢口岸設於深圳灣或前海仍待商討
+
+  
+
+運輸及物流局局長陳美寶表示，連接洪水橋至前海的「港深西部鐵路」將探用「一地兩檢」，至於口岸設在深圳灣還是前海，仍有待與深圳商討。她透露已就乘客量作初步評估，估計2038年本地及跨境客量介乎29萬至35萬人次，到2046年估計有38萬至46萬人次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm)
+
+---
+
 # 緬甸地震全國哀悼7日　泰國曼谷市長稱關鍵拯救時間過去仍會搜救
 
 ![在緬甸曼德勒，救援人員繼續在倒塌建築物的瓦礫中搜索。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798293_1_20250331173359.jpg&q=90)
@@ -25,6 +95,7 @@
 
 # 北部都會區三個「片區開發」試點最少收12份意向書
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798305_1_20250331183446.jpg&q=80)
   
 
 發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，最少收到12份意向書。
@@ -309,6 +380,7 @@
 
 # 七姊妹道爆水管致煤氣管受損　煤氣公司目標明天中午前恢復供氣
 
+![煤氣公司表示，已向有需要的商業用户提供合適的協助。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798289_1_20250331183855.jpg&q=90)
   
 
 煤氣公司表示，受七姊妹道爆水管事故影響，該處地下煤氣喉管受損，正配合相關水務工程進行緊急維修，目標明天中午前恢復供氣，具體時間須視乎水務工程復修進展。
@@ -356,7 +428,7 @@
 
 # 議員憂業主減租誘劏房戶不舉報　何永賢：機制有助防止地下化問題
 
-![何永賢表示，目前考慮以每個住宅單位收取認證費。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798285_1_20250331180458.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798285_1_20250331183324.jpg&q=90)
   
 
 立法會一個委員會討論簡樸房最新規管制度建議方案，財政司副司長黃偉綸表示，針對工廈違規劏房的執法，現時的過程較為迂迴，發展局和民青局將會在「簡樸房」規管制度通過後，很大可能分別就《建築物條例》和《床位寓所條例》作相適應的調整，並會在下一屆立法會會期處理。
@@ -620,6 +692,7 @@
 
 # 麥美娟代表特區政府於鄭州出席黃帝故里拜祖大典
 
+![麥美娟說，香港同胞透過參與黃帝故里拜祖大典，加深對中華民族身分的認同。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798270_1_20250331183807.jpg&q=75)
   
 
 民政及青年事務局局長麥美娟在河南省鄭州市代表香港特區政府，出席乙巳年黃帝故里拜祖大典。
