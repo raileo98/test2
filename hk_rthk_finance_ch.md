@@ -1,3 +1,27 @@
+# 美國3月芝加哥PMI升至47.6　創近1年半以來最高
+
+![美國3月芝加哥採購經理指數（PMI）升至47.6，高過預期，創2023年11月以來最高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798335_1_20250331220934.jpg&q=90)
+  
+
+美國3月芝加哥採購經理指數（PMI）升至47.6，高過市場預期的44.5，創2023年11月以來最高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798335-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798335-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798335-20250331.htm)
+
+---
+
 # 佳兆業集團去年虧損擴大43%　不派末期息
 
 ![佳兆業集團去年虧損285.3億元人民幣，按年擴大43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798332_1_20250331214824.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798172-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798172-20250331.htm)
-
----
-
-# 中石油去年盈利創新高　按年升2%
-
-![中石油去年盈利1646.84億元人民幣，創新高，按年上升2%。末期息每股0.25元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798170_1_20250331050934.jpg&q=90)
-  
-
-中石油去年盈利1646.84億元人民幣，創新高，按年上升2%。末期息每股0.25元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798170-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798170-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798170-20250331.htm)
 
 ---
