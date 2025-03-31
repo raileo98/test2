@@ -1,3 +1,26 @@
+# 特區救援隊抵達曼德勒　將與國家隊分工展開搜救
+
+  
+
+保安局表示，特區救援隊剛抵達緬甸地震災區曼德勒，立即與中國救援隊會合，聽取國家隊對當地災情的簡介。沿途見到不少房屋倒塌，災民在空地搭建臨時帳篷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm)
+
+---
+
 # 星展香港：四大行增加核心一級資本屬支持經濟政策跟進措施
 
 ![周洪禮認為，今次注資可配合往後穩定樓市、促進內需消費、支持高新科技產業等政策。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798234_1_20250331125341.jpg&q=85)
@@ -48,6 +71,7 @@
 
 # 西藏愈來愈多老年人日間照料中心為長者服務
 
+![老年人日間照料中心設有多種興趣班。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798231_1_20250331130322.jpg&q=85)
   
 
 今年是西藏自治區成立60周年，記者到西藏採訪，了解當地民生及社會發展情況。中國人口老齡化問題日益加劇，西藏自治區政府近年著力健全養老服務體系，發展銀髮經濟，當地愈來愈多老年人日間照料中心建成，為長者提供集養護、醫療、教育、娛樂、創業於一身的服務。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm)
-
----
-
-# 西藏經濟總量近2765億元　城鄉居民收入連續10年居全國前列
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797893_1_20250328210806.jpg&q=90)
-  
-
-今年是西藏自治區成立60周年，國新辦發布《新時代西藏人權事業的發展與進步》白皮書，當中提到西藏曾是全國貧困發生率最高、脫貧難度最大的深度貧困地區，在黨中央堅強領導下，西藏精準扶貧及脫貧，去年西藏脫貧人口人均純收入同比增長12.5%以上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm)
 
 ---

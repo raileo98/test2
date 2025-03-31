@@ -1,3 +1,51 @@
+# 大酒店去年轉蝕9.4億元　基本虧損約1.8億元
+
+![大酒店去年由盈轉虧，虧損9.43億元，基本虧損1.76億元，不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798237_1_20250331130925.jpg&q=80)
+  
+
+大酒店去年由盈轉虧，虧損9.43億元，不派末期息；前年盈利1.46億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798237-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798237-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798237-20250331.htm)
+
+---
+
+# 大新銀行去年盈利升約11%　大新金融多賺5%
+
+![大新銀行去年盈利20.6億元，按年升約11%。淨息差2.17厘，按年擴闊16個基點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798235_1_20250331125430.jpg&q=90)
+  
+
+大新銀行去年盈利20.6億元，按年升約11%。末期息0.39元。去年營運收入升17%至69.3億元，信貸減值虧損升逾1倍至17.9億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798235-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798235-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798235-20250331.htm)
+
+---
+
 # 星展香港：四大行增加核心一級資本屬支持經濟政策跟進措施
 
 ![周洪禮認為，今次注資可配合往後穩定樓市、促進內需消費、支持高新科技產業等政策。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798234_1_20250331125341.jpg&q=85)
@@ -72,6 +120,7 @@
 
 # 西藏愈來愈多老年人日間照料中心為長者服務
 
+![老年人日間照料中心設有多種興趣班。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798231_1_20250331130322.jpg&q=85)
   
 
 今年是西藏自治區成立60周年，記者到西藏採訪，了解當地民生及社會發展情況。中國人口老齡化問題日益加劇，西藏自治區政府近年著力健全養老服務體系，發展銀髮經濟，當地愈來愈多老年人日間照料中心建成，為長者提供集養護、醫療、教育、娛樂、創業於一身的服務。
@@ -1411,30 +1460,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798157-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798157-20250331.htm)
-
----
-
-# 七欖三日賽事共逾11萬名觀眾入場　創歷史新高
-
-![七欖賽事晚上結束，阿根廷男子隊和新西蘭女子隊分別奪標。啟德主場館舉行煙火表演。（啟德提育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798155_1_20250330235841.jpg&q=55)
-![不少觀眾繼續昔日傳統，悉心打扮，有人扮演著名韓劇的角色入場。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798155_2_20250331000034.jpg&q=85)
-  
-
-首次移師啟德體育園主場館舉行的香港國際七人欖球賽，三日賽事共有超過11萬名本地及海外觀眾參加，其中周日賽事有38352人入場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 恒指下午開市後跌逾300點
+
+![恒指下午初段報23086點，跌339點，跌幅1.45%；科技指數報5371點，跌幅2.45%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798238_1_20250331131133.jpg&q=75)
+  
+
+港股下午開市初段跌幅稍為收窄，恒生指數較早時報23086點，跌339點，跌幅1.45%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798238-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798238-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798238-20250331.htm)
+
+---
+
+# 特區救援隊抵達曼德勒　將與國家隊分工展開搜救
+
+  
+
+保安局表示，特區救援隊剛抵達緬甸地震災區曼德勒，立即與中國救援隊會合，聽取國家隊對當地災情的簡介。沿途見到不少房屋倒塌，災民在空地搭建臨時帳篷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm)
+
+---
+
 # 港股半日跌近2%　長和跌約4%
 
 ![港股中午收市前跌幅擴大，創近1個月低位。恒生指數中午收市報23022點，跌404點，跌幅1.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798228_1_20250331121035.jpg&q=85)
@@ -1402,53 +1449,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798056-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798056-20250329.htm)
-
----
-
-# 馬鞍山錦英路13金塔被毀　警方正調查暫未有人被捕
-
-![馬鞍山錦英路有13個金塔被毀壞，警方列作刑事毀壞處理。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798055_1_20250329231937.jpg&q=90)
-  
-
-警方下午約1時許接報，指馬鞍山錦英路有13個金塔被毀壞，經初步調查後，案件列作刑事毀壞處理，交由沙田警區刑事調查隊第六隊跟進，暫未有人被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798055-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798055-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798055-20250329.htm)
-
----
-
-# 瑪麗醫院心胸外科病房47歲男病人自行離院　院方報警求助
-
-![瑪麗醫院一名47歲男病人自行離開醫院，院方已即時聯絡病人家屬及報警求助。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798054_1_20250329225531.jpg&q=80)
-  
-
-瑪麗醫院一名47歲男病人自行離開醫院。院方非常重視事件，已即時聯絡病人家屬及報警求助。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798054-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798054-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798054-20250329.htm)
 
 ---
