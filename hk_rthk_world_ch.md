@@ -1,3 +1,26 @@
+# 特區救援隊緬甸展開工作　透過無人機或根據居民資訊搜尋生還者
+
+  
+
+正在緬甸的特區救援隊，展開救援工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm)
+
+---
+
 # 瑪麗娜勒龐被裁定挪用歐盟公款罪成　禁止競逐公職5年
 
 ![瑪麗娜勒龐被裁定挪用歐盟公款罪成。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798333_1_20250331215051.jpg&q=85)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm)
-
----
-
-# 美媒披露防長赫格塞思曾兩次攜妻出席機密會議
-
-![美國傳媒報道，赫格塞思曾經兩次攜同妻子參加與外國軍事官員的機密會議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798080_1_20250330072810.jpg&q=90)
-  
-
-美國國安官員通訊群組懷疑洩密風波持續發酵之際，國防部長赫格塞思據報曾經兩次攜同妻子參加與外國軍事官員的會議，兩次會議都有討論敏感信息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798080-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798080-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798080-20250330.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 特區救援隊緬甸展開工作　透過無人機或根據居民資訊搜尋生還者
+
+  
+
+正在緬甸的特區救援隊，展開救援工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm)
+
+---
+
 # 吳安儀衛冕英國女子公開賽冠軍　贏得職業桌球生涯第22項錦標
 
   
@@ -1411,30 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798164-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798164-20250331.htm)
-
----
-
-# 七欖三日賽事共逾11萬名觀眾入場　創歷史新高
-
-![七欖賽事晚上結束，阿根廷男子隊和新西蘭女子隊分別奪標。啟德主場館舉行煙火表演。（啟德提育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798155_1_20250330235841.jpg&q=55)
-![不少觀眾繼續昔日傳統，悉心打扮，有人扮演著名韓劇的角色入場。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798155_2_20250331000034.jpg&q=85)
-  
-
-首次移師啟德體育園主場館舉行的香港國際七人欖球賽，三日賽事共有超過11萬名本地及海外觀眾參加，其中周日賽事有38352人入場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm)
 
 ---

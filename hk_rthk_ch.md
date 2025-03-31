@@ -1,3 +1,26 @@
+# 特區救援隊緬甸展開工作　透過無人機或根據居民資訊搜尋生還者
+
+  
+
+正在緬甸的特區救援隊，展開救援工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm)
+
+---
+
 # 吳安儀衛冕英國女子公開賽冠軍　贏得職業桌球生涯第22項錦標
 
   
