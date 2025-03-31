@@ -1,3 +1,27 @@
+# 證監會：近年企業欺詐有令人關注的趨勢
+
+![證監會指，近年企業欺詐方面有令人關注的趨勢，上市公司高層或會利用貸款安排，作為將公司資金轉移給關連方的手段。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798312_1_20250331184722.jpg&q=85)
+  
+
+證監會重新刊發《執法通訊》，提到近年在企業欺詐方面，觀察到令人關注的趨勢，上市公司高層或會利用貸款安排，作為將公司資金轉移給關連方的手段。這些貸款安排看似合法，但卻欠缺真正的商業目的，而且其後出現減值，實際上掩飾屬欺詐性的資金流失。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm)
+
+---
+
 # 中石油：貿易和產品採購油氣渠道多元化　關注關稅政策變化
 
 ![中石油財務總監王華表示，集團亦已經在亞洲、歐洲及美洲建立三大油氣貿易中心，貿易和產品採購渠道多元化。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798311_1_20250331184650.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm)
-
----
-
-# 許正宇認為長和擬售巴拿馬港口事件不影響家辦投資意欲
-
-![許正宇認為長和擬售巴拿馬港口事件不影響家辦投資意欲](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798102_1_20250330142009.jpg&q=90)
-  
-
-財經事務及庫務局局長許正宇表示，全球政經環境複雜，反而對香港的家族辦公室業務更為有利，因為香港的投資環境穩定，亦有預見性，可讓投資者或家族辦公室的財富增值或保值。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798102-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798102-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798102-20250330.htm)
 
 ---

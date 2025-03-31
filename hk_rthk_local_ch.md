@@ -1,3 +1,27 @@
+# 證監會：近年企業欺詐有令人關注的趨勢
+
+![證監會指，近年企業欺詐方面有令人關注的趨勢，上市公司高層或會利用貸款安排，作為將公司資金轉移給關連方的手段。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798312_1_20250331184722.jpg&q=85)
+  
+
+證監會重新刊發《執法通訊》，提到近年在企業欺詐方面，觀察到令人關注的趨勢，上市公司高層或會利用貸款安排，作為將公司資金轉移給關連方的手段。這些貸款安排看似合法，但卻欠缺真正的商業目的，而且其後出現減值，實際上掩飾屬欺詐性的資金流失。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm)
+
+---
+
 # 私隱公署公布指引協助機構制定僱員使用生成式AI的內部政策
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798138-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798138-20250330.htm)
-
----
-
-# 港澳辦轉載文章籲長和懸崖勒馬　各界支持市監總局依法審查交易
-
-![港澳辦轉載的文章引述政商界人士指，當前國際形勢下，相關交易的影響已遠超商業範疇。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798136_1_20250330191246.jpg&q=75)
-  
-
-國務院港澳辦再度轉載本港報章評論長和計劃出售巴拿馬運河資產的文章，文章引述本港政商界人士認為，在當前國際形勢下，相關交易的影響已遠超商業範疇，涉及國家安全、市場競爭、國家戰略發展等多方面，國家市場監督管理總局依法審查，不僅是對市場公平競爭和社會公共利益的維護，更是對國家核心利益的捍衛，希望長和懸崖勒馬。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm)
 
 ---
