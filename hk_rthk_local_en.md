@@ -1,6 +1,6 @@
 # Data breach of 128,000 'due to system fix and neglect'
 
-![The personal data of nearly 128,000 people were compromised as a result of the breach. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798251_1_20250331144559.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798251_1_20250331144559.jpg&q=80)
   
 
 The Office of the Privacy Commissioner for Personal Data says a data breach incident by ImagineX has led to nearly 128,000 people’s information being compromised.

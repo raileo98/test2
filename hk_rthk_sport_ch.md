@@ -1,3 +1,26 @@
+# 黃澤林期待於啟德體育園作賽　今年目標爭取排名世界前100
+
+  
+
+香港網球「一哥」黃澤林表示，昨日到啟德體育園觀看七欖賽事，氣氛很好，自己很期待日後可以在這個香港主場進行網球比賽，相信到時會很震撼。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798253-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798253-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798253-20250331.htm)
+
+---
+
 # 西甲巴塞4:1勝基羅納　意甲國米2:1擊敗烏甸尼斯
 
 ![利雲度夫斯基為巴塞羅那攻入兩球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798176_1_20250331073441.jpg&q=85)
@@ -1436,30 +1459,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796405-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796405-20250319.htm)
-
----
-
-# 國際奧委會第144次全會在古奧林匹亞開幕
-
-![國際奧委會第144次全會當地星期二在希臘古奧林匹亞開幕。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796370_1_20250319101452.jpg&q=85)
-![國際奧委會主席巴赫在開幕式致辭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796370_2_20250319101452.jpg&q=90)
-  
-
-國際奧委會第144次全會當地星期二在希臘古奧林匹亞開幕。全會之後星期三起一連三天，在希臘西南部的納瓦里諾海岸度假村內舉行，將選舉產生新一任國際奧委會主席，接替任期即將結束的巴赫，7名候選人角逐。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796370-20250319.htm)
 
 ---

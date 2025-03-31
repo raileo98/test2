@@ -1,3 +1,26 @@
+# 黃澤林期待於啟德體育園作賽　今年目標爭取排名世界前100
+
+  
+
+香港網球「一哥」黃澤林表示，昨日到啟德體育園觀看七欖賽事，氣氛很好，自己很期待日後可以在這個香港主場進行網球比賽，相信到時會很震撼。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798253-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798253-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798253-20250331.htm)
+
+---
+
 # 南丫島深灣劃定限制區保護海龜產卵　公眾7個月內禁止進入
 
 ![漁護署表示，指定深灣限制地區有助保護瀕危綠海龜及其繁殖地，長遠對綠海龜的存活及繁衍有正面作用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798249_1_20250331143959.jpg&q=80)
@@ -1425,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798076-20250330.htm)
-
----
-
-# 天文台預測明天市區最低12度左右　當局開放18間避寒中心
-
-![天文台預測明天市區最低12度左右　當局開放18間避寒中心](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798062_1_20250329234252.jpg&q=90)
-  
-
-寒冷天氣警告生效，天文台預測明日市區最低氣溫約在12度左右，新界會再低一兩度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798062-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798062-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798062-20250329.htm)
 
 ---
