@@ -1,3 +1,27 @@
+# McIlroy smashes into PGA Tour's US$100 million club
+
+![McIlroy in action in the first round of the Houston Open golf tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798360_1_20250401063902.jpg&q=90)
+  
+
+Rory McIlroy has joined Tiger Woods in surpassing US$100 million in career earnings on the PGA Tour, becoming just the second player to do so.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798360-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798360-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798360-20250401.htm)
+
+---
+
 # US stocks recover from sell-off ahead of Trump tariffs
 
 ![On Wall Street, the S&P 500 bounced into positive territory from a six-month low. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798357_1_20250401060041.jpg&q=90)
@@ -1417,29 +1441,5 @@ China on Sunday sent a new communication test satellite into orbit from the Wenc
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm)
-
----
-
-# Japan beef bowl chain to shut stores over rat and bug
-
-![Fast-food company Sukiya has about 1,970 stores across Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798050_1_20250329221759.jpg&q=90)
-  
-
-Japanese restaurant chain Sukiya will temporarily shut nearly all of its roughly 2,000 branches after a rat was found in a miso soup and a bug was found in another meal, the company said on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798050-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798050-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798050-20250329.htm)
 
 ---
