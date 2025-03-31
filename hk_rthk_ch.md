@@ -1,3 +1,27 @@
+# 曼谷倒塌大樓有鋼材樣本不符合標準　曼谷解除地震災區公告
+
+![當局出動大型機械清理瓦礫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798351_1_20250401045552.jpg&q=85)
+  
+
+緬甸中部大地震在泰國造成的死亡人數增至最少20人，救援人員繼續在曼谷翟道翟興建中審計局辦公大樓倒塌現場，搜索仍然失蹤的70多名建築工人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798351-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798351-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798351-20250401.htm)
+
+---
+
 # 外交部駐港公署強烈譴責美國制裁中央和特區官員　將堅決反制
 
 ![發言人指，中方必將採取有力措施堅決反制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798350_1_20250401041931.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm)
-
----
-
-# 本港上月新申請住宅按揭貸款個案按月增加0.4%
-
-![金管局公布，2月新申請住宅按揭貸款個案按月增加0.4%至6542宗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798279_1_20250331165523.jpg&q=85)
-  
-
-金管局公布，2月新申請住宅按揭貸款個案按月增加0.4%至6542宗。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798279-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798279-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798279-20250331.htm)
 
 ---
