@@ -22,29 +22,6 @@
 
 ---
 
-# 分析指北都片區開發規模大　各階段資金回籠及融資需求風險考量大
-
-  
-
-北部都會區三個「片區開發」試點今日截收意向書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798313-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798313-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798313-20250331.htm)
-
----
-
 # 財政部第2季發行5年和7年期特別國債　對中央金融機構注資
 
 ![財政部公布第2季國債發行計劃，其中安排特別國債發行用於對中央金融機構注資，期限5年和7年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798314_1_20250331191656.jpg&q=90)
