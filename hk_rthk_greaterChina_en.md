@@ -1,3 +1,27 @@
+# China condemns 'economic coercion'
+
+![Guo Jiakun says the State Administration for Market Regulation is aware of the deal between CK Hutchison and a BlackRock-led group and will conduct a review to ensure fair market competition. Photo courtesy of CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798334_1_20250331215247.jpg&q=90)
+  
+
+China on Monday reaffirmed its resolute opposition to moves that infringe upon and undermine other countries' legitimate rights and interests through economic coercion, hegemonic practices or bullying.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm)
+
+---
+
 # Chinese rescuers find six quake survivors in Myanmar
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798255_1_20250331151517.jpg&q=90)
@@ -1415,29 +1439,5 @@ The local official who heads the National Games Coordination Office on Sunday sa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm)
-
----
-
-# Military jet crashes, pilot ejects unhurt: CCTV
-
-![The PLA said there was no collateral damage on the ground. File Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795895_1_20250316051831.jpg&q=90)
-  
-
-CCTV news says a People's Liberation Army naval fighter jet crashed on Saturday during a training exercise in Hainan Province, with the pilot safely ejecting.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795895-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795895-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795895-20250316.htm)
 
 ---

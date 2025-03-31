@@ -1,3 +1,27 @@
+# 瑪麗娜勒龐被裁定挪用歐盟公款罪成　禁止從事公職5年
+
+![瑪麗娜勒龐被裁定挪用歐盟公款罪成。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798333_1_20250331215051.jpg&q=85)
+  
+
+法國極右翼「國民聯盟」領袖瑪麗娜勒龐被法國檢方指控挪用歐盟公共資金，巴黎法院判處她罪名成立，禁止她從事公職5年，即時生效。除非瑪麗娜勒龐成功上訴，否則將無法參加2027年的總統競選。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798333-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798333-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798333-20250331.htm)
+
+---
+
 # 何立峰：中方將進一步全面深化改革　歡迎國際投資者分享發展機遇
 
 ![何立峰表示，歡迎國際投資者積極參與中國資本市場建設，分享發展機遇。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798331_1_20250331214447.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798080-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798080-20250330.htm)
-
----
-
-# 德國漢諾威安老院火警50多人受傷
-
-![德國漢諾威安老院火警50多人受傷](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798077_1_20250330063050.jpg&q=90)
-  
-
-德國北部城市漢諾威一間安老院發生火警，50多人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798077-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798077-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798077-20250330.htm)
 
 ---

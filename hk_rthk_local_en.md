@@ -1,3 +1,27 @@
+# China condemns 'economic coercion'
+
+![Guo Jiakun says the State Administration for Market Regulation is aware of the deal between CK Hutchison and a BlackRock-led group and will conduct a review to ensure fair market competition. Photo courtesy of CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798334_1_20250331215247.jpg&q=90)
+  
+
+China on Monday reaffirmed its resolute opposition to moves that infringe upon and undermine other countries' legitimate rights and interests through economic coercion, hegemonic practices or bullying.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm)
+
+---
+
 # HA unveils smart measures to better monitor patients
 
 ![The Hospital Authority is bringing new technology to public hospitals. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798304_1_20250331180722.jpg&q=90)
@@ -1432,30 +1456,5 @@ Findings from a study led by the Polytechnic University’s School of Hotel and 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm)
-
----
-
-# Art Basel 'to strengthen HK's cultural hub status'
-
-![Art Basel runs from Friday to Sunday at the Convention and Exhibition Centre in Wan Chai. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797472_1_20250326131100.jpg&q=90)
-![Angelle Siyang-Le, right, says she expects a good turnout particularly from Southeast Asia. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797472_2_20250326131100.jpg&q=90)
-  
-
-The organiser of Art Basel Hong Kong said on Wednesday this year's edition aims to strengthen Hong Kong's position as an arts and cultural hub while connecting creative ecosystems across the globe.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797472-20250326.htm)
 
 ---
