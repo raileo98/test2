@@ -1,3 +1,51 @@
+# 普京簽署春季徵兵令　國防部強調與對烏軍事行動無關
+
+![普京簽署關於春季徵召俄羅斯公民服兵役的法令。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798342_1_20250401004751.jpg&q=90)
+  
+
+俄羅斯總統普京簽署關於春季徵召俄羅斯公民服兵役的法令。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798342-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798342-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798342-20250401.htm)
+
+---
+
+# 回應特朗普言論　哈梅內伊稱伊朗將對所受威脅予以強而有力回應
+
+![哈梅內伊在首都德黑蘭出席宗教活動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798341_1_20250401004313.jpg&q=85)
+  
+
+伊朗最高領袖哈梅內伊回應美國總統特朗普威脅轟炸伊朗的言論，強調伊朗會對威脅予以強而有力的回應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798341-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798341-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798341-20250401.htm)
+
+---
+
 # 英國首相府稱冷靜應對關稅問題　不排除採取報復措施
 
 ![發言人強調，英國將採取冷靜務實態度應對關稅問題。圖為英國首相施紀賢離開首相府。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798340_1_20250401003425.jpg&q=75)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm)
-
----
-
-# 緬甸地震逾1600人死亡　十多名中國公民受傷
-
-![緬甸地震增至1600多人死亡，3400多人受傷，百多人失蹤。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798098_2_20250330122453.jpg&q=90)
-  
-
-緬甸中部大地震至今，增至1600多人死亡，3400多人受傷，百多人失蹤。雲南救援醫療隊凌晨在內比都救出1名被困近40小時的長者。中國駐緬甸大使館至今確認十多名中國公民在地震中受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm)
-
----
-
-# 中日韓經貿部長會議在首爾舉行
-
-![中國商務部長王文濤（右）、日本經濟產業大臣武藤容治（左），和南韓產業部長安德根出席會議。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798093_1_20250330103434.jpg&q=90)
-  
-
-中日韓經貿部長會議在南韓首爾舉行，中國商務部長王文濤、日本經濟產業大臣武藤容治，和南韓產業部長安德根出席，是三國經貿部長會議時隔5年再次舉行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798093-20250330.htm)
 
 ---

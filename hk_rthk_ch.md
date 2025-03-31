@@ -1,3 +1,51 @@
+# 普京簽署春季徵兵令　國防部強調與對烏軍事行動無關
+
+![普京簽署關於春季徵召俄羅斯公民服兵役的法令。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798342_1_20250401004751.jpg&q=90)
+  
+
+俄羅斯總統普京簽署關於春季徵召俄羅斯公民服兵役的法令。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798342-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798342-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798342-20250401.htm)
+
+---
+
+# 回應特朗普言論　哈梅內伊稱伊朗將對所受威脅予以強而有力回應
+
+![哈梅內伊在首都德黑蘭出席宗教活動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798341_1_20250401004313.jpg&q=85)
+  
+
+伊朗最高領袖哈梅內伊回應美國總統特朗普威脅轟炸伊朗的言論，強調伊朗會對威脅予以強而有力的回應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798341-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798341-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798341-20250401.htm)
+
+---
+
 # 英國首相府稱冷靜應對關稅問題　不排除採取報復措施
 
 ![發言人強調，英國將採取冷靜務實態度應對關稅問題。圖為英國首相施紀賢離開首相府。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798340_1_20250401003425.jpg&q=75)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798270-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798270-20250331.htm)
-
----
-
-# 恒指低收307點　3月升近1%　首季反彈逾15%
-
-![恒生指數午後一度跌至23000點邊緣，最多曾跌逾420點，其後跌幅收窄，收市報23119點，跌307點，跌幅1.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798269_1_20250331162203.jpg&q=60)
-  
-
-港股連跌兩日，恒生指數午後一度跌至23000點邊緣，最多曾跌逾420點，其後跌幅收窄，收市報23119點，跌307點，跌幅1.3%，全日主板成交額2573億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798269-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798269-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798269-20250331.htm)
-
----
-
-# 泰國警方據報拘捕4名中國男子涉嫌非法進入地震倒塌大樓取走文件
-
-![泰國當局繼續在倒塌的大樓搜救。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798267_1_20250331160837.jpg&q=85)
-  
-
-泰國傳媒報道，警方拘捕4名中國男子，涉嫌非法進入地震中倒塌的大樓取走多份文件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798267-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798267-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798267-20250331.htm)
 
 ---
