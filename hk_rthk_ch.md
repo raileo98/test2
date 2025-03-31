@@ -1,3 +1,26 @@
+# 《求是》雜誌發表文章　習近平稱朝著建成科技強國目標奮勇前進
+
+  
+
+中共中央總書記、國家主席、中央軍委主席習近平在將出版的《求是》雜誌發表重要文章。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798257-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798257-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798257-20250331.htm)
+
+---
+
 # 謝展寰：本港空氣質素持續改善　三區排水口污染量大減九成
 
   

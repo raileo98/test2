@@ -1,3 +1,27 @@
+# Chinese rescuers find six quake survivors in Myanmar
+
+![Chinese rescuers pull to safety a survivor in quake-hit Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798255_1_20250331151517.jpg&q=90)
+  
+
+Rescuers from China have found six survivors so far in earthquake-rattled Myanmar.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm)
+
+---
+
 # China discovers major oilfield in South China Sea
 
 ![CNOOC says the new oilfield is around 170 km off the coast of Shenzhen. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798194_1_20250331091600.jpg&q=90)
@@ -1415,29 +1439,5 @@ CCTV news says a People's Liberation Army naval fighter jet crashed on Saturday 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795895-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795895-20250316.htm)
-
----
-
-# 'Govt can do more to promote internationalisation'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795830_1_20250315105816.jpg&q=85)
-  
-
-Hong Kong’s sole delegate to the nation’s top legislature, Starry Lee, on Saturday called on the government to continue to coordinate with other major cities around the world to further strengthen the SAR's position across fields.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 《求是》雜誌發表文章　習近平稱朝著建成科技強國目標奮勇前進
+
+  
+
+中共中央總書記、國家主席、中央軍委主席習近平在將出版的《求是》雜誌發表重要文章。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798257-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798257-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798257-20250331.htm)
+
+---
+
 # 特區救援隊抵達曼德勒　將與國家隊分工展開搜救
 
 ![保安局表示，特區救援隊剛抵達緬甸地震災區曼德勒，立即與中國救援隊會合，聽取國家隊對當地災情的簡介。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798239_1_20250331135742.jpg&q=75)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797905-20250328.htm)
-
----
-
-# 習近平冀企業不盲從各種干擾全球產供鏈安全穩定行為
-
-![國家主席習近平在北京人民大會堂會見國際工商界代表。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797903_1_20250328175116.jpg&q=90)
-  
-
-國家主席習近平在北京人民大會堂會見國際工商界代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797903-20250328.htm)
 
 ---

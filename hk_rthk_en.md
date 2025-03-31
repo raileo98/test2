@@ -1,3 +1,51 @@
+# S Korean police set to question wildfires suspect
+
+![An Uiseong surveys what else is left after a wildfire devastated his village. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798256_1_20250331151631.jpg&q=45)
+  
+
+South Korean police plan to question a 56-year-old man on suspicion of starting at least one of the wildfires that recently devastated the country’s southern regions, killing 30 people and burning through more than 48,000 hectares.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798256-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798256-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798256-20250331.htm)
+
+---
+
+# Chinese rescuers find six quake survivors in Myanmar
+
+![Chinese rescuers pull to safety a survivor in quake-hit Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798255_1_20250331151517.jpg&q=90)
+  
+
+Rescuers from China have found six survivors so far in earthquake-rattled Myanmar.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm)
+
+---
+
 # Data breach of 128,000 'due to system fix and neglect'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798251_1_20250331144559.jpg&q=80)
@@ -1399,53 +1447,5 @@ US President Donald Trump said he had an "extremely productive" first call Frida
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm)
-
----
-
-# Wall Street tumbles over economy, inflation fears
-
-![All three major indices closed sharply lower, with the Dow tumbling 1.7 percent, the S&P 500 losing 2 percent and Nasdaq diving 2.7 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797974_1_20250329070631.jpg&q=75)
-  
-
-Stock markets plunged Friday as a closely watched US inflation reading heated up amid intensifying concerns over fallout from US President Donald Trump's incoming wave of tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797974-20250329.htm)
-
----
-
-# Vance accuses Denmark of underinvesting in Greenland
-
-![US Vice President JD Vance demanded Denmark change its approach as President Trump pushes to take over the Danish territory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797969_1_20250329062730.jpg&q=90)
-  
-
-US Vice President JD Vance accused Denmark on Friday of not having done enough to protect Greenland when he visited the resource-rich Danish territory coveted by US President Donald Trump.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm)
 
 ---
