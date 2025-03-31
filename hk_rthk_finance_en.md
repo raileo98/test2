@@ -22,12 +22,12 @@ China's manufacturing activity expanded at the fastest pace in a year in March, 
 
 ---
 
-# Hong Kong shares down amid US tariff fears
+# Hong Kong stocks open slightly lower at opening
 
-![The Hang Seng Index lost 0.94 percent to open at 23,207 points. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798185_1_20250331083342.jpg&q=75)
+![On Monday, official data showed the mainland's manufacturing activity expanding at its fastest pace in a year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798185_1_20250331104203.jpg&q=75)
   
 
-World share markets were in a tailspin on Monday after US President Donald Trump said tariffs would essentially cover all countries, stoking worries a global trade war could lead to recession.
+The Hang Seng Index lost 0.94 percent to open at 23,207 points on Monday.
 
   
 

@@ -1,3 +1,169 @@
+# 北都3個「片區開發」試點暫時收到最少6份意向書
+
+![發展局邀請市場就北都3個「片區開發」試點提交意向書，新世界發展的代表到場遞交意向書。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798218_1_20250331105323.jpg&q=90)
+  
+
+發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，暫時收到6份意向書，遞交的發展商包括新世界發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm)
+
+---
+
+# 緬甸地震七成房屋受損　紅十字會稱當地缺庇護所
+
+  
+
+緬甸地震增至1700人死亡，3400多人受傷。香港紅十字會國際及賑災服務主管程德君表示，當地約七成房屋受破壞倒塌，民眾暫時無安全的庇護所，部分民眾要在街上睡覺，乾淨食水及醫療服務都受影響，有部分居民出現肚瀉情況，擔心當地會爆發流行病。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm)
+
+---
+
+# 陳茂波：外資「驚執輸」　後悔低配中資股
+
+  
+
+財政司司長陳茂波表示，多名來港出席金融盛事活動的與會者都指出，香港今年整體市面興旺，外國客人增加，各類金融機構對本港都有積極正面的評價。期間他接觸的金融領袖中，給他最深刻的印象是「驚執輸」，不少人後悔「低配了」中資股，正在急於補倉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm)
+
+---
+
+# 日股創逾半年新低　半日急挫近4%
+
+![日經指數今早低見35574點，創逾半年新低，半日收報35691點，跌1428點，跌幅3.85%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798213_1_20250331103532.jpg&q=90)
+  
+
+日股裂口低開，沽壓顯著，創逾半年新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798213-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798213-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798213-20250331.htm)
+
+---
+
+# 鄭泳舜：七欖銷售食物安排可改善　區議員：球迷村聲浪影響居民
+
+  
+
+首年在啟德體育園主場館舉行的香港國際七人欖球賽昨日結束，大會表示，3日賽事有超過11萬名觀眾出席。身兼立法會議員的大型體育活動事務委員會副主席鄭泳舜表示，賽事氣氛好，與大球場有很大分別，部分細節相信可以改善。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798212-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798212-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798212-20250331.htm)
+
+---
+
+# 何永賢：簡約公屋彩興項目近尾聲　辦事處已開始運作
+
+![何永賢到彩興項目視察工程進度，檢視項目質素。（何永賢社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798211_2_20250331103431.jpg&q=80)
+![何永賢表示，簡約公屋彩興項目今個月取得不少進展，最後一個MiC組件已於本月22日完成吊裝。（何永賢社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798211_1_20250331103431.jpg&q=90)
+  
+
+房屋局局長何永賢表示，簡約公屋彩興項目今個月取得不少進展，最後一個MiC組件已於本月22日完成吊裝，意味工程已到最後階段，而位於石硤尾邨的彩興路簡約公屋辦事處，上周四已開始運作，處理相關申請的資格審核。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798211-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798211-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798211-20250331.htm)
+
+---
+
+# 緬甸反政府武裝組織指責軍政府攻擊村莊無視震後民眾苦難
+
+![新加坡指停火有助分發人道主義援助物資。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798210_1_20250331103217.jpg&q=90)
+  
+
+在緬甸由少數民族組成的反政府武裝組織「克倫民族聯盟」指責軍政府在國家遭受地震重創時，仍然空襲組織控制的村莊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798210-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798210-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798210-20250331.htm)
+
+---
+
 # 特朗普：對等關稅將包含所有國家
 
 ![特朗普表示，預計今個星期宣布的對等關稅將包含所有國家。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798208_1_20250331101112.jpg&q=90)
@@ -24,6 +190,7 @@
 
 # 鄧炳強：本港仍面對軟對抗等四項國安威脅　籲市民慎思明辨
 
+![鄧炳強提到，本港仍面對四項威脅，包括外部勢力抹黑和制裁、潛逃者繼續從事危害國家安全的行為、本土恐怖主義及軟對抗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798207_1_20250331103321.jpg&q=90)
   
 
 保安局局長鄧炳強表示，隨著《香港國安法》和《維護國家安全條例》實施，社會已由亂到治，但不能掉以輕心，軟對抗每日都發生，市民必須慎思明辨。
@@ -1271,178 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm)
-
----
-
-# 國泰航班飛越啟德上空紀念舊機場百周年　林紹波形容非常成功
-
-![林紹波接受本台訪問時表示，安排A350-1000客機飛過，他感到非常感動，而且對曾經在啟德機場工作的員工，意義非常重大。(張連登攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798139_1_20250330204758.jpg&q=80)
-![國泰航空特別航班CX8100下午4時低飛越過維港，重現昔日低飛九龍城一帶的情景。（國泰提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798139_2_20250330231623.jpg&q=80)
-  
-
-國泰航空特別航班CX8100下午4時低飛越過維港，並掠過啟德主場館鄰近上空，以紀念舊啟德機場100周年。國泰行政總裁林紹波接受本台訪問時表示，整個團隊都非常興奮，形容非常成功。他指國泰贊助七欖超過40年，今年七欖重返啟德，亦是國泰發源的地方，因此安排A350-1000客機飛過，他感到非常感動，而且對曾經在啟德機場工作的員工，意義非常重大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm)
-
----
-
-# 陳茂波：七欖各隊好手瞓身拼搏　觀眾全力喝采　盡情度過暢快周末
-
-![陳茂波說，現場4萬名觀眾全力喝采歡呼，盡情忘我度過一個開心暢快的周末。(陳茂波社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798138_1_20250330205059.jpg&q=75)
-![陳茂波表示，銀劍賽男子組決賽由中國隊對中國香港隊，兩隊好手全力競技，為觀眾上演了一場精彩賽事。(陳茂波社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798138_2_20250330205059.jpg&q=85)
-  
-
-香港國際七人欖球賽在啟德體育園閉幕，財政司司長陳茂波表示，他下午主持銀劍賽男子組決賽的頒獎禮。賽事由中國隊對中國香港隊，兩隊好手全力競技，為觀眾上演了一場精彩賽事，最後中國香港隊成功奪標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798138-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798138-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798138-20250330.htm)
-
----
-
-# 港澳辦轉載文章籲長和懸崖勒馬　各界支持市監總局依法審查交易
-
-![港澳辦轉載的文章引述政商界人士指，當前國際形勢下，相關交易的影響已遠超商業範疇。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798136_1_20250330191246.jpg&q=75)
-  
-
-國務院港澳辦再度轉載本港報章評論長和計劃出售巴拿馬運河資產的文章，文章引述本港政商界人士認為，在當前國際形勢下，相關交易的影響已遠超商業範疇，涉及國家安全、市場競爭、國家戰略發展等多方面，國家市場監督管理總局依法審查，不僅是對市場公平競爭和社會公共利益的維護，更是對國家核心利益的捍衛，希望長和懸崖勒馬。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm)
-
----
-
-# 國泰客機低空掠過啟德主場館鄰近上空　千禧飛機迷感難得
-
-![國泰航空特別航班CX8100下午4時低飛越過維港，並掠過啟德主場館鄰近上空。（國泰提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_5_20250330231350.jpg&q=80)
-![國泰航空特別航班CX8100掠過啟德主場館鄰近上空。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_2_20250330221354.jpg&q=85)
-![不少觀眾爭取有利位置觀看飛機越過。 （鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798135_3_20250330221354.jpg&q=90)
-  
-
-國泰航空特別航班CX8100下午4時低飛越過維港，並掠過啟德主場館鄰近上空。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798135-20250330.htm)
-
----
-
-# 中方救援隊在緬甸曼德勒救出一名倖存者
-
-![救援隊透過生命探測器在曼德勒佛學禮堂發現一名被困者仍有生命體徵。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798134_1_20250330184542.jpg&q=90)
-  
-
-中國救援隊再在緬甸地震災區救出倖存者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm)
-
----
-
-# 本港下午各區氣溫較昨日低兩三度　18間臨時避寒中心開放
-
-![民政事務總署在各區開放共18間臨時避寒中心，供有需要的市民避寒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798133_1_20250330184909.jpg&q=90)
-  
-
-寒冷天氣警告現正效，天文台表示，東北季候風正影響廣東沿岸，本港下午各區氣溫較昨日低兩三度。民政事務總署已在各區開放共18間臨時避寒中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798133-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798133-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798133-20250330.htm)
-
----
-
-# 港隊男女子隊銀劍賽稱王封后　球迷大讚港隊表現
-
-![有香港球迷在男子組勝利一刻，用手機紀錄珍貴一幕，大叫「香港隊勁」。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798132_1_20250330190550.jpg&q=70)
-![不少球迷也扮鬼扮馬，更無懼氣溫下降，赤膊上陣。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798132_2_20250330194219.jpg&q=85)
-  
-
-香港國際七人欖球賽，港隊在男女子銀劍賽分別稱王封后，不少球迷也感到興奮，大讚港隊表現。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm)
 
 ---

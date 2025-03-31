@@ -1,3 +1,50 @@
+# 陳茂波：外資「驚執輸」　後悔低配中資股
+
+  
+
+財政司司長陳茂波表示，多名來港出席金融盛事活動的與會者都指出，香港今年整體市面興旺，外國客人增加，各類金融機構對本港都有積極正面的評價。期間他接觸的金融領袖中，給他最深刻的印象是「驚執輸」，不少人後悔「低配了」中資股，正在急於補倉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm)
+
+---
+
+# 日股創逾半年新低　半日急挫近4%
+
+![日經指數今早低見35574點，創逾半年新低，半日收報35691點，跌1428點，跌幅3.85%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798213_1_20250331103532.jpg&q=90)
+  
+
+日股裂口低開，沽壓顯著，創逾半年新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798213-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798213-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798213-20250331.htm)
+
+---
+
 # 滬深股市初段偏軟　4隻配股集資內銀股價靠穩
 
 ![上證指數較早時報3345點，跌6點，跌幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798203_1_20250331095531.jpg&q=90)
@@ -1399,53 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797898-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797898-20250328.htm)
-
----
-
-# 工行去年盈利微升0.5%
-
-![工商銀行去年盈利3658.63億元人民幣，按年增長0.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797899_1_20250328172747.jpg&q=80)
-  
-
-工商銀行去年盈利3658.63億元人民幣，按年增長0.5%。每10股派末期息1.646元，每10股全年派息合計3.08元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797899-20250328.htm)
-
----
-
-# 建行去年盈利升近1%
-
-![建設銀行去年盈利3355.8億元人民幣，按年升0.88%。派末期息每股0.206元人民幣。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797894_1_20250328171540.jpg&q=90)
-  
-
-建設銀行公布，去年盈利3355.8億元人民幣，按年升0.88%。派末期息每股0.206元人民幣，全年派息0.403元，按年升近0.8%，派息比率30%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm)
 
 ---

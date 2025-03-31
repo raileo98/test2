@@ -1,5 +1,77 @@
+# 陳茂波：外資「驚執輸」　後悔低配中資股
+
+  
+
+財政司司長陳茂波表示，多名來港出席金融盛事活動的與會者都指出，香港今年整體市面興旺，外國客人增加，各類金融機構對本港都有積極正面的評價。期間他接觸的金融領袖中，給他最深刻的印象是「驚執輸」，不少人後悔「低配了」中資股，正在急於補倉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm)
+
+---
+
+# 鄭泳舜：七欖銷售食物安排可改善　區議員：球迷村聲浪影響居民
+
+  
+
+首年在啟德體育園主場館舉行的香港國際七人欖球賽昨日結束，大會表示，3日賽事有超過11萬名觀眾出席。身兼立法會議員的大型體育活動事務委員會副主席鄭泳舜表示，賽事氣氛好，與大球場有很大分別，部分細節相信可以改善。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798212-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798212-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798212-20250331.htm)
+
+---
+
+# 何永賢：簡約公屋彩興項目近尾聲　辦事處已開始運作
+
+![何永賢到彩興項目視察工程進度，檢視項目質素。（何永賢社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798211_2_20250331103431.jpg&q=80)
+![何永賢表示，簡約公屋彩興項目今個月取得不少進展，最後一個MiC組件已於本月22日完成吊裝。（何永賢社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798211_1_20250331103431.jpg&q=90)
+  
+
+房屋局局長何永賢表示，簡約公屋彩興項目今個月取得不少進展，最後一個MiC組件已於本月22日完成吊裝，意味工程已到最後階段，而位於石硤尾邨的彩興路簡約公屋辦事處，上周四已開始運作，處理相關申請的資格審核。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798211-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798211-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798211-20250331.htm)
+
+---
+
 # 鄧炳強：本港仍面對軟對抗等四項國安威脅　籲市民慎思明辨
 
+![鄧炳強提到，本港仍面對四項威脅，包括外部勢力抹黑和制裁、潛逃者繼續從事危害國家安全的行為、本土恐怖主義及軟對抗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798207_1_20250331103321.jpg&q=90)
   
 
 保安局局長鄧炳強表示，隨著《香港國安法》和《維護國家安全條例》實施，社會已由亂到治，但不能掉以輕心，軟對抗每日都發生，市民必須慎思明辨。
@@ -1376,77 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798041-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798041-20250329.htm)
-
----
-
-# 港澳辦再轉載評論文章促長和作無愧於時代選擇　停止出售港口交易
-
-![港澳辦網站再次轉載《大公報》有關長和計劃出售巴拿馬運河港口等資產的文章。圖為巴拿馬運河港口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798038_1_20250329193851.jpg&q=75)
-  
-
-港澳辦網站再次轉載《大公報》有關長和計劃出售巴拿馬運河港口等資產的文章。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm)
-
----
-
-# 入境處共接獲55宗有關緬甸最新情況查詢
-
-![入境處表示，截至下午5時，共接獲55宗有關緬甸最新情況的查詢。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798036_1_20250329191359.jpg&q=75)
-  
-
-入境處表示，截至下午5時，共接獲55宗有關緬甸最新情況的查詢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798036-20250329.htm)
-
----
-
-# 緬甸中部大地震　逾10班香港往返泰國航班延誤
-
-![機管局表示，截至下午4時半，共有5班從泰國抵港，以及8班由香港往泰國的航班延誤。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798034_1_20250329191017.jpg&q=80)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。保安局表示，至今收到54名香港居民查詢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm)
 
 ---

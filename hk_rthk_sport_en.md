@@ -1,3 +1,27 @@
+# Seven kicked out of NBA game after court 'brawl'
+
+![Pistons forward Ronald Holland drives towards the basket as Timberwolves center Naz Reid defends during the second quarter at Target Center in Minnesota. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798214_1_20250331103953.jpg&q=90)
+  
+
+Seven players and members of coaching staff were ejected after a wild brawl broke out during the Minnesota Timberwolves' 123-104 victory over the Detroit Pistons in the NBA.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798214-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798214-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798214-20250331.htm)
+
+---
+
 # Rashford lifts Villa into FA Cup semis; Man City roll
 
 ![Marcus Rashford bagged a brace for Aston Villa in the win. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798189_1_20250331085621.jpg&q=90)
@@ -1425,29 +1449,5 @@ Opener Hasan Nawaz struck a record-breaking maiden century on Friday as Pakistan
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm)
-
----
-
-# Record lap puts 'gobsmacked' Hamilton in pole position
-
-![Lewis Hamilton in a Ferrari during the sprint qualifier. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796819_1_20250321175331.jpg&q=85)
-  
-
-A "gobsmacked" Lewis Hamilton obliterated the Shanghai lap record to take a stunning pole position on Friday for the Chinese Grand Prix sprint in only his second race weekend with Ferrari.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm)
 
 ---

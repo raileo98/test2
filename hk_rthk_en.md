@@ -1,3 +1,27 @@
+# Seven kicked out of NBA game after court 'brawl'
+
+![Pistons forward Ronald Holland drives towards the basket as Timberwolves center Naz Reid defends during the second quarter at Target Center in Minnesota. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798214_1_20250331103953.jpg&q=90)
+  
+
+Seven players and members of coaching staff were ejected after a wild brawl broke out during the Minnesota Timberwolves' 123-104 victory over the Detroit Pistons in the NBA.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798214-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798214-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798214-20250331.htm)
+
+---
+
 # China's factory PMI expands at fastest pace in a year
 
 ![Official data shows the purchasing managers' index for manufacturing was up 0.3 percentage points from February. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798209_1_20250331101633.jpg&q=80)
@@ -46,12 +70,12 @@ The board of Hong Kong conglomerate CK Hutchison said on Monday it has not made 
 
 ---
 
-# Hong Kong shares down amid US tariff fears
+# Hong Kong stocks open slightly lower at opening
 
-![The Hang Seng Index lost 0.94 percent to open at 23,207 points. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798185_1_20250331083342.jpg&q=75)
+![On Monday, official data showed the mainland's manufacturing activity expanding at its fastest pace in a year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798185_1_20250331104203.jpg&q=75)
   
 
-World share markets were in a tailspin on Monday after US President Donald Trump said tariffs would essentially cover all countries, stoking worries a global trade war could lead to recession.
+The Hang Seng Index lost 0.94 percent to open at 23,207 points on Monday.
 
   
 
@@ -1424,30 +1448,5 @@ There is relief for MTR passengers after the fare adjustment formula – which t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm)
-
----
-
-# Quake-hit Myanmar junta appeals for international aid
-
-![An earthquake survivor is carried to a hospital in Naypyidaw, Myanmar. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_2_20250328170355.jpg&q=85)
-![Myanmar's military chief Min Aung Hlaing arrives at the main hospital in Naypyidaw that was hit by the temblors. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_4_20250328173219.jpg&q=90)
-  
-
-Myanmar's ruling junta made a rare request for international humanitarian aid and declared a state of emergency across six regions after a powerful quake hit the country on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm)
 
 ---
