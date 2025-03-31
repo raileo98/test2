@@ -1,3 +1,51 @@
+# 香港今個財政年度首11個月赤字923億元
+
+![政府公布，本港今個財政年度首11個月，亦即截至2月底，錄得赤字923億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798277_1_20250331165029.jpg&q=85)
+  
+
+政府公布，本港今個財政年度首11個月，亦即截至2月底，錄得赤字923億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm)
+
+---
+
+# 本港上月新申請住宅按揭貸款個案按月增加0.4%
+
+![金管局公布，2月新申請住宅按揭貸款個案按月增加0.4%至6542宗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798279_1_20250331165523.jpg&q=85)
+  
+
+金管局公布，2月新申請住宅按揭貸款個案按月增加0.4%至6542宗。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798279-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798279-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798279-20250331.htm)
+
+---
+
 # 證監會：2月底在港註冊的開放式基金型公司增至502間
 
 ![證監會表示，至2月底，在港註冊的開放式基金型公司按年增加81%至502間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798274_1_20250331164619.jpg&q=90)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797958-20250329.htm)
-
----
-
-# 長城汽車去年多賺近81%
-
-![長城汽車去年盈利126.9億元人民幣，按年增長80.8%。派末期息每股0.45元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797950_1_20250328233125.jpg&q=85)
-  
-
-長城汽車公布，去年盈利126.9億元人民幣，按年增長80.8%。派末期息每股0.45元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797950-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797950-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797950-20250329.htm)
-
----
-
-# 戴利：聯儲局有時間評估最終關稅的影響　毋須急於調整政策
-
-![戴利表示，聯儲局有時間評估最終關稅措施的全面影響及規模，以及對經濟的影響，毋須急於調整政策。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797949_1_20250328232238.jpg&q=90)
-  
-
-三藩市聯邦儲備銀行總裁戴利表示，今年美國聯儲局將減息2次是「合理」的預測，認為當局可評估企業如何應對上升的關稅成本後，才決定減息的時機。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797949-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797949-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797949-20250329.htm)
 
 ---
