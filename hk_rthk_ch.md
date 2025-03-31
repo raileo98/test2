@@ -1,3 +1,26 @@
+# 一名中國公民在緬甸地震中遇難
+
+  
+
+緬甸大地震已發生接近三日，增至1700人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm)
+
+---
+
 # 滬深股市半日跌約1%至近2%　建行逆市升3%
 
 ![內地3大指數臨近中午跌幅擴大，半日跌約1%至近2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798225_1_20250331114321.jpg&q=85)
@@ -1411,30 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798146-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798146-20250330.htm)
-
----
-
-# 七欖散場前啟德有大量巴士及的士等候　有觀眾建議增加英文指示牌
-
-![有市民表示不清楚原來可以先預約的士等候，看到車站人龍，就選擇邊等的士邊預約。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798145_1_20250330212149.jpg&q=80)
-![當局安排多架特別巴士疏散人潮。(鄧鈞尤攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798145_2_20250330232410.jpg&q=80)
-  
-
-香港國際七人欖球賽落幕，啟德體育園主場館晚上有煙火匯演。位於青年運動場附近的特別巴士站和的士站，未完場已經有大量空巴士和空的士等候。有觀眾擔心散場後多人，因此提早離開，但沒想到的士站也會「打蛇餅」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm)
 
 ---

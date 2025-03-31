@@ -1,3 +1,26 @@
+# 一名中國公民在緬甸地震中遇難
+
+  
+
+緬甸大地震已發生接近三日，增至1700人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm)
+
+---
+
 # 內地3月官方製造業PMI升至50.5　創1年新高
 
 ![內地3月製造業採購經理指數升至50.5，創1年新高。國家統計局表示，內地經濟保持擴張。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798200_1_20250331094129.jpg&q=90)
@@ -1415,28 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm)
-
----
-
-# 博鰲亞洲論壇年會閉幕　大會稱堅定維護多邊主義
-
-  
-
-一連四天的博鰲亞洲論壇年會下午閉幕。博鰲亞洲論壇秘書長張軍表示，今年舉行50多場活動，亮點包括壓縮開幕式時間，會議形式更多樣化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm)
 
 ---

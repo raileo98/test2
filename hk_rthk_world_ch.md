@@ -1,3 +1,26 @@
+# 一名中國公民在緬甸地震中遇難
+
+  
+
+緬甸大地震已發生接近三日，增至1700人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm)
+
+---
+
 # 日本政府估算南海海槽大地震最多可致29萬人死亡
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm)
-
----
-
-# 緬甸中部大地震　逾10班香港往返泰國航班延誤
-
-![機管局表示，截至下午4時半，共有5班從泰國抵港，以及8班由香港往泰國的航班延誤。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798034_1_20250329191017.jpg&q=80)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。保安局表示，至今收到54名香港居民查詢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm)
 
 ---
