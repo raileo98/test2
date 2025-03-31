@@ -1,3 +1,27 @@
+# No extension in registering subdivided homes: govt
+
+![The government is hoping to introduce a bill on regulating compact homes in the latter half of 2025. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798272_1_20250331163658.jpg&q=80)
+  
+
+Officials have brushed off concerns that landlords might be hesitant about getting their dwellings declared as basic housing units under the planned new regulatory regime for subdivided flats, saying they would not consider extending a registration period.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm)
+
+---
+
 # HK 'remains art hub despite global market decline'
 
 ![Lindsay Dewar says declining sales at events such as Art Basel Hong Kong reflect a global trend. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798264_1_20250331161511.jpg&q=90)
@@ -1423,29 +1447,5 @@ Both the men’s and women’s squads for the SAR on Saturday kept their winning
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm)
-
----
-
-# 'Longer grace period doesn't mean landlords can relax'
-
-![The administration has introduced a countdown period to penalise landlords who enter new tenancy contracts for units that haven’t been certified. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797986_1_20250329102422.jpg&q=90)
-  
-
-Secretary for Housing Winnie Ho on Saturday said she hoped landlords of subdivided flats would take action to upgrade them, even though they now had a longer grace period to comply with new criteria.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm)
 
 ---

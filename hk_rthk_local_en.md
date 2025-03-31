@@ -1,3 +1,27 @@
+# No extension in registering subdivided homes: govt
+
+![The government is hoping to introduce a bill on regulating compact homes in the latter half of 2025. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798272_1_20250331163658.jpg&q=80)
+  
+
+Officials have brushed off concerns that landlords might be hesitant about getting their dwellings declared as basic housing units under the planned new regulatory regime for subdivided flats, saying they would not consider extending a registration period.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm)
+
+---
+
 # HK 'remains art hub despite global market decline'
 
 ![Lindsay Dewar says declining sales at events such as Art Basel Hong Kong reflect a global trend. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798264_1_20250331161511.jpg&q=90)
@@ -1433,29 +1457,5 @@ Secretary for Development Bernadette Linn said on Wednesday officials will soon 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797456-20250326.htm)
-
----
-
-# New A&E fee to bring timely treatment in urgent cases
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797455_1_20250326115900.jpg&q=80)
-  
-
-The Secretary for Health says the new fee for people seeking help at accident and emergency wards in public hospitals can result in quicker treatment for more serious cases.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm)
 
 ---

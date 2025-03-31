@@ -1,3 +1,26 @@
+# 外交部重申美日軍事安全合作不得針對第三國
+
+  
+
+在北京，外交部發言人郭嘉昆表示，美日軍事安全合作不得針對第三國，不得危害地區和平發展。美方以所謂「中國威脅」為藉口，挑動意識形態對立，鼓動分裂對抗，甚至煽動個別國家充當美國維護霸權的「炮灰」，地區國家應提高警惕，嚴加防範。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798275-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798275-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798275-20250331.htm)
+
+---
+
 # 外交部：將發揚中緬情誼　與緬方共克時艱共渡難關
 
 ![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798268_1_20250331161732.jpg&q=80)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797925-20250328.htm)
-
----
-
-# 國家市場監督管理總局稱對長和港口的交易協議將依法進行審查
-
-![國家市監局表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797921_1_20250328203658.jpg&q=70)
-  
-
-國家市場監督管理總局反壟斷二司負責人回覆大公文匯報查詢時表示，注意到長和將與貝萊德簽署巴拿馬港口的交易協議，將依法進行審查，保護市場公平競爭，維護社會公共利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm)
 
 ---

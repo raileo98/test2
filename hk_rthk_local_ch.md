@@ -1,3 +1,46 @@
+# 李家超稱重視發展人工智能　將加大投資私營市場資金
+
+  
+
+行政長官李家超說，總理的政府工作報告提出，要健全因地制宜發展新質生產力體制機制，完善推動人工智能等戰略產業發展政策和治理體系，人工智能是新一輪科技革命和產業變革的核心推動力量，也是發展新質生產力重要引擎，對全球經濟社會發展和人類文明進步影響深遠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm)
+
+---
+
+# 二月零售業總銷貨價值臨時估計為294億元　按年跌13%
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm)
+
+---
+
 # 特區救援隊展開於曼德勒兩個受災區域搜救
 
   
@@ -116,7 +159,7 @@
 
 # 黃澤林期待於啟德體育園作賽　今年目標爭取排名世界前100
 
-![黃澤林指以「搏盡無悔」的心態，希望用成績令其他球手對香港網球運動員改觀。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798253_1_20250331150941.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798253_1_20250331150941.jpg&q=90)
   
 
 香港網球「一哥」黃澤林表示，昨日到啟德體育園觀看七欖賽事，氣氛很好，自己很期待日後可以在這個香港主場進行網球比賽，相信到時會很震撼。
@@ -1394,56 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798099-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798099-20250330.htm)
-
----
-
-# 陳茂波稱本港續推盛事經濟　吸引更多高增值客帶動商機
-
-![陳茂波在巴塞爾藝術展上與來自歐洲的藝廊負責人交流。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798094_1_20250330113405.jpg&q=90)
-![陳茂波上周四在彭博家族辦公室峰會上出席對談環節。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798094_2_20250330113405.jpg&q=90)
-![陳茂波上周三在「裕澤香江」高峰論壇上致辭。（陳茂波網誌圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798094_3_20250330113405.jpg&q=90)
-  
-
-財政司司長陳茂波表示，連串大型盛事推動下，香港在「超級三月」吸引了大量訪客，截至上周五，本港在3月已接待超過340萬名旅客，按年增加約12%，包括約96萬名非內地旅客。酒店業界亦表示，旺區酒店最近入住率近九成，零售業界反映市面人流明顯增多，對生意有一定幫助。他說當局會繼續推動「盛事經濟」，特別是舉辦主題鮮明、具吸引力的大型活動、峰會和展會，吸引更多高增值商務旅客來港，為向行業帶來更多生意機會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm)
-
----
-
-# 香港母乳庫已收集約550公升母乳　開展第二階段服務
-
-![香港母乳庫已開展第二階段服務，向有臨床需要的初生嬰兒派發捐贈母乳。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798091_1_20250330103440.jpg&q=90)
-![新生兒深切治療部的醫護團隊會因應嬰兒的臨床情況處方捐贈母乳，並持續監察嬰兒的臨床情況。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798091_2_20250330103440.jpg&q=90)
-  
-
-醫管局宣布，香港母乳庫已開展第二階段服務，向有臨床需要的極早產及患有危疾的初生嬰兒派發母乳，以提供全面充足的營養，幫助他們預防感染及併發症，建立健康保護屏障。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798091-20250330.htm)
 
 ---

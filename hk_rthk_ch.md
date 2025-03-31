@@ -1,3 +1,93 @@
+# 證監會：2月底在港註冊的開放式基金型公司增至502間
+
+![證監會表示，至2月底，在港註冊的開放式基金型公司按年增加81%至502間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798274_1_20250331164619.jpg&q=90)
+  
+
+證監會表示，得悉為支持在香港設立開放式基金型公司及房地產信託基金，而推出的資助計劃，獲業界廣泛支持及參與。至2月底，在港註冊的開放式基金型公司按年增加81%至502間，合共430間開放式基金型公司及1隻房地產基金已受惠於資助計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798274-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798274-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798274-20250331.htm)
+
+---
+
+# 李家超稱重視發展人工智能　將加大投資私營市場資金
+
+  
+
+行政長官李家超說，總理的政府工作報告提出，要健全因地制宜發展新質生產力體制機制，完善推動人工智能等戰略產業發展政策和治理體系，人工智能是新一輪科技革命和產業變革的核心推動力量，也是發展新質生產力重要引擎，對全球經濟社會發展和人類文明進步影響深遠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm)
+
+---
+
+# 外交部重申美日軍事安全合作不得針對第三國
+
+  
+
+在北京，外交部發言人郭嘉昆表示，美日軍事安全合作不得針對第三國，不得危害地區和平發展。美方以所謂「中國威脅」為藉口，挑動意識形態對立，鼓動分裂對抗，甚至煽動個別國家充當美國維護霸權的「炮灰」，地區國家應提高警惕，嚴加防範。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798275-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798275-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798275-20250331.htm)
+
+---
+
+# 二月零售業總銷貨價值臨時估計為294億元　按年跌13%
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm)
+
+---
+
 # 外交部：將發揚中緬情誼　與緬方共克時艱共渡難關
 
 ![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798268_1_20250331161732.jpg&q=80)
@@ -283,7 +373,7 @@
 
 # 黃澤林期待於啟德體育園作賽　今年目標爭取排名世界前100
 
-![黃澤林指以「搏盡無悔」的心態，希望用成績令其他球手對香港網球運動員改觀。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798253_1_20250331150941.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798253_1_20250331150941.jpg&q=90)
   
 
 香港網球「一哥」黃澤林表示，昨日到啟德體育園觀看七欖賽事，氣氛很好，自己很期待日後可以在這個香港主場進行網球比賽，相信到時會很震撼。

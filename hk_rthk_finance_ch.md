@@ -1,3 +1,47 @@
+# 證監會：2月底在港註冊的開放式基金型公司增至502間
+
+![證監會表示，至2月底，在港註冊的開放式基金型公司按年增加81%至502間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798274_1_20250331164619.jpg&q=90)
+  
+
+證監會表示，得悉為支持在香港設立開放式基金型公司及房地產信託基金，而推出的資助計劃，獲業界廣泛支持及參與。至2月底，在港註冊的開放式基金型公司按年增加81%至502間，合共430間開放式基金型公司及1隻房地產基金已受惠於資助計劃。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798274-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798274-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798274-20250331.htm)
+
+---
+
+# 二月零售業總銷貨價值臨時估計為294億元　按年跌13%
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm)
+
+---
+
 # 恒指低收307點　3月升近1%　首季反彈逾15%
 
 ![恒生指數午後一度跌至23000點邊緣，最多曾跌逾420點，其後跌幅收窄，收市報23119點，跌307點，跌幅1.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798269_1_20250331162203.jpg&q=60)
@@ -1392,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797949-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797949-20250329.htm)
-
----
-
-# 美國密歇根大學3月消費者信心指數終值低於預期
-
-![美國密歇根大學消費者調查顯示，美國3月消費者信心指數終值為57，低過初值及預期的57.9。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797946_1_20250328230517.jpg&q=75)
-  
-
-美國密歇根大學消費者調查顯示，美國3月消費者信心指數終值為57，低過初值及預期的57.9，亦低於2月的64.7。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797946-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797946-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797946-20250328.htm)
-
----
-
-# 思捷環球：若下周一前無法刊發經審核年度業績　下周二起或停牌
-
-![思捷環球表示，若無法於下周一或之前刊發經審核的年度業績，股份將於下周二早上9時正起停牌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797945_1_20250328225355.jpg&q=90)
-  
-
-思捷環球公布，有可能延遲刊發去年的年度業績，若無法於下周一或之前刊發經審核的年度業績，股份將於下周二早上9時正起停牌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797945-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797945-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797945-20250328.htm)
 
 ---
