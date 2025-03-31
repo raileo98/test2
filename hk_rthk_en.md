@@ -1,3 +1,27 @@
+# Trump 'not joking' about bid for third term
+
+![Donald Trump chats with Secretary of Commerce Howard Lutnick, left, on board Marine One upon arrival at the White House on Sunday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798236_1_20250331125457.jpg&q=90)
+  
+
+President Donald Trump said “I’m not joking” about trying to serve a third term, the clearest indication he is considering ways to breach a constitutional barrier against continuing to lead the country after his second term ends at the beginning of 2029.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798236-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798236-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798236-20250331.htm)
+
+---
+
 # Duterte lawyer insists ICC 'has no jurisdiction'
 
 ![Friends and relatives of some of the thousands killed during former Philippine president Rodrigo Duterte's 'war on drugs' call for justice and his conviction by the International Criminal Court in Manila on Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798229_1_20250331121432.jpg&q=90)
@@ -1425,29 +1449,5 @@ There were winning starts for the Hong Kong, China men's and women's squads on F
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm)
-
----
-
-# Cathay flight to Bangkok turned back after quake
-
-![Cathay Pacific says other flights operated by the airline to and from Bangkok are expected to experience delays. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797916_1_20250328190210.jpg&q=90)
-  
-
-A Cathay Pacific flight to Bangkok was forced to return to Hong Kong after take-off on Friday after a deadly earthquake that hit Thailand and Myanmar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm)
 
 ---

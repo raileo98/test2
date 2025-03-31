@@ -1,3 +1,27 @@
+# Trump 'not joking' about bid for third term
+
+![Donald Trump chats with Secretary of Commerce Howard Lutnick, left, on board Marine One upon arrival at the White House on Sunday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798236_1_20250331125457.jpg&q=90)
+  
+
+President Donald Trump said “I’m not joking” about trying to serve a third term, the clearest indication he is considering ways to breach a constitutional barrier against continuing to lead the country after his second term ends at the beginning of 2029.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798236-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798236-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798236-20250331.htm)
+
+---
+
 # Duterte lawyer insists ICC 'has no jurisdiction'
 
 ![Friends and relatives of some of the thousands killed during former Philippine president Rodrigo Duterte's 'war on drugs' call for justice and his conviction by the International Criminal Court in Manila on Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798229_1_20250331121432.jpg&q=90)
@@ -1415,29 +1439,5 @@ European sales of Tesla electric cars dropped 49 percent in January and February
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797297-20250325.htm)
-
----
-
-# Chinese staff of US due diligence firm freed
-
-![Mintz Group's office in Beijing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797274_1_20250325111046.jpg&q=90)
-  
-
-Chinese authorities have released all employees of a US corporate due diligence firm detained in Beijing two years ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797274-20250325.htm)
 
 ---

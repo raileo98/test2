@@ -96,7 +96,7 @@
 
 # 私隱公署發指引清單　助機構制定僱員使用生成式AI政策
 
-![個人資料私隱專員公署發表《僱員使用生成式AI的指引清單》，協助機構制定僱員在工作時使用生成式AI的內部政策或指引。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798219_1_20250331124134.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798219_1_20250331124134.jpg&q=90)
   
 
 個人資料私隱專員公署發表《僱員使用生成式AI的指引清單》，協助機構制定僱員在工作時使用生成式AI的內部政策或指引，以及遵從《私隱條例》的相關規定。
