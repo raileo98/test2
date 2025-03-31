@@ -1,3 +1,27 @@
+# Data breach of 128,000 'due to system fix and neglect'
+
+![The personal data of nearly 128,000 people were compromised as a result of the breach. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798251_1_20250331144559.jpg&q=80)
+  
+
+The Office of the Privacy Commissioner for Personal Data says a data breach incident by ImagineX has led to nearly 128,000 people’s information being compromised.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm)
+
+---
+
 # Privacy watchdog issues AI guidelines for employees
 
 ![Privacy Commissioner Ada Chung says secure use of AI is an essential part of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798247_1_20250331141847.jpg&q=90)
@@ -1433,29 +1457,5 @@ The Hospital Authority has suspended the use of about 200 examination lights of 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm)
-
----
-
-# HK open Asian Cup final round qualifier with draw
-
-![The goalless draw ended the SAR's record seven-match winning run. Image courtesy of Hong Kong Football Association](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797379_2_20250326053556.jpg&q=90)
-  
-
-Hong Kong, China and hosts Singapore battled to a goalless draw on Tuesday night as they began the final round of their AFC Asian Cup football qualifying campaign.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm)
 
 ---

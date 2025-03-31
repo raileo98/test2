@@ -1,3 +1,51 @@
+# 韓股失守2500點　3月跌2%　首季升逾3%
+
+![首爾綜合指數收市報2481點，跌幅3%。3月累計跌2%，首季升3.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798252_1_20250331144731.jpg&q=85)
+  
+
+南韓股市低收3%，失守2500點關口。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798252-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798252-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798252-20250331.htm)
+
+---
+
+# 日股低收約4.1%　首季累計急挫10.7%
+
+![日經指數收市報35617點，跌1502點，跌幅4.05%，首季累計跌10.7%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798250_1_20250331144032.jpg&q=75)
+  
+
+日股急挫，日經指數低見35541點，創逾半年新低，收市報35617點，跌1502點，跌幅4.05%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798250-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798250-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798250-20250331.htm)
+
+---
+
 # 台股低收4.2%　跌穿21000點　創近8個月新低
 
 ![台股創近8個月新低，加權指數收報20695點，跌906點，跌幅4.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798246_1_20250331141206.jpg&q=90)
@@ -1398,53 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm)
-
----
-
-# 丘應樺稱全力建設香港成為區域知識產權貿易中心
-
-![丘應樺（前排右一）到訪一家內地著名的潮流文化娛樂公司，了解營運情況和內地知識產權產品的發展。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797932_1_20250328215451.jpg&q=85)
-  
-
-商務及經濟發展局局長丘應樺表示，特區政府正透過一系列措施保障創新和創意成果，推動知識產權貿易，並會加強知識產權人才培訓，全力建設香港成為區域知識產權貿易中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797932-20250328.htm)
-
----
-
-# 融創中國去年虧損擴大逾2.2倍
-
-![融創中國去年虧損257億元人民幣，按年擴大逾2.2倍。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797930_1_20250328210615.jpg&q=90)
-  
-
-融創中國去年虧損257億元人民幣，按年擴大逾2.2倍，主要是前年錄得境外債務重組收益。不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797930-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797930-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797930-20250328.htm)
 
 ---

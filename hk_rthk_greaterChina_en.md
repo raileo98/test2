@@ -22,6 +22,30 @@ The China National Offshore Oil Corporation (CNOOC) has discovered an oilfield i
 
 ---
 
+# HK sets aside HK$30 million for Myanmar quake victims
+
+![A 51-member SAR rescue team has arrived in Yangon. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798095_1_20250330110807.jpg&q=90)
+  
+
+Chief Executive John Lee says the SAR government has earmarked HK$30 million from the Disaster Relief Fund to help victims of the severe earthquake that struck central Myanmar on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm)
+
+---
+
 # China launches communication technology test satellite
 
 ![This launch was the 566th mission by a Long March carrier rocket. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798072_1_20250330024518.jpg&q=90)
@@ -1415,29 +1439,5 @@ Hong Kong’s sole delegate to the nation’s top legislature, Starry Lee, on Sa
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795830-20250315.htm)
-
----
-
-# 'New private sector law must be rolled out gradually'
-
-![Last week, legislators tabled the private economy promotion law, which is aimed at creating a fairer business environment. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795827_2_20250315105255.jpg&q=85)
-  
-
-An economist has said that the new law proposed by Beijing to protect and enhance the country's private sector could help address "grey areas" facing private business, but cautioned that it should be gradually rolled out to avoid stifling opportunities.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm](https://news.rthk.hk/rthk/en/component/k2/1795827-20250315.htm)
 
 ---

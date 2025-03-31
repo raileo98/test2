@@ -1,3 +1,27 @@
+# Data breach of 128,000 'due to system fix and neglect'
+
+![The personal data of nearly 128,000 people were compromised as a result of the breach. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798251_1_20250331144559.jpg&q=80)
+  
+
+The Office of the Privacy Commissioner for Personal Data says a data breach incident by ImagineX has led to nearly 128,000 people’s information being compromised.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm)
+
+---
+
 # Privacy watchdog issues AI guidelines for employees
 
 ![Privacy Commissioner Ada Chung says secure use of AI is an essential part of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798247_1_20250331141847.jpg&q=90)
@@ -1423,29 +1447,5 @@ US Vice President JD Vance accused Denmark on Friday of not having done enough t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm)
-
----
-
-# Police arrest three more in Yuen Long murder case
-
-![The case, in which a 24-year-old man was killed and a 28-year-old injured, will be heard at Tuen Mun Magistrates’ Court. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797963_1_20250329051008.jpg&q=90)
-  
-
-Police have arrested three more suspects linked to a January 22 murder and wounding case in Yuen Long.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797963-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797963-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797963-20250329.htm)
 
 ---
