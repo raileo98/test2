@@ -1,3 +1,27 @@
+# Retail sales slip again in February
+
+![Hong Kong's retail sales dropped by 13 percent year on year in February, partly due to high pre-festival spending from the Lunar New Year holiday falling in the same month last year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798288_1_20250331172638.jpg&q=90)
+  
+
+Hong Kong's retail sales suffered a notable decline last month, dropping by 13 percent year on year partially due to the different timing of the Lunar New Year holiday, according to official figures.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798288-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798288-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798288-20250331.htm)
+
+---
+
 # Hong Kong stocks close lower
 
 ![The Hang Seng Index finished down 1.3 percent at 23,119. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798291_1_20250331172815.jpg&q=55)
@@ -1413,29 +1437,5 @@ The Hang Seng Index gained 533.78 points, or 2.21 percent, to open at 24,679.35 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm)
-
----
-
-# US stocks rise ahead of Fed meeting
-
-![Wall Street expects the US central bank is widely expected to keep interest rates unchanged. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796161_1_20250318063244.jpg&q=85)
-  
-
-Wall Street stocks rose for the second straight day on Monday following better US retail sales data as markets awaited a Federal Reserve decision later this week.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796161-20250318.htm)
 
 ---

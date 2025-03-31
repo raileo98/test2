@@ -1,3 +1,27 @@
+# Retail sales slip again in February
+
+![Hong Kong's retail sales dropped by 13 percent year on year in February, partly due to high pre-festival spending from the Lunar New Year holiday falling in the same month last year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798288_1_20250331172638.jpg&q=90)
+  
+
+Hong Kong's retail sales suffered a notable decline last month, dropping by 13 percent year on year partially due to the different timing of the Lunar New Year holiday, according to official figures.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798288-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798288-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798288-20250331.htm)
+
+---
+
 # Hong Kong stocks close lower
 
 ![The Hang Seng Index finished down 1.3 percent at 23,119. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798291_1_20250331172815.jpg&q=55)
@@ -1420,29 +1444,5 @@ Tim Hardaway Jr scored 32 points to lead Detroit to a 133-122 victory over the E
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798019-20250329.htm)
-
----
-
-# Govt to step up national security education
-
-![Erick Tsang says the bureau aims to achieve patriotism everywhere. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798009_1_20250329133702.jpg&q=90)
-  
-
-Secretary for Constitutional and Mainland Affairs Erick Tsang said on Saturday the government will step up its promotion on national security education next month, to achieve patriotism everywhere.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm)
 
 ---
