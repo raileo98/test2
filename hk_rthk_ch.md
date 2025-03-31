@@ -1,3 +1,123 @@
+# 美元兌主要貨幣靠穩
+
+![美元兌主要貨幣靠穩。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798358_1_20250401060503.jpg&q=75)
+  
+
+美元兌主要貨幣靠穩。市場觀望美國總統特朗普周三公布的關稅措施。他在周日時透露，基本上會向所有國家徵收關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798358-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798358-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798358-20250401.htm)
+
+---
+
+# 期油價格創5周新高
+
+![紐約5月期油收市報每桶71.48美元，升2.12美元，升幅3.06%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798356_1_20250401055727.jpg&q=90)
+  
+
+原油期貨價格創5周新高。市場關注美國會否向俄羅斯徵收更多關稅；以及美國因為核問題攻擊伊朗的威脅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798356-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798356-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798356-20250401.htm)
+
+---
+
+# 紐約期金高收逾1%
+
+![金價升穿每盎士3100美元，再創新高。圍繞關稅的不確定性提升黃金的避險需求。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798355_1_20250401054858.jpg&q=90)
+  
+
+外圍金價升穿每盎士3100美元，再創新高。圍繞關稅的不確定性提升黃金的避險需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798355-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798355-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798355-20250401.htm)
+
+---
+
+# 歐洲主要股市低收近1%或以上
+
+![法蘭克福DAX指數報22163點，跌298點，跌幅1.33%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798353_1_20250401053127.jpg&q=90)
+  
+
+歐洲主要股市下跌。美國總統特朗普表示將對所有國家徵收關稅，加劇市場對全球經濟放緩的憂慮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798353-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798353-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798353-20250401.htm)
+
+---
+
+# 美股首季下跌　納指低收逾10%
+
+![美股收市個別發展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798352_1_20250401052630.jpg&q=90)
+  
+
+紐約股市個別發展，暫時擺脫美國關稅安排帶來的不確定因素。金融、必須消費品及能源相關股份表現較好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798352-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798352-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798352-20250401.htm)
+
+---
+
 # 曼谷倒塌大樓有鋼材樣本不符合標準　曼谷解除地震災區公告
 
 ![當局出動大型機械清理瓦礫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798351_1_20250401045552.jpg&q=85)
@@ -1317,125 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm)
-
----
-
-# 本港上月認可機構港元存款升2.1%　人民幣存款升4.9%
-
-![金管局公布，上月認可機構港元存款上升2.1%，香港人民幣存款上升4.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798283_1_20250331170731.jpg&q=80)
-  
-
-金管局公布，上月認可機構存款總額上升1.3%，港元存款及外幣存款分別上升2.1%及0.6%。今年首兩個月，存款總額及港元存款分別上升2.7%及3.4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm)
-
----
-
-# 議員憂業主減租誘劏房戶不舉報　何永賢：機制有助防止地下化問題
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798285_1_20250331183324.jpg&q=90)
-  
-
-立法會一個委員會討論簡樸房最新規管制度建議方案，財政司副司長黃偉綸表示，針對工廈違規劏房的執法，現時的過程較為迂迴，發展局和民青局將會在「簡樸房」規管制度通過後，很大可能分別就《建築物條例》和《床位寓所條例》作相適應的調整，並會在下一屆立法會會期處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798285-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798285-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798285-20250331.htm)
-
----
-
-# 會財局定下3年策略　倡導可持續發展及數碼化轉型
-
-![會財局發布2025年至2027年策略重點，包括倡導可持續發展、數碼化轉型及人才管理，促進會計專業發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798280_1_20250331170516.jpg&q=90)
-  
-
-會計及財務匯報局發布2025年至2027年策略重點，涉及4個核心支柱，包括監管、管治、發展、組織效能。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm)
-
----
-
-# 外匯基金上月總資產減少1029億港元
-
-![金管局公布，截至2月底，外匯基金總資產40090億港元，按月減少1029億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798278_1_20250331165401.jpg&q=90)
-  
-
-金管局公布，截至2月底，外匯基金總資產40090億港元，按月減少1029億元，其中，港元資產減少760億元，外幣資產減少269億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798278-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798278-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798278-20250331.htm)
-
----
-
-# 香港今個財政年度首11個月赤字923億元
-
-![政府公布，本港今個財政年度首11個月，亦即截至2月底，錄得赤字923億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798277_1_20250331165029.jpg&q=85)
-  
-
-政府公布，本港今個財政年度首11個月，亦即截至2月底，錄得赤字923億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm)
 
 ---

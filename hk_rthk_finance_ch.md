@@ -1,3 +1,123 @@
+# 美元兌主要貨幣靠穩
+
+![美元兌主要貨幣靠穩。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798358_1_20250401060503.jpg&q=75)
+  
+
+美元兌主要貨幣靠穩。市場觀望美國總統特朗普周三公布的關稅措施。他在周日時透露，基本上會向所有國家徵收關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798358-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798358-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798358-20250401.htm)
+
+---
+
+# 期油價格創5周新高
+
+![紐約5月期油收市報每桶71.48美元，升2.12美元，升幅3.06%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798356_1_20250401055727.jpg&q=90)
+  
+
+原油期貨價格創5周新高。市場關注美國會否向俄羅斯徵收更多關稅；以及美國因為核問題攻擊伊朗的威脅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798356-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798356-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798356-20250401.htm)
+
+---
+
+# 紐約期金高收逾1%
+
+![金價升穿每盎士3100美元，再創新高。圍繞關稅的不確定性提升黃金的避險需求。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798355_1_20250401054858.jpg&q=90)
+  
+
+外圍金價升穿每盎士3100美元，再創新高。圍繞關稅的不確定性提升黃金的避險需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798355-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798355-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798355-20250401.htm)
+
+---
+
+# 歐洲主要股市低收近1%或以上
+
+![法蘭克福DAX指數報22163點，跌298點，跌幅1.33%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798353_1_20250401053127.jpg&q=90)
+  
+
+歐洲主要股市下跌。美國總統特朗普表示將對所有國家徵收關稅，加劇市場對全球經濟放緩的憂慮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798353-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798353-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798353-20250401.htm)
+
+---
+
+# 美股首季下跌　納指低收逾10%
+
+![美股收市個別發展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798352_1_20250401052630.jpg&q=90)
+  
+
+紐約股市個別發展，暫時擺脫美國關稅安排帶來的不確定因素。金融、必須消費品及能源相關股份表現較好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798352-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798352-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798352-20250401.htm)
+
+---
+
 # 中日韓據報同意合作對沖美國關稅　中方希望進口日韓晶片產品
 
 ![中日韓經貿部長會議日前在首爾舉行。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798338_1_20250331232647.jpg&q=90)
@@ -1315,125 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798184-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798184-20250331.htm)
-
----
-
-# 韓股開市後跌逾2%
-
-![首爾綜合指數較早時報2500點，跌57點，跌幅2.24%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798182_1_20250331081651.jpg&q=90)
-  
-
-南韓股市下跌。首爾綜合指數較早時報2500點，跌57點，跌幅2.24%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798182-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798182-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798182-20250331.htm)
-
----
-
-# 日股開市後跌逾3%
-
-![日經指數較早時報35884點，跌1235點，跌幅3.33%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798181_1_20250331081517.jpg&q=75)
-  
-
-東京股市下挫。日經指數較早時報35884點，跌1235點，跌幅3.33%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798181-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798181-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798181-20250331.htm)
-
----
-
-# 長和：未有就全球電訊業務有關任何交易作出決定
-
-![長和稱到目前為止未有就全球電訊業務有關任何交易作出決定，目前並不確定會否進行任何交易。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798180_1_20250331080045.jpg&q=90)
-  
-
-長和發出公告，表示董事會知悉最近部分媒體報道，集團可能分拆全球電訊資產及業務。集團表示，不時接獲建議並探索及評估可供考慮的機會，藉以提升股東長遠價值，包括與集團全球電訊業務資產及運營相關的可能交易，包括分拆上市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798180-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798180-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798180-20250331.htm)
-
----
-
-# 施紀賢與特朗普通話討論英美貿易協議問題
-
-![施紀賢曾於2月訪問白宮，與特朗普會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798178_1_20250331071945.jpg&q=85)
-  
-
-英國首相施紀賢和美國總統特朗普通話，英國首相府說，兩人討論了有關英美貿易協議「富有成效」的談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm)
-
----
-
-# 代理：周末二手交投活躍　受一手帶動
-
-![地產代理表示，一手熱賣帶動本月不少屋苑二手交投亦按月上升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798173_1_20250331054025.jpg&q=85)
-  
-
-美聯物業表示，本港一手樓市氣氛持續向好攤薄二手購買力。本月最後一個周末十大二手指標屋苑錄得約12宗成交，按周持平，連續3周維持雙位數。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm)
 
 ---
