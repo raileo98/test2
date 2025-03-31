@@ -1,5 +1,6 @@
 # 意甲拉素與拖連奴賽和1:1　維羅納0:0帕爾馬
 
+![拉素（白衫）與拖連奴賽和1:1。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798363_1_20250401073812.jpg&q=90)
   
 
 意大利甲組足球聯賽，拉素與拖連奴賽和1:1。
