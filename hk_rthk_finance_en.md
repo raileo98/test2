@@ -1,3 +1,27 @@
+# US stocks recover from sell-off ahead of Trump tariffs
+
+![On Wall Street, the S&P 500 bounced into positive territory from a six-month low. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798357_1_20250401060041.jpg&q=90)
+  
+
+US stocks shook off some early gloom about Donald Trump's imminent tariff announcement to close mixed on Monday, with the S&P 500 bouncing into positive territory from a six-month low.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm)
+
+---
+
 # Retail sales slip again in February
 
 ![Hong Kong's retail sales dropped by 13 percent year on year in February, partly due to high pre-festival spending from the Lunar New Year holiday falling in the same month last year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798288_1_20250331172638.jpg&q=90)
@@ -1413,29 +1437,5 @@ Shares in Chinese EV giant BYD surged to a record high on Tuesday after it unvei
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796221-20250318.htm)
-
----
-
-# Tech stocks boost Hong Kong stocks in early trading
-
-![The Hang Seng Tech Index climbed over 3 percent shortly after the opening. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796191_1_20250318102346.jpg&q=65)
-  
-
-The Hang Seng Index gained 533.78 points, or 2.21 percent, to open at 24,679.35 on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796191-20250318.htm)
 
 ---

@@ -1,3 +1,27 @@
+# US stocks recover from sell-off ahead of Trump tariffs
+
+![On Wall Street, the S&P 500 bounced into positive territory from a six-month low. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798357_1_20250401060041.jpg&q=90)
+  
+
+US stocks shook off some early gloom about Donald Trump's imminent tariff announcement to close mixed on Monday, with the S&P 500 bouncing into positive territory from a six-month low.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm)
+
+---
+
 # China condemns 'economic coercion'
 
 ![Guo Jiakun says the State Administration for Market Regulation is aware of the deal between CK Hutchison and a BlackRock-led group and will conduct a review to ensure fair market competition. Photo courtesy of CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798334_1_20250331215247.jpg&q=90)
@@ -1417,29 +1441,5 @@ Japanese restaurant chain Sukiya will temporarily shut nearly all of its roughly
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798050-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798050-20250329.htm)
-
----
-
-# Chinese rescue team arrives in Myanmar
-
-![Beijing has dispatched a total of 82 rescuers to Myanmar. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798044_1_20250329201348.jpg&q=90)
-  
-
-A Chinese rescue team arrived at Yangon International Airport in Myanmar on Saturday to assist in disaster relief efforts.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm)
 
 ---
