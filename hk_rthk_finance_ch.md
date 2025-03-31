@@ -1,3 +1,123 @@
+# 港股季結日低開219點　恒指競價時段報23207點
+
+![港股在3月最後1個交易日下跌，恒生指數競價時段報23207點，跌219點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798198_1_20250331092445.jpg&q=40)
+  
+
+港股在3月最後1個交易日下跌，恒生指數競價時段報23207點，跌219點，跌幅0.94%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm)
+
+---
+
+# 人民幣兌美元中間價跌30點子
+
+![人民幣中間價報7.1782兌1美元，較上星期五中間價跌30點子，創近1星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798196_1_20250331091921.jpg&q=70)
+  
+
+人民幣中間價報7.1782兌1美元，較上星期五中間價跌30點子，創近1星期新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798196-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798196-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798196-20250331.htm)
+
+---
+
+# 財政部：積極支持國有大行補充核心一級資本更好服務實體經濟
+
+![財政部稱四大行資本補充工作將按照市場化、法治化原則穩妥推進。（財政部網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798191_1_20250331090137.jpg&q=90)
+  
+
+財政部表示，將發行首批特別國債5000億元人民幣，積極支持中國銀行、建設銀行、交通銀行、郵儲銀行補充核心一級資本，將按照市場化、法治化原則穩妥推進。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm)
+
+---
+
+# 台股開市後跌近3%
+
+![台灣加權指數較早時報21010點，跌592點，跌幅2.74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798192_1_20250331090749.jpg&q=90)
+  
+
+台灣股市下跌。加權指數較早時報21010點，跌592點，跌幅2.74%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798192-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798192-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798192-20250331.htm)
+
+---
+
+# 日本2月零售銷售遜預期　工業生產則勝預期
+
+![日本2月零售銷售按年增長1.4%，低於市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798184_1_20250331082634.jpg&q=90)
+  
+
+日本政府數據顯示，2月零售銷售按年增長1.4%，低於市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798184-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798184-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798184-20250331.htm)
+
+---
+
 # 韓股開市後跌逾2%
 
 ![首爾綜合指數較早時報2500點，跌57點，跌幅2.24%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798182_1_20250331081651.jpg&q=90)
@@ -70,6 +190,30 @@
 
 ---
 
+# 施紀賢與特朗普通話討論英美貿易協議問題
+
+![施紀賢曾於2月訪問白宮，與特朗普會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798178_1_20250331071945.jpg&q=85)
+  
+
+英國首相施紀賢和美國總統特朗普通話，英國首相府說，兩人討論了有關英美貿易協議「富有成效」的談判。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm)
+
+---
+
 # 代理：周末二手交投活躍　受一手帶動
 
 ![地產代理表示，一手熱賣帶動本月不少屋苑二手交投亦按月上升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798173_1_20250331054025.jpg&q=85)
@@ -139,6 +283,201 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798170-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798170-20250331.htm)
+
+---
+
+# 特朗普稱對普京非常生氣　威脅對俄石油徵收「二級關稅」
+
+![特朗普說，他對於普京最近批評烏克蘭總統澤連斯基的可信度等言論「非常生氣」和「惱火」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798171_1_20250331051441.jpg&q=90)
+  
+
+美國總統特朗普表示，他對俄羅斯總統普京「非常生氣」，如果因俄羅斯的原因導致俄烏不能達成停火協議，美國可能對俄羅斯石油買家徵收「二級關稅」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm)
+
+---
+
+# 特朗普：尋求第三度擔任總統並非開玩笑
+
+![特朗普接受訪問時談到尋求第三個任期問題。他說，不是開玩笑，但現在考慮這個問題為時尚早。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798167_1_20250331034814.jpg&q=90)
+  
+
+美國總統特朗普表示，尋求第三度擔任總統並非講笑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm)
+
+---
+
+# 七欖三日賽事共逾11萬名觀眾入場　創歷史新高
+
+![七欖賽事晚上結束，阿根廷男子隊和新西蘭女子隊分別奪標。啟德主場館舉行煙火表演。（啟德提育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798155_1_20250330235841.jpg&q=55)
+![不少觀眾繼續昔日傳統，悉心打扮，有人扮演著名韓劇的角色入場。（啟德體育園提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798155_2_20250331000034.jpg&q=85)
+  
+
+首次移師啟德體育園主場館舉行的香港國際七人欖球賽，三日賽事共有超過11萬名本地及海外觀眾參加，其中周日賽事有38352人入場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm)
+
+---
+
+# 羅淑佩：煙火匯演為今年七欖畫上完美句號
+
+![煙火匯演由旅發局支持，羅淑佩形容為七欖畫上完美句號。(旅遊發展局提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798152_1_20250330230856.jpg&q=90)
+![一連三日的七欖晚上閉幕。（旅遊發展局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798152_2_20250330230856.jpg&q=75)
+  
+
+首度移師啟德主場館舉行的香港國際七人欖球賽結束，三日合計有超過11萬人入場。行政長官李家超以及多名司局長今日到場觀賞賽事。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm)
+
+---
+
+# 七欖三日合計逾11萬人入場　運輸署稱離場整體交通大致暢順
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798147_1_20250330225152.jpg&q=90)
+  
+
+首度移師啟德體育園舉行的香港國際七人欖球賽結束，中國香港欖球總會表示，三日合計有超過11萬人入場，單計今日就有38352人入場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm)
+
+---
+
+# 七欖散場前啟德有大量巴士及的士等候　有觀眾建議增加英文指示牌
+
+![有市民表示不清楚原來可以先預約的士等候，看到車站人龍，就選擇邊等的士邊預約。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798145_1_20250330212149.jpg&q=80)
+![當局安排多架特別巴士疏散人潮。(鄧鈞尤攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798145_2_20250330232410.jpg&q=80)
+  
+
+香港國際七人欖球賽落幕，啟德體育園主場館晚上有煙火匯演。位於青年運動場附近的特別巴士站和的士站，未完場已經有大量空巴士和空的士等候。有觀眾擔心散場後多人，因此提早離開，但沒想到的士站也會「打蛇餅」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm)
+
+---
+
+# 七欖閉幕禮　啟德主場館上空發放約一分鐘煙火
+
+![四方看台上蓋共安裝28個發射點，以多角度發放25米高的十色煙火。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798143_2_20250330204644.jpg&q=90)
+  
+
+首度移師啟德主場館舉行的香港國際七人欖球賽晚上結束。在閉幕禮上，主場館上空發放約一分鐘煙火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm)
+
+---
+
+# 李家超：啟德主場館首場大賽圓滿達陣　期待未來盛事精彩不斷
+
+![李家超又到賽事首設、面積達7800呎的球迷村，形容如同嘉年華。(李家超社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798142_2_20250330215717.jpg&q=85)
+  
+
+首度移師啟德體育園、一連三日舉行的香港國際七人欖球賽晚上結束。到場觀賽的行政長官李家超表示，「香港七欖」已是本地旗艦盛事之一，推動香港成為國際體育盛事之都。啟德體育園主場館首場大賽已圓滿「達陣」，這個香港的新主場，一流設備已準備好，之後等待精彩體育、文化活動輪番上演，期待未來盛事精彩不斷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm)
 
 ---
 
@@ -1108,340 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm)
-
----
-
-# 農行去年多賺近5%　末期息每股0.1255元人民幣
-
-![農業銀行去年盈利2820.8億元人民幣，按年增長4.7%。派末期息每股0.1255元，派息比率維持於30%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797888_1_20250328165227.jpg&q=90)
-  
-
-農業銀行去年盈利2820.8億元人民幣，按年增長4.7%。派末期息每股0.1255元，全年派息比率維持於30%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797888-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797888-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797888-20250328.htm)
-
----
-
-# 港股低收152點　恒指本周累跌逾1%　連跌3星期
-
-![總結全星期，恒指累計跌幅1.1%，科指累跌近2.4%，兩者都連跌3星期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797881_1_20250328163236.jpg&q=85)
-  
-
-期指結算日，港股先高後低，恒生指數初段一度升近200點，其後最多轉跌逾320點，收市報23426點，跌152點，跌幅0.65%，主板成交額逾2296億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797881-20250328.htm)
-
----
-
-# 本港二手樓價反彈約0.3%　全面撤辣以來累跌逾5%
-
-![中原城市領先指數（CCL）最新報135.31點，按周升0.31%，結束2星期跌勢。年初至今，樓價累跌1.69%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797885_1_20250328164552.jpg&q=85)
-  
-
-反映本港二手樓價走勢的中原城市領先指數（CCL）最新報135.31點，按周升0.31%，結束2星期跌勢，但指數仍屬超過8年半以來次低，反映財政預算案放寬印花稅後首周，以及全國兩會召開後，恒指重上24000點的市況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797885-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797885-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797885-20250328.htm)
-
----
-
-# 易綱：轉型金融須國際合作　周小川：不能說賠錢亦要企業轉型
-
-![易綱（右）表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確。周小川（左）支持轉型金融過程中，需要注意價格機制。（陳韋丞攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797874_1_20250328163029.jpg&q=90)
-  
-
-人民銀行前行長，中國金融學會理事會會長易綱表示，轉型金融需要國際合作、非常明確標準及披露要求。他在博鰲亞洲論壇一個分論壇上表示，人行在制定轉型金融標準方面取得突破，使轉型金融變得明確，以防止綠「綠漂」，同時亦提供奬勵。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797874-20250328.htm)
-
----
-
-# 博鰲亞洲論壇年會閉幕　大會稱堅定維護多邊主義
-
-  
-
-一連四天的博鰲亞洲論壇年會下午閉幕。博鰲亞洲論壇秘書長張軍表示，今年舉行50多場活動，亮點包括壓縮開幕式時間，會議形式更多樣化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm)
-
----
-
-# 滬深股市連跌2星期　創業板指數本周累跌逾1%
-
-![滬深股市3大指數連跌2星期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797865_1_20250328151335.jpg&q=85)
-  
-
-內地股市低收近0.6%或以上，化工、風電設備、海工裝備股份下跌，貴金屬、創新藥、影視院線等股份造好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797865-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797865-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797865-20250328.htm)
-
----
-
-# 港交所：致力提供ESG框架和標準　幫助上市公司實現淨零排放
-
-![陳翊庭指出，港交所是較早強制要求披露氣候資訊的交易所之一。（李意琴攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797864_1_20250328145623.jpg&q=75)
-  
-
-港交所行政總裁陳翊庭表示，交易所一直致力提供ESG框架和標準，幫助上市公司實現淨零排放目標及吸引資金。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797864-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797864-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797864-20250328.htm)
-
----
-
-# 韓股急挫近2%收市　本周累跌逾3%
-
-![韓股本周累跌逾3%，結束3星期升勢。（KRX圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797862_1_20250328143936.jpg&q=90)
-  
-
-韓股急挫近2%收市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797862-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797862-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797862-20250328.htm)
-
----
-
-# 日股急挫近2%收市　本周累跌近1.5%
-
-![日股本周累跌近1.5%，結束2星期升勢。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797860_1_20250328143709.jpg&q=90)
-  
-
-日股急挫近2%收市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797860-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797860-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797860-20250328.htm)
-
----
-
-# 台股低收近1.6%　創逾半年新低
-
-![加權指數收報21602點，跌348點，跌幅1.59%，創逾半年新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797858_1_20250328142914.jpg&q=90)
-  
-
-台股收市創逾半年新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797858-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797858-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797858-20250328.htm)
-
----
-
-# 陳翊庭：海外投資者對中國資產興趣增加
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797853_1_20250328143307.jpg&q=85)
-  
-
-港交所行政總裁陳翊庭表示，今年初出席瑞士達沃斯經濟論壇，亦剛結束訪問美國，緊接亦會到北京、中東同歐洲做推廣。正在海南出席博鰲亞洲論壇的陳翊庭說，作為超級聯繫人，以及鞏固香港國際金融中心地位，要不時與世界各地朋友見面，介紹香港情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797853-20250328.htm)
-
----
-
-# 分析料配股集資潮持續　汽車及科技股集資壓力較大
-
-![溫傑預料大市仍未見今年高位，估計配股潮仍會持續，除了汽車股，科技股亦有較大的集資壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797852_1_20250328135547.jpg&q=90)
-  
-
-接連有汽車股配股集資，比亞迪股份、小米、蔚來在今個月合共集資逾901億元，當中，蔚來集資略多於40億元，遠低於其餘兩家車企的各自400幾億元，三家公司配股作價折讓幅度全部都不足一成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797852-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797852-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797852-20250328.htm)
-
----
-
-# 中國中信去年盈利升逾1%
-
-![中國中信去年盈利582億元人民幣，按年升1.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797847_1_20250328130950.jpg&q=90)
-  
-
-中國中信去年盈利582億元人民幣，按年升1.1%；末期息每股0.36元，全年股息0.55元，按年分別升7.5%及近7%。全年派息率27.5%，按年提高1.5個百分點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797847-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797847-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797847-20250328.htm)
-
----
-
-# 龍湖集團去年盈利跌19%　有息負債減至1763億元人民幣
-
-![龍湖集團截至去年底，有息負債較去年初減少163億元人民幣，減至1763.2億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797843_1_20250328125815.jpg&q=90)
-  
-
-龍湖集團去年盈利104億元人民幣，按年跌19%；撇除投資物業及其他衍生金融工具公平值變動影響，核心盈利69.7億元。末期期每股0.1元，可以以股代息，或者部分收取新股份及部分收取現金，全年派息0.32元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797843-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797843-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797843-20250328.htm)
 
 ---

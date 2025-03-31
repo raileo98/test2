@@ -1,3 +1,76 @@
+# Myanmar quake a top-level emergency, says WHO
+
+![Rescuers work at the site of a damaged building in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798187_1_20250331084335.jpg&q=45)
+  
+
+The World Health Organisation (WHO) said on Sunday that the Myanmar earthquake was a top-level emergency as it urgently sought US$8 million to save lives and prevent disease outbreaks over the next 30 days.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm)
+
+---
+
+# Actor Richard Chamberlain dies aged 90
+
+![Chamberlain rocketed to fame in the TV medical drama "Dr Kildare" and starred in the mini-series "Shogun" and "The Thorn Birds". File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798193_1_20250331091507.jpg&q=90)
+  
+
+Richard Chamberlain, the Emmy-nominated actor and 1960s heartthrob who rocketed to fame in the TV medical drama "Dr Kildare" and starred in the mini-series "Shogun" and "The Thorn Birds" has died at the age of 90, publicist Harlan Boll said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm)
+
+---
+
+# Rashford lifts Villa into FA Cup semis; Man City roll
+
+![Marcus Rashford bagged a brace for Aston Villa in the win. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798189_1_20250331085621.jpg&q=90)
+![Manchester City's Erling Haaland was substituted with an ankle injury in the 60th minute against Bournemouth. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798189_2_20250331085621.jpg&q=90)
+  
+
+Marcus Rashford's first goals for Aston Villa inspired a 3-0 win against Preston that sent his side into the FA Cup semi-finals for the first time in 10 years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm)
+
+---
+
 # Trump threatens Iran with bombings and tariffs
 
 ![In a telephone interview with NBC News, Trump said US and Iranian officials were talking but did not elaborate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798156_2_20250331075407.jpg&q=90)
@@ -1380,78 +1453,5 @@ The city's top graft-buster, Danny Woo, on Friday warned that authorities will t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm)
-
----
-
-# Myanmar junta chief courts region in rare Thai trip
-
-![Myanmar's military chief Min Aung Hlaing marks Armed Forces Day in Naypyidaw on Thursday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797854_1_20250328135837.jpg&q=90)
-  
-
-Myanmar's junta chief Min Aung Hlaing will join a regional leaders' summit in Thailand next week where he is seeking high-level bilateral meetings, said three sources with direct knowledge, in a rare visit to a Southeast Asian country since seizing power in coup that led to a civil war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm)
-
----
-
-# Dream run ends for remarkable Eala
-
-![Alexandra Eala holds her head high even after Jessica Pegula ends her remarkable Miami Open run at the Hard Rock Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797850_1_20250328133508.jpg&q=90)
-![Jessica Pegula has a word with Alexandra Eala after squeezing through to the finals. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797850_2_20250328133508.jpg&q=90)
-  
-
-Philippines sensation Alexandra Eala's remarkable run at the Miami Open came to a brave end with a three-set loss to Jessica Pegula in the semi-finals on Friday Hong Kong time.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797850-20250328.htm)
-
----
-
-# Rallies set as Duterte marks 80th birthday in prison
-
-![Relatives of drug war and extrajudicial killing victims in Quezon City watch a live telecast of the initial appearance of Rodrigo Duterte at the International Criminal Court in the Hague. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797846_1_20250328130849.jpg&q=80)
-  
-
-Family and supporters of former Philippine president Rodrigo Duterte will rally on Friday to mark his 80th birthday and protest his detention in The Hague on a charge of crimes against humanity.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm)
 
 ---

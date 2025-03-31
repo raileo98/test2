@@ -1,3 +1,51 @@
+# Myanmar quake a top-level emergency, says WHO
+
+![Rescuers work at the site of a damaged building in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798187_1_20250331084335.jpg&q=45)
+  
+
+The World Health Organisation (WHO) said on Sunday that the Myanmar earthquake was a top-level emergency as it urgently sought US$8 million to save lives and prevent disease outbreaks over the next 30 days.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm)
+
+---
+
+# Actor Richard Chamberlain dies aged 90
+
+![Chamberlain rocketed to fame in the TV medical drama "Dr Kildare" and starred in the mini-series "Shogun" and "The Thorn Birds". File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798193_1_20250331091507.jpg&q=90)
+  
+
+Richard Chamberlain, the Emmy-nominated actor and 1960s heartthrob who rocketed to fame in the TV medical drama "Dr Kildare" and starred in the mini-series "Shogun" and "The Thorn Birds" has died at the age of 90, publicist Harlan Boll said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm)
+
+---
+
 # Trump threatens Iran with bombings and tariffs
 
 ![In a telephone interview with NBC News, Trump said US and Iranian officials were talking but did not elaborate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798156_2_20250331075407.jpg&q=90)
@@ -1391,53 +1439,5 @@ President Donald Trump's plan to revitalise the US shipbuilding industry is like
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm)
-
----
-
-# Procedural matters cloud first day of Depardieu trial
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797251_1_20250325085514.jpg&q=90)
-  
-
-The tense first day of the trial of French actor Gerard Depardieu over sexual assault allegations ended on Monday, with both sides trading jabs on their approach to the legal procedure.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797251-20250325.htm)
-
----
-
-# Venezuelan oil tariffs condemned as 'illegal'
-
-![An oil tanker near the Venezuelan port of La Salina. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797246_1_20250325082707.jpg&q=90)
-  
-
-The Foreign Ministry in Beijing on Tuesday called on the United States to stop interfering in Venezuela's internal affairs and abolish the "illegal" unilateral sanctions on the South American country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797246-20250325.htm)
 
 ---

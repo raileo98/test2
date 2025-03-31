@@ -1,5 +1,197 @@
+# 中國救援隊再於曼德勒廢墟救出被埋者　獲救女子生命體徵良好
+
+  
+
+中國救援力量在緬甸地震災區一再救出幾名被困人員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm)
+
+---
+
+# 港股季結日低開219點　恒指競價時段報23207點
+
+![港股在3月最後1個交易日下跌，恒生指數競價時段報23207點，跌219點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798198_1_20250331092445.jpg&q=40)
+  
+
+港股在3月最後1個交易日下跌，恒生指數競價時段報23207點，跌219點，跌幅0.94%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm)
+
+---
+
+# 美國針對TikTok激發網民加入小紅書　反助中外民眾交流
+
+  
+
+美國前總統拜登任內要求短片分享平台TikTok的美國業務，要脫離中國母公司字節跳動，否則禁用；到總統特朗普上任，將有關行政命令暫緩至4月初。當時衍生出被形容為「TikTok難民」的外國人士，轉用中國社交平台「小紅書」。不少內地網民趁機拍攝及上載英語短片，吸引海外用戶注意。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798197-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798197-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798197-20250331.htm)
+
+---
+
+# 人民幣兌美元中間價跌30點子
+
+![人民幣中間價報7.1782兌1美元，較上星期五中間價跌30點子，創近1星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798196_1_20250331091921.jpg&q=70)
+  
+
+人民幣中間價報7.1782兌1美元，較上星期五中間價跌30點子，創近1星期新低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798196-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798196-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798196-20250331.htm)
+
+---
+
+# 西藏近年著力健全養老服務　提供上門護理及推出多元興趣班
+
+![西藏的老年人日間照料中心提供免費的藏語及漢語朗誦班。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798195_1_20250331092435.jpg&q=85)
+![中心主任索朗次旦表示，老年人對養老服務需求增加，不僅限於日常起居。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798195_2_20250331092435.jpg&q=85)
+  
+
+今年是西藏自治區成立60周年，隨著中國人口老化問題加劇，西藏自治區政府近年亦著力健全養老服務體系，發展銀髮經濟，當地透過政商民合作，至今建成65所綜合型老年人日間照料中心，為60歲以上長者提供集養護、醫療、教育、娛樂、創業於一身的服務，單日收費100元人民幣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798195-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798195-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798195-20250331.htm)
+
+---
+
+# 財政部：積極支持國有大行補充核心一級資本更好服務實體經濟
+
+![財政部稱四大行資本補充工作將按照市場化、法治化原則穩妥推進。（財政部網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798191_1_20250331090137.jpg&q=90)
+  
+
+財政部表示，將發行首批特別國債5000億元人民幣，積極支持中國銀行、建設銀行、交通銀行、郵儲銀行補充核心一級資本，將按照市場化、法治化原則穩妥推進。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm)
+
+---
+
+# 台股開市後跌近3%
+
+![台灣加權指數較早時報21010點，跌592點，跌幅2.74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798192_1_20250331090749.jpg&q=90)
+  
+
+台灣股市下跌。加權指數較早時報21010點，跌592點，跌幅2.74%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798192-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798192-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798192-20250331.htm)
+
+---
+
+# 日本2月零售銷售遜預期　工業生產則勝預期
+
+![日本2月零售銷售按年增長1.4%，低於市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798184_1_20250331082634.jpg&q=90)
+  
+
+日本政府數據顯示，2月零售銷售按年增長1.4%，低於市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798184-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798184-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798184-20250331.htm)
+
+---
+
 # 中國救援隊再於緬甸災區救出被困者　獲救幼童生命體徵良好
 
+![中國救援力量較早時救出一名被埋超過60小時的孕婦。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798186_1_20250331091206.jpg&q=85)
   
 
 中國救援隊在緬甸地震災區的廢墟中，再救出被困人員。
@@ -1251,197 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm)
-
----
-
-# 南韓當局稱慶尚道山火明火已撲滅　事故疑犯被立案調查
-
-![南韓當局表示，這次山火造成的傷亡和財產損失規模前所未有。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798117_1_20250330160656.jpg&q=45)
-  
-
-南韓中央災難安全對策本部表示，始於本月21日的慶尚道地區山火，明火已全部被撲滅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798117-20250330.htm)
-
----
-
-# 東電結束福島處理水第十一次排海　氚濃度無異常
-
-![日本東京電力公司公布，福島第一核電站第11次核污水排海作業已結束。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798115_1_20250330173357.jpg&q=75)
-  
-
-日本東京電力公司公布，福島第一核電站第11次核污水排海作業已結束，是本財政年度的最後一次，共排放約7800噸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798115-20250330.htm)
-
----
-
-# 七欖賽事最後一日　啟德美食海灣有檔主推折扣吸客
-
-![有熟食攤檔負責人表示，天氣等有利因素加持，今日銷情較過去兩日好。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798114_1_20250330160728.jpg&q=80)
-  
-
-啟德體育園七人欖球賽最後一日，主場館旁的「美食海灣嘉年華」有檔主稱生意未及預期，有檔主計劃推折扣吸客。本台記者曾向主場館部分閘口工作人員查詢「美食海灣」位置，他們均表示不清楚。亦有部分市民向他們查詢，他們均表示不清楚。由啟德主場館沿路走，要到青年運動場位置，才有「美食海灣」相關指示標示。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798114-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798114-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798114-20250330.htm)
-
----
-
-# 緬甸領導人敏昂萊慰問中國雲南救援醫療隊　感謝協助救援
-
-![救援人員在內比都一間醫院的倒塌樓層下救出一名長者。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798113_1_20250330153825.jpg&q=90)
-  
-
-緬甸領導人敏昂萊在首都內比都一間醫院，慰問中國雲南救援醫療隊成員，並感謝醫療隊在震後第一時間到緬甸救援。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm)
-
----
-
-# 渤海海峽黃海北部執行軍事任務　大連海事局發警告禁止駛入
-
-![渤海海峽黃海北部執行軍事任務　大連海事局發警告禁止駛入](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798112_1_20250330153043.jpg&q=90)
-  
-
-大連海事局發布航行警告，今日下午4時至下月13日下午4時，渤海海峽黃海北部部分海域執行軍事任務，禁止船隻駛入。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm)
-
----
-
-# 中醫醫院辦招聘會　醫衞局稱反應熱烈彰顯社會重視
-
-![醫務衞生局表示，香港中醫醫院昨日舉辦招聘活動，招聘醫院行政及前線員工，公眾反應熱烈。（醫務衞生局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798110_1_20250330154337.jpg&q=90)
-  
-
-醫務衞生局表示，香港中醫醫院昨日舉辦招聘活動，招聘醫院行政及前線員工，公眾反應熱烈，彰顯社會對中醫藥事業的重視。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798110-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798110-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798110-20250330.htm)
-
----
-
-# 運輸署料七欖閉幕較多觀眾同時間離場　籲盡量乘搭港鐵
-
-![運輸署表示，預計今晚較多觀眾可能同一時間離場，呼籲觀眾盡量乘搭港鐵。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798109_1_20250330154304.jpg&q=80)
-  
-
-一連3日國際七人欖球賽最後一天在啟德主場館舉行，晚上約7時舉行閉幕式，啟德體育園表示，主場館2樓和5樓均為理想觀賞地點，呼籲觀眾經F和H閘口乘搭電梯到達5樓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm)
-
----
-
-# 赫格塞斯：日本是遏制中國不可或缺的夥伴
-
-![赫格塞斯在東京與日本防衛大臣中谷元會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798108_1_20250330144518.jpg&q=90)
-  
-
-美國國防部長赫格塞斯表示，日本是遏制中國不可或缺的夥伴，協助華府在包括台灣海峽等地區建立可靠的阻嚇力量。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm)
 
 ---

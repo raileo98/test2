@@ -1,5 +1,101 @@
+# 中國救援隊再於曼德勒廢墟救出被埋者　獲救女子生命體徵良好
+
+  
+
+中國救援力量在緬甸地震災區一再救出幾名被困人員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm)
+
+---
+
+# 美國針對TikTok激發網民加入小紅書　反助中外民眾交流
+
+  
+
+美國前總統拜登任內要求短片分享平台TikTok的美國業務，要脫離中國母公司字節跳動，否則禁用；到總統特朗普上任，將有關行政命令暫緩至4月初。當時衍生出被形容為「TikTok難民」的外國人士，轉用中國社交平台「小紅書」。不少內地網民趁機拍攝及上載英語短片，吸引海外用戶注意。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798197-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798197-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798197-20250331.htm)
+
+---
+
+# 西藏近年著力健全養老服務　提供上門護理及推出多元興趣班
+
+![西藏的老年人日間照料中心提供免費的藏語及漢語朗誦班。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798195_1_20250331092435.jpg&q=85)
+![中心主任索朗次旦表示，老年人對養老服務需求增加，不僅限於日常起居。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798195_2_20250331092435.jpg&q=85)
+  
+
+今年是西藏自治區成立60周年，隨著中國人口老化問題加劇，西藏自治區政府近年亦著力健全養老服務體系，發展銀髮經濟，當地透過政商民合作，至今建成65所綜合型老年人日間照料中心，為60歲以上長者提供集養護、醫療、教育、娛樂、創業於一身的服務，單日收費100元人民幣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798195-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798195-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798195-20250331.htm)
+
+---
+
+# 財政部：積極支持國有大行補充核心一級資本更好服務實體經濟
+
+![財政部稱四大行資本補充工作將按照市場化、法治化原則穩妥推進。（財政部網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798191_1_20250331090137.jpg&q=90)
+  
+
+財政部表示，將發行首批特別國債5000億元人民幣，積極支持中國銀行、建設銀行、交通銀行、郵儲銀行補充核心一級資本，將按照市場化、法治化原則穩妥推進。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm)
+
+---
+
 # 中國救援隊再於緬甸災區救出被困者　獲救幼童生命體徵良好
 
+![中國救援力量較早時救出一名被埋超過60小時的孕婦。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798186_1_20250331091206.jpg&q=85)
   
 
 中國救援隊在緬甸地震災區的廢墟中，再救出被困人員。
@@ -1340,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm)
-
----
-
-# 習近平會見孟加拉臨時政府首席顧問尤努斯
-
-![習近平在北京人民大會堂會見尤努斯。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797857_1_20250328142251.jpg&q=90)
-  
-
-國家主席習近平在北京人民大會堂會見孟加拉臨時政府首席顧問尤努斯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797857-20250328.htm)
-
----
-
-# 赫格塞思：美菲必須並肩作戰　共同應對來自中國的威脅
-
-![赫格塞思重申美國對與菲律賓共同防禦條約的堅定承諾。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797849_1_20250328131740.jpg&q=90)
-  
-
-到訪菲律賓的美國國防部長赫格塞思，重申美國對與菲律賓共同防禦條約的堅定承諾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797849-20250328.htm)
-
----
-
-# 周小川：不能即使賠錢亦要進行轉型金融相關工作
-
-![周小川表示，不能說即使賠錢，亦要企業進行轉型金融相關工作，否則會帶來金融系統不穩定。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797844_1_20250328152146.jpg&q=90)
-  
-
-人民銀行前行長易綱表示，轉型金融需要國際合作，及非常明確標準和披露要求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797844-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797844-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797844-20250328.htm)
-
----
-
-# 習近平冀外資企業打消疑慮　放手來中國發展分享中國發展機遇
-
-![國家主席習近平在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797842_1_20250328130113.jpg&q=85)
-  
-
-國家主席習近平在北京人民大會堂會見國際工商界代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm)
 
 ---

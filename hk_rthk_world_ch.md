@@ -1,5 +1,29 @@
+# 中國救援隊再於曼德勒廢墟救出被埋者　獲救女子生命體徵良好
+
+  
+
+中國救援力量在緬甸地震災區一再救出幾名被困人員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm)
+
+---
+
 # 中國救援隊再於緬甸災區救出被困者　獲救幼童生命體徵良好
 
+![中國救援力量較早時救出一名被埋超過60小時的孕婦。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798186_1_20250331091206.jpg&q=85)
   
 
 中國救援隊在緬甸地震災區的廢墟中，再救出被困人員。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm)
-
----
-
-# 鄧炳強：特區救援隊汲取土耳其救援經驗　第二梯隊準備好可支援
-
-![救援隊共51人，包括41名消防、4名保安局人員、兩名入境處人員、醫管局兩名醫生和兩名護士。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798020_2_20250329160034.jpg&q=90)
-  
-
-特區政府派出51人組成的救援隊到緬甸，協助地震災區的搜救工作。保安局局長鄧炳強說，昨日發生大地震後，救援隊已經隨時候命，今日正式收到緬甸駐港總領事館要求後，人員在很短時間就到機場出發。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm)
 
 ---

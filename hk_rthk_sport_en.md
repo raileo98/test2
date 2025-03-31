@@ -1,3 +1,28 @@
+# Rashford lifts Villa into FA Cup semis; Man City roll
+
+![Marcus Rashford bagged a brace for Aston Villa in the win. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798189_1_20250331085621.jpg&q=90)
+![Manchester City's Erling Haaland was substituted with an ankle injury in the 60th minute against Bournemouth. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798189_2_20250331085621.jpg&q=90)
+  
+
+Marcus Rashford's first goals for Aston Villa inspired a 3-0 win against Preston that sent his side into the FA Cup semi-finals for the first time in 10 years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm)
+
+---
+
 # Mitchell magic as Cavs down Clippers to bag 60th win
 
 ![Donovan Mitchell scored 24 points in the Cavs' win over the Los Angeles Clippers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798179_1_20250331075136.jpg&q=90)
@@ -1423,29 +1448,5 @@ A "gobsmacked" Lewis Hamilton obliterated the Shanghai lap record to take a stun
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796819-20250321.htm)
-
----
-
-# Diaz Hernandez takes first gold in Nanjing
-
-![Andy Diaz Hernandez celebrates after winning the men’s triple jump final during the Indoor World Athletics Championships in Nanjing. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796776_1_20250321140117.jpg&q=85)
-  
-
-Italy's Olympic bronze medallist Andy Diaz Hernandez produced a stunning early effort of 17.8 metres to capture the triple jump gold medal in the first final of the world indoor athletics championships on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796776-20250321.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 港股季結日低開219點　恒指競價時段報23207點
+
+![港股在3月最後1個交易日下跌，恒生指數競價時段報23207點，跌219點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798198_1_20250331092445.jpg&q=40)
+  
+
+港股在3月最後1個交易日下跌，恒生指數競價時段報23207點，跌219點，跌幅0.94%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm)
+
+---
+
 # 代理：周末二手交投活躍　受一手帶動
 
 ![地產代理表示，一手熱賣帶動本月不少屋苑二手交投亦按月上升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798173_1_20250331054025.jpg&q=85)
@@ -1425,29 +1449,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm)
-
----
-
-# 勞工顧問委員會僱員代表補選　香港海員工會副主席楊開强當選
-
-![勞工顧問委員會僱員代表補選完成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798031_1_20250329180346.jpg&q=80)
-  
-
-勞工顧問委員會僱員代表補選完成，香港海員工會副主席楊開强當選。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798031-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798031-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798031-20250329.htm)
 
 ---
