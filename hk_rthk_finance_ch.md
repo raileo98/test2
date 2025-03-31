@@ -1,3 +1,75 @@
+# 韓股開市後跌逾2%
+
+![首爾綜合指數較早時報2500點，跌57點，跌幅2.24%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798182_1_20250331081651.jpg&q=90)
+  
+
+南韓股市下跌。首爾綜合指數較早時報2500點，跌57點，跌幅2.24%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798182-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798182-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798182-20250331.htm)
+
+---
+
+# 日股開市後跌逾3%
+
+![日經指數較早時報35884點，跌1235點，跌幅3.33%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798181_1_20250331081517.jpg&q=75)
+  
+
+東京股市下挫。日經指數較早時報35884點，跌1235點，跌幅3.33%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798181-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798181-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798181-20250331.htm)
+
+---
+
+# 長和：未有就全球電訊業務有關任何交易作出決定
+
+![長和稱到目前為止未有就全球電訊業務有關任何交易作出決定，目前並不確定會否進行任何交易。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798180_1_20250331080045.jpg&q=90)
+  
+
+長和發出公告，表示董事會知悉最近部分媒體報道，集團可能分拆全球電訊資產及業務。集團表示，不時接獲建議並探索及評估可供考慮的機會，藉以提升股東長遠價值，包括與集團全球電訊業務資產及運營相關的可能交易，包括分拆上市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798180-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798180-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798180-20250331.htm)
+
+---
+
 # 代理：周末二手交投活躍　受一手帶動
 
 ![地產代理表示，一手熱賣帶動本月不少屋苑二手交投亦按月上升。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798173_1_20250331054025.jpg&q=85)
@@ -1371,77 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797843-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797843-20250328.htm)
-
----
-
-# 港股下午初段跌逾百點
-
-![恒生指數較早時報23409點，跌169點，跌幅0.72%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797848_1_20250328131339.jpg&q=40)
-  
-
-港股下午初段偏軟，恒生指數較早時報23409點，跌169點，跌幅0.72%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797848-20250328.htm)
-
----
-
-# 周小川：不能即使賠錢亦要進行轉型金融相關工作
-
-![周小川表示，不能說即使賠錢，亦要企業進行轉型金融相關工作，否則會帶來金融系統不穩定。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797844_1_20250328152146.jpg&q=90)
-  
-
-人民銀行前行長易綱表示，轉型金融需要國際合作，及非常明確標準和披露要求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797844-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797844-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797844-20250328.htm)
-
----
-
-# 習近平冀外資企業打消疑慮　放手來中國發展分享中國發展機遇
-
-![國家主席習近平在北京人民大會堂會見國際工商界代表。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797842_1_20250328130113.jpg&q=85)
-  
-
-國家主席習近平在北京人民大會堂會見國際工商界代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm)
 
 ---

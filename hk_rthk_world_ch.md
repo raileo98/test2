@@ -1,3 +1,50 @@
+# 中國救援隊再於緬甸災區救出被困者　獲救幼童生命體徵良好
+
+  
+
+中國救援隊在緬甸地震災區的廢墟中，再救出被困人員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm)
+
+---
+
+# 特朗普稱烏克蘭欲退出礦產協議談判　又指烏克蘭不會成為北約成員
+
+![特朗普說烏克蘭想成為北約成員，但不會成真，澤連斯基明白這一點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798183_1_20250331082526.jpg&q=90)
+  
+
+美國總統特朗普表示，烏克蘭總統澤連斯基想退出烏方與美方之間的礦產協議談判，警告如烏方真是退出，澤連斯基將面對很大的問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798183-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798183-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798183-20250331.htm)
+
+---
+
 # 施紀賢與特朗普通話討論英美貿易協議問題
 
 ![施紀賢曾於2月訪問白宮，與特朗普會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798178_1_20250331071945.jpg&q=85)
@@ -1391,54 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm)
-
----
-
-# 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
-
-![李家超與救援隊成員握手，又提醒他們要注意自身安全。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_2_20250329154656.jpg&q=85)
-![李家超形容，救援隊無懼挑戰，在救急扶危的大前提下，展現專業精神。（保安局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_3_20250329160247.jpg&q=85)
-  
-
-特區政府派出保安局、消防處、入境處和醫管局人員組成的51人救援隊前往緬甸，協助地震災區的搜救工作。行政長官李家超將區旗授予救援隊代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm)
-
----
-
-# 緬甸大地震逾千人死亡　中方決定提供1億元人民幣緊急救災援助
-
-![在緬甸曼德勒，救援人員帶備儀器在倒塌建築物的瓦礫中搜救。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798017_1_20250329152018.jpg&q=90)
-  
-
-緬甸中部7.7級地震，增至超過1千人死亡，2300多人受傷。領導人敏昂萊乘坐直升機抵達災情嚴重的曼德勒省視察。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798017-20250329.htm)
 
 ---

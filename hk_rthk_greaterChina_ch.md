@@ -1,3 +1,26 @@
+# 中國救援隊再於緬甸災區救出被困者　獲救幼童生命體徵良好
+
+  
+
+中國救援隊在緬甸地震災區的廢墟中，再救出被困人員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm)
+
+---
+
 # 中國救援隊在緬甸曼德勒救出一名被困60小時女子
 
 ![中國救援隊在緬甸曼德勒市的長城飯店救援。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798163_1_20250331023225.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797842-20250328.htm)
-
----
-
-# 習近平：冀外資企業不盲從各種干擾全球產供鏈安全穩定行為
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797840_1_20250328124654.jpg&q=80)
-  
-
-國家主席習近平上午在北京人民大會堂會見國際工商界代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797840-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797840-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797840-20250328.htm)
 
 ---

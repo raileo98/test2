@@ -1,3 +1,122 @@
+# 中國救援隊再於緬甸災區救出被困者　獲救幼童生命體徵良好
+
+  
+
+中國救援隊在緬甸地震災區的廢墟中，再救出被困人員。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm)
+
+---
+
+# 特朗普稱烏克蘭欲退出礦產協議談判　又指烏克蘭不會成為北約成員
+
+![特朗普說烏克蘭想成為北約成員，但不會成真，澤連斯基明白這一點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798183_1_20250331082526.jpg&q=90)
+  
+
+美國總統特朗普表示，烏克蘭總統澤連斯基想退出烏方與美方之間的礦產協議談判，警告如烏方真是退出，澤連斯基將面對很大的問題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798183-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798183-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798183-20250331.htm)
+
+---
+
+# 韓股開市後跌逾2%
+
+![首爾綜合指數較早時報2500點，跌57點，跌幅2.24%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798182_1_20250331081651.jpg&q=90)
+  
+
+南韓股市下跌。首爾綜合指數較早時報2500點，跌57點，跌幅2.24%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798182-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798182-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798182-20250331.htm)
+
+---
+
+# 日股開市後跌逾3%
+
+![日經指數較早時報35884點，跌1235點，跌幅3.33%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798181_1_20250331081517.jpg&q=75)
+  
+
+東京股市下挫。日經指數較早時報35884點，跌1235點，跌幅3.33%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798181-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798181-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798181-20250331.htm)
+
+---
+
+# 長和：未有就全球電訊業務有關任何交易作出決定
+
+![長和稱到目前為止未有就全球電訊業務有關任何交易作出決定，目前並不確定會否進行任何交易。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798180_1_20250331080045.jpg&q=90)
+  
+
+長和發出公告，表示董事會知悉最近部分媒體報道，集團可能分拆全球電訊資產及業務。集團表示，不時接獲建議並探索及評估可供考慮的機會，藉以提升股東長遠價值，包括與集團全球電訊業務資產及運營相關的可能交易，包括分拆上市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798180-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798180-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798180-20250331.htm)
+
+---
+
 # 施紀賢與特朗普通話討論英美貿易協議問題
 
 ![施紀賢曾於2月訪問白宮，與特朗普會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798178_1_20250331071945.jpg&q=85)
@@ -1324,125 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm)
-
----
-
-# 泰國曼谷17人於緬甸大地震死亡　83人仍失蹤
-
-![救援人員持續在倒塌的建築物搜索。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798107_1_20250330142843.jpg&q=45)
-  
-
-泰國曼谷市政府表示，截至當地今早6時，緬甸中部大地震已造成曼谷17人死亡，32人受傷，83人仍然失蹤。當局正加緊搜救工作，並緊急撥款2億泰銖救災。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm)
-
----
-
-# 羅淑佩稱已要求啟德體育園加強食品供應　排隊情況有改善
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798106_1_20250330150358.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩到啟德體育園主場館，視察香港國際七人欖球賽第三日賽事。她提到，自己昨日需要排隊一段時間才買到漢堡包，今日見到啟德體育園加強食品供應，排隊情況有改善。整體而言，她認為，三日賽事每日都有進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798106-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798106-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798106-20250330.htm)
-
----
-
-# 緬甸反對軍政府武裝提出停火兩星期以便救災工作
-
-![緬甸地震增至1600多人死亡，反軍政府武裝提出停火以便救災。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798105_1_20250330142828.jpg&q=90)
-  
-
-緬甸地震增至1600多人死亡，3400多人受傷，百多人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798105-20250330.htm)
-
----
-
-# 文憑試考生壓力增料與競爭加劇有關　學友社籲勿將問題災難化
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798104_1_20250330142200.jpg&q=85)
-  
-
-中學文憑試主科即將開考，學友社調查發現，本屆考生自評壓力指數，以10分為極大壓力，平均達6.9分，較去年微升0.13分，其中對出路的壓力最高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798104-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798104-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798104-20250330.htm)
-
----
-
-# 許正宇認為長和擬售巴拿馬港口事件不影響家辦投資意欲
-
-![許正宇認為長和擬售巴拿馬港口事件不影響家辦投資意欲](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798102_1_20250330142009.jpg&q=90)
-  
-
-財經事務及庫務局局長許正宇表示，全球政經環境複雜，反而對香港的家族辦公室業務更為有利，因為香港的投資環境穩定，亦有預見性，可讓投資者或家族辦公室的財富增值或保值。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798102-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798102-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798102-20250330.htm)
 
 ---

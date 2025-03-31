@@ -24,7 +24,7 @@ US President Donald Trump on Sunday threatened Iran with bombings and secondary 
 
 # Mitchell magic as Cavs down Clippers to bag 60th win
 
-![Cavs guard Donovan Mitchell scored 24 points in the win over the Los Angeles Clippers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798179_1_20250331075136.jpg&q=90)
+![Donovan Mitchell scored 24 points in the Cavs' win over the Los Angeles Clippers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798179_1_20250331075136.jpg&q=90)
   
 
 Donovan Mitchell led from the front as the Cleveland Cavaliers bagged their 60th win of the NBA season with a 127-122 victory over the in-form Los Angeles Clippers.
