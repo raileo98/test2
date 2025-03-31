@@ -1,3 +1,74 @@
+# 台股低收4.2%　跌穿21000點　創近8個月新低
+
+![台股創近8個月新低，加權指數收報20695點，跌906點，跌幅4.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798246_1_20250331141206.jpg&q=90)
+  
+
+台股急挫收市，跌穿21000點水平，創近8個月新低，連跌4個交易日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798246-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798246-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798246-20250331.htm)
+
+---
+
+# 南丫島深灣劃定限制區保護海龜產卵　公眾7個月內禁止進入
+
+  
+
+漁護署提醒市民，明日起至10月31日期間切勿進入南丫島深灣限制地區，包括0.5公頃的深灣沙灘及98.2公頃毗連該沙灘的海灣水域，以保護綠海龜產卵。限制期為7個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798249-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798249-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798249-20250331.htm)
+
+---
+
+# 世衞指急需8百萬美元為緬甸地震傷者提供創傷護理並預防疾病爆發
+
+![世衞表示正組織全球緊急醫療團隊，到緬甸開展救援行動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798248_1_20250331142730.jpg&q=70)
+  
+
+世界衞生組織形容強烈地震已摧毀緬甸中部，擾亂衞生服務，大批民眾處於危及生命的傷害及疾病爆發風險當中，世衞正以最高級別的緊急行動應對，並作出緊急呼籲，表示迫切需要800萬美元資金，在未來一個月為傷者提供創傷護理、預防疾病爆發及恢復基本衞生服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798248-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798248-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798248-20250331.htm)
+
+---
+
 # 荃景圍院舍失蹤男子已尋回　並沒有受傷
 
 ![失蹤男子昨日下午在河背街被尋回，沒有受傷，案件沒有可疑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798245_1_20250331141241.jpg&q=40)

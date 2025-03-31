@@ -1,3 +1,27 @@
+# 世衞指急需8百萬美元為緬甸地震傷者提供創傷護理並預防疾病爆發
+
+![世衞表示正組織全球緊急醫療團隊，到緬甸開展救援行動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798248_1_20250331142730.jpg&q=70)
+  
+
+世界衞生組織形容強烈地震已摧毀緬甸中部，擾亂衞生服務，大批民眾處於危及生命的傷害及疾病爆發風險當中，世衞正以最高級別的緊急行動應對，並作出緊急呼籲，表示迫切需要800萬美元資金，在未來一個月為傷者提供創傷護理、預防疾病爆發及恢復基本衞生服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798248-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798248-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798248-20250331.htm)
+
+---
+
 # 特區救援隊抵達曼德勒　將與國家隊分工展開搜救
 
 ![保安局表示，特區救援隊剛抵達緬甸地震災區曼德勒，立即與中國救援隊會合，聽取國家隊對當地災情的簡介。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798239_1_20250331135742.jpg&q=75)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798047-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798047-20250329.htm)
-
----
-
-# 日揆出席琉磺島戰役80周年悼念活動　重申提升日美同盟關係
-
-![石破茂出席琉磺島戰役80周年日美聯合悼念儀式並致辭。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798045_1_20250329205133.jpg&q=90)
-  
-
-日本首相石破茂前往太平洋戰爭末期激戰地硫黃島，出席琉磺島戰役80周年日美聯合悼念儀式，他強調和平的可貴，又重申會提升日美同盟關係。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798045-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798045-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798045-20250329.htm)
 
 ---

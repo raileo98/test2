@@ -1,3 +1,27 @@
+# Privacy watchdog issues AI guidelines for employees
+
+![Privacy Commissioner Ada Chung says secure use of AI is an essential part of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798247_1_20250331141847.jpg&q=90)
+  
+
+The Office of the Privacy Commissioner for Personal Data (PCPD) on Monday issued a checklist to guide organisations in regulating their employees’ use of generative artificial intelligence.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm)
+
+---
+
 # CityU strikes global research deal with Cambridge
 
 ![City University president Freddy Boey with University of Cambridge vice-chancellor Deborah Prentice at the signing ceremony. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798243_1_20250331135251.jpg&q=85)
@@ -1433,29 +1457,5 @@ Hong Kong, China and hosts Singapore battled to a goalless draw on Tuesday night
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797379-20250325.htm)
-
----
-
-# 'Coleman Wong's magical run inspires next generation'
-
-![The SAR's tennis chief Michael Cheng says he is impressed with Coleman Wong's achievements at the Miami Open. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797357_2_20250325210437.jpg&q=90)
-  
-
-Coleman Wong’s history-making performance at the Miami Open will serve as a huge morale boost for the SAR’s next generation of tennis players, Hong Kong, China’s tennis chief said on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm)
 
 ---

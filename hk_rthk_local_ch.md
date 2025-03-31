@@ -1,3 +1,26 @@
+# 南丫島深灣劃定限制區保護海龜產卵　公眾7個月內禁止進入
+
+  
+
+漁護署提醒市民，明日起至10月31日期間切勿進入南丫島深灣限制地區，包括0.5公頃的深灣沙灘及98.2公頃毗連該沙灘的海灣水域，以保護綠海龜產卵。限制期為7個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798249-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798249-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798249-20250331.htm)
+
+---
+
 # 荃景圍院舍失蹤男子已尋回　並沒有受傷
 
 ![失蹤男子昨日下午在河背街被尋回，沒有受傷，案件沒有可疑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798245_1_20250331141241.jpg&q=40)
@@ -1425,29 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798062-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798062-20250329.htm)
-
----
-
-# 一名男子涉嫌在啟德放飛無人機被捕
-
-![一名30歲本地男子涉嫌在啟德放飛無人機，被警方拘捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798061_1_20250329232741.jpg&q=90)
-  
-
-一名30歲本地男子涉嫌在啟德放飛無人機，因「未經許可在限制飛行區以內飛行」被捕，現正被扣留調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798061-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798061-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798061-20250329.htm)
 
 ---

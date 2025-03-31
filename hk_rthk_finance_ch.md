@@ -1,3 +1,27 @@
+# 台股低收4.2%　跌穿21000點　創近8個月新低
+
+![台股創近8個月新低，加權指數收報20695點，跌906點，跌幅4.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798246_1_20250331141206.jpg&q=90)
+  
+
+台股急挫收市，跌穿21000點水平，創近8個月新低，連跌4個交易日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798246-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798246-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798246-20250331.htm)
+
+---
+
 # 港深西部鐵路下半年邀請意向書　陳美寶：對招標持開放態度
 
 ![陳美寶表示，是否就項目的「計劃，建造，營運」分開獨立招標持開放態度。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798241_1_20250331135823.jpg&q=90)
@@ -1422,29 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797930-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797930-20250328.htm)
-
----
-
-# 美國2月核心PCE按月升0.4%　略高於預期
-
-![美國2月撇除食品和能源的核心PCE物價指數，按月升0.4%，略高於預期；按年升2.8%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797926_1_20250328204234.jpg&q=90)
-  
-
-美國2月個人消費開支(PCE)物價指數按月升0.3%，升幅與1月相同，符合市場預期，按年升2.5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797926-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797926-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797926-20250328.htm)
 
 ---

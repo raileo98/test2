@@ -1,3 +1,27 @@
+# Privacy watchdog issues AI guidelines for employees
+
+![Privacy Commissioner Ada Chung says secure use of AI is an essential part of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798247_1_20250331141847.jpg&q=90)
+  
+
+The Office of the Privacy Commissioner for Personal Data (PCPD) on Monday issued a checklist to guide organisations in regulating their employees’ use of generative artificial intelligence.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm)
+
+---
+
 # CityU strikes global research deal with Cambridge
 
 ![City University president Freddy Boey with University of Cambridge vice-chancellor Deborah Prentice at the signing ceremony. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798243_1_20250331135251.jpg&q=85)
@@ -1423,29 +1447,5 @@ Police have arrested three more suspects linked to a January 22 murder and wound
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797963-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797963-20250329.htm)
-
----
-
-# Govt taking steps to protect IP, says Algernon Yau
-
-![Algernon Yau says the SAR government is taking steps to protect intellectual property to help develop Hong Kong into a regional IP trading centre. Photo courtesy: GIS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797952_1_20250329002426.jpg&q=85)
-  
-
-Secretary for Commerce and Economic Development Algernon Yau on Friday said the SAR government is taking forward a series of initiatives to protect intellectual property rights to help develop the city into a regional IP trading centre.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797952-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797952-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797952-20250329.htm)
 
 ---
