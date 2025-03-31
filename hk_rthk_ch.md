@@ -1,3 +1,26 @@
+# 上月27日兩貨機分隔高度未符預期　民航處調查：涉人為因素
+
+  
+
+上月兩架貨機在香港國際機場的中跑道及南跑道分別起飛，但未有實現預期的分隔高度，貨機飛至機場東北約7海里範圍時，其中一架貨機向機組人員發出交通防撞警示，隨後下降，兩架貨機之後繼續飛往各自的目的地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798262-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798262-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798262-20250331.htm)
+
+---
+
 # 利物浦AC米蘭7.26　阿仙奴熱刺7.31啟德主場館表演賽
 
   

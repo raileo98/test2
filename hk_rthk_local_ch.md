@@ -1,3 +1,26 @@
+# 上月27日兩貨機分隔高度未符預期　民航處調查：涉人為因素
+
+  
+
+上月兩架貨機在香港國際機場的中跑道及南跑道分別起飛，但未有實現預期的分隔高度，貨機飛至機場東北約7海里範圍時，其中一架貨機向機組人員發出交通防撞警示，隨後下降，兩架貨機之後繼續飛往各自的目的地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798262-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798262-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798262-20250331.htm)
+
+---
+
 # 利物浦AC米蘭7.26　阿仙奴熱刺7.31啟德主場館表演賽
 
   
@@ -1424,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm)
-
----
-
-# 特區政府救援隊抵達緬甸仰光　乘車赴首都內比都
-
-![救援隊抵埗後不久就乘車出發前往首都內比都，車程預計需要10個小時。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798084_1_20250330091844.jpg&q=80)
-  
-
-緬甸發生大地震後，特區政府派出救援隊協助救援，保安局今早在社交平台表示，救援隊昨晚抵達緬甸仰光，並獲中國駐緬甸大使館外交官及香港緬甸商會代表到機場迎接。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm)
 
 ---
