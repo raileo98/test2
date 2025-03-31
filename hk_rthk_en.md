@@ -578,7 +578,6 @@ A fireworks display capped off a three-day rugby extravaganza at the Kai Tak Sta
 
 # Argentina in seventh heaven over maiden HK title
 
-![Argentina won the Hong Kong Sevens for the first time ever. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798137_1_20250330193653.jpg&q=75)
 ![New Zealand performed the haka following the victory over Australia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798137_2_20250330193653.jpg&q=85)
   
 
