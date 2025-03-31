@@ -1,3 +1,75 @@
+# 滬深股市初段偏軟　4隻配股集資內銀股價靠穩
+
+![上證指數較早時報3345點，跌6點，跌幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798203_1_20250331095531.jpg&q=90)
+  
+
+內地股市初段向下，上證指數較早時報3345點，跌6點，跌幅0.18%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798203-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798203-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798203-20250331.htm)
+
+---
+
+# 人行逆回購1667億元人民幣　單日轉為淨投放317億元
+
+![人行公開市場開展1667億元人民幣7天期逆回購操作，對沖到期量後，單日淨投放317億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798201_1_20250331094740.jpg&q=75)
+  
+
+人民銀行公開市場開展1667億元人民幣7天期逆回購操作，中標量與投標量相同，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798201-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798201-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798201-20250331.htm)
+
+---
+
+# 內地3月官方製造業PMI升至50.5　創1年新高
+
+![內地3月製造業採購經理指數升至50.5，創1年新高。國家統計局表示，內地經濟保持擴張。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798200_1_20250331094129.jpg&q=90)
+  
+
+國家統計局、中國物流與採購聯合會公布，內地3月製造業採購經理指數（PMI）升至50.5，創1年新高，比2月升0.3點，反映製造業擴張步伐加快。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm)
+
+---
+
 # 港股季結日低開219點　恒指競價時段報23207點
 
 ![港股在3月最後1個交易日下跌，恒生指數競價時段報23207點，跌219點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798198_1_20250331092445.jpg&q=40)
@@ -1375,77 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797894-20250328.htm)
-
----
-
-# 中人壽原總裁楊超涉嫌嚴重違紀違法接受調查
-
-![中紀委：中國人壽保險原黨委書記、總裁楊超涉嫌嚴重違紀違法，目前正接受監察調查。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797896_1_20250328171925.jpg&q=80)
-  
-
-中紀委表示，中國人壽保險原黨委書記、總裁楊超涉嫌嚴重違紀違法，目前正接受監察調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797896-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797896-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797896-20250328.htm)
-
----
-
-# 美聯去年轉賺3.2億元　不派息
-
-![美聯集團去年盈利3.2億元，而前年為虧損約4200萬元。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797895_2_20250328174908.jpg&q=90)
-  
-
-美聯集團去年由虧轉盈，錄盈利3.2億元，而前年為虧損約4200萬元，不派息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797895-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797895-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797895-20250328.htm)
-
----
-
-# 根據票價調整機制　港鐵今年度凍結票價
-
-![港鐵將會於2025/26年度凍結票價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797889_1_20250328170231.jpg&q=85)
-  
-
-政府今日公布運輸業名義工資指數最新數字，以港鐵票價調整機制方程式，計算出今年票價調整幅度較啟動加價的門檻1.5%為低，加上政府早前公布，去年的第4季家庭住戶每月入息中位數按年錄得跌幅，觸發封頂機制，港鐵將會於2025/26年度凍結票價。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797889-20250328.htm)
 
 ---

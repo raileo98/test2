@@ -1,5 +1,54 @@
+# 特朗普：對等關稅將包含所有國家
+
+![特朗普表示，預計今個星期宣布的對等關稅將包含所有國家。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798208_1_20250331101112.jpg&q=90)
+  
+
+美國總統特朗普表示，預計今個星期宣布的對等關稅將包含所有國家，而非僅限於範圍較細的10到15個國家。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798208-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798208-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798208-20250331.htm)
+
+---
+
+# 特區救援隊料稍後抵達緬甸地震重災區曼德勒
+
+![緬甸當局指派特區救援隊往另一重災區曼德勒，救援隊連夜動身啟程。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798205_1_20250331100653.jpg&q=90)
+  
+
+保安局表示，到緬甸協助地震救援的特區救援隊，預計今早稍後到達重災區曼德勒。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm)
+
+---
+
 # 中國救援隊再於曼德勒廢墟救出被埋者　獲救女子生命體徵良好
 
+![中國救援隊與公羊救援隊合作救出一名被困超過60小時的幼童。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798199_1_20250331092959.jpg&q=90)
   
 
 中國救援力量在緬甸地震災區一再救出幾名被困人員。
@@ -1386,57 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm)
-
----
-
-# 印尼否認以色列傳媒有關加沙居民計劃遷居印尼報道
-
-![印尼否認以色列傳媒有關加沙居民計劃遷居印尼報道](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798022_1_20250329164147.jpg&q=90)
-  
-
-印尼外交部回應以色列傳媒有關部分加沙居民計劃遷居印尼的報道，發言人說，印尼並未與包括以色列在內的任何一方就加沙居民遷居議題進行過討論或達成相關協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798022-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798022-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798022-20250329.htm)
-
----
-
-# 七欖第二日賽事場內氣氛熱鬧　港隊男女子隊晉級銀劍賽決賽
-
-![賽事繼續吸引大批觀眾入場觀賽，不少人盛裝打扮。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_3_20250329165525.jpg&q=85)
-![今日賽事在場館天幕打開下進行，場內氣氛熱鬧。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_4_20250329165525.jpg&q=80)
-![李卡度賽後表示，場館天幕打開，令球場更光猛。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798021_2_20250329165525.jpg&q=90)
-  
-
-香港國際七人欖球賽在啟德體育園上演第二日賽事，繼續吸引大批觀眾入場觀賽，不少人盛裝打扮。
-  
-![](https://rthk-s3-nps-prod.s3.amazonaws.com/images/mfile_1798021_3_L_20250329165525.jpg)
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798021-20250329.htm)
 
 ---

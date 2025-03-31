@@ -1,3 +1,147 @@
+# China's factory PMI expands at fastest pace in a year
+
+![Official data shows the purchasing managers' index for manufacturing was up 0.3 percentage points from February. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798209_1_20250331101633.jpg&q=80)
+  
+
+China's manufacturing activity expanded at the fastest pace in a year in March, an official factory survey showed on Monday, in a positive sign for the world's second-largest economy as it deals with an escalating US trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm)
+
+---
+
+# CK Hutchison says no decision made on telecom spin-off
+
+![Reuters had cited sources as saying the company was mulling a spin-off of global telecom assets. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798206_1_20250331100402.jpg&q=90)
+  
+
+The board of Hong Kong conglomerate CK Hutchison said on Monday it has not made any decision on its global telecommunications business, in response to media reports about a potential spin-off listing of the assets.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798206-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798206-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798206-20250331.htm)
+
+---
+
+# Hong Kong shares down amid US tariff fears
+
+![The Hang Seng Index lost 0.94 percent to open at 23,207 points. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798185_1_20250331083342.jpg&q=75)
+  
+
+World share markets were in a tailspin on Monday after US President Donald Trump said tariffs would essentially cover all countries, stoking worries a global trade war could lead to recession.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm)
+
+---
+
+# China discovers major oilfield in South China Sea
+
+![CNOOC says the new oilfield is around 170 km off the coast of Shenzhen. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798194_1_20250331091600.jpg&q=90)
+  
+
+The China National Offshore Oil Corporation (CNOOC) has discovered an oilfield in the South China Sea with proven reserves exceeding 100 million tonnes, Xinhua news agency reported on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798194-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798194-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798194-20250331.htm)
+
+---
+
+# Venezuela says high-level criminal among US deportees
+
+![Repatriation flight with migrants deported from the US lands in at Simon Bolivar International Airport in Maiquetia, Venezuela. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798190_1_20250331090008.jpg&q=90)
+  
+
+Venezuelan authorities reported the arrival on Sunday of a new flight of 175 migrants expelled by the United States, including a gang leader - the first time Caracas has confirmed a criminal was among the deportees.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm)
+
+---
+
+# Starmer, Trump discuss possible US-UK trade deal
+
+![British Prime Minister Keir Starmer had "productive" talks with US President Donald Trump about a potential UK-US trade deal. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798188_1_20250331085352.jpg&q=85)
+  
+
+Keir Starmer and Donald Trump spoke on Sunday and had "productive" talks towards a UK-US trade deal, the British Prime Minister's Downing Street office said on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm)
+
+---
+
 # Myanmar quake a top-level emergency, says WHO
 
 ![Rescuers work at the site of a damaged building in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798187_1_20250331084335.jpg&q=45)
@@ -124,7 +268,7 @@ Donovan Mitchell led from the front as the Cleveland Cavaliers bagged their 60th
 ![The fundraising will boost the ability of the banks to bolster the real economy. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798177_1_20250331072356.jpg&q=90)
   
 
-Four of the mainland's largest state-owned banks said on Sunday they plan to raise a combined 520 billion yuan (US$71.60 billion) in private placements from investors, including the finance ministry, after Beijing pledged to help them support the economy.
+Four of the mainland's largest state-owned banks said on Sunday they plan to raise a combined 520 billion yuan (US$71.60 billion) in private placements from investors, including the Ministry of Finance (MOF), after Beijing pledged to help them support the economy.
 
   
 
@@ -362,6 +506,7 @@ A Cathay Pacific aircraft on Sunday flew near Kai Tak during the Hong Kong Seven
 
 # Hong Kong, China sweep Melrose Claymores
 
+![Matteo Avitabile is among the scorers for Hong Kong, China. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798126_1_20250330171036.jpg&q=90)
 ![It's the second straight year that the Hong Kong, China men's team has won the Melrose Claymore. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798126_2_20250330171036.jpg&q=75)
   
 
@@ -1304,154 +1449,5 @@ Myanmar's ruling junta made a rare request for international humanitarian aid an
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 0.7 percent at 23,426. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797890_1_20250328170005.jpg&q=80)
-  
-
-Hong Kong stocks ended lower on Friday, with the benchmark Hang Seng Index down 0.7 percent at 23,426.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797890-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797890-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797890-20250328.htm)
-
----
-
-# Myanmar hospital 'a mass casualty area' after tremors
-
-![Healthcare workers treat a earthquake survivor on a bed in the compound of the hospital in Naypyidaw. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797887_1_20250328165127.jpg&q=85)
-![A road in Naypyidaw is left virtually unpassable in the wake of the earthquake. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797887_2_20250328165127.jpg&q=80)
-  
-
-A major hospital in the Myanmar capital Naypyidaw is a "mass casualty area" after the country was rocked by a huge earthquake, an official at the facility said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm)
-
----
-
-# Thai PM declares state of emergency in Bangkok
-
-![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797877_1_20250328163912.jpg&q=50)
-![Siam BTS metro station in Bangkok is shuttered in wake of the earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797877_2_20250328163912.jpg&q=60)
-  
-
-Thai authorities have declared a state of emergency in Bangkok, Prime Minister Paetongtarn Shinawatra said on Friday after the city was hit by a major earthquake centred in Myanmar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm)
-
----
-
-# Hong Kong Rugby Sevens premieres at Kai Tak
-
-![More people are expected to be at the stadium later as about 130,000 tickets were sold. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_1_20250328154507.jpg&q=85)
-![Organisers say rugby fans will find it easy to travel to the stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_2_20250328154507.jpg&q=75)
-![Britain plays France at the Kai Tak Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_3_20250328153434.jpg&q=90)
-![Applause and cheers filled the stadium, and many rugby fans said they liked what they saw. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_4_20250328153434.jpg&q=85)
-  
-
-The Hong Kong Sevens tournament kicked off with a bang at Kai Tak Stadium on Friday, as the Canadian and Japanese women's squads faced off.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797870-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797870-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797870-20250328.htm)
-
----
-
-# 43 trapped after quake brings down Bangkok high-rise
-
-![The trauma of the building's collapse takes its toll on one of the construction worker who managed to get out. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_5_20250328163235.jpg&q=85)
-  
-
-A strong 7.7 magnitude earthquake hit central Myanmar on Friday, the United States Geological Survey (USGS) said, buckling roads in the capital Naypyidaw and with tremors felt in China and Thailand.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm)
-
----
-
-# ICAC chief lays down law on calls for invalid votes
-
-![Danny Woo says the ICAC has started using an AI system to improve work efficiency. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797856_2_20250328151239.jpg&q=90)
-  
-
-The city's top graft-buster, Danny Woo, on Friday warned that authorities will take tough action against those who call for invalid votes to be cast during the upcoming election for the city's legislature at the end of the year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm)
 
 ---

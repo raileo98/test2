@@ -1,9 +1,57 @@
+# China's factory PMI expands at fastest pace in a year
+
+![Official data shows the purchasing managers' index for manufacturing was up 0.3 percentage points from February. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798209_1_20250331101633.jpg&q=80)
+  
+
+China's manufacturing activity expanded at the fastest pace in a year in March, an official factory survey showed on Monday, in a positive sign for the world's second-largest economy as it deals with an escalating US trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm)
+
+---
+
+# Hong Kong shares down amid US tariff fears
+
+![The Hang Seng Index lost 0.94 percent to open at 23,207 points. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798185_1_20250331083342.jpg&q=75)
+  
+
+World share markets were in a tailspin on Monday after US President Donald Trump said tariffs would essentially cover all countries, stoking worries a global trade war could lead to recession.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm)
+
+---
+
 # Four large state-owned banks recapitalise
 
 ![The fundraising will boost the ability of the banks to bolster the real economy. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798177_1_20250331072356.jpg&q=90)
   
 
-Four of the mainland's largest state-owned banks said on Sunday they plan to raise a combined 520 billion yuan (US$71.60 billion) in private placements from investors, including the finance ministry, after Beijing pledged to help them support the economy.
+Four of the mainland's largest state-owned banks said on Sunday they plan to raise a combined 520 billion yuan (US$71.60 billion) in private placements from investors, including the Ministry of Finance (MOF), after Beijing pledged to help them support the economy.
 
   
 
@@ -1389,53 +1437,5 @@ Markets rose on Monday as investors welcomed China's plans to kickstart consumpt
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796083-20250317.htm)
-
----
-
-# China retail sales up four percent
-
-![Total retail sales of consumer goods reached over 8.37 trillion yuan, according to official figures. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796017_1_20250317110913.jpg&q=80)
-  
-
-Retail sales in China accelerated slightly in the first two months of the year, government data showed on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm)
-
----
-
-# Hang Seng Index opens up over 1.1 percent
-
-![Hong Kong stocks open up as investors await key China economic data for the first two months of the year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796006_1_20250317101632.jpg&q=70)
-  
-
-Hong Kong's Hang Seng Index gained 266.02 points, or 1.11 percent, to open at 24,226 points on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796006-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796006-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796006-20250317.htm)
 
 ---

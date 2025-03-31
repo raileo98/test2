@@ -1,3 +1,98 @@
+# 鄧炳強：本港仍面對軟對抗等四項國安威脅　籲市民慎思明辨
+
+  
+
+保安局局長鄧炳強表示，隨著《香港國安法》和《維護國家安全條例》實施，社會已由亂到治，但不能掉以輕心，軟對抗每日都發生，市民必須慎思明辨。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798207-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798207-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798207-20250331.htm)
+
+---
+
+# 特區救援隊料稍後抵達緬甸地震重災區曼德勒
+
+![緬甸當局指派特區救援隊往另一重災區曼德勒，救援隊連夜動身啟程。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798205_1_20250331100653.jpg&q=90)
+  
+
+保安局表示，到緬甸協助地震救援的特區救援隊，預計今早稍後到達重災區曼德勒。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm)
+
+---
+
+# 七姊妹道爆水管　城巴部分路線須改道
+
+![運輸署表示，因水管爆裂，七姊妹道介乎琴行街與書局街之間的全線仍然封閉。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798204_1_20250331100726.jpg&q=55)
+  
+
+運輸署表示，因水管爆裂，七姊妹道介乎琴行街與書局街之間的全線仍然封閉。受影響城巴第82及85號線須改道行駛。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798204-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798204-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798204-20250331.htm)
+
+---
+
+# 將軍澳消防及救護學院下月辦開放日　入場券今日起接受申請
+
+![消防處將於下月13日在將軍澳消防及救護學院舉行開放日，入場券今日起接受申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798202_1_20250331100542.jpg&q=90)
+  
+
+為響應和支持第10個「全民國家安全教育日」，消防處將於下月13日在將軍澳消防及救護學院舉行開放日，入場券今日起接受申請。有興趣的市民今日起至下月2日可透過消防處流動應用程式申請二維碼入場券，每人最多可申請4張。電腦抽籤結果將於下月3日經消防處流動應用程式通知中籤者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798202-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798202-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798202-20250331.htm)
+
+---
+
 # 港股季結日低開219點　恒指競價時段報23207點
 
 ![港股在3月最後1個交易日下跌，恒生指數競價時段報23207點，跌219點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798198_1_20250331092445.jpg&q=40)
@@ -1353,101 +1448,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm)
-
----
-
-# 特區政府派救援隊到緬甸　李家超寄語他們注意安全
-
-![特區政府派出救援隊到緬甸，協助搜救工作。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798032_1_20250329185603.jpg&q=70)
-  
-
-因應緬甸地震，特區政府派出51人救援隊到當地，協助搜救工作。行政長官李家超表示，一收到緬甸駐港總領事館的要求後，特區政府短時間內就成立救援隊，感謝各隊員迅速響應，同時寄語他們要注意安全。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm)
-
----
-
-# 公營醫療增收費　盧寵茂不同意「收費就是道德不正確」的說法
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798026_1_20250329181706.jpg&q=90)
-  
-
-公營醫療收費改革下，急症室收費明年起增至400元，危殆、危急病人或傷者獲豁免。醫務衞生局局長盧寵茂表示，目前急症室有6成求診人士，情況屬於相對不緊急，增加收費可以發揮導向作用，減少濫用。他又不同意外界指，「收費就是道德不正確」的說法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798026-20250329.htm)
-
----
-
-# 蕭澤頤檢閱結業會操勉勵學員時刻謹記「君子慎其獨」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798024_1_20250329180557.jpg&q=90)
-  
-
-警察學院結業會操早上舉行，由警務處處長蕭澤頤擔任檢閱官。今次共有29名見習督察及158名警員結業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798024-20250329.htm)
-
----
-
-# 何永賢：簡約公屋讓公屋輪候者更好籌劃及思考未來住屋階梯
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798027_1_20250329180249.jpg&q=90)
-  
-
-元朗攸壆路首個「簡約公屋」昨日起入伙，房屋局局長何永賢指，「簡約公屋」可以讓市民輪候公屋期間有「落腳點」，更能籌劃及思考未來的住屋階梯，例如入住月租1600元「簡約公屋」的家庭，儲蓄數年可能足夠購買居屋首期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798027-20250329.htm)
 
 ---

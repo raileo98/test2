@@ -1,5 +1,197 @@
+# 特朗普：對等關稅將包含所有國家
+
+![特朗普表示，預計今個星期宣布的對等關稅將包含所有國家。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798208_1_20250331101112.jpg&q=90)
+  
+
+美國總統特朗普表示，預計今個星期宣布的對等關稅將包含所有國家，而非僅限於範圍較細的10到15個國家。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798208-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798208-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798208-20250331.htm)
+
+---
+
+# 鄧炳強：本港仍面對軟對抗等四項國安威脅　籲市民慎思明辨
+
+  
+
+保安局局長鄧炳強表示，隨著《香港國安法》和《維護國家安全條例》實施，社會已由亂到治，但不能掉以輕心，軟對抗每日都發生，市民必須慎思明辨。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798207-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798207-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798207-20250331.htm)
+
+---
+
+# 特區救援隊料稍後抵達緬甸地震重災區曼德勒
+
+![緬甸當局指派特區救援隊往另一重災區曼德勒，救援隊連夜動身啟程。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798205_1_20250331100653.jpg&q=90)
+  
+
+保安局表示，到緬甸協助地震救援的特區救援隊，預計今早稍後到達重災區曼德勒。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm)
+
+---
+
+# 七姊妹道爆水管　城巴部分路線須改道
+
+![運輸署表示，因水管爆裂，七姊妹道介乎琴行街與書局街之間的全線仍然封閉。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798204_1_20250331100726.jpg&q=55)
+  
+
+運輸署表示，因水管爆裂，七姊妹道介乎琴行街與書局街之間的全線仍然封閉。受影響城巴第82及85號線須改道行駛。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798204-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798204-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798204-20250331.htm)
+
+---
+
+# 滬深股市初段偏軟　4隻配股集資內銀股價靠穩
+
+![上證指數較早時報3345點，跌6點，跌幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798203_1_20250331095531.jpg&q=90)
+  
+
+內地股市初段向下，上證指數較早時報3345點，跌6點，跌幅0.18%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798203-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798203-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798203-20250331.htm)
+
+---
+
+# 將軍澳消防及救護學院下月辦開放日　入場券今日起接受申請
+
+![消防處將於下月13日在將軍澳消防及救護學院舉行開放日，入場券今日起接受申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798202_1_20250331100542.jpg&q=90)
+  
+
+為響應和支持第10個「全民國家安全教育日」，消防處將於下月13日在將軍澳消防及救護學院舉行開放日，入場券今日起接受申請。有興趣的市民今日起至下月2日可透過消防處流動應用程式申請二維碼入場券，每人最多可申請4張。電腦抽籤結果將於下月3日經消防處流動應用程式通知中籤者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798202-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798202-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798202-20250331.htm)
+
+---
+
+# 人行逆回購1667億元人民幣　單日轉為淨投放317億元
+
+![人行公開市場開展1667億元人民幣7天期逆回購操作，對沖到期量後，單日淨投放317億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798201_1_20250331094740.jpg&q=75)
+  
+
+人民銀行公開市場開展1667億元人民幣7天期逆回購操作，中標量與投標量相同，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798201-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798201-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798201-20250331.htm)
+
+---
+
+# 內地3月官方製造業PMI升至50.5　創1年新高
+
+![內地3月製造業採購經理指數升至50.5，創1年新高。國家統計局表示，內地經濟保持擴張。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798200_1_20250331094129.jpg&q=90)
+  
+
+國家統計局、中國物流與採購聯合會公布，內地3月製造業採購經理指數（PMI）升至50.5，創1年新高，比2月升0.3點，反映製造業擴張步伐加快。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm)
+
+---
+
 # 中國救援隊再於曼德勒廢墟救出被埋者　獲救女子生命體徵良好
 
+![中國救援隊與公羊救援隊合作救出一名被困超過60小時的幼童。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798199_1_20250331092959.jpg&q=90)
   
 
 中國救援力量在緬甸地震災區一再救出幾名被困人員。
@@ -47,6 +239,8 @@
 
 # 美國針對TikTok激發網民加入小紅書　反助中外民眾交流
 
+![俞波以簡單的英語旁白，配以生動有趣的動作及道具拍片教人煮中國菜式，一夜爆紅。（載自小紅書）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798197_2_20250331095153.jpg&q=90)
+![被形容為「TikTok難民」的外國人士，轉用中國社交平台「小紅書」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798197_1_20250331095153.jpg&q=80)
   
 
 美國前總統拜登任內要求短片分享平台TikTok的美國業務，要脫離中國母公司字節跳動，否則禁用；到總統特朗普上任，將有關行政命令暫緩至4月初。當時衍生出被形容為「TikTok難民」的外國人士，轉用中國社交平台「小紅書」。不少內地網民趁機拍攝及上載英語短片，吸引海外用戶注意。
@@ -94,7 +288,6 @@
 
 # 西藏近年著力健全養老服務　提供上門護理及推出多元興趣班
 
-![西藏的老年人日間照料中心提供免費的藏語及漢語朗誦班。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798195_1_20250331092435.jpg&q=85)
 ![中心主任索朗次旦表示，老年人對養老服務需求增加，不僅限於日常起居。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798195_2_20250331092435.jpg&q=85)
   
 
@@ -1251,197 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798132-20250330.htm)
-
----
-
-# 蕭澤頤指前線人員對本港由治及興貢獻很大
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798125_1_20250330175429.jpg&q=90)
-  
-
-警務處處長蕭澤頤任期即將屆滿，他說，在30多年警務生涯中，最難忘是2019年反修例事件期間，警隊面對前所未有挑戰，警察及其家人都受很大壓力甚至襲擊。他認為，本港社會由亂到治、由治及興，警隊前線人員有很大貢獻。他又勉勵警隊上下繼續努力，讚揚他們是世界上其中一支最有效率、最有心，及最有熱誠的警務隊伍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798125-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798125-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798125-20250330.htm)
-
----
-
-# 中日韓經貿部長會議　商定繼續擴大經貿領域合作
-
-![中日韓經貿部長會議在南韓首爾舉行。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798121_1_20250330162709.jpg&q=90)
-  
-
-中日韓經貿部長會議在南韓首爾舉行，重申在促進區域及全球經濟繁榮穩定方面加強三邊合作的必要性，商定繼續擴大經貿領域合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm)
-
----
-
-# 運輸署籲稍後盡量乘港鐵離場　特別巴士路線提前下午6時起服務
-
-![運輸署預計較多觀眾同一時間離場，呼籲離場人士盡量乘搭港鐵。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798128_1_20250330172757.jpg&q=60)
-  
-
-運輸署表示，正在啟德體育園舉行的香港國際七人欖球賽預計今晚7時後完成所有賽事。由於預計較多觀眾同一時間離場，呼籲離場人士盡量乘搭港鐵。署方一直督導公共運輸服務安排，整體交通至今大致暢順。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798128-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798128-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798128-20250330.htm)
-
----
-
-# 特區救援隊抵達緬甸首都　隨即展開勘察及部署
-
-![緬甸日前發生大地震，特區政府派出救援隊協助救援。（保安局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798124_2_20250330190435.jpg&q=90)
-  
-
-緬甸日前發生大地震，特區政府派出救援隊協助救援。保安局在社交網站上載片段，救援隊領隊趙汝珏說，昨晚大約9時抵達仰光機場，凌晨3時半出發前往首都內比都，經過大約10小時車程，當地時間中午後到達，之後將立即進行勘察工作，並與其他國家救援隊聯絡，了解當前狀況並再作部署。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm)
-
----
-
-# 緬甸地震增至1700人死亡　曼德勒下午發生5.1級餘震
-
-![緬甸地震增至1700人死亡，3400多人受傷，300多人失蹤。中國駐緬甸大使館至今確認10多名中國公民受傷。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798123_2_20250330180352.jpg&q=90)
-  
-
-緬甸地震增至1700人死亡，3400多人受傷，300多人失蹤。中國駐緬甸大使館至今確認10多名中國公民受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798123-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798123-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798123-20250330.htm)
-
----
-
-# 七欖銀劍賽　中國香港男女子隊稱王封后
-
-![香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798122_1_20250330170028.jpg&q=45)
-  
-
-香港國際七人欖球賽，中國香港男女子隊分別在銀劍賽稱王及封后。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798122-20250330.htm)
-
----
-
-# 七欖女子銀劍賽港隊擊敗哈薩克奪魁
-
-![稍後舉行的銀劍賽男子組決賽，港隊會迎戰國家隊。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798120_1_20250330163847.jpg&q=65)
-  
-
-香港國際七人欖球賽，銀劍賽女子組決賽，港隊以45：5擊敗哈薩克，贏得冠軍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798120-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798120-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798120-20250330.htm)
-
----
-
-# 七欖煞科現場氣氛熾熱　有觀眾稱啟德場館體驗佳
-
-![香港國際七人欖球賽今日最後一日，現場氣氛熱烈。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798119_1_20250330163808.jpg&q=55)
-  
-
-一連三日的香港國際七人欖球賽今日最後一日，現場氣氛熱烈，當有心儀球隊得分，觀眾高聲歡呼。在南看台，有入場人士按傳統「扮鬼扮馬」，有人打扮成卡通人物，高舉心儀球隊所屬的國家或地區旗幟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm)
 
 ---

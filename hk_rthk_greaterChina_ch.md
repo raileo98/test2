@@ -1,5 +1,30 @@
+# 內地3月官方製造業PMI升至50.5　創1年新高
+
+![內地3月製造業採購經理指數升至50.5，創1年新高。國家統計局表示，內地經濟保持擴張。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798200_1_20250331094129.jpg&q=90)
+  
+
+國家統計局、中國物流與採購聯合會公布，內地3月製造業採購經理指數（PMI）升至50.5，創1年新高，比2月升0.3點，反映製造業擴張步伐加快。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm)
+
+---
+
 # 中國救援隊再於曼德勒廢墟救出被埋者　獲救女子生命體徵良好
 
+![中國救援隊與公羊救援隊合作救出一名被困超過60小時的幼童。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798199_1_20250331092959.jpg&q=90)
   
 
 中國救援力量在緬甸地震災區一再救出幾名被困人員。
@@ -23,6 +48,8 @@
 
 # 美國針對TikTok激發網民加入小紅書　反助中外民眾交流
 
+![俞波以簡單的英語旁白，配以生動有趣的動作及道具拍片教人煮中國菜式，一夜爆紅。（載自小紅書）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798197_2_20250331095153.jpg&q=90)
+![被形容為「TikTok難民」的外國人士，轉用中國社交平台「小紅書」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798197_1_20250331095153.jpg&q=80)
   
 
 美國前總統拜登任內要求短片分享平台TikTok的美國業務，要脫離中國母公司字節跳動，否則禁用；到總統特朗普上任，將有關行政命令暫緩至4月初。當時衍生出被形容為「TikTok難民」的外國人士，轉用中國社交平台「小紅書」。不少內地網民趁機拍攝及上載英語短片，吸引海外用戶注意。
@@ -46,7 +73,6 @@
 
 # 西藏近年著力健全養老服務　提供上門護理及推出多元興趣班
 
-![西藏的老年人日間照料中心提供免費的藏語及漢語朗誦班。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798195_1_20250331092435.jpg&q=85)
 ![中心主任索朗次旦表示，老年人對養老服務需求增加，不僅限於日常起居。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798195_2_20250331092435.jpg&q=85)
   
 
@@ -1412,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797871-20250328.htm)
-
----
-
-# 王毅下周一至周三訪問俄羅斯
-
-![王毅下周一至周三訪問俄羅斯。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797866_1_20250328151510.jpg&q=90)
-  
-
-在北京，外交部宣布，應俄羅斯外長拉夫羅夫邀請，中共中央政治局委員、外交部長王毅將於3月31日至4月2日對俄羅斯進行正式訪問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797866-20250328.htm)
 
 ---

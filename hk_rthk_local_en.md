@@ -1,3 +1,27 @@
+# CK Hutchison says no decision made on telecom spin-off
+
+![Reuters had cited sources as saying the company was mulling a spin-off of global telecom assets. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798206_1_20250331100402.jpg&q=90)
+  
+
+The board of Hong Kong conglomerate CK Hutchison said on Monday it has not made any decision on its global telecommunications business, in response to media reports about a potential spin-off listing of the assets.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798206-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798206-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798206-20250331.htm)
+
+---
+
 # Rugby Sevens a successful try, says John Lee
 
 ![The three-day Hong Kong Sevens concludes its first showcase at the brand new Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798148_1_20250330214352.jpg&q=75)
@@ -1436,29 +1460,5 @@ A deputy at Beijing's top office on Hong Kong affairs has called on the SAR to r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm)
-
----
-
-# Non-urgent A&E visits to cost more in fee revamp
-
-![Health minister Lo Chung-mau (middle) says the fee reform is aimed at directing public resources to patients most in need. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797291_1_20250325131640.jpg&q=90)
-  
-
-Non-urgent patients seeking help at the city's public accident and emergency wards are set to pay more than double the current rate as part of the government's revamp on healthcare charges, with the new fees taking effect over three phases starting on January 1, 2026.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797291-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797291-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797291-20250325.htm)
 
 ---

@@ -1,3 +1,51 @@
+# Venezuela says high-level criminal among US deportees
+
+![Repatriation flight with migrants deported from the US lands in at Simon Bolivar International Airport in Maiquetia, Venezuela. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798190_1_20250331090008.jpg&q=90)
+  
+
+Venezuelan authorities reported the arrival on Sunday of a new flight of 175 migrants expelled by the United States, including a gang leader - the first time Caracas has confirmed a criminal was among the deportees.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm)
+
+---
+
+# Starmer, Trump discuss possible US-UK trade deal
+
+![British Prime Minister Keir Starmer had "productive" talks with US President Donald Trump about a potential UK-US trade deal. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798188_1_20250331085352.jpg&q=85)
+  
+
+Keir Starmer and Donald Trump spoke on Sunday and had "productive" talks towards a UK-US trade deal, the British Prime Minister's Downing Street office said on Sunday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm)
+
+---
+
 # Myanmar quake a top-level emergency, says WHO
 
 ![Rescuers work at the site of a damaged building in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798187_1_20250331084335.jpg&q=45)
@@ -1391,53 +1439,5 @@ Boeing is seeking to withdraw an agreement to plead guilty in a criminal case th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797265-20250325.htm)
-
----
-
-# UN cuts headcount in Gaza after worker dies
-
-![A foreign worker wounded in an airstrike at UN headquarters on March 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797253_1_20250325090322.jpg&q=85)
-  
-
-The United Nations said Monday it would “reduce its footprint” in Gaza after an Israeli tank strike hit one of its compounds last week, killing one staff member from Bulgaria and wounding five other employees.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797253-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797253-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797253-20250325.htm)
-
----
-
-# 'Trump's fees on Chinese ships will backfire'
-
-![A container ship sails beneath the Golden Gate Bridge as it makes its way into port in San Francisco. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797249_1_20250325083906.jpg&q=90)
-  
-
-President Donald Trump's plan to revitalise the US shipbuilding industry is likely to backfire because it relies on proposed fees on China-linked vessels that will hurt domestic ship operators, seaports, exporters and jobs, industry executives said at US Trade Representative (USTR) hearings on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797249-20250325.htm)
 
 ---
