@@ -1,3 +1,26 @@
+# 利物浦熱刺及阿仙奴分別公開操練　讓球迷與球員接觸
+
+  
+
+四支歐洲勁旅，包括三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月來港，在啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm)
+
+---
+
 # 利物浦AC米蘭7.26　阿仙奴熱刺7.31啟德主場館表演賽
 
   
@@ -1434,30 +1457,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796521-20250320.htm)
-
----
-
-# 羅淑佩見證馬會與中旅簽署備忘錄聯手推動賽馬旅遊
-
-![文化體育及旅遊局局長羅淑佩（後排中），中聯辦經濟部副部長郭韶偉（後排左一）等見證下，馬會與香港中旅集團代表簽署合作備忘錄，加強在旅遊、體育、文化及青年發展的戰略合作。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796489_1_20250319230003.jpg&q=90)
-![雙方將聯手推動賽馬旅遊，將馬會的跑馬地馬場、沙田馬場，以及將於明年開始舉辦常規性賽事的廣州從化馬場，納入中旅的旅遊路線。（馬會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796489_2_20250319230003.jpg&q=60)
-  
-
-文化體育及旅遊局局長羅淑佩見證馬會與中旅集團簽署備忘錄。羅淑佩表示，高興看到馬會與中旅攜手推廣具香港特色的旅遊產品，包括賽馬旅遊及海島旅遊，並在旅遊、體育和文化方面加強合作，進一步向外展示香港作為世界級旅遊目的地的魅力，吸引旅客來港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm](https://news.rthk.hk/rthk/ch/component/k2/1796489-20250319.htm)
 
 ---

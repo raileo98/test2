@@ -1,3 +1,26 @@
+# 利物浦熱刺及阿仙奴分別公開操練　讓球迷與球員接觸
+
+  
+
+四支歐洲勁旅，包括三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月來港，在啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm)
+
+---
+
 # 外交部：將發揚中緬情誼　與緬方共克時艱共渡難關
 
 ![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798268_1_20250331161732.jpg&q=80)
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798069-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798069-20250330.htm)
-
----
-
-# 以色列官員稱哈馬斯同意釋放5名人質換取50天停火
-
-![加沙汗尤尼斯在以軍轟炸中成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798068_1_20250330014433.jpg&q=50)
-  
-
-一名以色列官員透露，巴勒斯坦武裝組織哈馬斯同意埃及提出，釋放5名以方人質，換取從開齋節開始的50天停火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798068-20250330.htm)
 
 ---
