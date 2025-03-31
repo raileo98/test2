@@ -1,5 +1,55 @@
+# 克宮料普京未來幾日內與到訪的王毅會面
+
+![佩斯科夫表示，預計普京將在未來幾日內與王毅會面。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798319_1_20250331201559.jpg&q=90)
+  
+
+中共中央政治局委員、外交部長王毅應俄羅斯外長拉夫羅夫邀請，今日至後日對俄羅斯進行正式訪問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm)
+
+---
+
+# 李家超稱東江水供港承載家國深情　構築未雨綢繆長遠謀劃
+
+![李家超說，東江水佔全香港的食水用量，達到七成至八成。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_1_20250331201314.jpg&q=90)
+![李家超出席東江水供港六十周年紀念典禮暨「舞動水滴展」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_2_20250331201314.jpg&q=85)
+  
+
+行政長官李家超表示，國家的東江水，是香港的生命之源。東江水佔全香港的食水用量，達到七成至八成，支撐香港經濟持續發展，滋養香港市民安居樂業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm)
+
+---
+
 # 港澳辦再次轉載報道引述政商界支持市監局依法審查長和交易
 
+![港澳辦引述報道指，各界希望有關買賣決策要考慮到對香港和國家的影響。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798317_1_20250331200534.jpg&q=75)
   
 
 港澳辦網站再次轉載《大公報》文章，指長和計劃出售巴拿馬運河兩端港口資產，事件持續引發熱議。文章引述香港政商界人士，鑒於當前中美貿易戰的複雜背景，不少大型交易可能會觸及國家利益，認為長和作為一間扎根香港的大企業，各界希望有關買賣決策要考慮到對香港和國家的影響。
@@ -1389,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797940-20250328.htm)
-
----
-
-# 林定國於北京講座分享「一國兩制」檢控及維護公共利益工作
-
-![林定國（左）與最高人民法院副院長茅仲華（右）在專題講座上合照。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797937_1_20250328221222.jpg&q=90)
-  
-
-正在北京的律政司司長林定國出席最高人民檢察院轄下的國家檢察官學院講座，向在場及線上過千名與會者分享「一國兩制」下律政司在檢控及維護公共利益方面的工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797937-20250328.htm)
-
----
-
-# 建造業「油漆工」「砌磚工」訂定灣區標準推展「一試多證」安排
-
-![當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797934_1_20250328215518.jpg&q=75)
-  
-
-當局公布建造業技術工人首兩個試行工種「油漆工」及「砌磚工」的灣區標準，並推展「一試多證」安排，有關標準已上載香港建造學院的網頁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797934-20250328.htm)
 
 ---

@@ -1,5 +1,31 @@
+# 李家超稱東江水供港承載家國深情　構築未雨綢繆長遠謀劃
+
+![李家超說，東江水佔全香港的食水用量，達到七成至八成。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_1_20250331201314.jpg&q=90)
+![李家超出席東江水供港六十周年紀念典禮暨「舞動水滴展」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_2_20250331201314.jpg&q=85)
+  
+
+行政長官李家超表示，國家的東江水，是香港的生命之源。東江水佔全香港的食水用量，達到七成至八成，支撐香港經濟持續發展，滋養香港市民安居樂業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm)
+
+---
+
 # 港澳辦再次轉載報道引述政商界支持市監局依法審查長和交易
 
+![港澳辦引述報道指，各界希望有關買賣決策要考慮到對香港和國家的影響。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798317_1_20250331200534.jpg&q=75)
   
 
 港澳辦網站再次轉載《大公報》文章，指長和計劃出售巴拿馬運河兩端港口資產，事件持續引發熱議。文章引述香港政商界人士，鑒於當前中美貿易戰的複雜背景，不少大型交易可能會觸及國家利益，認為長和作為一間扎根香港的大企業，各界希望有關買賣決策要考慮到對香港和國家的影響。
@@ -1411,30 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798141-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798141-20250330.htm)
-
----
-
-# 國泰航班飛越啟德上空紀念舊機場百周年　林紹波形容非常成功
-
-![林紹波接受本台訪問時表示，安排A350-1000客機飛過，他感到非常感動，而且對曾經在啟德機場工作的員工，意義非常重大。(張連登攝)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798139_1_20250330204758.jpg&q=80)
-![國泰航空特別航班CX8100下午4時低飛越過維港，重現昔日低飛九龍城一帶的情景。（國泰提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798139_2_20250330231623.jpg&q=80)
-  
-
-國泰航空特別航班CX8100下午4時低飛越過維港，並掠過啟德主場館鄰近上空，以紀念舊啟德機場100周年。國泰行政總裁林紹波接受本台訪問時表示，整個團隊都非常興奮，形容非常成功。他指國泰贊助七欖超過40年，今年七欖重返啟德，亦是國泰發源的地方，因此安排A350-1000客機飛過，他感到非常感動，而且對曾經在啟德機場工作的員工，意義非常重大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm)
 
 ---

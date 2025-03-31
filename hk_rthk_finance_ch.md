@@ -1,5 +1,31 @@
+# 李家超稱東江水供港承載家國深情　構築未雨綢繆長遠謀劃
+
+![李家超說，東江水佔全香港的食水用量，達到七成至八成。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_1_20250331201314.jpg&q=90)
+![李家超出席東江水供港六十周年紀念典禮暨「舞動水滴展」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_2_20250331201314.jpg&q=85)
+  
+
+行政長官李家超表示，國家的東江水，是香港的生命之源。東江水佔全香港的食水用量，達到七成至八成，支撐香港經濟持續發展，滋養香港市民安居樂業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm)
+
+---
+
 # 港澳辦再次轉載報道引述政商界支持市監局依法審查長和交易
 
+![港澳辦引述報道指，各界希望有關買賣決策要考慮到對香港和國家的影響。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798317_1_20250331200534.jpg&q=75)
   
 
 港澳辦網站再次轉載《大公報》文章，指長和計劃出售巴拿馬運河兩端港口資產，事件持續引發熱議。文章引述香港政商界人士，鑒於當前中美貿易戰的複雜背景，不少大型交易可能會觸及國家利益，認為長和作為一間扎根香港的大企業，各界希望有關買賣決策要考慮到對香港和國家的影響。
@@ -1411,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm)
-
----
-
-# 李家超：啟德主場館首場大賽圓滿達陣　期待未來盛事精彩不斷
-
-![李家超又到賽事首設、面積達7800呎的球迷村，形容如同嘉年華。(李家超社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798142_2_20250330215717.jpg&q=85)
-  
-
-首度移師啟德體育園、一連三日舉行的香港國際七人欖球賽晚上結束。到場觀賽的行政長官李家超表示，「香港七欖」已是本地旗艦盛事之一，推動香港成為國際體育盛事之都。啟德體育園主場館首場大賽已圓滿「達陣」，這個香港的新主場，一流設備已準備好，之後等待精彩體育、文化活動輪番上演，期待未來盛事精彩不斷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm)
 
 ---

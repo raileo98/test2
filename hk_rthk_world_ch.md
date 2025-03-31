@@ -1,5 +1,30 @@
+# 克宮料普京未來幾日內與到訪的王毅會面
+
+![佩斯科夫表示，預計普京將在未來幾日內與王毅會面。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798319_1_20250331201559.jpg&q=90)
+  
+
+中共中央政治局委員、外交部長王毅應俄羅斯外長拉夫羅夫邀請，今日至後日對俄羅斯進行正式訪問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm)
+
+---
+
 # 港澳辦再次轉載報道引述政商界支持市監局依法審查長和交易
 
+![港澳辦引述報道指，各界希望有關買賣決策要考慮到對香港和國家的影響。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798317_1_20250331200534.jpg&q=75)
   
 
 港澳辦網站再次轉載《大公報》文章，指長和計劃出售巴拿馬運河兩端港口資產，事件持續引發熱議。文章引述香港政商界人士，鑒於當前中美貿易戰的複雜背景，不少大型交易可能會觸及國家利益，認為長和作為一間扎根香港的大企業，各界希望有關買賣決策要考慮到對香港和國家的影響。
@@ -1408,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798075-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798075-20250330.htm)
-
----
-
-# 緬甸大地震增至逾1600人死亡、3400多人受傷
-
-![靠近震央的曼德勒，損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798074_1_20250330051552.jpg&q=75)
-  
-
-緬甸中部大地震至今，增至1600多人死亡，3400多人受傷，接近140人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798074-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798074-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798074-20250330.htm)
 
 ---
