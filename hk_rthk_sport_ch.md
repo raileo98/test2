@@ -1,3 +1,26 @@
+# 意甲拉素與拖連奴賽和1:1　維羅納0:0帕爾馬
+
+  
+
+意大利甲組足球聯賽，拉素與拖連奴賽和1:1。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798363-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798363-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798363-20250401.htm)
+
+---
+
 # 吳安儀衛冕英國女子公開賽冠軍　贏得職業桌球生涯第22項錦標
 
 ![吳安儀勇奪生涯第22冠。（桌球總會FB圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798336_1_20250331230125.jpg&q=90)
@@ -1434,29 +1457,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796570-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796570-20250320.htm)
-
----
-
-# 羅淑佩：啟德桌球賽逐客事件低級錯誤　非罪無可恕須經一事長一智
-
-![羅淑佩認為，事件是由於賽事主辦方與園方的溝通「唔係好對到嘴」，但並非「罪無可恕」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796551_1_20250320110201.jpg&q=80)
-  
-
-啟德體育園開幕以來先後發生桌球賽「逐客風波」以及無票者「後門入場」事件。文化體育及旅遊局長羅淑佩接受《明報》專訪時形容是「低級錯誤」，她認為事件是由於賽事主辦方與園方的溝通「唔係好對到嘴」，但並非「罪無可恕」，只要事前有良好應變計劃就可避免重蹈覆轍，最重要是「經一事長一智」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm)
 
 ---

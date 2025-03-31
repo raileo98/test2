@@ -1,3 +1,27 @@
+# Cycling to adopt 23-team format for Grand Tours
+
+![The initiative for the Grand Tours has been rubber-stamped by the International Cycling Union, the sport's governing body. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798362_1_20250401071622.jpg&q=75)
+  
+
+The Giro d'Italia, Tour de France and Vuelta a Espana will all involve 23 teams from this year, with the initiative rubber-stamped by the International Cycling Union.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm)
+
+---
+
 # McIlroy smashes into PGA Tour's US$100 million club
 
 ![McIlroy in action in the first round of the Houston Open golf tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798360_1_20250401063902.jpg&q=90)
@@ -1417,29 +1441,5 @@ A government-sponsored junk food ban in schools across Mexico took effect on Sat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm)
-
----
-
-# China launches communication technology test satellite
-
-![This launch was the 566th mission by a Long March carrier rocket. Photo: CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798072_1_20250330024518.jpg&q=90)
-  
-
-China on Sunday sent a new communication test satellite into orbit from the Wenchang Space Launch Site in Hainan Province.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798072-20250330.htm)
 
 ---

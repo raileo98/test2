@@ -1,3 +1,27 @@
+# Cycling to adopt 23-team format for Grand Tours
+
+![The initiative for the Grand Tours has been rubber-stamped by the International Cycling Union, the sport's governing body. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798362_1_20250401071622.jpg&q=75)
+  
+
+The Giro d'Italia, Tour de France and Vuelta a Espana will all involve 23 teams from this year, with the initiative rubber-stamped by the International Cycling Union.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm)
+
+---
+
 # McIlroy smashes into PGA Tour's US$100 million club
 
 ![McIlroy in action in the first round of the Houston Open golf tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798360_1_20250401063902.jpg&q=90)
@@ -1424,29 +1448,5 @@ Kevin Durant scored 42 points as the Phoenix Suns reignited their playoff hopes 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796939-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796939-20250322.htm)
-
----
-
-# Lewis Hamilton wins Chinese Grand Prix sprint race
-
-![Ferrari's British driver Lewis Hamilton celebrates his victory. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796915_1_20250322130258.jpg&q=90)
-  
-
-Lewis Hamilton dominated from pole position to take his maiden victory for Ferrari in the sprint race at the Chinese Grand Prix on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796915-20250322.htm)
 
 ---

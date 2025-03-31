@@ -1,3 +1,27 @@
+# 格奧爾基耶娃：美國推動全面關稅短期內不太可能引發經濟衰退
+
+![格奧爾基耶娃稱美國推動全面關稅正造成巨大不確定並打擊信心，但短期內不致引發經濟衰退。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798361_1_20250401070655.jpg&q=90)
+  
+
+國際貨幣基金組織總裁格奧爾基耶娃表示，美國總統特朗普推動全面關稅，正造成巨大不確定性並打擊信心，但短期內不太可能引發經濟衰退，又認為美國今年通脹回落進程可能放緩，但不足以改變聯儲局明年令通脹重返2%的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm)
+
+---
+
 # 港股美國預託證券較本港收市普遍靠穩
 
 ![滙控美國預託證券較本港收市升逾1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798359_1_20250401061750.jpg&q=90)
@@ -118,12 +142,12 @@
 
 ---
 
-# 美股首季下跌　納指累計跌逾10%
+# 美股首季下跌　納指累計挫逾10%
 
 ![美股收市個別發展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798352_1_20250401052630.jpg&q=90)
   
 
-紐約股市個別發展，暫時擺脫美國關稅安排帶來的不確定因素。金融、必須消費品及能源相關股份表現較好。
+紐約股市個別發展。金融、必須消費品及能源相關股份表現較好。
 
   
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm)
-
----
-
-# 台股開市後跌近3%
-
-![台灣加權指數較早時報21010點，跌592點，跌幅2.74%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798192_1_20250331090749.jpg&q=90)
-  
-
-台灣股市下跌。加權指數較早時報21010點，跌592點，跌幅2.74%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798192-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798192-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798192-20250331.htm)
 
 ---
