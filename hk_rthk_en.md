@@ -4,7 +4,7 @@
 ![Novak Djokovic had no answer for the creativity and speed of the Czech ace. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798220_2_20250331110937.jpg&q=90)
   
 
-Czech teenager Jakub Mensik upset Novak Djokovic 7-6 (7/4), 7-6 (7/4) to win the Miami Open at Hard Rock Stadium.
+Novak Djokovic faced a series of obstacles in the Miami Open final: a delay of more than five-and-a-half hours before the match, an eye infection and a slippery court due to high levels of humidity following the rain.
 
   
 
