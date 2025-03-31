@@ -1,3 +1,27 @@
+# 支援大灣區醫管局病人先導計劃延展至明年三月底
+
+![醫衞局指，2023年5月至今年2月底，累計5100名合資格病人已參加先導計劃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798326_1_20250331210147.jpg&q=80)
+  
+
+醫務衞生局公布，將延展「支援粵港澳大灣區醫院管理局病人先導計劃」一年，至明年3月31日，以便利合資格的醫管局病人可選擇於粵港澳大灣區指定協作醫療機構接受資助診症服務，自2023年5月至今年2月底，累計5100名合資格病人已參加先導計劃，當中逾六成為65歲或以上長者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798326-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798326-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798326-20250331.htm)
+
+---
+
 # 嘉禾黃埔戲院租約期滿下月10日起結束營業
 
   
