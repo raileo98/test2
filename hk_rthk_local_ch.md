@@ -404,30 +404,6 @@
 
 ---
 
-# 緬甸地震七成房屋受損　紅十字會稱當地缺庇護所
-
-![程德君表示，當地約七成房屋受破壞倒塌，民眾暫時無安全的庇護所，部分民眾要在街上睡覺。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798217_1_20250331124046.jpg&q=40)
-  
-
-緬甸地震增至1700人死亡，3400多人受傷。香港紅十字會國際及賑災服務主管程德君表示，當地約七成房屋受破壞倒塌，民眾暫時無安全的庇護所，部分民眾要在街上睡覺，乾淨食水及醫療服務都受影響，有部分居民出現肚瀉情況，擔心當地會爆發流行病。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm)
-
----
-
 # 陳茂波：外資「驚執輸」後悔低配中資股　正在急於補倉
 
 ![陳茂波指出，外資「驚執輸」的原因，主要是因為早兩年受地緣政治等因素影響，基金經理的投資組合中，都傾向低配中資股（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798215_1_20250331114546.jpg&q=90)
@@ -1447,5 +1423,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm)
+
+---
+
+# 特區政府救援隊抵達緬甸仰光　乘車赴首都內比都
+
+![救援隊抵埗後不久就乘車出發前往首都內比都，車程預計需要10個小時。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798084_1_20250330091844.jpg&q=80)
+  
+
+緬甸發生大地震後，特區政府派出救援隊協助救援，保安局今早在社交平台表示，救援隊昨晚抵達緬甸仰光，並獲中國駐緬甸大使館外交官及香港緬甸商會代表到機場迎接。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm)
 
 ---

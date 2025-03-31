@@ -1,3 +1,51 @@
+# 泰國警方據報拘捕4名中國男子涉嫌非法進入地震倒塌大樓取走文件
+
+![泰國當局繼續在倒塌的大樓搜救。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798267_1_20250331160837.jpg&q=85)
+  
+
+泰國傳媒報道，警方拘捕4名中國男子，涉嫌非法進入地震中倒塌的大樓取走多份文件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798267-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798267-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798267-20250331.htm)
+
+---
+
+# 緬甸全國哀悼7日　對地震遇難者下半旗致哀
+
+![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798263_1_20250331160712.jpg&q=75)
+  
+
+緬甸軍政府宣布今日至下月6日為全國哀悼日，對地震遇難者下半旗致哀。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798263-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798263-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798263-20250331.htm)
+
+---
+
 # 市監局查長和交易　北京：一貫反對霸道霸凌損害他國正當權益行為
 
   
@@ -806,30 +854,6 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm)
-
----
-
-# 緬甸地震七成房屋受損　紅十字會稱當地缺庇護所
-
-![程德君表示，當地約七成房屋受破壞倒塌，民眾暫時無安全的庇護所，部分民眾要在街上睡覺。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798217_1_20250331124046.jpg&q=40)
-  
-
-緬甸地震增至1700人死亡，3400多人受傷。香港紅十字會國際及賑災服務主管程德君表示，當地約七成房屋受破壞倒塌，民眾暫時無安全的庇護所，部分民眾要在街上睡覺，乾淨食水及醫療服務都受影響，有部分居民出現肚瀉情況，擔心當地會爆發流行病。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm)
 
 ---
 
