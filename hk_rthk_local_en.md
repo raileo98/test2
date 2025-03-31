@@ -1,3 +1,27 @@
+# SAR rescue team heads for quake-stricken Mandalay
+
+![The SAR rescue team has been redirected to Mandalay to help out with relief efforts. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798216_1_20250331104806.jpg&q=90)
+  
+
+An SAR government rescue team is on its way to quake-hit Mandalay in Myanmar.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm)
+
+---
+
 # CK Hutchison says no decision made on telecom spin-off
 
 ![Reuters had cited sources as saying the company was mulling a spin-off of global telecom assets. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798206_1_20250331100402.jpg&q=90)
@@ -1434,31 +1458,5 @@ The annual Art Central fair is returning to Central Harbourfront from Wednesday 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797322-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797322-20250325.htm)
-
----
-
-# HK capital market 'needs blueprint for further growth'
-
-![Qi Bin, deputy director of the central government's liaison office, has called on Hong Kong to seize the momentum offered by the strong return of foreign capital. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_1_20250325140507.jpg&q=80)
-![Acting Chief Executive Eric Chan says that there are signs that global capital is returning to Hong Kong, as the city's total deposit rose by 7.1 percent last year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_2_20250325140507.jpg&q=80)
-![Alibaba chairman Joe Tsai warned about a potential "bubble" from the over-construction of data centres in the world, following the rapid growth of artificial intelligence technology. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797303_3_20250325140507.jpg&q=90)
-  
-
-A deputy at Beijing's top office on Hong Kong affairs has called on the SAR to roll out a blueprint to further drive its capital market development, seizing on opportunities brought about by the revitalisation of the city's stock market this year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797303-20250325.htm)
 
 ---

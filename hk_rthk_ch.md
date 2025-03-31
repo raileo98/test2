@@ -1,3 +1,49 @@
+# 港鐵出入口改善工程陸續完工　盼輕鐵試行寵物乘車了解乘客反應
+
+  
+
+立法會一個委員會討論提升港鐵設施的最新進展，港鐵常務總監楊美珍表示， 港鐵重鐵、機場快綫和高鐵網絡99個車站及68個輕鐵站，每日平均服務超過500萬人次乘客。為進一步提升乘客的出行體驗，港鐵持續投放資源提升車站設施及推動智慧出行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798221-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798221-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798221-20250331.htm)
+
+---
+
+# 私隱公署發指引清單　助機構制定僱員使用生成式AI政策
+
+  
+
+個人資料私隱專員公署發表《僱員使用生成式AI的指引清單》，協助機構制定僱員在工作時使用生成式AI的內部政策或指引，以及遵從《私隱條例》的相關規定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798219-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798219-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798219-20250331.htm)
+
+---
+
 # 北都3個「片區開發」試點暫時收到最少6份意向書
 
 ![發展局邀請市場就北都3個「片區開發」試點提交意向書，新世界發展的代表到場遞交意向書。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798218_1_20250331105323.jpg&q=90)
@@ -45,7 +91,7 @@
 
 ---
 
-# 陳茂波：外資「驚執輸」　後悔低配中資股
+# 陳茂波：外資「驚執輸」後悔低配中資股　正在急於補倉
 
   
 
@@ -1390,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm)
-
----
-
-# 運輸署：宋皇臺道輪候的士人數較多　籲乘搭港鐵離開啟德體育園
-
-![運輸署表示，現時宋皇臺道的士上落客區現時輪候人數較多，輪候時間會較長。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798141_1_20250330212308.jpg&q=85)
-  
-
-首度移師啟德體育園舉行的香港國際七人欖球賽，一連三日賽事晚上結束，運輸署表示，現時宋皇臺道的士上落客區現時輪候人數較多，輪候時間會較長，呼籲觀眾請選擇乘搭港鐵離開啟德體育園。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798141-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798141-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798141-20250330.htm)
-
----
-
-# 丹麥有民眾遊行抗議美國計劃奪取格陵蘭島控制權
-
-![哥本哈根有民眾出席集會，表達對格陵蘭島及當地人民的支持。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798140_1_20250330201545.jpg&q=90)
-  
-
-丹麥首都哥本哈根有民眾遊行，抗議美國政府計劃奪取丹麥自治領地格陵蘭島的控制權，以及美國副總統萬斯日前訪問格陵蘭島。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm)
 
 ---

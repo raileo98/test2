@@ -1,4 +1,28 @@
-# 陳茂波：外資「驚執輸」　後悔低配中資股
+# 北都3個「片區開發」試點暫時收到最少6份意向書
+
+![發展局邀請市場就北都3個「片區開發」試點提交意向書，新世界發展的代表到場遞交意向書。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798218_1_20250331105323.jpg&q=90)
+  
+
+發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，暫時收到6份意向書，遞交的發展商包括新世界發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm)
+
+---
+
+# 陳茂波：外資「驚執輸」後悔低配中資股　正在急於補倉
 
   
 
@@ -1422,29 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797901-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797901-20250328.htm)
-
----
-
-# 順豐控股去年多賺近24%　派息比率升至40%
-
-![順豐控股去年盈利101.7億元人民幣，按年升23.5%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797898_1_20250328172652.jpg&q=90)
-  
-
-順豐控股公布，去年盈利101.7億元人民幣，按年升23.5%。派末期息每股0.44元人民幣，派息比率升至40%，按年升5個百分點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797898-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797898-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797898-20250328.htm)
 
 ---

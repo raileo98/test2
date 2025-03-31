@@ -1,3 +1,52 @@
+# Teenage ace Mensik beats childhood hero Djokovic
+
+![Jakub Mensik slammed 14 aces past Novak Djokovic, who could only manage half that number. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798220_1_20250331110937.jpg&q=90)
+![Novak Djokovic had no answer for the creativity and speed of the Czech ace. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798220_2_20250331110937.jpg&q=90)
+  
+
+The 19-year-old Czech Jakub Mensik beat his childhood idol Novak Djokovic 7-6 (4) 7-6 (4) in an upset for the ages, claiming his first ATP title at the Miami Open as he denied the former number one in his bid for a milestone 100th.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm)
+
+---
+
+# SAR rescue team heads for quake-stricken Mandalay
+
+![The SAR rescue team has been redirected to Mandalay to help out with relief efforts. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798216_1_20250331104806.jpg&q=90)
+  
+
+An SAR government rescue team is on its way to quake-hit Mandalay in Myanmar.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm)
+
+---
+
 # Seven kicked out of NBA game after court 'brawl'
 
 ![Pistons forward Ronald Holland drives towards the basket as Timberwolves center Naz Reid defends during the second quarter at Target Center in Minnesota. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798214_1_20250331103953.jpg&q=90)
@@ -1400,53 +1449,5 @@ Rugby fans from around the world showered praise on the brand new stadium in Kai
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797906-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797906-20250328.htm)
-
----
-
-# Quake causes injuries and property damage in Ruili
-
-![Chinese residents flee as building debris shaken loose by the earthquake in Myanmar falls. Photo: taken from online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797900_1_20250328181242.jpg&q=90)
-  
-
-The earthquake in Myanmar was felt in China's Yunnan and Sichuan provinces and caused injuries and damage to houses in the city of Ruili on the border with northern Myanmar, according to Chinese media reports.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm)
-
----
-
-# MTR fares to freeze under adjustment mechanism
-
-![While MTR fares will freeze for 2025-26, commuters could face a steep hike next year after 3.36 percent of adjustments are brought forward. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797892_1_20250328173801.jpg&q=90)
-  
-
-There is relief for MTR passengers after the fare adjustment formula – which takes into account factors such as inflation and median household income – showed that fares would freeze for the coming year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm)
 
 ---

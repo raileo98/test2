@@ -1,3 +1,28 @@
+# Teenage ace Mensik beats childhood hero Djokovic
+
+![Jakub Mensik slammed 14 aces past Novak Djokovic, who could only manage half that number. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798220_1_20250331110937.jpg&q=90)
+![Novak Djokovic had no answer for the creativity and speed of the Czech ace. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798220_2_20250331110937.jpg&q=90)
+  
+
+The 19-year-old Czech Jakub Mensik beat his childhood idol Novak Djokovic 7-6 (4) 7-6 (4) in an upset for the ages, claiming his first ATP title at the Miami Open as he denied the former number one in his bid for a milestone 100th.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm)
+
+---
+
 # Seven kicked out of NBA game after court 'brawl'
 
 ![Pistons forward Ronald Holland drives towards the basket as Timberwolves center Naz Reid defends during the second quarter at Target Center in Minnesota. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798214_1_20250331103953.jpg&q=90)
@@ -1425,29 +1450,5 @@ Thomas Tuchel made a winning start to his England reign without delivering on hi
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796888-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796888-20250322.htm)
-
----
-
-# Maiden century as Nawaz keeps series alive against NZ
-
-![Hasan Nawaz celebrates his century against New Zealand at Eden Park in Auckland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796831_1_20250321182455.jpg&q=90)
-  
-
-Opener Hasan Nawaz struck a record-breaking maiden century on Friday as Pakistan crushed New Zealand by nine wickets in the third Twenty20 to keep the series alive.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796831-20250321.htm)
 
 ---

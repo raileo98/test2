@@ -1,4 +1,97 @@
-# 陳茂波：外資「驚執輸」　後悔低配中資股
+# 港鐵出入口改善工程陸續完工　盼輕鐵試行寵物乘車了解乘客反應
+
+  
+
+立法會一個委員會討論提升港鐵設施的最新進展，港鐵常務總監楊美珍表示， 港鐵重鐵、機場快綫和高鐵網絡99個車站及68個輕鐵站，每日平均服務超過500萬人次乘客。為進一步提升乘客的出行體驗，港鐵持續投放資源提升車站設施及推動智慧出行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798221-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798221-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798221-20250331.htm)
+
+---
+
+# 私隱公署發指引清單　助機構制定僱員使用生成式AI政策
+
+  
+
+個人資料私隱專員公署發表《僱員使用生成式AI的指引清單》，協助機構制定僱員在工作時使用生成式AI的內部政策或指引，以及遵從《私隱條例》的相關規定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798219-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798219-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798219-20250331.htm)
+
+---
+
+# 北都3個「片區開發」試點暫時收到最少6份意向書
+
+![發展局邀請市場就北都3個「片區開發」試點提交意向書，新世界發展的代表到場遞交意向書。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798218_1_20250331105323.jpg&q=90)
+  
+
+發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，暫時收到6份意向書，遞交的發展商包括新世界發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm)
+
+---
+
+# 緬甸地震七成房屋受損　紅十字會稱當地缺庇護所
+
+  
+
+緬甸地震增至1700人死亡，3400多人受傷。香港紅十字會國際及賑災服務主管程德君表示，當地約七成房屋受破壞倒塌，民眾暫時無安全的庇護所，部分民眾要在街上睡覺，乾淨食水及醫療服務都受影響，有部分居民出現肚瀉情況，擔心當地會爆發流行病。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm)
+
+---
+
+# 陳茂波：外資「驚執輸」後悔低配中資股　正在急於補倉
 
   
 
@@ -1352,101 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm)
-
----
-
-# 蕭澤頤：有待中央政府決定他去留問題
-
-![蕭澤頤出席警察學院結業會操，擔任檢閱官。（王慧蓓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798048_1_20250329222349.jpg&q=80)
-  
-
-下月任期屆滿的警務處處長蕭澤頤，出席警察學院結業會操，他形容自己心情百感交集，此生無憾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798048-20250329.htm)
-
----
-
-# 70歲男子羅亞祥失蹤　警方呼籲市民提供消息
-
-![70歲男子羅亞祥在佐敦文英街一帶失蹤，警方呼籲市民提供消息。(警方提供圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798043_1_20250329215210.jpg&q=90)
-  
-
-70歲男子羅亞祥在佐敦文英街一帶失蹤，警方呼籲市民提供消息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798043-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798043-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798043-20250329.htm)
-
----
-
-# 張軍晤林定國　稱最高人民法院持續推進與香港司法法律界交流合作
-
-![最高人民法院院長張軍(右)早上在北京會見律政司司長林定國。(人民法院報圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798042_1_20250329214059.jpg&q=90)
-  
-
-最高人民法院院長張軍早上在北京會見律政司司長林定國。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm)
-
----
-
-# 天文台：緬甸昨天大地震因震源距離香港較遠　本地沒有震感
-
-![天文台稱，緬甸昨天發生的大地震因震源距離香港較遠，本地沒有震感。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798041_1_20250329200137.jpg&q=90)
-  
-
-天文台表示，緬甸昨日下午發生的大地震，發生於緬甸中部的走滑斷層上。天文台的地震儀探測到地震引起的地震波，透過實時分析全球及本地地震儀數據，地震數據處理系統計算出地震參數。香港寶珊寬頻地震站探測到這次地震的地震波形，由於震源距離香港較遠，本地沒有震感。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798041-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798041-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798041-20250329.htm)
 
 ---
