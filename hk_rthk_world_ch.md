@@ -1,3 +1,26 @@
+# 日本政府估算南海海槽大地震最多可致29萬人死亡
+
+  
+
+日本政府地震特別工作小組發布的修訂報告，指如果南海海槽發生地震，可能造成多達29萬8千人死亡。而採取減輕損失的措施後，死亡人數將比2012 年的估計數字減少約一成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798223-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798223-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798223-20250331.htm)
+
+---
+
 # 緬甸地震七成房屋受損　紅十字會稱當地缺庇護所
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798034-20250329.htm)
-
----
-
-# 特區政府派救援隊到緬甸　李家超寄語他們注意安全
-
-![特區政府派出救援隊到緬甸，協助搜救工作。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798032_1_20250329185603.jpg&q=70)
-  
-
-因應緬甸地震，特區政府派出51人救援隊到當地，協助搜救工作。行政長官李家超表示，一收到緬甸駐港總領事館的要求後，特區政府短時間內就成立救援隊，感謝各隊員迅速響應，同時寄語他們要注意安全。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798032-20250329.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 日本政府估算南海海槽大地震最多可致29萬人死亡
+
+  
+
+日本政府地震特別工作小組發布的修訂報告，指如果南海海槽發生地震，可能造成多達29萬8千人死亡。而採取減輕損失的措施後，死亡人數將比2012 年的估計數字減少約一成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798223-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798223-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798223-20250331.htm)
+
+---
+
+# 品牌管理公司會員資料被盜收勒索威脅　私隱公署稱涉人為疏忽
+
+  
+
+一間品牌管理及分銷公司去年收到黑客的勒索訊息，聲稱竊取其資料並威脅出售相關資料。事件合共影響超過12萬人的個人資料，涉及的資料分別包括姓名、電郵地址、電話號碼、護照副本等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798222-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798222-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798222-20250331.htm)
+
+---
+
 # 港鐵出入口改善工程陸續完工　盼輕鐵試行寵物乘車了解乘客反應
 
   
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798144-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798144-20250330.htm)
-
----
-
-# 七欖閉幕禮　啟德主場館上空發放約一分鐘煙火
-
-![四方看台上蓋共安裝28個發射點，以多角度發放25米高的十色煙火。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798143_2_20250330204644.jpg&q=90)
-  
-
-首度移師啟德主場館舉行的香港國際七人欖球賽晚上結束。在閉幕禮上，主場館上空發放約一分鐘煙火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798143-20250330.htm)
-
----
-
-# 李家超：啟德主場館首場大賽圓滿達陣　期待未來盛事精彩不斷
-
-![李家超又到賽事首設、面積達7800呎的球迷村，形容如同嘉年華。(李家超社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798142_2_20250330215717.jpg&q=85)
-  
-
-首度移師啟德體育園、一連三日舉行的香港國際七人欖球賽晚上結束。到場觀賽的行政長官李家超表示，「香港七欖」已是本地旗艦盛事之一，推動香港成為國際體育盛事之都。啟德體育園主場館首場大賽已圓滿「達陣」，這個香港的新主場，一流設備已準備好，之後等待精彩體育、文化活動輪番上演，期待未來盛事精彩不斷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798142-20250330.htm)
 
 ---

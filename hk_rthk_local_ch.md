@@ -1,3 +1,26 @@
+# 品牌管理公司會員資料被盜收勒索威脅　私隱公署稱涉人為疏忽
+
+  
+
+一間品牌管理及分銷公司去年收到黑客的勒索訊息，聲稱竊取其資料並威脅出售相關資料。事件合共影響超過12萬人的個人資料，涉及的資料分別包括姓名、電郵地址、電話號碼、護照副本等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798222-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798222-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798222-20250331.htm)
+
+---
+
 # 港鐵出入口改善工程陸續完工　盼輕鐵試行寵物乘車了解乘客反應
 
   
@@ -1421,29 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798051-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798051-20250329.htm)
-
----
-
-# 寒冷天氣警告生效
-
-![寒冷天氣警告生效](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798049_1_20250329215230.jpg&q=90)
-  
-
-天文台在晚上9時45分發出寒冷天氣警告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798049-20250329.htm)
 
 ---

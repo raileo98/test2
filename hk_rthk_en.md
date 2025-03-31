@@ -4,7 +4,7 @@
 ![Novak Djokovic had no answer for the creativity and speed of the Czech ace. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798220_2_20250331110937.jpg&q=90)
   
 
-The 19-year-old Czech Jakub Mensik beat his childhood idol Novak Djokovic 7-6 (4) 7-6 (4) in an upset for the ages, claiming his first ATP title at the Miami Open as he denied the former number one in his bid for a milestone 100th.
+Czech teenager Jakub Mensik upset Novak Djokovic 7-6 (7/4), 7-6 (7/4) to win the Miami Open at Hard Rock Stadium.
 
   
 
