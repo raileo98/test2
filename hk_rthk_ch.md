@@ -1,5 +1,30 @@
+# 美股初段下跌　大型科技股向下
+
+![道瓊斯指數較早時報41299點，跌284點，跌幅0.68%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798330_1_20250331213846.jpg&q=90)
+  
+
+美股開市初段下跌，大型科技股向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm)
+
+---
+
 # 何立峰：中方將進一步全面深化改革　歡迎國際投資者分享發展機遇
 
+![何立峰表示，歡迎國際投資者積極參與中國資本市場建設，分享發展機遇。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798331_1_20250331214447.jpg&q=90)
   
 
 中共中央政治局委員、中央財辦主任何立峰在北京與美國橋水基金創始人達利歐會面，雙方就宏觀經濟形勢、中美經貿關係交換意見。

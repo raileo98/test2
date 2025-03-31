@@ -1,3 +1,27 @@
+# 美股初段下跌　大型科技股向下
+
+![道瓊斯指數較早時報41299點，跌284點，跌幅0.68%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798330_1_20250331213846.jpg&q=90)
+  
+
+美股開市初段下跌，大型科技股向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm)
+
+---
+
 # 萬科去年轉蝕約495億元人民幣
 
 ![萬科企業公布，去年轉蝕494.8億元人民幣。收入跌26%至3431.8億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798329_1_20250331211949.jpg&q=90)
@@ -1408,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm)
-
----
-
-# 特朗普：尋求第三度擔任總統並非開玩笑
-
-![特朗普接受訪問時談到尋求第三個任期問題。他說，不是開玩笑，但現在考慮這個問題為時尚早。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798167_1_20250331034814.jpg&q=90)
-  
-
-美國總統特朗普表示，尋求第三度擔任總統並非講笑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm)
 
 ---
