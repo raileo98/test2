@@ -1,5 +1,6 @@
 # 吳安儀衛冕英國女子公開賽冠軍　贏得職業桌球生涯第22項錦標
 
+![吳安儀勇奪生涯第22冠。（桌球總會FB圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798336_1_20250331230125.jpg&q=90)
   
 
 本港女子桌球手吳安儀成功衛冕英國女子公開賽冠軍。

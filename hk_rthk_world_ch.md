@@ -1,5 +1,6 @@
 # 特區救援隊緬甸展開工作　透過無人機或根據居民資訊搜尋生還者
 
+![消防處派出兩支隊伍去到最近瓦礫的位置嘗試搜救。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798337_1_20250331230318.jpg&q=90)
   
 
 正在緬甸的特區救援隊，展開救援工作。
