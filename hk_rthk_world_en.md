@@ -1,3 +1,27 @@
+# US tariffs to target 'all countries'
+
+![Donald Trump arrives back at the White House. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798259_1_20250331152712.jpg&q=90)
+  
+
+US President Donald Trump said the tariffs he plans to impose in the coming days would include "all countries," not just those with the largest trade imbalances with the United States.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm)
+
+---
+
 # S Korean police set to question wildfires suspect
 
 ![An Uiseong surveys what else is left after a wildfire devastated his village. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798256_1_20250331151631.jpg&q=45)
@@ -1415,29 +1439,5 @@ A court ordered the dissolution of the Unification Church in Japan, upholding a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797307-20250325.htm)
-
----
-
-# Oscar-winning Palestinian filmmaker arrested by IDF
-
-![According to Jewish American activists who witnessed the attack, Hamdan Ballal was surrounded and attacked by settlers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797302_2_20250325135917.jpg&q=90)
-  
-
-The Palestinian co-director of the Oscar-winning documentary "No Other Land", Hamdan Ballal, was attacked by settlers and arrested by the Israeli army on Monday in the occupied West Bank, according to his co-director Yuval Abraham.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797302-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797302-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797302-20250325.htm)
 
 ---

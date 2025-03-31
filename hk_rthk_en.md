@@ -1,3 +1,27 @@
+# US tariffs to target 'all countries'
+
+![Donald Trump arrives back at the White House. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798259_1_20250331152712.jpg&q=90)
+  
+
+US President Donald Trump said the tariffs he plans to impose in the coming days would include "all countries," not just those with the largest trade imbalances with the United States.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm)
+
+---
+
 # S Korean police set to question wildfires suspect
 
 ![An Uiseong surveys what else is left after a wildfire devastated his village. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798256_1_20250331151631.jpg&q=45)
@@ -1423,29 +1447,5 @@ An original animatronic model of the iconic alien created for Steven Spielberg's
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm)
-
----
-
-# Trump, Carney hail 'extremely productive' call
-
-![During the call, Carney told Trump his government would impose retaliatory tariffs on American goods from April 2. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797975_1_20250329071156.jpg&q=90)
-  
-
-US President Donald Trump said he had an "extremely productive" first call Friday with Canada's new Prime Minister Mark Carney, after soaring tensions over tariffs and Trump's wish to annex his northern neighbour.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm)
 
 ---
