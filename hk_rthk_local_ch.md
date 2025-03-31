@@ -1,3 +1,27 @@
+# 北都3個「片區開發」試點中午截收意向書　現場所見收12份
+
+![北部都會區3個「片區開發」試點中午截收意向書，華懋派代表遞交意向書。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798227_1_20250331120705.jpg&q=90)
+  
+
+發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，現場所見，收到12份意向書，遞交的發展商包括華懋及新世界發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm)
+
+---
+
 # 品牌管理公司會員資料被盜收勒索威脅　私隱公署稱涉人為疏忽
 
   
@@ -1422,29 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798052-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798052-20250329.htm)
-
----
-
-# 七欖第二日賽事共38820人入場
-
-![香港國際七人欖球賽第二日賽事，共有38820人入場。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798051_1_20250329222812.jpg&q=85)
-  
-
-香港國際七人欖球賽在啟德體育園進行的第二日賽事，共有38820人入場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798051-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798051-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798051-20250329.htm)
 
 ---

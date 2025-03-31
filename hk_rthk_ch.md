@@ -1,3 +1,27 @@
+# 北都3個「片區開發」試點中午截收意向書　現場所見收12份
+
+![北部都會區3個「片區開發」試點中午截收意向書，華懋派代表遞交意向書。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798227_1_20250331120705.jpg&q=90)
+  
+
+發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，現場所見，收到12份意向書，遞交的發展商包括華懋及新世界發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm)
+
+---
+
 # 一名中國公民在緬甸地震中遇難
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798147-20250330.htm)
-
----
-
-# 廣東茂名高州市晚上發生3級地震　震源深度10公里
-
-![廣東茂名高州市晚上發生3級地震　震源深度10公里](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798146_1_20250330211004.jpg&q=90)
-  
-
-廣東茂名高州市發生地震，中國地震台網測定，強度達到3級。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798146-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798146-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798146-20250330.htm)
 
 ---

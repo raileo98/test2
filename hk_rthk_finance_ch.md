@@ -1,3 +1,27 @@
+# 北都3個「片區開發」試點中午截收意向書　現場所見收12份
+
+![北部都會區3個「片區開發」試點中午截收意向書，華懋派代表遞交意向書。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798227_1_20250331120705.jpg&q=90)
+  
+
+發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，現場所見，收到12份意向書，遞交的發展商包括華懋及新世界發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm)
+
+---
+
 # 滬深股市半日跌約1%至近2%　建行逆市升3%
 
 ![內地3大指數臨近中午跌幅擴大，半日跌約1%至近2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798225_1_20250331114321.jpg&q=85)
@@ -1423,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797912-20250328.htm)
-
----
-
-# 世茂集團去年虧損擴大近71%
-
-![世茂集團去年虧損359.1億元人民幣，按年擴大近71%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797902_1_20250328174653.jpg&q=90)
-  
-
-世茂集團公布，去年虧損359.1億元人民幣，按年擴大近71%。維持不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797902-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797902-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797902-20250328.htm)
 
 ---
