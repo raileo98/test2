@@ -1,3 +1,26 @@
+# 吳安儀衛冕英國女子公開賽冠軍　贏得職業桌球生涯第22項錦標
+
+  
+
+本港女子桌球手吳安儀成功衛冕英國女子公開賽冠軍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm)
+
+---
+
 # 黃澤林稱邁阿密賽增強自信　冀改變外界輕視本港運動員態度
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798282_1_20250331183435.jpg&q=85)
@@ -1434,29 +1457,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796551-20250320.htm)
-
----
-
-# 歐國聯率領法國撼克羅地亞　麥巴比：為國家取勝最重要
-
-![麥巴比在賽前記者會自我批評，承認上仗表現不好。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796522_1_20250320071427.jpg&q=90)
-  
-
-歐洲國家聯賽將上演8強賽事，其中法國面對克羅地亞，效力皇家馬德里的法國前鋒麥巴比相隔6個月後再為國家隊披甲，他在賽前記者會自我批評，說很清楚自己不擅長的地方，也知道球迷不滿自己在球場的表現。他又說，從來不會質疑自己，也接受批評。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796522-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796522-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796522-20250320.htm)
 
 ---

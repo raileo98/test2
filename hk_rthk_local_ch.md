@@ -1,3 +1,26 @@
+# 吳安儀衛冕英國女子公開賽冠軍　贏得職業桌球生涯第22項錦標
+
+  
+
+本港女子桌球手吳安儀成功衛冕英國女子公開賽冠軍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm)
+
+---
+
 # 支援大灣區醫管局病人先導計劃延展至明年三月底
 
 ![醫衞局指，2023年5月至今年2月底，累計5100名合資格病人已參加先導計劃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798326_1_20250331210147.jpg&q=80)
@@ -1413,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm)
-
----
-
-# 羅淑佩：煙火匯演為今年七欖畫上完美句號
-
-![煙火匯演由旅發局支持，羅淑佩形容為七欖畫上完美句號。(旅遊發展局提供)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798152_1_20250330230856.jpg&q=90)
-![一連三日的七欖晚上閉幕。（旅遊發展局提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798152_2_20250330230856.jpg&q=75)
-  
-
-首度移師啟德主場館舉行的香港國際七人欖球賽結束，三日合計有超過11萬人入場。行政長官李家超以及多名司局長今日到場觀賞賽事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798152-20250330.htm)
 
 ---

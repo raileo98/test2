@@ -1,3 +1,26 @@
+# 吳安儀衛冕英國女子公開賽冠軍　贏得職業桌球生涯第22項錦標
+
+  
+
+本港女子桌球手吳安儀成功衛冕英國女子公開賽冠軍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm)
+
+---
+
 # 美國3月芝加哥PMI升至47.6　創近1年半以來最高
 
 ![美國3月芝加哥採購經理指數（PMI）升至47.6，高過預期，創2023年11月以來最高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798335_1_20250331220934.jpg&q=90)
