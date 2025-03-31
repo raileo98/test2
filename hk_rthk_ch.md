@@ -1,3 +1,27 @@
+# 滬深股市半日跌約1%至近2%　建行逆市升3%
+
+![內地3大指數臨近中午跌幅擴大，半日跌約1%至近2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798225_1_20250331114321.jpg&q=85)
+  
+
+內地股市臨近中午跌幅擴大，3大指數半日跌約1%至近2%。化工、機器人概念股下挫，銀行、貴金屬、汽車整車、黃金等股份逆市向上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798225-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798225-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798225-20250331.htm)
+
+---
+
 # 日本政府估算南海海槽大地震最多可致29萬人死亡
 
   
@@ -139,6 +163,7 @@
 
 # 陳茂波：外資「驚執輸」後悔低配中資股　正在急於補倉
 
+![陳茂波指出，外資「驚執輸」的原因，主要是因為早兩年受地緣政治等因素影響，基金經理的投資組合中，都傾向低配中資股（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798215_1_20250331114546.jpg&q=90)
   
 
 財政司司長陳茂波表示，多名來港出席金融盛事活動的與會者都指出，香港今年整體市面興旺，外國客人增加，各類金融機構對本港都有積極正面的評價。期間他接觸的金融領袖中，給他最深刻的印象是「驚執輸」，不少人後悔「低配了」中資股，正在急於補倉。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798145-20250330.htm)
-
----
-
-# 湯加發生7.3級地震　未有人員傷亡報告　美國當局發海嘯警報
-
-![湯加發生7.3級地震　未有人員傷亡報告　美國當局發海嘯警報](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798144_1_20250330210203.jpg&q=90)
-  
-
-太平洋島國湯加群島發生地震，中國地震台網測定，強度達到7.3級，目前未有人員傷亡和財產損失報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798144-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798144-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798144-20250330.htm)
 
 ---

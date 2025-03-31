@@ -1,3 +1,27 @@
+# 滬深股市半日跌約1%至近2%　建行逆市升3%
+
+![內地3大指數臨近中午跌幅擴大，半日跌約1%至近2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798225_1_20250331114321.jpg&q=85)
+  
+
+內地股市臨近中午跌幅擴大，3大指數半日跌約1%至近2%。化工、機器人概念股下挫，銀行、貴金屬、汽車整車、黃金等股份逆市向上。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798225-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798225-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798225-20250331.htm)
+
+---
+
 # 北都3個「片區開發」試點暫時收到最少6份意向書
 
 ![發展局邀請市場就北都3個「片區開發」試點提交意向書，新世界發展的代表到場遞交意向書。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798218_1_20250331105323.jpg&q=90)
@@ -24,6 +48,7 @@
 
 # 陳茂波：外資「驚執輸」後悔低配中資股　正在急於補倉
 
+![陳茂波指出，外資「驚執輸」的原因，主要是因為早兩年受地緣政治等因素影響，基金經理的投資組合中，都傾向低配中資股（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798215_1_20250331114546.jpg&q=90)
   
 
 財政司司長陳茂波表示，多名來港出席金融盛事活動的與會者都指出，香港今年整體市面興旺，外國客人增加，各類金融機構對本港都有積極正面的評價。期間他接觸的金融領袖中，給他最深刻的印象是「驚執輸」，不少人後悔「低配了」中資股，正在急於補倉。
@@ -1422,29 +1447,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797902-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797902-20250328.htm)
-
----
-
-# 永旺百貨去年虧損擴大79%　不派息
-
-![永旺百貨去年虧損擴大至3.38億元，香港業務分部業績錄得虧損2.88億元，按年擴大逾92%。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797901_1_20250328175030.jpg&q=85)
-  
-
-永旺百貨去年虧損3.38億元，按年擴大逾79%，不派末期息。去年收益按年跌約7%至約80.95億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797901-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797901-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797901-20250328.htm)
 
 ---
