@@ -1,3 +1,27 @@
+# HK 'remains art hub despite global market decline'
+
+![Lindsay Dewar says declining sales at events such as Art Basel Hong Kong reflect a global trend. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798264_1_20250331161511.jpg&q=90)
+  
+
+Hong Kong just wrapped up another year of art festivals, including Art Basel and Art Central this month, and they have led an investor to say the city remains an important hub for the market.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm)
+
+---
+
 # US tariffs to target 'all countries'
 
 ![Donald Trump arrives back at the White House. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798259_1_20250331152712.jpg&q=90)
@@ -1423,29 +1447,5 @@ Secretary for Housing Winnie Ho on Saturday said she hoped landlords of subdivid
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm)
-
----
-
-# ET model on auction block in New York
-
-![The model of ET the Extra-Terrestrial used in Steven Spielberg's 1982 film is pictured in New York. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797976_1_20250329071526.jpg&q=90)
-  
-
-An original animatronic model of the iconic alien created for Steven Spielberg's classic 1982 film "ET the Extra-Terrestrial" is for sale at Sotheby's and is estimated to fetch as much as US$900,000.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm)
 
 ---

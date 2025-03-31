@@ -1,3 +1,27 @@
+# 外交部：將發揚中緬情誼　與緬方共克時艱共渡難關
+
+![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798268_1_20250331161732.jpg&q=80)
+  
+
+緬甸地震，至今在當地造成至少1700人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm)
+
+---
+
 # 特區救援隊展開於曼德勒兩個受災區域搜救
 
   
@@ -924,6 +948,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm)
+
+---
+
+# 紅十字會稱緬甸地震災區缺庇護所　憂爆發流行病
+
+![程德君表示，當地約七成房屋受破壞倒塌，民眾暫時無安全的庇護所，部分民眾要在街上睡覺。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798217_1_20250331124046.jpg&q=40)
+  
+
+緬甸地震增至1700人死亡，3400多人受傷。香港紅十字會國際及賑災服務主管程德君表示，當地部分災區約七成房屋受破壞倒塌，民眾暫時無安全的庇護所，有民眾要在街上睡覺，乾淨食水及醫療服務都受影響，有部分居民出現肚瀉情況，擔心當地會爆發流行病。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm)
 
 ---
 

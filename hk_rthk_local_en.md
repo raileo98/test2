@@ -1,3 +1,27 @@
+# HK 'remains art hub despite global market decline'
+
+![Lindsay Dewar says declining sales at events such as Art Basel Hong Kong reflect a global trend. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798264_1_20250331161511.jpg&q=90)
+  
+
+Hong Kong just wrapped up another year of art festivals, including Art Basel and Art Central this month, and they have led an investor to say the city remains an important hub for the market.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm)
+
+---
+
 # Data breach of 128,000 'due to system fix and neglect'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798251_1_20250331144559.jpg&q=80)
@@ -1433,29 +1457,5 @@ The Secretary for Health says the new fee for people seeking help at accident an
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797455-20250326.htm)
-
----
-
-# Lights out for lamp model after hospital mishap
-
-![The Hospital Authority said it would not resume the use of the light in question until thorough checks are completed. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797428_1_20250326094629.jpg&q=90)
-  
-
-The Hospital Authority has suspended the use of about 200 examination lights of the same model as that involved in a recent incident that saw a surgical lamp fall at Hong Kong Adventist Hospital in Tsuen Wan.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797428-20250326.htm)
 
 ---

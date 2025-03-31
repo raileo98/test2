@@ -1,3 +1,27 @@
+# 外交部：將發揚中緬情誼　與緬方共克時艱共渡難關
+
+![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798268_1_20250331161732.jpg&q=80)
+  
+
+緬甸地震，至今在當地造成至少1700人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm)
+
+---
+
 # 市監局查長和交易　北京：一貫反對霸道霸凌損害他國正當權益行為
 
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797921-20250328.htm)
-
----
-
-# 西藏稱對外開放步伐會愈來愈快　為遊客提供更多便利條件
-
-![徐志濤指當局會根據西藏接待條件和基礎設施的變化，為外國遊客提供更便利條件。（葉燿坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797915_1_20250328203949.jpg&q=80)
-  
-
-今年是西藏自治區成立60周年，國新辦在拉薩市舉行新聞發布會，講解西藏人權事業的發展與進步。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797915-20250328.htm)
 
 ---
