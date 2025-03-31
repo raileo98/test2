@@ -1,3 +1,27 @@
+# 特朗普：出售TikTok協議將在限期前敲定
+
+![特朗普在空軍一號說，有很多潛在買家對TikTok非常有興趣。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798233_1_20250331125036.jpg&q=90)
+  
+
+美國總統特朗普表示，中國公司字節跳動出售旗下短片分享平台TikTok的協議，將在4月5日期限前敲定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm)
+
+---
+
 # 一名中國公民於緬甸地震遇難　中方隊伍7小時內救出4名倖存者
 
 ![岳馨說中方救援人員定位時需採取監控及敲擊詢問等方式，再開闢綠色通道，對隊員意志力及體能是極大挑戰。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798226_1_20250331124358.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798040-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798040-20250329.htm)
-
----
-
-# 中國救援隊抵達緬甸仰光國際機場
-
-![中國救援隊乘坐的飛機抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798037_1_20250329184929.jpg&q=90)
-  
-
-緬甸發生大地震後，中國救援隊上午乘坐國航包機，從首都機場出發前往災區，在下午抵達緬甸仰光國際機場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm)
 
 ---

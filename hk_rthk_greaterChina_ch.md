@@ -1,3 +1,50 @@
+# 星展香港：四大行增加核心一級資本屬支持經濟政策跟進措施
+
+  
+
+中國銀行、建設銀行、交通銀行及郵儲銀行，星期日發通告，計劃向財政部等機構發行A股集資，總規模不超過5200億元人民幣，用於增加核心一級資本，更好服務實體經濟。四家銀行A股發行價，較上星期五收市溢價約9%至近22%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm)
+
+---
+
+# 特朗普：出售TikTok協議將在限期前敲定
+
+![特朗普在空軍一號說，有很多潛在買家對TikTok非常有興趣。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798233_1_20250331125036.jpg&q=90)
+  
+
+美國總統特朗普表示，中國公司字節跳動出售旗下短片分享平台TikTok的協議，將在4月5日期限前敲定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm)
+
+---
+
 # 西藏愈來愈多老年人日間照料中心為長者服務
 
   
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797893-20250328.htm)
-
----
-
-# 國新辦發表白皮書　強調西藏人權法治化水平持續提升
-
-![國務院新聞辦公室發布《新時代西藏人權事業的發展與進步》白皮書。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797882_1_20250328163412.jpg&q=90)
-  
-
-國務院新聞辦公室發布《新時代西藏人權事業的發展與進步》白皮書，強調新時代西藏人權事業取得的歷史性成就前所未有。在以中國式現代化全面推進中華民族偉大復興的新時代新征程上，中國共產黨和中國政府將繼續順應西藏各族人民對美好生活的期待，推動西藏人權事業實現更高質量的發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797882-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797882-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797882-20250328.htm)
-
----
-
-# 外交部：中方堅決反對英方炮製所謂「半年報告」干涉中國內政
-
-![郭嘉昆說，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797879_1_20250328162152.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆回應英國政府再次發布「香港問題半年報告」時表示，中方堅決反對英方炮製所謂「半年報告」干涉中國內政、抹黑香港特區人權法治。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm](https://news.rthk.hk/rthk/ch/component/k2/1797879-20250328.htm)
 
 ---

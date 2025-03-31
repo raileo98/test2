@@ -1,3 +1,50 @@
+# 星展香港：四大行增加核心一級資本屬支持經濟政策跟進措施
+
+  
+
+中國銀行、建設銀行、交通銀行及郵儲銀行，星期日發通告，計劃向財政部等機構發行A股集資，總規模不超過5200億元人民幣，用於增加核心一級資本，更好服務實體經濟。四家銀行A股發行價，較上星期五收市溢價約9%至近22%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm)
+
+---
+
+# 特朗普：出售TikTok協議將在限期前敲定
+
+![特朗普在空軍一號說，有很多潛在買家對TikTok非常有興趣。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798233_1_20250331125036.jpg&q=90)
+  
+
+美國總統特朗普表示，中國公司字節跳動出售旗下短片分享平台TikTok的協議，將在4月5日期限前敲定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm)
+
+---
+
 # 中國海外去年盈利跌約39%　末期息減少33%
 
 ![中國海外派發末期息每股30港仙，全年派息60港仙，按年分別跌33%和25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798232_1_20250331123252.jpg&q=90)
@@ -189,6 +236,7 @@
 
 # 品牌管理公司會員資料被盜收勒索威脅　私隱公署稱涉人為疏忽
 
+![俊思被裁定違反《私隱條例》，私隱專員指示公司採取措施以糾正違規事項。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798222_1_20250331124732.jpg&q=75)
   
 
 一間品牌管理及分銷公司去年收到黑客的勒索訊息，聲稱竊取其資料並威脅出售相關資料。事件合共影響超過12萬人的個人資料，涉及的資料分別包括姓名、電郵地址、電話號碼、護照副本等。
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798155-20250330.htm)
-
----
-
-# 廣東省茂名市3級地震　震央附近東岸鎮有輕微震感
-
-![廣東省茂名市3級地震　震央附近東岸鎮有輕微震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798154_1_20250330231533.jpg&q=90)
-  
-
-廣東省茂名市晚上發生3級地震 ，震源深度10公里，暫未收到災情報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798154-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798154-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798154-20250330.htm)
-
----
-
-# 湯加地震　當局發布海嘯警告　要求沿海民眾轉移
-
-![湯加地震　當局發布海嘯警告　要求沿海民眾轉移](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798153_1_20250330225443.jpg&q=90)
-  
-
-太平洋島國湯加群島發生7級地震。湯加當局向所有沿海地區發出海嘯警告，指示有關地區民眾立即轉移至地勢較高的地方或內陸地區，避開海灘及沿海低窪地區，同時按當局的疏散路線及緊急指示轉移，警告民眾在官方解除警報前，切勿返回沿海地區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798153-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798153-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798153-20250330.htm)
 
 ---
