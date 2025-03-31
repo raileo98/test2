@@ -1,3 +1,27 @@
+# 港股美國預託證券較本港收市普遍靠穩
+
+![滙控美國預託證券較本港收市升逾1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798359_1_20250401061750.jpg&q=90)
+  
+
+滙控美國預託證券折合89.37港元，較本港收市升逾1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798359-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798359-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798359-20250401.htm)
+
+---
+
 # 美元兌主要貨幣靠穩
 
 ![美元兌主要貨幣靠穩。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798358_1_20250401060503.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798192-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798192-20250331.htm)
-
----
-
-# 日本2月零售銷售遜預期　工業生產則勝預期
-
-![日本2月零售銷售按年增長1.4%，低於市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798184_1_20250331082634.jpg&q=90)
-  
-
-日本政府數據顯示，2月零售銷售按年增長1.4%，低於市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798184-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798184-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798184-20250331.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 港股美國預託證券較本港收市普遍靠穩
+
+![滙控美國預託證券較本港收市升逾1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798359_1_20250401061750.jpg&q=90)
+  
+
+滙控美國預託證券折合89.37港元，較本港收市升逾1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798359-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798359-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798359-20250401.htm)
+
+---
+
 # 美元兌主要貨幣靠穩
 
 ![美元兌主要貨幣靠穩。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798358_1_20250401060503.jpg&q=75)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm)
-
----
-
-# 七姊妹道爆水管致煤氣管受損　煤氣公司目標明天中午前恢復供氣
-
-![煤氣公司表示，已向有需要的商業用户提供合適的協助。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798289_1_20250331183855.jpg&q=90)
-  
-
-煤氣公司表示，受七姊妹道爆水管事故影響，該處地下煤氣喉管受損，正配合相關水務工程進行緊急維修，目標明天中午前恢復供氣，具體時間須視乎水務工程復修進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm)
 
 ---
