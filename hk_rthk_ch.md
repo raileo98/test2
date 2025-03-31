@@ -1,3 +1,27 @@
+# 意大利Tesla展廳火警17輛車被毀　馬斯克斥恐怖主義行為
+
+![火警導致展廳內17輛汽車被燒毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798345_1_20250401015100.jpg&q=75)
+  
+
+意大利首都羅馬市郊一間Tesla汽車展廳發生火警，至少17輛電動車被燒毀，警方正調查是否與無政府主義者的抗議活動有關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm)
+
+---
+
 # 元朗1月謀殺及傷人案　警方再拘4人至今共20人被捕
 
 ![警方前日在油麻地再拘捕4人，至今共20人被捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798344_1_20250401013627.jpg&q=60)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm)
-
----
-
-# 外交部：將發揚中緬情誼　與緬方共克時艱共渡難關
-
-![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798268_1_20250331161732.jpg&q=80)
-  
-
-緬甸地震，至今在當地造成至少1700人死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm)
 
 ---
