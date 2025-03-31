@@ -1,3 +1,27 @@
+# Kai Tak operators 'inexperienced in serving big crowd'
+
+![Allan Zeman believes operators will learn a lesson from the Sevens, after some fans complained about not being able to get food at the venue. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798224_1_20250331112814.jpg&q=35)
+  
+
+Kai Tak Sports Park will "learn a good lesson" from hosting the Hong Kong Sevens and be better prepared in the future following complaints by fans over their inability to get food at the venue, a business tycoon said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm)
+
+---
+
 # SAR rescue team heads for quake-stricken Mandalay
 
 ![The SAR rescue team has been redirected to Mandalay to help out with relief efforts. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798216_1_20250331104806.jpg&q=90)
@@ -1433,30 +1457,5 @@ Financial Secretary Paul Chan on Tuesday said that artificial intelligence is a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797342-20250325.htm)
-
----
-
-# Art Central returns to Central Harbourfront
-
-![Art Central runs from Wednesday to Sunday at the Central Harbourfront. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797322_1_20250325164605.jpg&q=90)
-![The art fair features a new 'Legend' gallery to highlight lesser-known artists. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797322_2_20250325164605.jpg&q=90)
-  
-
-The annual Art Central fair is returning to Central Harbourfront from Wednesday with works from more than 100 galleries around the world.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797322-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797322-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797322-20250325.htm)
 
 ---

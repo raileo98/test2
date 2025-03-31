@@ -1,3 +1,27 @@
+# Kai Tak operators 'inexperienced in serving big crowd'
+
+![Allan Zeman believes operators will learn a lesson from the Sevens, after some fans complained about not being able to get food at the venue. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798224_1_20250331112814.jpg&q=35)
+  
+
+Kai Tak Sports Park will "learn a good lesson" from hosting the Hong Kong Sevens and be better prepared in the future following complaints by fans over their inability to get food at the venue, a business tycoon said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm)
+
+---
+
 # Teenage ace Mensik beats childhood hero Djokovic
 
 ![Jakub Mensik slammed 14 aces past Novak Djokovic, who could only manage half that number. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798220_1_20250331110937.jpg&q=90)
@@ -1425,29 +1449,5 @@ President Xi Jinping on Friday urged a gathering of multinational CEOs to protec
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797914-20250328.htm)
-
----
-
-# Praise for new stadium on day 1 of HK Sevens
-
-![Fans gathered for day one of the Hong Kong Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797906_2_20250328181344.jpg&q=75)
-  
-
-Rugby fans from around the world showered praise on the brand new stadium in Kai Tak as this year's Hong Kong Sevens got underway on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797906-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797906-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797906-20250328.htm)
 
 ---
