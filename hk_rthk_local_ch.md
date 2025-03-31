@@ -1,3 +1,49 @@
+# 不法份子以免費旅遊招攬販毒　警方機場拘捕一對涉案情侶
+
+  
+
+警方昨日在機場展開反毒品行動，以「販運危險藥物」罪拘捕一男一女，檢獲約50公斤懷疑氯胺酮，市值逾2470萬港元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798295-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798295-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798295-20250331.htm)
+
+---
+
+# 海關機場檢逾100公斤懷疑氯胺酮　3名女遊客被捕
+
+  
+
+海關過去兩日在機場偵破兩宗行李藏毒的販毒案件，共檢獲約102公斤，估計市值約5000萬元的懷疑氯胺酮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798294-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798294-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798294-20250331.htm)
+
+---
+
 # 利物浦熱刺及阿仙奴分別公開操練　讓球迷與球員接觸
 
   
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798114-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798114-20250330.htm)
-
----
-
-# 中醫醫院辦招聘會　醫衞局稱反應熱烈彰顯社會重視
-
-![醫務衞生局表示，香港中醫醫院昨日舉辦招聘活動，招聘醫院行政及前線員工，公眾反應熱烈。（醫務衞生局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798110_1_20250330154337.jpg&q=90)
-  
-
-醫務衞生局表示，香港中醫醫院昨日舉辦招聘活動，招聘醫院行政及前線員工，公眾反應熱烈，彰顯社會對中醫藥事業的重視。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798110-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798110-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798110-20250330.htm)
-
----
-
-# 運輸署料七欖閉幕較多觀眾同時間離場　籲盡量乘搭港鐵
-
-![運輸署表示，預計今晚較多觀眾可能同一時間離場，呼籲觀眾盡量乘搭港鐵。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798109_1_20250330154304.jpg&q=80)
-  
-
-一連3日國際七人欖球賽最後一天在啟德主場館舉行，晚上約7時舉行閉幕式，啟德體育園表示，主場館2樓和5樓均為理想觀賞地點，呼籲觀眾經F和H閘口乘搭電梯到達5樓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798109-20250330.htm)
 
 ---

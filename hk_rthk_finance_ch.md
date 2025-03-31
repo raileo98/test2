@@ -1,3 +1,27 @@
+# 在岸人民幣兌美元創逾1星期收市高位
+
+![在岸人民幣收市創逾1星期高位，報7.2516兌1美元，較上周五收市升121點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798287_1_20250331172618.jpg&q=75)
+  
+
+在岸人民幣收市創逾1星期高位，報7.2516兌1美元，較上周五收市升121點子；中間價則跌至近1星期低位，報7.1782兌1美元，與市場預測仍偏離逾800點子，反映監管層維穩匯率的態度未因關稅加碼而有變。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798287-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798287-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798287-20250331.htm)
+
+---
+
 # 利物浦熱刺及阿仙奴分別公開操練　讓球迷與球員接觸
 
   
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797970-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797970-20250329.htm)
-
----
-
-# 積金局就強積金「全自由行」諮詢公眾1個月
-
-![積金局就強積金「全自由行」展開為期1個月的公眾諮詢。（積金局圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797977_1_20250329071935.jpg&q=90)
-  
-
-積金局就強積金「全自由行」展開為期1個月的公眾諮詢，公眾可於4月28日前提交回應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797977-20250329.htm)
 
 ---
