@@ -1,3 +1,73 @@
+# 特區救援隊展開於曼德勒兩個受災區域搜救
+
+  
+
+保安局表示，抵達緬甸曼德勒的特區救援隊，帶上專業裝備及搜救犬，正於其中兩個受災區域進行搜救行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm)
+
+---
+
+# 麥美娟代表特區政府於鄭州出席黃帝故里拜祖大典
+
+  
+
+民政及青年事務局局長麥美娟在河南省鄭州市代表香港特區政府，出席乙巳年黃帝故里拜祖大典。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798270-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798270-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798270-20250331.htm)
+
+---
+
+# 恒指低收307點　3月升近1%　首季反彈逾15%
+
+![恒生指數午後一度跌至23000點邊緣，最多曾跌逾420點，其後跌幅收窄，收市報23119點，跌307點，跌幅1.3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798269_1_20250331162203.jpg&q=60)
+  
+
+港股連跌兩日，恒生指數午後一度跌至23000點邊緣，最多曾跌逾420點，其後跌幅收窄，收市報23119點，跌307點，跌幅1.3%，全日主板成交額2573億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798269-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798269-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798269-20250331.htm)
+
+---
+
 # 泰國警方據報拘捕4名中國男子涉嫌非法進入地震倒塌大樓取走文件
 
 ![泰國當局繼續在倒塌的大樓搜救。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798267_1_20250331160837.jpg&q=85)

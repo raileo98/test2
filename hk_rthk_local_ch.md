@@ -1,3 +1,49 @@
+# 特區救援隊展開於曼德勒兩個受災區域搜救
+
+  
+
+保安局表示，抵達緬甸曼德勒的特區救援隊，帶上專業裝備及搜救犬，正於其中兩個受災區域進行搜救行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm)
+
+---
+
+# 麥美娟代表特區政府於鄭州出席黃帝故里拜祖大典
+
+  
+
+民政及青年事務局局長麥美娟在河南省鄭州市代表香港特區政府，出席乙巳年黃帝故里拜祖大典。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798270-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798270-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798270-20250331.htm)
+
+---
+
 # 上月27日兩貨機分隔高度未符預期　民航處調查：涉人為因素
 
   
@@ -1399,53 +1445,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798088-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798088-20250330.htm)
-
----
-
-# 積金局加強規管杜絕電話推銷　籲市民收可疑來電立即收線
-
-![劉麥嘉軒說，如果市民日後收到來歷不明的cold call，聲稱是中介人並銷售強積金，建議立即收線。（積金局網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798086_1_20250330092756.jpg&q=90)
-  
-
-積金局主席劉麥嘉軒關注俗稱cold call的來歷不明推銷電話泛濫，甚至有不法之徒冒充強積金中介人進行電話詐騙。積金局早前已就強積金中介人的cold call進一步制訂嚴格的規管要求。因應積金局一系列措施，自去年起以cold call銷售強積金產品或服務的中介人比以往已大幅減少。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798086-20250330.htm)
-
----
-
-# 特區政府救援隊抵達緬甸仰光　乘車赴首都內比都
-
-![救援隊抵埗後不久就乘車出發前往首都內比都，車程預計需要10個小時。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798084_1_20250330091844.jpg&q=80)
-  
-
-緬甸發生大地震後，特區政府派出救援隊協助救援，保安局今早在社交平台表示，救援隊昨晚抵達緬甸仰光，並獲中國駐緬甸大使館外交官及香港緬甸商會代表到機場迎接。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm)
 
 ---

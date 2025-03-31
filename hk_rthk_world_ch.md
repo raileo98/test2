@@ -1,3 +1,26 @@
+# 特區救援隊展開於曼德勒兩個受災區域搜救
+
+  
+
+保安局表示，抵達緬甸曼德勒的特區救援隊，帶上專業裝備及搜救犬，正於其中兩個受災區域進行搜救行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm)
+
+---
+
 # 泰國警方據報拘捕4名中國男子涉嫌非法進入地震倒塌大樓取走文件
 
 ![泰國當局繼續在倒塌的大樓搜救。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798267_1_20250331160837.jpg&q=85)
@@ -1408,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798064-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798064-20250330.htm)
-
----
-
-# 俄國防部：烏克蘭無人機襲擊能源設施導致大量用戶斷電
-
-![俄羅斯國防部指責烏克蘭無人機多次襲擊別爾哥羅德州能源基礎設施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798063_1_20250330001354.jpg&q=90)
-  
-
-俄羅斯國防部星期六說，過去一日，烏克蘭無人機多次襲擊俄羅斯別爾哥羅德州能源基礎設施，導致一些高壓線被切斷、變壓器受損，造成當地9000多用戶斷電。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798063-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798063-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798063-20250330.htm)
 
 ---
