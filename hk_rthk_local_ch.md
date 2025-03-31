@@ -1,3 +1,26 @@
+# 港澳辦再次轉載報道引述政商界支持市監局依法審查長和交易
+
+  
+
+港澳辦網站再次轉載《大公報》文章，指長和計劃出售巴拿馬運河兩端港口資產，事件持續引發熱議。文章引述香港政商界人士，鑒於當前中美貿易戰的複雜背景，不少大型交易可能會觸及國家利益，認為長和作為一間扎根香港的大企業，各界希望有關買賣決策要考慮到對香港和國家的影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm)
+
+---
+
 # 證監會：近年企業欺詐有令人關注的趨勢
 
 ![證監會指，近年企業欺詐方面有令人關注的趨勢，上市公司高層或會利用貸款安排，作為將公司資金轉移給關連方的手段。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798312_1_20250331184722.jpg&q=85)
@@ -1413,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798139-20250330.htm)
-
----
-
-# 陳茂波：七欖各隊好手瞓身拼搏　觀眾全力喝采　盡情度過暢快周末
-
-![陳茂波說，現場4萬名觀眾全力喝采歡呼，盡情忘我度過一個開心暢快的周末。(陳茂波社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798138_1_20250330205059.jpg&q=75)
-![陳茂波表示，銀劍賽男子組決賽由中國隊對中國香港隊，兩隊好手全力競技，為觀眾上演了一場精彩賽事。(陳茂波社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798138_2_20250330205059.jpg&q=85)
-  
-
-香港國際七人欖球賽在啟德體育園閉幕，財政司司長陳茂波表示，他下午主持銀劍賽男子組決賽的頒獎禮。賽事由中國隊對中國香港隊，兩隊好手全力競技，為觀眾上演了一場精彩賽事，最後中國香港隊成功奪標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798138-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798138-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798138-20250330.htm)
 
 ---

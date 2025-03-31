@@ -1,3 +1,26 @@
+# 港澳辦再次轉載報道引述政商界支持市監局依法審查長和交易
+
+  
+
+港澳辦網站再次轉載《大公報》文章，指長和計劃出售巴拿馬運河兩端港口資產，事件持續引發熱議。文章引述香港政商界人士，鑒於當前中美貿易戰的複雜背景，不少大型交易可能會觸及國家利益，認為長和作為一間扎根香港的大企業，各界希望有關買賣決策要考慮到對香港和國家的影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm)
+
+---
+
 # 緬甸地震增至2056人死亡　近4千人受傷
 
 ![緬甸地震增至2056人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798316_1_20250331192640.jpg&q=75)
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798074-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798074-20250330.htm)
-
----
-
-# 哈馬斯同意調解方提出的加沙停火建議
-
-![加沙南部汗尤尼斯在戰火中成為廢墟。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798073_1_20250330035601.jpg&q=70)
-  
-
-巴勒斯坦武裝組織哈馬斯表示，同意調解方提出、新的加沙地帶停火提議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798073-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798073-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798073-20250330.htm)
 
 ---
