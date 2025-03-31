@@ -1,3 +1,26 @@
+# 衞生黑點大減8成半至約100個　卓永興感謝各部門配合
+
+  
+
+政府更新衞生黑點名單，大幅剔除630多個衞生黑點，佔整體衞生黑點數目八成半。黑點數目由730多個減至約100個。由於更新黑點名單中計及情況已獲改善但仍未達兩年的60多個衞生黑點，因此實際上94%曾出現在黑點名單的地點，整體情況已得到改善。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798242-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798242-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798242-20250331.htm)
+
+---
+
 # 港深西部鐵路下半年邀請意向書　陳美寶：對招標持開放態度
 
   
@@ -1423,30 +1446,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798059-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798059-20250329.htm)
-
----
-
-# 新華社：中國香港特區救援隊抵達緬甸仰光國際機場
-
-![香港特區救援隊抵達仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798058_2_20250330012903.jpg&q=90)
-![香港特區救援隊攜同搜救犬抵達緬甸仰光機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798058_3_20250330012903.jpg&q=90)
-  
-
-新華社報道，緬甸時間星期六晚，中國香港特區救援隊抵達仰光國際機場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm)
 
 ---
