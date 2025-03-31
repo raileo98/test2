@@ -1,3 +1,50 @@
+# 何立峰：中方將進一步全面深化改革　歡迎國際投資者分享發展機遇
+
+  
+
+中共中央政治局委員、中央財辦主任何立峰在北京與美國橋水基金創始人達利歐會面，雙方就宏觀經濟形勢、中美經貿關係交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm)
+
+---
+
+# 萬科去年轉蝕約495億元人民幣
+
+![萬科企業公布，去年轉蝕494.8億元人民幣。收入跌26%至3431.8億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798329_1_20250331211949.jpg&q=90)
+  
+
+萬科企業公布，去年轉蝕494.8億元人民幣，前年錄得盈利121.6億元。不派息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798329-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798329-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798329-20250331.htm)
+
+---
+
 # 恒大物業去年盈利跌近34%　不派末期息
 
 ![恒大物業去年盈利按年跌近34%至10.2億元人民幣，不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798327_1_20250331210504.jpg&q=90)
@@ -240,7 +287,7 @@
 ![港澳辦引述報道指，各界希望有關買賣決策要考慮到對香港和國家的影響。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798317_1_20250331200534.jpg&q=75)
   
 
-港澳辦網站再次轉載《大公報》文章，指長和計劃出售巴拿馬運河兩端港口資產，事件持續引發熱議。文章引述香港政商界人士，鑒於當前中美貿易戰的複雜背景，不少大型交易可能會觸及國家利益，認為長和作為一間扎根香港的大企業，各界希望有關買賣決策要考慮到對香港和國家的影響。
+港澳辦網站再次轉載《大公報》文章，指長和計劃出售巴拿馬運河兩端港口資產，事件持續引發熱議。文章引述多名香港政商界人士指出，鑒於當前中美貿易戰的複雜背景，不少大型交易可能會觸及國家利益，認為長和作為一間扎根香港的大企業，各界希望有關買賣決策要考慮到對香港和國家的影響。
 
   
 

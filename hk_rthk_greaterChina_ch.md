@@ -1,3 +1,26 @@
+# 何立峰：中方將進一步全面深化改革　歡迎國際投資者分享發展機遇
+
+  
+
+中共中央政治局委員、中央財辦主任何立峰在北京與美國橋水基金創始人達利歐會面，雙方就宏觀經濟形勢、中美經貿關係交換意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm)
+
+---
+
 # 支援大灣區醫管局病人先導計劃延展至明年三月底
 
 ![醫衞局指，2023年5月至今年2月底，累計5100名合資格病人已參加先導計劃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798326_1_20250331210147.jpg&q=80)
@@ -145,7 +168,7 @@
 ![港澳辦引述報道指，各界希望有關買賣決策要考慮到對香港和國家的影響。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798317_1_20250331200534.jpg&q=75)
   
 
-港澳辦網站再次轉載《大公報》文章，指長和計劃出售巴拿馬運河兩端港口資產，事件持續引發熱議。文章引述香港政商界人士，鑒於當前中美貿易戰的複雜背景，不少大型交易可能會觸及國家利益，認為長和作為一間扎根香港的大企業，各界希望有關買賣決策要考慮到對香港和國家的影響。
+港澳辦網站再次轉載《大公報》文章，指長和計劃出售巴拿馬運河兩端港口資產，事件持續引發熱議。文章引述多名香港政商界人士指出，鑒於當前中美貿易戰的複雜背景，不少大型交易可能會觸及國家利益，認為長和作為一間扎根香港的大企業，各界希望有關買賣決策要考慮到對香港和國家的影響。
 
   
 
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797993-20250329.htm)
-
----
-
-# 有在曼谷旅遊港人稱地震後到室外暫避　未見有餘震暫不會縮短行程
-
-![蕭先生說，巿面未見有太大影響，暫時應該不會縮短行程。（市民蕭先生提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797991_2_20250329141558.jpg&q=85)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感，有正在興建中的大樓整幢倒塌。有在當地旅遊的港人表示，地震後撤出室內，其後返回酒店，由於巿面未見有太大影響，暫時應該不會縮短行程。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797991-20250329.htm)
 
 ---
