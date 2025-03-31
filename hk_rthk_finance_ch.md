@@ -1,3 +1,27 @@
+# 越秀地產去年盈利跌67%　不派末期息
+
+![越秀地產去年盈利10.4億元人民幣，按年跌67.3%，不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798300_1_20250331175248.jpg&q=80)
+  
+
+越秀地產公布，去年盈利10.4億元人民幣，按年跌67.3%。不派末期息，全年派息每股0.189港元，派息總額約佔核心淨利潤44%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798300-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798300-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798300-20250331.htm)
+
+---
+
 # 證監會引入新的「市場偵測模型」　AI分析數據及早識別風險
 
 ![證監會引入新的「市場偵測模型」，運用AI協助數據分析，及時識別風險預警跡象。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798299_1_20250331175241.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798094-20250330.htm)
-
----
-
-# 美元指數曾失守104　美國10年期債息創1星期新低
-
-![美元指數一度跌穿104水平，低見103.89，是今個星期低位，跌逾0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797973_1_20250329070239.jpg&q=85)
-  
-
-憂慮經濟增長前景，美股、美元、美債孳息率都跌，資金流入日圓等避險資產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797973-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797973-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797973-20250329.htm)
 
 ---
