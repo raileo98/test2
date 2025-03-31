@@ -1,3 +1,49 @@
+# 荃景圍院舍失蹤男子已尋回　並沒有受傷
+
+  
+
+日前在荃灣失蹤的38歲男子林嘉良已被尋回。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798245-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798245-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798245-20250331.htm)
+
+---
+
+# 港鐵爭取年內完成東鐵綫安裝月台閘門　外判客服中心不涉裁員
+
+  
+
+立法會一個委員會討論港鐵提升設施的最新進展。港鐵常務總監楊美珍表示，現時東鐵綫只餘下3個車站未完成安裝月台閘門，形容安裝進度順利，會爭取在年內盡快完成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798244-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798244-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798244-20250331.htm)
+
+---
+
 # 衞生黑點大減8成半至約100個　卓永興感謝各部門配合
 
   

@@ -1,3 +1,27 @@
+# CityU strikes global research deal with Cambridge
+
+![City University president Freddy Boey with University of Cambridge vice-chancellor Deborah Prentice at the signing ceremony. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798243_1_20250331135251.jpg&q=85)
+  
+
+The City University of Hong Kong (CityU) and the University of Cambridge signed a global research collaboration deal on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798243-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798243-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798243-20250331.htm)
+
+---
+
 # 'Design, build, run model possible for new link to SZ'
 
 ![The government is hoping that a cross-border railway link between Hung Shui Kiu and Qianhai will become operational in 2035. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798240_1_20250331131812.jpg&q=80)
@@ -1424,29 +1448,5 @@ Secretary for Commerce and Economic Development Algernon Yau on Friday said the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797952-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797952-20250329.htm)
-
----
-
-# CK Hutchison ports deal 'won't be signed next week'
-
-![A source with close links to CK Hutchison suggests that the conglomerate will not sign a deal for the sale of its ports next week. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797942_1_20250328223502.jpg&q=65)
-  
-
-A controversial ports deal between CK Hutchison and a consortium led by US investment firm BlackRock won’t be signed as expected next week – according to a source with close links to the Hong Kong conglomerate.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 荃景圍院舍失蹤男子已尋回　並沒有受傷
+
+  
+
+日前在荃灣失蹤的38歲男子林嘉良已被尋回。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798245-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798245-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798245-20250331.htm)
+
+---
+
+# 港鐵爭取年內完成東鐵綫安裝月台閘門　外判客服中心不涉裁員
+
+  
+
+立法會一個委員會討論港鐵提升設施的最新進展。港鐵常務總監楊美珍表示，現時東鐵綫只餘下3個車站未完成安裝月台閘門，形容安裝進度順利，會爭取在年內盡快完成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798244-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798244-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798244-20250331.htm)
+
+---
+
 # 衞生黑點大減8成半至約100個　卓永興感謝各部門配合
 
   
@@ -1398,53 +1444,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798061-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798061-20250329.htm)
-
----
-
-# 因應緬甸地震　特區政府從賑災基金預留3千萬元作為緊急賑災之用
-
-![緬甸大地震，震央附近的曼德勒，損毀嚴重。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798060_1_20250329232750.jpg&q=90)
-  
-
-特區政府表示，因應緬甸地震，已從賑災基金預留3千萬元，作為緊急賑災項目之用，並正與本地救援機構緊密溝通，落實具體賑災計劃，務求為災民提供適切援助，協助他們渡過難關，早日回復正常生活。賑災基金諮詢委員會亦會從速處理有關撥款申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798060-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798060-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798060-20250329.htm)
-
----
-
-# 的士內搜出毒品　司機涉販毒被捕
-
-![警方在吳松街搜查一輛的士，檢獲懷疑毒品，拘捕司機。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798059_1_20250329232113.jpg&q=40)
-  
-
-一名48歲的士司機涉嫌販毒被捕，正被警方扣查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798059-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798059-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798059-20250329.htm)
 
 ---
