@@ -1,3 +1,51 @@
+# 瑪麗娜勒龐挪用歐洲議會資金罪成禁選公職　或無緣2027選總統
+
+![瑪麗娜勒龐星期一到庭聽取裁決結果。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798339_1_20250401002257.jpg&q=90)
+  
+
+法國極右領袖瑪麗娜勒龐及她所屬政黨國民聯盟的多名成員，被法院裁定挪用歐洲議會公款罪名成立，瑪麗娜勒龐被判監4年，其中兩年緩刑，5年內不得參選公職，罰款10萬歐元，瑪麗娜勒龐的律師表明會上訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798339-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798339-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798339-20250401.htm)
+
+---
+
+# 中日韓據報同意合作對沖美國關稅　中方希望進口日韓晶片產品
+
+![中日韓經貿部長會議日前在首爾舉行。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798338_1_20250331232647.jpg&q=90)
+  
+
+中日韓經貿部長會議日前在首爾舉行，央視旗下社交平台玉淵譚天報道，中日韓同意透過合作和維護多邊貿易機制，以確定性來對沖美國加徵對等關稅等行徑為全球貿易帶來的不確定性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm)
+
+---
+
 # 特區救援隊緬甸展開工作　透過無人機或根據居民資訊搜尋生還者
 
 ![消防處派出兩支隊伍去到最近瓦礫的位置嘗試搜救。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798337_1_20250331230318.jpg&q=90)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm)
-
----
-
-# 特區政府救援隊抵達緬甸仰光　乘車赴首都內比都
-
-![救援隊抵埗後不久就乘車出發前往首都內比都，車程預計需要10個小時。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798084_1_20250330091844.jpg&q=80)
-  
-
-緬甸發生大地震後，特區政府派出救援隊協助救援，保安局今早在社交平台表示，救援隊昨晚抵達緬甸仰光，並獲中國駐緬甸大使館外交官及香港緬甸商會代表到機場迎接。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798084-20250330.htm)
-
----
-
-# 美國一架小型飛機墜毀在明尼蘇達州墜毀　無人生還
-
-![小型飛機墜毀後，地面一棟房屋起火。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798083_2_20250330095148.jpg&q=90)
-  
-
-美國一架小型飛機在明尼蘇達州布魯克林帕克市墜毀，導致地面一棟房屋起火。當地消防部門官員說，飛機上無人生還，起火房屋內沒有人員傷亡報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798083-20250330.htm)
 
 ---

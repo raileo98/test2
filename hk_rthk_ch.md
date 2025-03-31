@@ -1,3 +1,51 @@
+# 瑪麗娜勒龐挪用歐洲議會資金罪成禁選公職　或無緣2027選總統
+
+![瑪麗娜勒龐星期一到庭聽取裁決結果。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798339_1_20250401002257.jpg&q=90)
+  
+
+法國極右領袖瑪麗娜勒龐及她所屬政黨國民聯盟的多名成員，被法院裁定挪用歐洲議會公款罪名成立，瑪麗娜勒龐被判監4年，其中兩年緩刑，5年內不得參選公職，罰款10萬歐元，瑪麗娜勒龐的律師表明會上訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798339-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798339-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798339-20250401.htm)
+
+---
+
+# 中日韓據報同意合作對沖美國關稅　中方希望進口日韓晶片產品
+
+![中日韓經貿部長會議日前在首爾舉行。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798338_1_20250331232647.jpg&q=90)
+  
+
+中日韓經貿部長會議日前在首爾舉行，央視旗下社交平台玉淵譚天報道，中日韓同意透過合作和維護多邊貿易機制，以確定性來對沖美國加徵對等關稅等行徑為全球貿易帶來的不確定性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm)
+
+---
+
 # 特區救援隊緬甸展開工作　透過無人機或根據居民資訊搜尋生還者
 
 ![消防處派出兩支隊伍去到最近瓦礫的位置嘗試搜救。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798337_1_20250331230318.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798263-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798263-20250331.htm)
-
----
-
-# 市監局查長和交易　北京：一貫反對霸道霸凌損害他國正當權益行為
-
-![郭嘉昆重申，中方一貫堅決反對利用經濟脅迫、霸道霸凌侵犯損害他國正當權益的行為。(外交部網站)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798266_1_20250331170054.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆回應國家市場監督管理總局將審查長和與貝萊德財團計劃簽署巴拿馬港口的交易協議時重申，中方一貫堅決反對利用經濟脅迫、霸道霸凌侵犯損害他國正當權益的行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm)
-
----
-
-# 上月27日兩貨機分隔高度未符預期　民航處調查：涉人為因素
-
-![民航處內部調查結果顯示，事件主要成因為人為因素所致，屬個別事件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798262_1_20250331174722.jpg&q=90)
-  
-
-上月兩架貨機在香港國際機場的中跑道及南跑道分別起飛，但未有實現預期的分隔高度，貨機飛至機場東北約7海里範圍時，其中一架貨機向機組人員發出交通防撞警示，隨後下降，兩架貨機之後繼續飛往各自的目的地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798262-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798262-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798262-20250331.htm)
 
 ---

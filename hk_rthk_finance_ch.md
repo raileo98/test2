@@ -1,3 +1,27 @@
+# 中日韓據報同意合作對沖美國關稅　中方希望進口日韓晶片產品
+
+![中日韓經貿部長會議日前在首爾舉行。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798338_1_20250331232647.jpg&q=90)
+  
+
+中日韓經貿部長會議日前在首爾舉行，央視旗下社交平台玉淵譚天報道，中日韓同意透過合作和維護多邊貿易機制，以確定性來對沖美國加徵對等關稅等行徑為全球貿易帶來的不確定性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm)
+
+---
+
 # 美國3月芝加哥PMI升至47.6　創近1年半以來最高
 
 ![美國3月芝加哥採購經理指數（PMI）升至47.6，高過預期，創2023年11月以來最高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798335_1_20250331220934.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798173-20250331.htm)
-
----
-
-# 四家國有大行擬向財政部等發A股集資不超過5200億元人民幣
-
-![中行等4家國有大行計劃向財政部等機構發行A股集資增加核心一級資本。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798172_1_20250331052959.jpg&q=90)
-  
-
-中國銀行等4家國有大行計劃向中國財政部等機構發行A股集資，總規模不超過5200億元人民幣，用於增加核心一級資本，更好服務實體經濟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798172-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798172-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798172-20250331.htm)
 
 ---
