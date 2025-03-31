@@ -1,3 +1,26 @@
+# 房委會加入6名新委員　另有5人再獲委任
+
+  
+
+行政長官委任6名新委員加入房委會，包括梁文廣、梁邦媛、趙子翹、羅啟華、張仁良及陸頌雄，任期由明天開始，為期兩年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798297-20250331.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798297-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798297-20250331.htm)
+
+---
+
 # 不法份子以免費旅遊招攬販毒　警方機場拘捕一對涉案情侶
 
   
@@ -187,6 +210,7 @@
 
 # 二月零售業總銷貨價值臨時估計為294億元　按年跌13%
 
+![今年2月零售業總銷貨價值的臨時估計為294億元，較去年同月下跌13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798273_1_20250331174842.jpg&q=90)
   
 
 政府統計處公布，今年2月零售業總銷貨價值的臨時估計為294億元，較去年同月下跌13%。與去年同期比較，今年首兩個月合計的零售業總銷貨價值的臨時估計下跌7.8%。
@@ -256,6 +280,7 @@
 
 # 上月27日兩貨機分隔高度未符預期　民航處調查：涉人為因素
 
+![民航處內部調查結果顯示，事件主要成因為人為因素所致，屬個別事件。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798262_1_20250331174722.jpg&q=90)
   
 
 上月兩架貨機在香港國際機場的中跑道及南跑道分別起飛，但未有實現預期的分隔高度，貨機飛至機場東北約7海里範圍時，其中一架貨機向機組人員發出交通防撞警示，隨後下降，兩架貨機之後繼續飛往各自的目的地。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798119-20250330.htm)
-
----
-
-# 七欖賽事最後一日　啟德美食海灣有檔主推折扣吸客
-
-![有熟食攤檔負責人表示，天氣等有利因素加持，今日銷情較過去兩日好。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798114_1_20250330160728.jpg&q=80)
-  
-
-啟德體育園七人欖球賽最後一日，主場館旁的「美食海灣嘉年華」有檔主稱生意未及預期，有檔主計劃推折扣吸客。本台記者曾向主場館部分閘口工作人員查詢「美食海灣」位置，他們均表示不清楚。亦有部分市民向他們查詢，他們均表示不清楚。由啟德主場館沿路走，要到青年運動場位置，才有「美食海灣」相關指示標示。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798114-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798114-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798114-20250330.htm)
 
 ---
