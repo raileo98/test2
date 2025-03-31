@@ -1,3 +1,27 @@
+# 意大利Tesla展廳火警17輛車被毀　馬斯克斥恐怖主義行為
+
+![火警導致展廳內17輛汽車被燒毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798345_1_20250401015100.jpg&q=75)
+  
+
+意大利首都羅馬市郊一間Tesla汽車展廳發生火警，至少17輛電動車被燒毀，警方正調查是否與無政府主義者的抗議活動有關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm)
+
+---
+
 # 英王查理斯三世本周將恢復參加公務活動
 
 ![王室消息人士透露，查理斯三世本周將恢復參加公務活動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798343_1_20250401012450.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm)
-
----
-
-# 泰國曼谷17人於緬甸大地震死亡　83人仍失蹤
-
-![救援人員持續在倒塌的建築物搜索。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798107_1_20250330142843.jpg&q=45)
-  
-
-泰國曼谷市政府表示，截至當地今早6時，緬甸中部大地震已造成曼谷17人死亡，32人受傷，83人仍然失蹤。當局正加緊搜救工作，並緊急撥款2億泰銖救災。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798107-20250330.htm)
 
 ---
