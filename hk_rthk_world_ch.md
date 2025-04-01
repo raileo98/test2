@@ -1,3 +1,23 @@
+# 美國制裁6名中央和特區官員　中方稱堅決反制美方錯誤行徑
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm)
+
+---
+
 # 泰國政府預期地震只對經濟造成短期影響
 
 ![泰國副財政部長表示，上星期在泰國造成破壞的強烈地震，或只對經濟造成短期影響，預計今年經濟增長仍將達到3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798446_1_20250401150404.jpg&q=80)
@@ -1411,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798161-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798161-20250331.htm)
-
----
-
-# 中國國際救援隊抵達緬甸內比都軍用機場
-
-![中國多支救援隊在緬甸參與救援工作，圖為中國公羊救援隊在曼德勒天空別墅展開行動。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798160_1_20250331052722.jpg&q=90)
-  
-
-再有中國救援力量抵達緬甸，準備展開地震救援行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798160-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798160-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798160-20250331.htm)
 
 ---

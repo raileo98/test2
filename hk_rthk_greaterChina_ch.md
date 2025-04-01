@@ -1,3 +1,23 @@
+# 美國制裁6名中央和特區官員　中方稱堅決反制美方錯誤行徑
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm)
+
+---
+
 # 陳國基冀市民透過各項展覽了解東江水供港歷史及國家關懷
 
 ![發展局和水務署今日起至6月13日，在添馬公園舉辦藝術展覽「舞動水滴展」。（陳國基社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798448_1_20250401153234.jpg&q=75)
@@ -1415,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm)
-
----
-
-# 港澳辦再轉載評論文章促長和作無愧於時代選擇　停止出售港口交易
-
-![港澳辦網站再次轉載《大公報》有關長和計劃出售巴拿馬運河港口等資產的文章。圖為巴拿馬運河港口。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798038_1_20250329193851.jpg&q=75)
-  
-
-港澳辦網站再次轉載《大公報》有關長和計劃出售巴拿馬運河港口等資產的文章。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm)
 
 ---

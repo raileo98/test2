@@ -1,3 +1,23 @@
+# 美國制裁6名中央和特區官員　中方稱堅決反制美方錯誤行徑
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm)
+
+---
+
 # 稅務局陸續發出報稅表　鼓勵使用「稅務易」
 
 ![稅務局發出約23萬份2024至25課稅年度利得稅報稅表、12萬份物業稅報稅表及33萬份僱主報稅表。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798450_1_20250401153312.jpg&q=90)
@@ -1415,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798253-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798253-20250331.htm)
-
----
-
-# 南丫島深灣劃定限制區保護海龜產卵　公眾7個月內禁止進入
-
-![漁護署表示，指定深灣限制地區有助保護瀕危綠海龜及其繁殖地，長遠對綠海龜的存活及繁衍有正面作用。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798249_1_20250331143959.jpg&q=80)
-  
-
-漁護署提醒市民，明日起至10月31日期間切勿進入南丫島深灣限制地區，包括0.5公頃的深灣沙灘及98.2公頃毗連該沙灘的海灣水域，以保護綠海龜產卵。限制期為7個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798249-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798249-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798249-20250331.htm)
 
 ---
