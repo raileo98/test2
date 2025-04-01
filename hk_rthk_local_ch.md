@@ -1,3 +1,26 @@
+# 稅務局陸續發出報稅表　鼓勵使用「稅務易」
+
+  
+
+稅務局發出約23萬份2024至25課稅年度利得稅報稅表、12萬份物業稅報稅表及33萬份僱主報稅表，並將於5月2日發出約266萬份個別人士報稅表。納稅人及僱主一般須於報稅表發出日起一個月內填報。就已委任稅務代表的個案，提交報稅表期限載列於已上載稅務局網站的「整批延期提交報稅表的通函」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798450-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798450-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798450-20250401.htm)
+
+---
+
 # 陳國基冀市民透過各項展覽了解東江水供港歷史及國家關懷
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798249-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798249-20250331.htm)
-
----
-
-# 荃景圍院舍失蹤男子已尋回　並沒有受傷
-
-![失蹤男子昨日下午在河背街被尋回，沒有受傷，案件沒有可疑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798245_1_20250331141241.jpg&q=40)
-  
-
-日前在荃灣失蹤的38歲男子林嘉良已被尋回。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798245-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798245-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798245-20250331.htm)
 
 ---
