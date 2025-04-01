@@ -1,3 +1,27 @@
+# 美國制裁一批實體與個人　指其參與伊朗武器採購網絡威脅平民
+
+![貝森特指伊朗向德黑蘭於區內的恐怖主義代理人及俄羅斯提供無人機及導彈。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798525_1_20250402014150.jpg&q=90)
+  
+
+美國財政部宣布制裁6間實體與2名個人，理由是有關實體與個人參與伊朗的武器採購網絡，要對伊朗無人機項目主要製造商能採購到零部件負上責任，制裁行動將與司法部協調。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798525-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798525-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798525-20250402.htm)
+
+---
+
 # 普京指俄中應續發加強戰略協作信號　王毅稱兩國合作不受外部干擾
 
 ![普京說俄中應持續向世界發出加強戰略協作的有力信號；王毅表示中俄政治互信不斷加深。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm)
-
----
-
-# 特朗普：出售TikTok協議將在限期前敲定
-
-![特朗普在空軍一號說，有很多潛在買家對TikTok非常有興趣。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798233_1_20250331125036.jpg&q=90)
-  
-
-美國總統特朗普表示，中國公司字節跳動出售旗下短片分享平台TikTok的協議，將在4月5日期限前敲定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm)
 
 ---

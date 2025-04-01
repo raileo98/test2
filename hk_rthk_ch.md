@@ -1,3 +1,27 @@
+# 美國制裁一批實體與個人　指其參與伊朗武器採購網絡威脅平民
+
+![貝森特指伊朗向德黑蘭於區內的恐怖主義代理人及俄羅斯提供無人機及導彈。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798525_1_20250402014150.jpg&q=90)
+  
+
+美國財政部宣布制裁6間實體與2名個人，理由是有關實體與個人參與伊朗的武器採購網絡，要對伊朗無人機項目主要製造商能採購到零部件負上責任，制裁行動將與司法部協調。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798525-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798525-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798525-20250402.htm)
+
+---
+
 # 普京指俄中應續發加強戰略協作信號　王毅稱兩國合作不受外部干擾
 
 ![普京說俄中應持續向世界發出加強戰略協作的有力信號；王毅表示中俄政治互信不斷加深。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm)
-
----
-
-# 梁振英籲企業多作慈善公益工作　做到兼濟天下
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798454_1_20250401161213.jpg&q=80)
-  
-
-全國政協副主席梁振英出席一個有關企業社會責任頒獎禮致辭時說，國務院總理李強上月初宣讀政府工作報告時，就香港部分首次提出，支援港澳地區深化國際合作交往，但其後不少港人將有關講話較狹窄地演繹為香港如何作為「超級聯繫人」、怎樣做好金融及商貿等經濟活動。他認為，當中不僅包含經貿活動，亦涵蓋文化、體育等國際交往合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm)
 
 ---
