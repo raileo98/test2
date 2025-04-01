@@ -1,4 +1,4 @@
-# Australia hit by inland floods the size of France
+# Australia hit by floods in inland area size of France
 
 ![A homestead is inundated by floodwaters near the town of Jundah in south-west Queensland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798443_1_20250401145343.jpg&q=85)
   

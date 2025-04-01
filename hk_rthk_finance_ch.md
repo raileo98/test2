@@ -1,3 +1,27 @@
+# 泰國政府預期地震只對經濟造成短期影響
+
+![泰國副財政部長表示，上星期在泰國造成破壞的強烈地震，或只對經濟造成短期影響，預計今年經濟增長仍將達到3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798446_1_20250401150404.jpg&q=80)
+  
+
+泰國副財政部長Julapun Amornvivat表示，上星期在泰國造成破壞的強烈地震，或只對經濟造成短期影響，預計今年經濟增長仍將達到3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm)
+
+---
+
 # 金價創新高　美國關稅計劃引發通脹擔憂
 
 ![現貨金高見每盎司3148.88美元，創新高，較早時報3132.39美元，升幅0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798442_1_20250401145159.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm)
-
----
-
-# 中石油：貿易和產品採購油氣渠道多元化　關注關稅政策變化
-
-![中石油財務總監王華表示，集團亦已經在亞洲、歐洲及美洲建立三大油氣貿易中心，貿易和產品採購渠道多元化。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798311_1_20250331184650.jpg&q=90)
-  
-
-中國早前對美國進口的煤炭、液化天然氣加徵15%關稅，並對美國的進口原油加徵10%關稅。中石油財務總監王華表示，集團亦已經在亞洲、歐洲及美洲建立三大油氣貿易中心，貿易和產品採購渠道多元化，去年已從20多國進口超過50種原油。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798311-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798311-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798311-20250331.htm)
 
 ---

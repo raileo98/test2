@@ -1,3 +1,27 @@
+# 泰國政府預期地震只對經濟造成短期影響
+
+![泰國副財政部長表示，上星期在泰國造成破壞的強烈地震，或只對經濟造成短期影響，預計今年經濟增長仍將達到3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798446_1_20250401150404.jpg&q=80)
+  
+
+泰國副財政部長Julapun Amornvivat表示，上星期在泰國造成破壞的強烈地震，或只對經濟造成短期影響，預計今年經濟增長仍將達到3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm)
+
+---
+
 # 緬甸大地震增至逾2700人死亡　全國舉行默哀儀式
 
 ![在緬甸曼德勒，大量建築物倒塌或受損。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798439_1_20250401145209.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798160-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798160-20250331.htm)
-
----
-
-# 伊朗回信拒絕與美國直接談判　總統：間接談判始終開放
-
-![佩澤希齊揚說，間接談判始終開放，美方行動將決定談判前景。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798159_1_20250331013331.jpg&q=90)
-  
-
-伊朗總統佩澤希齊揚表示，已通過阿曼向美方遞交回信，拒絕與美國進行直接談判，但間接談判始終開放，又說美方行動將決定談判前景。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798159-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798159-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798159-20250331.htm)
 
 ---

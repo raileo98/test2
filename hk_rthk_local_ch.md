@@ -1,5 +1,8 @@
 # 特區救援隊繼續在緬甸災區搜救　出動不同儀器協助
 
+![特區救援隊於昨日抵達緬甸曼德勒，隨即展開搜救，包括在兩個災區進行救援。（消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798445_1_20250401151109.jpg&q=80)
+![特區救援隊繼續在緬甸曼特勒災區搜救，並使用無人機系統，增強救援效率。（消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798445_2_20250401151109.jpg&q=90)
+![特區救援隊使用混凝土切割工具等搜救工具，以及先進電子儀器協助，增強救援效率。（消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798445_3_20250401151109.jpg&q=85)
   
 
 特區救援隊繼續在緬甸曼特勒災區搜救，並使用生還者搜索儀、無人機系統、電動旋轉鑿鎚機、混凝土切割工具等搜救工具，以及先進電子儀器協助，增強救援效率。

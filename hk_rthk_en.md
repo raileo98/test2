@@ -1,4 +1,4 @@
-# Australia hit by inland floods the size of France
+# Australia hit by floods in inland area size of France
 
 ![A homestead is inundated by floodwaters near the town of Jundah in south-west Queensland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798443_1_20250401145343.jpg&q=85)
   
@@ -96,7 +96,7 @@ A fire at a gas pipeline operated by Malaysia state energy firm Petronas injured
 
 # 'Schools welcome proposed NET scheme changes'
 
-![Officials are planning changes to the NET scheme. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798428_1_20250401125448.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798428_1_20250401125448.jpg&q=90)
   
 
 A school representative said on Tuesday that proposed changes to the Native English Teacher (NET) scheme gives headteachers more flexibility.
