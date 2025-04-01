@@ -1,3 +1,27 @@
+# Bielefeld shock holders Leverkusen in German Cup
+
+![Bielefeld players celebrate winning their German Cup semi-final match against Bayern Leverkusen. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798544_1_20250402073801.jpg&q=90)
+  
+
+German Cup holders Bayer Leverkusen suffered a shock 2-1 elimination at Arminia Bielefeld in the semi-finals of the competition.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm)
+
+---
+
 # Real Madrid hold Real Sociedad in eight-goal thriller
 
 ![Antonio Rudiger, right, were among the scorers for Real Madrid. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798540_2_20250402062922.jpg&q=90)
@@ -1426,29 +1450,5 @@ Goalkeeper Mike Maignan saved twice in the shoot-out as France beat Croatia 5-4 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797081-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797081-20250324.htm)
-
----
-
-# Filipino teenager Eala sends Keys packing in Miami
-
-![Eala is the first Filipino woman in the Open Era to beat a top-10 opponent since 1975. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797077_1_20250324055913.jpg&q=90)
-  
-
-Fifth-seeded American Madison Keys, the Australian Open champion, crashed out of the Miami Open suffering a shock loss to 19-year-old Filipino wildcard Alexandra Eala.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm)
 
 ---

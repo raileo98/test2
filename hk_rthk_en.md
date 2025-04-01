@@ -1,3 +1,27 @@
+# Bielefeld shock holders Leverkusen in German Cup
+
+![Bielefeld players celebrate winning their German Cup semi-final match against Bayern Leverkusen. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798544_1_20250402073801.jpg&q=90)
+  
+
+German Cup holders Bayer Leverkusen suffered a shock 2-1 elimination at Arminia Bielefeld in the semi-finals of the competition.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm)
+
+---
+
 # Wall Street tumbles on uncertainty over Liberation Day
 
 ![All the nervousness in the market helped push the price of gold to records - it briefly topped US$3,175 per ounce. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798541_1_20250402064055.jpg&q=85)
@@ -1413,29 +1437,5 @@ Officials have brushed off concerns that landlords might be hesitant about getti
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm)
-
----
-
-# HK 'remains art hub despite global market decline'
-
-![Lindsay Dewar says declining sales at events such as Art Basel Hong Kong reflect a global trend. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798264_1_20250331161511.jpg&q=90)
-  
-
-Hong Kong just wrapped up another year of art festivals, including Art Basel and Art Central this month, and they have led an investor to say the city remains an important hub for the market.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm)
 
 ---
