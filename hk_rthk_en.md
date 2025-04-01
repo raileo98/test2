@@ -1,3 +1,51 @@
+# Trump 'perfecting' tariffs with hours to go
+
+![White House Press Secretary Karoline Leavitt told a briefing that the tariffs would take effect "immediately" after the announcement. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798530_1_20250402033307.jpg&q=90)
+  
+
+US President Donald Trump kept the world's leading economies on edge on Tuesday as he made final preparations for a "Liberation Day" announcement of sweeping new tariffs that could trigger a global trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798530-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798530-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798530-20250402.htm)
+
+---
+
+# French court to hear far-right leader's appeal
+
+![Marine Le Pen on Monday was given a prison term and fine after being convicted of a fake jobs scheme at the EU parliament. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798529_1_20250402032757.jpg&q=90)
+  
+
+A French appeals court said on Tuesday it would examine Marine Le Pen's case within a timeframe that could potentially allow the far-right leader to contest the 2027 presidential election if her conviction is overturned.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm)
+
+---
+
 # Forest beat Man Utd; Saka scores on Arsenal return
 
 ![Nottingham Forest's Anthony Elanga scored the only goal of the match against United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798535_1_20250402054006.jpg&q=90)
@@ -1389,53 +1437,5 @@ South Korean police plan to question a 56-year-old man on suspicion of starting 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798256-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798256-20250331.htm)
-
----
-
-# Chinese rescuers find six quake survivors in Myanmar
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798255_1_20250331151517.jpg&q=90)
-  
-
-Rescuers from China have found six survivors so far in earthquake-rattled Myanmar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm)
-
----
-
-# Data breach of 128,000 'due to system fix and neglect'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798251_1_20250331144559.jpg&q=80)
-  
-
-The Office of the Privacy Commissioner for Personal Data says a data breach incident by ImagineX has led to nearly 128,000 people’s information being compromised.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm)
 
 ---

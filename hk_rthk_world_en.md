@@ -1,3 +1,51 @@
+# Trump 'perfecting' tariffs with hours to go
+
+![White House Press Secretary Karoline Leavitt told a briefing that the tariffs would take effect "immediately" after the announcement. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798530_1_20250402033307.jpg&q=90)
+  
+
+US President Donald Trump kept the world's leading economies on edge on Tuesday as he made final preparations for a "Liberation Day" announcement of sweeping new tariffs that could trigger a global trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798530-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798530-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798530-20250402.htm)
+
+---
+
+# French court to hear far-right leader's appeal
+
+![Marine Le Pen on Monday was given a prison term and fine after being convicted of a fake jobs scheme at the EU parliament. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798529_1_20250402032757.jpg&q=90)
+  
+
+A French appeals court said on Tuesday it would examine Marine Le Pen's case within a timeframe that could potentially allow the far-right leader to contest the 2027 presidential election if her conviction is overturned.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm)
+
+---
+
 # Far-right party chief calls for rally over Le Pen ban
 
 ![Marine Le Pen with Jordan Bardella at the Elysee presidential palace in Paris in August. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798485_1_20250401174939.jpg&q=85)
@@ -1390,54 +1438,5 @@ Thailand's cabinet on Thursday approved a draft law for casinos and entertainmen
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797665-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797665-20250327.htm)
-
----
-
-# Japan warns of 'significant impact' of US tariffs
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797646_1_20250327114555.jpg&q=90)
-  
-
-Japan's government on Thursday warned of a "significant impact" on its economic ties with the United States -- and on global trade -- after US President Donald Trump announced import tariffs on cars.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797646-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797646-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797646-20250327.htm)
-
----
-
-# South Korea battles worst ever wildfires
-
-![The wildfires in South Korea have been moving rapidly eastward, spreading almost to the coast, carried by gusty winds. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_1_20250327105237.jpg&q=80)
-![A satellite image shows smoke from fires burning in Uiseong county, South Korea. Photo: Nasa via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797634_2_20250327105237.jpg&q=80)
-  
-
-Wildfires raging in South Korea doubled in size on Thursday from a day earlier, as authorities called the blazes the country's worst natural fire disaster with at least 26 people killed and historic temples incinerated.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm)
 
 ---
