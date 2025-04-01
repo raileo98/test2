@@ -1,3 +1,28 @@
+# Forest beat Man Utd; Saka scores on Arsenal return
+
+![Nottingham Forest's Anthony Elanga scored the only goal of the match against United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798535_1_20250402054006.jpg&q=90)
+![Bukayo Saka scored in his first appearance with Arsenal since December. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798535_2_20250402054006.jpg&q=90)
+  
+
+Nottingham Forest beat Manchester United 1-0 to close in on Champions League football next season as Bukayo Saka scored in Arsenal's 2-1 win over Fulham on his return from injury.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm)
+
+---
+
 # 'Disneyland expansion needs careful planning'
 
 ![Rosanna Law says any plans to use public money to expand Hong Kong Disneyland should be carefully considered. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798510_1_20250401213045.jpg&q=85)
@@ -1412,29 +1437,5 @@ The Office of the Privacy Commissioner for Personal Data says a data breach inci
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798251-20250331.htm)
-
----
-
-# Privacy watchdog issues AI guidelines for employees
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798247_1_20250331141847.jpg&q=90)
-  
-
-The Office of the Privacy Commissioner for Personal Data (PCPD) on Monday issued a checklist to guide organisations in regulating their employees’ use of generative artificial intelligence.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm)
 
 ---

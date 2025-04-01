@@ -1,3 +1,28 @@
+# Forest beat Man Utd; Saka scores on Arsenal return
+
+![Nottingham Forest's Anthony Elanga scored the only goal of the match against United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798535_1_20250402054006.jpg&q=90)
+![Bukayo Saka scored in his first appearance with Arsenal since December. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798535_2_20250402054006.jpg&q=90)
+  
+
+Nottingham Forest beat Manchester United 1-0 to close in on Champions League football next season as Bukayo Saka scored in Arsenal's 2-1 win over Fulham on his return from injury.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm)
+
+---
+
 # Ng On-yee happy that billiards keep Tier A status
 
 ![Ng On-yee shows off her British Open trophy upon her return to Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798472_1_20250401170234.jpg&q=90)
@@ -1425,29 +1450,5 @@ Norway's Jakob Ingebrigtsen won the 1,500m in Nanjing on Sunday to claim not onl
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm)
-
----
-
-# Reed qualifies for British Open after Macau finish
-
-![Patrick Reed playing a shot during the final round of the 2025 International Series Macau at the Macau Golf and Country Club in Macau. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797045_1_20250323191233.jpg&q=90)
-  
-
-Former Masters champion Patrick Reed qualified for the British Open after coming second behind fellow LIV player Carlos Ortiz at the International Series Macau on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm)
 
 ---
