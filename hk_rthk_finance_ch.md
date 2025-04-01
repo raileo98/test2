@@ -1,3 +1,27 @@
+# 歐元區3月製造業PMI連升3個月　產出兩年來首次擴張
+
+![歐元區3月製造業PMI終值升至48.6，連升3個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798462_1_20250401164722.jpg&q=90)
+  
+
+標普全球與漢堡商業銀行（HCOB）聯合公布，歐元區3月製造業採購經理指數（PMI）終值為48.6，連升3個月，但低於初值的48.7，而2月終值為47.6。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm)
+
+---
+
 # 國家金融監管總局：鼓勵金融機構加強科技領域金融支持
 
 ![國家金融監管總局、科技部等聯合發文，鼓勵金融機構加強對國家重大科技任務，和科技型中小企的金融支持。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798460_1_20250401163404.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm)
-
----
-
-# 李家超稱東江水供港承載家國深情　構築未雨綢繆長遠謀劃
-
-![李家超出席東江水供港六十周年紀念典禮暨「舞動水滴展」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_2_20250331201314.jpg&q=85)
-  
-
-行政長官李家超表示，國家的東江水，是香港的生命之源。東江水佔全香港的食水用量，達到七成至八成，支撐香港經濟持續發展，滋養香港市民安居樂業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm)
 
 ---

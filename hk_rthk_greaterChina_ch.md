@@ -1,3 +1,27 @@
+# 王毅：中俄不斷深化戰略協作夥伴關係有利彼此成就
+
+![王毅說，相信中俄兩國將堅定延續偉大友誼，為推動國際秩序朝著更公正合理的方向發展作出「中俄貢獻」 。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798463_1_20250401165210.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅說，中俄互為最大鄰國，都是世界大國，對維護世界和平發展負有特殊責任。兩國不斷深化戰略協作夥伴關係，有利雙方和睦相處、彼此成就。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm)
+
+---
+
 # 駐港國安公署嚴厲譴責　稱美國制裁是一張廢紙
 
 ![駐港國安公署嚴厲譴責美方行為，並嚴正警告任何外部勢力妄圖干涉香港維護國家安全必定碰壁。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798456_1_20250401164543.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798067-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798067-20250330.htm)
-
----
-
-# 洪都拉斯副總統：洪中建交是最正確決定
-
-![共享基金會與洪都拉斯衛生部在特古西加爾巴舉行登革熱防控合作項目成果發布會。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798065_1_20250330005137.jpg&q=90)
-  
-
-洪都拉斯副總統古鐵雷斯日前在洪中建交兩周年慶祝活動上表示，洪中建交是最正確的決定，兩國要做永遠的好朋友、好伙伴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm)
 
 ---

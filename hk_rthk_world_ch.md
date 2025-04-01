@@ -1,3 +1,27 @@
+# 王毅：中俄不斷深化戰略協作夥伴關係有利彼此成就
+
+![王毅說，相信中俄兩國將堅定延續偉大友誼，為推動國際秩序朝著更公正合理的方向發展作出「中俄貢獻」 。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798463_1_20250401165210.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅說，中俄互為最大鄰國，都是世界大國，對維護世界和平發展負有特殊責任。兩國不斷深化戰略協作夥伴關係，有利雙方和睦相處、彼此成就。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm)
+
+---
+
 # 美國制裁6名中央和特區官員　中方稱堅決反制美方錯誤行徑
 
 ![郭嘉昆重申，香港事務純屬中國內政，敦促美方停止以任何方式插手香港事務和中國內政。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798451_1_20250401154203.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm)
-
----
-
-# 國際社會繼續援助緬甸抗震救災
-
-![救援人員在緬甸曼德勒展開救援。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798161_1_20250331015452.jpg&q=40)
-  
-
-國際社會繼續援助遭遇強震的緬甸，紅十字會與紅新月會國際聯合會向緬甸地震災區撥款200萬瑞士法郎，多國繼續向災區派出救援力量。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798161-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798161-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798161-20250331.htm)
 
 ---

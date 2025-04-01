@@ -1,3 +1,27 @@
+# 王毅：中俄不斷深化戰略協作夥伴關係有利彼此成就
+
+![王毅說，相信中俄兩國將堅定延續偉大友誼，為推動國際秩序朝著更公正合理的方向發展作出「中俄貢獻」 。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798463_1_20250401165210.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅說，中俄互為最大鄰國，都是世界大國，對維護世界和平發展負有特殊責任。兩國不斷深化戰略協作夥伴關係，有利雙方和睦相處、彼此成就。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm)
+
+---
+
 # 麥美娟稱區議員交代接觸市民數字做法史無前例
 
   
