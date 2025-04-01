@@ -1,3 +1,26 @@
+# 夏寶龍會見港協暨奧委會會長霍震霆一行　冀繼續高舉愛國愛港旗幟
+
+  
+
+在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見港協暨奧委會會長霍震霆等人，指港協在發展和推廣體育運動，促進香港與內地以及世界各國各地區體育交流合作等方面，發揮了重要作用。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm)
+
+---
+
 # 吳安儀凱旋回港　盼有更多時間推廣桌球
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798453_1_20250401160211.jpg&q=90)
@@ -1435,29 +1458,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm)
-
----
-
-# 港隊友誼賽兩球擊敗澳門
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796640_1_20250320184358.jpg&q=85)
-  
-
-正備戰下周亞洲盃外圍賽的港隊，在旺角大球場與澳門踢友誼賽，憑鐘樂安及李小恆於上半場的入球，贏二比零。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 夏寶龍會見港協暨奧委會會長霍震霆一行　冀繼續高舉愛國愛港旗幟
+
+  
+
+在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見港協暨奧委會會長霍震霆等人，指港協在發展和推廣體育運動，促進香港與內地以及世界各國各地區體育交流合作等方面，發揮了重要作用。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm)
+
+---
+
 # 特區政府強烈譴責和反對美國《香港政策法》報告
 
   
@@ -69,7 +92,7 @@
 
 ---
 
-# 緬甸大地震增至逾2700人死亡　中國救援隊伍已救出8名倖存者
+# 緬甸地震增至逾2700人死亡　中國救援隊伍已救出8名倖存者
 
 ![中國救援隊在曼德勒協助救援。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798479_1_20250401173446.jpg&q=90)
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm)
-
----
-
-# 中方救援隊在緬甸曼德勒救出一名倖存者
-
-![救援隊透過生命探測器在曼德勒佛學禮堂發現一名被困者仍有生命體徵。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798134_1_20250330184542.jpg&q=90)
-  
-
-中國救援隊再在緬甸地震災區救出倖存者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm)
 
 ---
