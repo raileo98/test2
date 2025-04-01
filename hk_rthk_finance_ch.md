@@ -1,3 +1,27 @@
+# 台股高收近3%　結束4日跌勢
+
+![台灣加權指數收市報21280點，升584點，升幅2.82%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798438_1_20250401142935.jpg&q=90)
+  
+
+台灣股市反彈近3%，結束連續4個交易日的跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798438-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798438-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798438-20250401.htm)
+
+---
+
 # 港交所計劃今年優化ETP業務　降低參與者營運負擔
 
 ![港交所今年計劃優化交易所買賣產品業務，降低主要參與者的營運負擔，提高市場效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798412_1_20250401115826.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm)
-
----
-
-# 在岸人民幣兌美元創逾1星期收市高位
-
-![在岸人民幣收市創逾1星期高位，報7.2516兌1美元，較上周五收市升121點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798287_1_20250331172618.jpg&q=75)
-  
-
-在岸人民幣收市創逾1星期高位，報7.2516兌1美元，較上周五收市升121點子；中間價則跌至近1星期低位，報7.1782兌1美元，與市場預測仍偏離逾800點子，反映監管層維穩匯率的態度未因關稅加碼而有變。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798287-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798287-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798287-20250331.htm)
 
 ---

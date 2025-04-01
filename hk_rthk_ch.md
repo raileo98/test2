@@ -1,3 +1,47 @@
+# 台股高收近3%　結束4日跌勢
+
+![台灣加權指數收市報21280點，升584點，升幅2.82%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798438_1_20250401142935.jpg&q=90)
+  
+
+台灣股市反彈近3%，結束連續4個交易日的跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798438-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798438-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798438-20250401.htm)
+
+---
+
+# 緬甸大地震增至逾2700人死亡
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798439-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798439-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798439-20250401.htm)
+
+---
+
 # 港交所計劃今年優化ETP業務　降低參與者營運負擔
 
 ![港交所今年計劃優化交易所買賣產品業務，降低主要參與者的營運負擔，提高市場效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798412_1_20250401115826.jpg&q=90)

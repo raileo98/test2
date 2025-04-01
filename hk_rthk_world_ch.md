@@ -1,3 +1,23 @@
+# 緬甸大地震增至逾2700人死亡
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798439-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798439-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798439-20250401.htm)
+
+---
+
 # 馬來西亞有天然氣管道爆炸引發大火　據報30人受傷
 
 ![馬來西亞有天然氣管道爆炸引發大火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798435_1_20250401133105.jpg&q=90)
@@ -1411,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798159-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798159-20250331.htm)
-
----
-
-# 中方多支救援隊在緬甸地震災區全力搜救
-
-![中國救援隊在緬甸曼德勒長城飯店救援3名被困人士。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798158_1_20250331005458.jpg&q=90)
-  
-
-中方多支救援隊在緬甸地震災區全力搜救。在當地救援力量配合下至今救出兩名幸存者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798158-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798158-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798158-20250331.htm)
 
 ---
