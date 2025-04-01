@@ -1,3 +1,72 @@
+# 5隊的士車隊未獲正式車隊牌照　運輸署：積極協助各車隊籌備工作
+
+  
+
+早前獲政府批出的5隊的士車隊，現時未獲發正式車隊牌照，全部只獲「有條件暫准通知」。現正試營運的包括「樂行」和「星群的士」兩支車隊。運輸署回覆查詢表示，署方一直積極協助各車隊的籌備工作。試行的安排可讓市民率先體驗新品牌的服務，亦有助車隊收集營運經驗和用家回饋。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm)
+
+---
+
+# 國家水利部長：全力做好對港供水保障工作
+
+  
+
+國家水利部部長李國英表示，當前氣候變化影響加劇，為人類社會帶來深遠影響，保障水安全的形勢更趨嚴峻複雜，未來水利部將堅定不移實踐國家主席習近平的治水思路，堅決貫徹落實一國兩制方針，與香港特區政府有關部門加強交流，全力做好對港供水保障等工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm)
+
+---
+
+# 房協兩個資助項目今日起接受申請　有市民認為定價合理
+
+  
+
+房協資助出售房屋項目觀塘「峻然」及粉嶺「聚然」共1604個單位，今日起至本月14日接受合資格人士申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm)
+
+---
+
 # 中國駐美使館：中方敦促美方停止誣衊抹黑香港民主法治
 
 ![發言人說，中方敦促美方停止干涉中國內政，停止誣衊抹黑香港民主法治。（中國駐美使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798403_1_20250401104720.jpg&q=90)
@@ -1365,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm)
-
----
-
-# 品牌管理公司會員資料被盜收勒索威脅　私隱公署稱涉人為疏忽
-
-![俊思被裁定違反《私隱條例》，私隱專員指示公司採取措施以糾正違規事項。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798222_1_20250331124732.jpg&q=75)
-  
-
-一間品牌管理及分銷公司去年收到黑客的勒索訊息，聲稱竊取其資料並威脅出售相關資料。事件合共影響超過12萬人的個人資料，涉及的資料分別包括姓名、電郵地址、電話號碼、護照副本等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798222-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798222-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798222-20250331.htm)
-
----
-
-# 港鐵出入口改善工程陸續完工　盼輕鐵試行寵物乘車了解乘客反應
-
-![楊美珍強調港鐵試行「貓狗同行」計劃是希望汲取經驗，了解乘客反應。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798221_1_20250331124316.jpg&q=90)
-  
-
-立法會一個委員會討論提升港鐵設施的最新進展，港鐵常務總監楊美珍表示， 港鐵重鐵、機場快綫和高鐵網絡99個車站及68個輕鐵站，每日平均服務超過500萬人次乘客。為進一步提升乘客的出行體驗，港鐵持續投放資源提升車站設施及推動智慧出行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798221-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798221-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798221-20250331.htm)
-
----
-
-# 私隱公署發指引清單　助機構制定僱員使用生成式AI政策
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798219_1_20250331124134.jpg&q=90)
-  
-
-個人資料私隱專員公署發表《僱員使用生成式AI的指引清單》，協助機構制定僱員在工作時使用生成式AI的內部政策或指引，以及遵從《私隱條例》的相關規定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798219-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798219-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798219-20250331.htm)
 
 ---

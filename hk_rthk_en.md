@@ -1,3 +1,27 @@
+# Crypto investor Wang leads first polar space mission
+
+![SpaceX's Falcon 9 rocket carries the four commercial astronauts into a 90-degree inclination polar orbit on the Fram2 mission after launching from Kennedy Space Center in Cape Canaveral, Florida. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798408_1_20250401112340.jpg&q=90)
+  
+
+A bitcoin investor who bought a SpaceX flight for himself and three polar explorers has blasted off on the first rocket ride to carry people over the North and South poles .
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm)
+
+---
+
 # Dongjiang water fuels HK's economic miracle: Lee
 
 ![John Lee says the Dongjiang supplies 70 to 80 percent of Hong Kong's water supply. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798404_1_20250401105005.jpg&q=90)
@@ -1413,29 +1437,5 @@ The toll from Myanmar's earthquake continued to rise on Sunday, as foreign rescu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm)
-
----
-
-# Rugby Sevens a successful try, says John Lee
-
-![The three-day Hong Kong Sevens concludes its first showcase at the brand new Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798148_1_20250330214352.jpg&q=75)
-  
-
-A fireworks display capped off a three-day rugby extravaganza at the Kai Tak Stadium on Sunday, bringing an end to the Hong Kong Sevens at its new home.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798148-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798148-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798148-20250330.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Crypto investor Wang leads first polar space mission
+
+![SpaceX's Falcon 9 rocket carries the four commercial astronauts into a 90-degree inclination polar orbit on the Fram2 mission after launching from Kennedy Space Center in Cape Canaveral, Florida. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798408_1_20250401112340.jpg&q=90)
+  
+
+A bitcoin investor who bought a SpaceX flight for himself and three polar explorers has blasted off on the first rocket ride to carry people over the North and South poles .
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm)
+
+---
+
 # Bangkok reviews construction safety in quake aftermath
 
 ![Satellite images of the tower in Bangkok taken on December 25 and after its collapse on Friday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798389_1_20250401094853.jpg&q=90)
@@ -1415,29 +1439,5 @@ The Atlantic magazine on Wednesday published what it said was the entire text of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm)
-
----
-
-# UK slashes growth forecast, cuts public spending
-
-![UK finance minister Rachel Reeves delivers the Spring Statement spending update. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797575_1_20250326221849.jpg&q=90)
-  
-
-The UK government halved its 2025 growth forecast on Wednesday as it made billions of pounds of spendings cuts to shore up the public purse in the face of economic headwinds.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm)
 
 ---

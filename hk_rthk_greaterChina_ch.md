@@ -1,3 +1,26 @@
+# 國家水利部長：全力做好對港供水保障工作
+
+  
+
+國家水利部部長李國英表示，當前氣候變化影響加劇，為人類社會帶來深遠影響，保障水安全的形勢更趨嚴峻複雜，未來水利部將堅定不移實踐國家主席習近平的治水思路，堅決貫徹落實一國兩制方針，與香港特區政府有關部門加強交流，全力做好對港供水保障等工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm)
+
+---
+
 # 國家移民管理局料清明假期全國口岸日均出入境逾2百萬人次
 
 ![國家移民局預計，羅湖、福田、深圳灣、蓮塘及高鐵西九龍站口岸，預計日均會有大約10萬至近25萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798405_1_20250401111050.jpg&q=90)
@@ -1415,30 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm)
-
----
-
-# 特區救援隊赴緬甸　李家超稱當地情況不穩定籲救援隊注意自身安全
-
-![李家超與救援隊成員握手，又提醒他們要注意自身安全。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_2_20250329154656.jpg&q=85)
-![李家超形容，救援隊無懼挑戰，在救急扶危的大前提下，展現專業精神。（保安局社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798018_3_20250329160247.jpg&q=85)
-  
-
-特區政府派出保安局、消防處、入境處和醫管局人員組成的51人救援隊前往緬甸，協助地震災區的搜救工作。行政長官李家超將區旗授予救援隊代表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798018-20250329.htm)
 
 ---

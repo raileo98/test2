@@ -1,3 +1,72 @@
+# 5隊的士車隊未獲正式車隊牌照　運輸署：積極協助各車隊籌備工作
+
+  
+
+早前獲政府批出的5隊的士車隊，現時未獲發正式車隊牌照，全部只獲「有條件暫准通知」。現正試營運的包括「樂行」和「星群的士」兩支車隊。運輸署回覆查詢表示，署方一直積極協助各車隊的籌備工作。試行的安排可讓市民率先體驗新品牌的服務，亦有助車隊收集營運經驗和用家回饋。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm)
+
+---
+
+# 國家水利部長：全力做好對港供水保障工作
+
+  
+
+國家水利部部長李國英表示，當前氣候變化影響加劇，為人類社會帶來深遠影響，保障水安全的形勢更趨嚴峻複雜，未來水利部將堅定不移實踐國家主席習近平的治水思路，堅決貫徹落實一國兩制方針，與香港特區政府有關部門加強交流，全力做好對港供水保障等工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm)
+
+---
+
+# 房協兩個資助項目今日起接受申請　有市民認為定價合理
+
+  
+
+房協資助出售房屋項目觀塘「峻然」及粉嶺「聚然」共1604個單位，今日起至本月14日接受合資格人士申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm)
+
+---
+
 # 國家移民管理局料清明假期全國口岸日均出入境逾2百萬人次
 
 ![國家移民局預計，羅湖、福田、深圳灣、蓮塘及高鐵西九龍站口岸，預計日均會有大約10萬至近25萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798405_1_20250401111050.jpg&q=90)
@@ -1367,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798329-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798329-20250331.htm)
-
----
-
-# 恒大物業去年盈利跌近34%　不派末期息
-
-![恒大物業去年盈利按年跌近34%至10.2億元人民幣，不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798327_1_20250331210504.jpg&q=90)
-  
-
-恒大物業公布，去年盈利10.2億元人民幣，按年跌近34%，不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798327-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798327-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798327-20250331.htm)
-
----
-
-# 支援大灣區醫管局病人先導計劃延展至明年三月底
-
-![醫衞局指，2023年5月至今年2月底，累計5100名合資格病人已參加先導計劃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798326_1_20250331210147.jpg&q=80)
-  
-
-醫務衞生局公布，將延展「支援粵港澳大灣區醫院管理局病人先導計劃」一年，至明年3月31日，以便利合資格的醫管局病人可選擇於粵港澳大灣區指定協作醫療機構接受資助診症服務，自2023年5月至今年2月底，累計5100名合資格病人已參加先導計劃，當中逾六成為65歲或以上長者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798326-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798326-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798326-20250331.htm)
-
----
-
-# 嘉禾黃埔戲院租約期滿下月10日起結束營業
-
-![嘉禾黃埔戲院租約期滿下月10日起結束營業](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798325_1_20250331220030.jpg&q=90)
-  
-
-嘉禾院線表示，由於租約期滿，嘉禾黃埔戲院將於下月10日起結束營業，衷心感謝大家多年來的支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm)
 
 ---
