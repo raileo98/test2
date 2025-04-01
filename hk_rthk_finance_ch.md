@@ -1,3 +1,27 @@
+# 越秀地產以11億元人民幣投得杭州住宅地
+
+![越秀地產公布，旗下附屬公司以11億元人民幣投得杭州一幅住宅地皮。公司認為，收購成本合理，有助進一步鞏固公司在杭州的戰略地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798505_1_20250401211314.jpg&q=80)
+  
+
+越秀地產公布，旗下附屬公司通過公開掛牌方式，以11億元人民幣成功競投杭州一幅住宅地皮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm)
+
+---
+
 # 比亞迪首季新能源汽車銷量按年升近60%
 
 ![比亞迪3月新能源汽車銷量按年升近25%，首季升近60%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798502_1_20250401193701.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm)
-
----
-
-# 美國3月芝加哥PMI升至47.6　創近1年半以來最高
-
-![美國3月芝加哥採購經理指數（PMI）升至47.6，高過預期，創2023年11月以來最高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798335_1_20250331220934.jpg&q=90)
-  
-
-美國3月芝加哥採購經理指數（PMI）升至47.6，高過市場預期的44.5，創2023年11月以來最高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798335-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798335-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798335-20250331.htm)
 
 ---

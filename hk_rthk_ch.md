@@ -1,3 +1,96 @@
+# 特區政府與水利部簽署涉水事務合作協議
+
+  
+
+行政長官李家超和水利部部長李國英在禮賓府會面，共同見證水利部與特區政府簽署《涉水事務管理與合作的安排》。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm)
+
+---
+
+# 立法會議員到警察總部了解電子交通告票平台功能
+
+  
+
+立法會交通事務委員會前往警察總部，觀看電子交通告票平台功能的示範，了解警方將於6月15日起實施以電子方式，發出電子告票的最新措施和執行細節。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798507-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798507-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798507-20250401.htm)
+
+---
+
+# 房協兩個資助項目暫收近1200份申請
+
+  
+
+房協資助出售房屋項目觀塘「峻然」及粉嶺「聚然」共1604個單位，今日起接受申請。截至下午5時，房協共收到近1200份申請表。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798506-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798506-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798506-20250401.htm)
+
+---
+
+# 越秀地產以11億元人民幣投得杭州住宅地
+
+![越秀地產公布，旗下附屬公司以11億元人民幣投得杭州一幅住宅地皮。公司認為，收購成本合理，有助進一步鞏固公司在杭州的戰略地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798505_1_20250401211314.jpg&q=80)
+  
+
+越秀地產公布，旗下附屬公司通過公開掛牌方式，以11億元人民幣成功競投杭州一幅住宅地皮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm)
+
+---
+
 # 緬甸地震　63歲女子被困91小時後獲救
 
 ![俄羅斯救援人員協助搜索地震災區。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798504_1_20250401200751.jpg&q=85)
