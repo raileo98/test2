@@ -1,3 +1,26 @@
+# 普京稱俄中關係保持高水平發展　王毅指為兩國為動蕩世界穩定力量
+
+  
+
+俄羅斯總統普京在首都莫斯科，會見中共中央政治局委員、外長王毅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm)
+
+---
+
 # 王毅指美方如果續加關稅施壓　中方必將堅決反制
 
 ![王毅回應美國對華加徵關稅，指中國從來不接受強權霸權，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798516_1_20250401224644.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798210-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798210-20250331.htm)
-
----
-
-# 特朗普：對等關稅將包含所有國家
-
-![特朗普表示，預計今個星期宣布的對等關稅將包含所有國家。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798208_1_20250331101112.jpg&q=90)
-  
-
-美國總統特朗普表示，預計今個星期宣布的對等關稅將包含所有國家，而非僅限於範圍較細的10到15個國家。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798208-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798208-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798208-20250331.htm)
 
 ---

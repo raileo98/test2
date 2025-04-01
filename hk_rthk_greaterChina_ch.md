@@ -1,3 +1,26 @@
+# 普京稱俄中關係保持高水平發展　王毅指為兩國為動蕩世界穩定力量
+
+  
+
+俄羅斯總統普京在首都莫斯科，會見中共中央政治局委員、外長王毅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm)
+
+---
+
 # 粵港澳大灣區專責小組首次會議　張國鈞稱用好大灣區獨特優勢
 
 ![張國鈞主持新一屆粵港澳大灣區專責小組首次會議。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798513_1_20250401220009.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm)
-
----
-
-# 中國國際救援隊抵達緬甸內比都軍用機場
-
-![中國多支救援隊在緬甸參與救援工作，圖為中國公羊救援隊在曼德勒天空別墅展開行動。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798160_1_20250331052722.jpg&q=90)
-  
-
-再有中國救援力量抵達緬甸，準備展開地震救援行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798160-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798160-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798160-20250331.htm)
 
 ---
