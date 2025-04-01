@@ -1,3 +1,74 @@
+# 麥美娟稱區議員交代接觸市民數字做法史無前例
+
+  
+
+本屆區議員工作報告昨日起在各區民政事務處供市民查閱。民政及青年事務局局長麥美娟出席活動時被問到報告為何不放上網、市民亦不能用手機拍攝；她回應，各區民政處有提供報告複印服務，亦按政府一般提供影印文件服務的收費。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798461-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798461-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798461-20250401.htm)
+
+---
+
+# 國家金融監管總局：鼓勵金融機構加強科技領域金融支持
+
+![國家金融監管總局、科技部等聯合發文，鼓勵金融機構加強對國家重大科技任務，和科技型中小企的金融支持。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798460_1_20250401163404.jpg&q=80)
+  
+
+國家金融監管總局、科技部等聯合發文，鼓勵金融機構加強對國家重大科技任務，和科技型中小企的金融支持，做好國家科技重大項目、國家戰略科技力量，和國家級科技創新平台基地的金融服務，並要求一視同仁服務民營、外商投資的科技型企業和研發中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm)
+
+---
+
+# 文憑試視藝科開考　考生報到系統運作順暢
+
+![鄔景聰表示，今日有45名考生在禮堂應考，程序整體順暢，沒有收到考生「報到易」故障的報告。（彭冠中攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798459_1_20250401163841.jpg&q=90)
+  
+
+文憑試首科筆試、視覺藝術科今日開考，有近4千人報考。在觀塘一個試場，有考生提早1小時到場，因擔心有突發情況，認為「早到好過遲到」。考生今年要繼續使用電子點名系統「報到易」自行簽到，有考生擔心系統故障，所以提早到達學校。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798459-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798459-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798459-20250401.htm)
+
+---
+
 # 恒指高收87點　結束兩日跌勢　小米挫逾5%
 
 ![恒生指數最多曾升近340點，高見23456點，其後升幅收窄，收市報23206點，升87點，升幅近0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798457_1_20250401161816.jpg&q=90)
@@ -24,6 +95,7 @@
 
 # 駐港國安公署嚴厲譴責　稱美國制裁是一張廢紙
 
+![駐港國安公署嚴厲譴責美方行為，並嚴正警告任何外部勢力妄圖干涉香港維護國家安全必定碰壁。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798456_1_20250401164543.jpg&q=80)
   
 
 美國以損害香港自治為由，制裁6名中央和特區官員。駐港國安公署嚴厲譴責美方行為，並嚴正警告任何外部勢力妄圖干涉香港維護國家安全必定碰壁，美方應趁早收起狂妄肆意囂張的霸凌做法。

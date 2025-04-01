@@ -94,12 +94,12 @@ Sam Mendes will release four movies about The Beatles in the same month, the dir
 
 ---
 
-# 33 injured in Kuala Lumpur gas pipeline fireball
+# Over 100 injured in Kuala Lumpur gas pipeline fireball
 
 ![Rescue efforts are ongoing for those trapped in houses in Kampung Kuala Sungai Baru on the outskirts of Kuala Lumpur. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798431_2_20250401131510.jpg&q=90)
   
 
-A fire at a gas pipeline operated by Malaysia state energy firm Petronas injured 33 people on Tuesday on the outskirts of the capital Kuala Lumpur, authorities said.
+A massive fire caused by a gas pipeline leak forced people from their homes and injured more than 100 during Eid celebrations near Malaysia's capital on Tuesday, fire officials said.
 
   
 

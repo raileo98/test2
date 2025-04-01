@@ -1,6 +1,6 @@
 # DSE exams get underway
 
-![Some candidates arrived early at an exam venue in Kwun Tong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798449_1_20250401152353.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798449_1_20250401152353.jpg&q=90)
   
 
 Hong Kong's university entrance exams began on Tuesday, with some candidates arriving early to avoid potential issues with the electronic check-in system.

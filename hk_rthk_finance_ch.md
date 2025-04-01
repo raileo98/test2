@@ -1,3 +1,27 @@
+# 國家金融監管總局：鼓勵金融機構加強科技領域金融支持
+
+![國家金融監管總局、科技部等聯合發文，鼓勵金融機構加強對國家重大科技任務，和科技型中小企的金融支持。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798460_1_20250401163404.jpg&q=80)
+  
+
+國家金融監管總局、科技部等聯合發文，鼓勵金融機構加強對國家重大科技任務，和科技型中小企的金融支持，做好國家科技重大項目、國家戰略科技力量，和國家級科技創新平台基地的金融服務，並要求一視同仁服務民營、外商投資的科技型企業和研發中心。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm)
+
+---
+
 # 恒指高收87點　結束兩日跌勢　小米挫逾5%
 
 ![恒生指數最多曾升近340點，高見23456點，其後升幅收窄，收市報23206點，升87點，升幅近0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798457_1_20250401161816.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm)
-
----
-
-# 港澳辦再次轉載報道引述政商界支持市監局依法審查長和交易
-
-![港澳辦引述報道指，各界希望有關買賣決策要考慮到對香港和國家的影響。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798317_1_20250331200534.jpg&q=75)
-  
-
-港澳辦網站再次轉載《大公報》文章，指長和計劃出售巴拿馬運河兩端港口資產，事件持續引發熱議。文章引述多名香港政商界人士指出，鑒於當前中美貿易戰的複雜背景，不少大型交易可能會觸及國家利益，認為長和作為一間扎根香港的大企業，各界希望有關買賣決策要考慮到對香港和國家的影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm)
 
 ---

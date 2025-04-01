@@ -48,7 +48,7 @@ At least three people were killed and seven wounded in an Israeli airstrike on B
 
 # DSE exams get underway
 
-![Some candidates arrived early at an exam venue in Kwun Tong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798449_1_20250401152353.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798449_1_20250401152353.jpg&q=90)
   
 
 Hong Kong's university entrance exams began on Tuesday, with some candidates arriving early to avoid potential issues with the electronic check-in system.
@@ -142,12 +142,12 @@ Members of the DAB on Tuesday staged a protest outside the US consulate in Centr
 
 ---
 
-# 33 injured in Kuala Lumpur gas pipeline fireball
+# Over 100 injured in Kuala Lumpur gas pipeline fireball
 
 ![Rescue efforts are ongoing for those trapped in houses in Kampung Kuala Sungai Baru on the outskirts of Kuala Lumpur. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798431_2_20250401131510.jpg&q=90)
   
 
-A fire at a gas pipeline operated by Malaysia state energy firm Petronas injured 33 people on Tuesday on the outskirts of the capital Kuala Lumpur, authorities said.
+A massive fire caused by a gas pipeline leak forced people from their homes and injured more than 100 during Eid celebrations near Malaysia's capital on Tuesday, fire officials said.
 
   
 
