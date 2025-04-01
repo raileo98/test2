@@ -1,3 +1,27 @@
+# 普京指俄中應續發加強戰略協作信號　王毅稱兩國合作不受外部干擾
+
+![普京說俄中應持續向世界發出加強戰略協作的有力信號；王毅表示中俄政治互信不斷加深。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
+  
+
+俄羅斯總統普京在首都莫斯科，會見到訪的中共中央政治局委員、外交部長王毅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm)
+
+---
+
 # 李強與王毅就地震導致人員傷亡及財產損失分別向泰方致慰問電
 
 ![受緬甸地震影響，泰國有設施受損，導致財產損失。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798522_1_20250402005539.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm)
-
----
-
-# 中國救援隊再於緬甸災區救出被困者　獲救幼童生命體徵良好
-
-![中國救援力量較早時救出一名被埋超過60小時的孕婦。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798186_1_20250331091206.jpg&q=85)
-  
-
-中國救援隊在緬甸地震災區的廢墟中，再救出被困人員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm)
 
 ---
