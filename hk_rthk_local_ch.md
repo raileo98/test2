@@ -1,3 +1,73 @@
+# 特區政府強烈譴責和反對美國《香港政策法》報告
+
+  
+
+特區政府就美國發表所謂2025年《香港政策法》報告中對香港特區各方面情況的失實言論和污衊抹黑，表示強烈譴責和反對，當中內容明顯是為保護美國獨大的政治目的而編製，再次顯露美國霸權主義下的野蠻，為打壓其他地方的發展權利和安全利益而堆砌故事穿鑿附會，是明顯為服務美國自身政治利益而創作的製成品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm)
+
+---
+
+# 李家超：目標令香港成為國際基建中心服務國家
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798473_1_20250401184018.jpg&q=90)
+  
+
+行政長官李家超出席國際水務領袖高峰論壇。他表示，東江水供港60年，孕育香港的經濟奇蹟，香港將會投資未來，目標成為國際基建中心服務國家。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798473-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798473-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798473-20250401.htm)
+
+---
+
+# 羅淑佩：香港迪士尼利用償還款項自資興建新設施是較好
+
+  
+
+香港迪士尼樂園已開始償還由特區政府及華特迪士尼提供的貸款，至今已償還超過六成。有立法會議員關注，樂園何時償還餘下貸款。文化體育及旅遊局局長羅淑佩說，樂園需要擴容，讓旅客有更好體驗，利用償還款項，以自資興建新設施是較好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm)
+
+---
+
 # 文憑試筆試開考首日九成考生用「報到易」　考評局指運作暢順
 
   
@@ -241,7 +311,7 @@
 # 特區救援隊與國家隊展開首次緬甸地震聯合搜救
 
 ![特區救援隊今早與中國救援隊在一受災區域進行首次聯合行動。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_1_20250401171159.jpg&q=80)
-![特區救援隊善用例如無人機、石屎爆破、位移探測儀等高科技儀器，更精準鎖定搜救區域。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_2_20250401171159.jpg&q=85)
+![特區救援隊繼續在緬甸曼德勒災區搜救。（消防處片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_3_20250401184459.jpg&q=90)
   
 
 特區救援隊繼續在緬甸曼德勒災區搜救。
@@ -1369,77 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm)
-
----
-
-# 一站式「墳場及火葬場服務平台」方便市民處理先人後事
-
-![一站式網上服務，提供轄下所有墳場及火葬場的服務，簡化電子申請程序及個人化服務。（墳場及火葬場服務平台網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798303_1_20250331182559.jpg&q=90)
-  
-
-食環署推出「墳場及火葬場服務平台」，透過一站式網上服務，提供轄下所有墳場及火葬場的服務，簡化電子申請程序及個人化服務，進一步利便市民處理先人後事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798303-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798303-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798303-20250331.htm)
-
----
-
-# 證監會引入新的「市場偵測模型」　AI分析數據及早識別風險
-
-![證監會引入新的「市場偵測模型」，運用AI協助數據分析，及時識別風險預警跡象。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798299_1_20250331175241.jpg&q=90)
-  
-
-證監會重新刊發《執法通訊》，闡述當局打擊企業失當行為的主要執法工作。當局引入新的「市場偵測模型」，運用以人工智能（AI）驅動的分析方法，來評估財務披露、市場趨勢及各項管治指標，以識別風險狀況加劇的公司。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm)
-
----
-
-# 私隱公署發表僱員使用AI指引　建議訂明禁止輸入資料種類
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798286_1_20250331175358.jpg&q=90)
-  
-
-個人資料私隱專員公署發表《僱員使用生成式AI的指引清單》，協助機構制定僱員在工作時使用生成式AI的內部政策或指引，包括建議機構訂明獲准許使用的生成式人工智能工具和用途，以及要清晰指示可以和禁止輸入資料的種類。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm)
 
 ---

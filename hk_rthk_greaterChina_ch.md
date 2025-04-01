@@ -1,3 +1,26 @@
+# 特區政府強烈譴責和反對美國《香港政策法》報告
+
+  
+
+特區政府就美國發表所謂2025年《香港政策法》報告中對香港特區各方面情況的失實言論和污衊抹黑，表示強烈譴責和反對，當中內容明顯是為保護美國獨大的政治目的而編製，再次顯露美國霸權主義下的野蠻，為打壓其他地方的發展權利和安全利益而堆砌故事穿鑿附會，是明顯為服務美國自身政治利益而創作的製成品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm)
+
+---
+
 # 外交部：中方促美方停止借涉藏問題干涉中國內政
 
 ![郭嘉昆說，中方敦促美方恪守在西藏問題上所做承諾，停止借涉藏問題干涉中國內政。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798486_1_20250401175100.jpg&q=90)
@@ -121,7 +144,7 @@
 # 特區救援隊與國家隊展開首次緬甸地震聯合搜救
 
 ![特區救援隊今早與中國救援隊在一受災區域進行首次聯合行動。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_1_20250401171159.jpg&q=80)
-![特區救援隊善用例如無人機、石屎爆破、位移探測儀等高科技儀器，更精準鎖定搜救區域。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_2_20250401171159.jpg&q=85)
+![特區救援隊繼續在緬甸曼德勒災區搜救。（消防處片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_3_20250401184459.jpg&q=90)
   
 
 特區救援隊繼續在緬甸曼德勒災區搜救。
@@ -409,7 +432,7 @@
 
 # 國家移民管理局料清明假期全國口岸日均出入境逾2百萬人次
 
-![國家移民局預計，羅湖、福田、深圳灣、蓮塘及高鐵西九龍站口岸，預計日均會有大約10萬至近25萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798405_1_20250401111050.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798405_1_20250401111050.jpg&q=90)
   
 
 國家移民管理局預計，今年清明節假期全國口岸日均出入境將達210萬人次，較去年同期增長約21%。北京首都、上海浦東及廣州白雲等大型國際機場口岸，出入境客流小幅增長。毗鄰港澳陸路口岸旅客流量快速增長，返鄉祭祖的港澳台居民、海外僑胞將明顯增多。其中，港珠澳大橋日均出入境預計將達到超過12萬人次，深圳羅湖、福田、深圳灣、蓮塘及高鐵西九龍站口岸，預計會有大約10萬至近25萬人次。
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm)
-
----
-
-# 緬甸領導人敏昂萊慰問中國雲南救援醫療隊　感謝協助救援
-
-![救援人員在內比都一間醫院的倒塌樓層下救出一名長者。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798113_1_20250330153825.jpg&q=90)
-  
-
-緬甸領導人敏昂萊在首都內比都一間醫院，慰問中國雲南救援醫療隊成員，並感謝醫療隊在震後第一時間到緬甸救援。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm)
 
 ---

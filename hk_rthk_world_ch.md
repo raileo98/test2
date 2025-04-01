@@ -1,3 +1,26 @@
+# 特區政府強烈譴責和反對美國《香港政策法》報告
+
+  
+
+特區政府就美國發表所謂2025年《香港政策法》報告中對香港特區各方面情況的失實言論和污衊抹黑，表示強烈譴責和反對，當中內容明顯是為保護美國獨大的政治目的而編製，再次顯露美國霸權主義下的野蠻，為打壓其他地方的發展權利和安全利益而堆砌故事穿鑿附會，是明顯為服務美國自身政治利益而創作的製成品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm)
+
+---
+
 # 外交部：中方促美方停止借涉藏問題干涉中國內政
 
 ![郭嘉昆說，中方敦促美方恪守在西藏問題上所做承諾，停止借涉藏問題干涉中國內政。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798486_1_20250401175100.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm)
-
----
-
-# 巴勒斯坦紅新月會8名醫務人員在加沙被殺害
-
-![加沙的巴勒斯坦民眾繼續逃避戰火。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798169_1_20250331044650.jpg&q=85)
-  
-
-紅十字會與紅新月會國際聯合會發表聲明說，對於巴勒斯坦紅新月會8名醫務人員在加沙地帶執行任務時被殺害，感到強烈憤慨。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798169-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798169-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798169-20250331.htm)
 
 ---

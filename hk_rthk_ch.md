@@ -1,3 +1,73 @@
+# 特區政府強烈譴責和反對美國《香港政策法》報告
+
+  
+
+特區政府就美國發表所謂2025年《香港政策法》報告中對香港特區各方面情況的失實言論和污衊抹黑，表示強烈譴責和反對，當中內容明顯是為保護美國獨大的政治目的而編製，再次顯露美國霸權主義下的野蠻，為打壓其他地方的發展權利和安全利益而堆砌故事穿鑿附會，是明顯為服務美國自身政治利益而創作的製成品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm)
+
+---
+
+# 李家超：目標令香港成為國際基建中心服務國家
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798473_1_20250401184018.jpg&q=90)
+  
+
+行政長官李家超出席國際水務領袖高峰論壇。他表示，東江水供港60年，孕育香港的經濟奇蹟，香港將會投資未來，目標成為國際基建中心服務國家。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798473-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798473-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798473-20250401.htm)
+
+---
+
+# 羅淑佩：香港迪士尼利用償還款項自資興建新設施是較好
+
+  
+
+香港迪士尼樂園已開始償還由特區政府及華特迪士尼提供的貸款，至今已償還超過六成。有立法會議員關注，樂園何時償還餘下貸款。文化體育及旅遊局局長羅淑佩說，樂園需要擴容，讓旅客有更好體驗，利用償還款項，以自資興建新設施是較好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm)
+
+---
+
 # 文憑試筆試開考首日九成考生用「報到易」　考評局指運作暢順
 
   
@@ -409,7 +479,7 @@
 # 特區救援隊與國家隊展開首次緬甸地震聯合搜救
 
 ![特區救援隊今早與中國救援隊在一受災區域進行首次聯合行動。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_1_20250401171159.jpg&q=80)
-![特區救援隊善用例如無人機、石屎爆破、位移探測儀等高科技儀器，更精準鎖定搜救區域。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_2_20250401171159.jpg&q=85)
+![特區救援隊繼續在緬甸曼德勒災區搜救。（消防處片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_3_20250401184459.jpg&q=90)
   
 
 特區救援隊繼續在緬甸曼德勒災區搜救。
@@ -1514,7 +1584,7 @@
 
 # 國家移民管理局料清明假期全國口岸日均出入境逾2百萬人次
 
-![國家移民局預計，羅湖、福田、深圳灣、蓮塘及高鐵西九龍站口岸，預計日均會有大約10萬至近25萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798405_1_20250401111050.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798405_1_20250401111050.jpg&q=90)
   
 
 國家移民管理局預計，今年清明節假期全國口岸日均出入境將達210萬人次，較去年同期增長約21%。北京首都、上海浦東及廣州白雲等大型國際機場口岸，出入境客流小幅增長。毗鄰港澳陸路口岸旅客流量快速增長，返鄉祭祖的港澳台居民、海外僑胞將明顯增多。其中，港珠澳大橋日均出入境預計將達到超過12萬人次，深圳羅湖、福田、深圳灣、蓮塘及高鐵西九龍站口岸，預計會有大約10萬至近25萬人次。
