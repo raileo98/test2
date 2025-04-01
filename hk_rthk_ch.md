@@ -1,3 +1,96 @@
+# 文憑試視覺藝術科開考　有考生擔心電子點名系統故障提早到場
+
+  
+
+文憑試首科筆試、視覺藝術科今日開考。有考生表示緊張，亦有家長陪同子女到試場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798420-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798420-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798420-20250401.htm)
+
+---
+
+# 林定國：制裁是赤裸裸霸權欺凌　對他毫無影響
+
+  
+
+美國國務院以進行跨國打壓及損害香港自治為由，制裁6名中央和香港特區官員，包括律政司司長林定國。林定國回應傳媒查詢表示，有關制裁對他毫無影響，不影響他的工作和生活。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm)
+
+---
+
+# 李家超︰致力將創新科技應用於水務管理　推動設施數字化運作
+
+  
+
+行政長官李家超表示，如要確保水資源的可持續供應，需要以創新方式投資未來，當局致力於將創新科技應用於水務管理，並於去年成立數字水務辦公室，推動水務設施的數字化運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm)
+
+---
+
+# 港股半日升244點　醫藥及本地地產股造好
+
+![恒生指數最多升近340點，中午報23363點，升244點，升幅約1.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798415_1_20250401120905.jpg&q=75)
+  
+
+港股在4月首個交易日反彈，恒生指數最多升近340點，中午報23363點，升244點，升幅約1.1%，半日主板成交額逾1264億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798415-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798415-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798415-20250401.htm)
+
+---
+
 # 澳洲維持利率不變　央行指前景仍不明朗
 
 ![澳洲央行維持指標利率在4.1厘不變，指出前景仍不明朗。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798411_1_20250401114558.jpg&q=90)
@@ -48,6 +141,7 @@
 
 # 5隊的士車隊未獲正式車隊牌照　運輸署：積極協助各車隊籌備工作
 
+![運輸署於2024年7月底向5間獲選的的士車隊營辦商，發出的士車隊牌照的「有條件暫准通知」。（運輸署社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798409_1_20250401121852.jpg&q=90)
   
 
 早前獲政府批出的5隊的士車隊，現時未獲發正式車隊牌照，全部只獲「有條件暫准通知」。現正試營運的包括「樂行」和「星群的士」兩支車隊。運輸署回覆查詢表示，署方一直積極協助各車隊的籌備工作。試行的安排可讓市民率先體驗新品牌的服務，亦有助車隊收集營運經驗和用家回饋。
@@ -71,6 +165,7 @@
 
 # 國家水利部長：全力做好對港供水保障工作
 
+![李國英指會堅決貫徹落實一國兩制方針，與香港特區政府有關部門加強交流，全力做好對港供水保障等工作。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798407_1_20250401121819.jpg&q=90)
   
 
 國家水利部部長李國英表示，當前氣候變化影響加劇，為人類社會帶來深遠影響，保障水安全的形勢更趨嚴峻複雜，未來水利部將堅定不移實踐國家主席習近平的治水思路，堅決貫徹落實一國兩制方針，與香港特區政府有關部門加強交流，全力做好對港供水保障等工作。
@@ -1341,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm)
-
----
-
-# 美國3月芝加哥PMI升至47.6　創近1年半以來最高
-
-![美國3月芝加哥採購經理指數（PMI）升至47.6，高過預期，創2023年11月以來最高。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798335_1_20250331220934.jpg&q=90)
-  
-
-美國3月芝加哥採購經理指數（PMI）升至47.6，高過市場預期的44.5，創2023年11月以來最高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798335-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798335-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798335-20250331.htm)
-
----
-
-# 佳兆業集團去年虧損擴大43%　不派末期息
-
-![佳兆業集團去年虧損285.3億元人民幣，按年擴大43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798332_1_20250331214824.jpg&q=90)
-  
-
-佳兆業集團公布，去年虧損285.3億元人民幣，按年擴大43%，不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm)
-
----
-
-# 瑪麗娜勒龐被裁定挪用歐盟公款罪成　禁止競逐公職5年
-
-![瑪麗娜勒龐被裁定挪用歐盟公款罪成。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798333_1_20250331215051.jpg&q=85)
-  
-
-法國極右翼「國民聯盟」領袖瑪麗娜勒龐被法國檢方指控挪用歐盟公共資金，巴黎法院判處她罪名成立，禁止她競逐公職5年，即時生效。除非瑪麗娜勒龐成功上訴，否則將無法參加2027年的總統選舉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798333-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798333-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798333-20250331.htm)
-
----
-
-# 美股初段下跌　大型科技股向下
-
-![道瓊斯指數較早時報41299點，跌284點，跌幅0.68%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798330_1_20250331213846.jpg&q=90)
-  
-
-美股開市初段下跌，大型科技股向下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 林定國：制裁是赤裸裸霸權欺凌　對他毫無影響
+
+  
+
+美國國務院以進行跨國打壓及損害香港自治為由，制裁6名中央和香港特區官員，包括律政司司長林定國。林定國回應傳媒查詢表示，有關制裁對他毫無影響，不影響他的工作和生活。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm)
+
+---
+
 # 中國駐美使館：中方敦促美方停止誣衊抹黑香港民主法治
 
 ![發言人說，中方敦促美方停止干涉中國內政，停止誣衊抹黑香港民主法治。（中國駐美使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798403_1_20250401104720.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm)
-
----
-
-# 敏昂萊稱緬甸地震遇難人數或上升　須盡快恢復交通以更有效救援
-
-![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798149_1_20250330223300.jpg&q=75)
-  
-
-緬甸地震增至1700人死亡，3400多人受傷，300多人失蹤。中國駐緬甸大使館確認至今有14名中國公民在地震中受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798149-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798149-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798149-20250330.htm)
 
 ---

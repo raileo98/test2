@@ -1,3 +1,27 @@
+# 港股半日升244點　醫藥及本地地產股造好
+
+![恒生指數最多升近340點，中午報23363點，升244點，升幅約1.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798415_1_20250401120905.jpg&q=75)
+  
+
+港股在4月首個交易日反彈，恒生指數最多升近340點，中午報23363點，升244點，升幅約1.1%，半日主板成交額逾1264億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798415-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798415-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798415-20250401.htm)
+
+---
+
 # 澳洲維持利率不變　央行指前景仍不明朗
 
 ![澳洲央行維持指標利率在4.1厘不變，指出前景仍不明朗。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798411_1_20250401114558.jpg&q=90)
@@ -48,6 +72,7 @@
 
 # 5隊的士車隊未獲正式車隊牌照　運輸署：積極協助各車隊籌備工作
 
+![運輸署於2024年7月底向5間獲選的的士車隊營辦商，發出的士車隊牌照的「有條件暫准通知」。（運輸署社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798409_1_20250401121852.jpg&q=90)
   
 
 早前獲政府批出的5隊的士車隊，現時未獲發正式車隊牌照，全部只獲「有條件暫准通知」。現正試營運的包括「樂行」和「星群的士」兩支車隊。運輸署回覆查詢表示，署方一直積極協助各車隊的籌備工作。試行的安排可讓市民率先體驗新品牌的服務，亦有助車隊收集營運經驗和用家回饋。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm)
-
----
-
-# 二月零售業總銷貨價值臨時估計為294億元　按年跌13%
-
-![今年2月零售業總銷貨價值的臨時估計為294億元，較去年同月下跌13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798273_1_20250331174842.jpg&q=90)
-  
-
-政府統計處公布，今年2月零售業總銷貨價值的臨時估計為294億元，較去年同月下跌13%。與去年同期比較，今年首兩個月合計的零售業總銷貨價值的臨時估計下跌7.8%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm)
 
 ---

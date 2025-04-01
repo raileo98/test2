@@ -48,7 +48,7 @@ A bitcoin investor who bought a SpaceX flight for himself and three polar explor
 
 # Bangkok reviews construction safety in quake aftermath
 
-![Satellite images of the tower in Bangkok taken on December 25 and after its collapse on Friday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798389_1_20250401094853.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798389_1_20250401094853.jpg&q=90)
   
 
 Thai authorities said they were investigating why a single office tower block under construction in Bangkok collapsed during Friday's earthquake that otherwise caused limited damage in the capital.

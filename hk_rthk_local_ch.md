@@ -1,5 +1,75 @@
+# 文憑試視覺藝術科開考　有考生擔心電子點名系統故障提早到場
+
+  
+
+文憑試首科筆試、視覺藝術科今日開考。有考生表示緊張，亦有家長陪同子女到試場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798420-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798420-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798420-20250401.htm)
+
+---
+
+# 林定國：制裁是赤裸裸霸權欺凌　對他毫無影響
+
+  
+
+美國國務院以進行跨國打壓及損害香港自治為由，制裁6名中央和香港特區官員，包括律政司司長林定國。林定國回應傳媒查詢表示，有關制裁對他毫無影響，不影響他的工作和生活。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm)
+
+---
+
+# 李家超︰致力將創新科技應用於水務管理　推動設施數字化運作
+
+  
+
+行政長官李家超表示，如要確保水資源的可持續供應，需要以創新方式投資未來，當局致力於將創新科技應用於水務管理，並於去年成立數字水務辦公室，推動水務設施的數字化運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm)
+
+---
+
 # 5隊的士車隊未獲正式車隊牌照　運輸署：積極協助各車隊籌備工作
 
+![運輸署於2024年7月底向5間獲選的的士車隊營辦商，發出的士車隊牌照的「有條件暫准通知」。（運輸署社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798409_1_20250401121852.jpg&q=90)
   
 
 早前獲政府批出的5隊的士車隊，現時未獲發正式車隊牌照，全部只獲「有條件暫准通知」。現正試營運的包括「樂行」和「星群的士」兩支車隊。運輸署回覆查詢表示，署方一直積極協助各車隊的籌備工作。試行的安排可讓市民率先體驗新品牌的服務，亦有助車隊收集營運經驗和用家回饋。
@@ -23,6 +93,7 @@
 
 # 國家水利部長：全力做好對港供水保障工作
 
+![李國英指會堅決貫徹落實一國兩制方針，與香港特區政府有關部門加強交流，全力做好對港供水保障等工作。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798407_1_20250401121819.jpg&q=90)
   
 
 國家水利部部長李國英表示，當前氣候變化影響加劇，為人類社會帶來深遠影響，保障水安全的形勢更趨嚴峻複雜，未來水利部將堅定不移實踐國家主席習近平的治水思路，堅決貫徹落實一國兩制方針，與香港特區政府有關部門加強交流，全力做好對港供水保障等工作。
@@ -1363,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798238-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798238-20250331.htm)
-
----
-
-# 特區救援隊抵達曼德勒　將與國家隊分工展開搜救
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798239_1_20250331135742.jpg&q=75)
-  
-
-保安局表示，特區救援隊剛抵達緬甸地震災區曼德勒，立即與中國救援隊會合，聽取國家隊對當地災情的簡介。沿途見到不少房屋倒塌，災民在空地搭建臨時帳篷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm)
-
----
-
-# 港股半日跌近2%　長和跌約4%
-
-![港股中午收市前跌幅擴大，創近1個月低位。恒生指數中午收市報23022點，跌404點，跌幅1.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798228_1_20250331121035.jpg&q=85)
-  
-
-港股連續兩日向下，中午收市前跌幅擴大，創近1個月低位。恒生指數今早低開逾200點後，跌幅一度收窄至不足30點，中午收市報23022點，跌404點，跌幅1.73%，主板半日成交約1438億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798228-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798228-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798228-20250331.htm)
-
----
-
-# 北都3個「片區開發」試點中午截收意向書　現場所見收12份
-
-![北部都會區3個「片區開發」試點中午截收意向書，華懋派代表遞交意向書。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798227_1_20250331120705.jpg&q=90)
-  
-
-發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，現場所見，收到12份意向書，遞交的發展商包括華懋及新世界發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm)
 
 ---

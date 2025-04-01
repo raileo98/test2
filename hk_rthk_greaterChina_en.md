@@ -1,3 +1,27 @@
+# PLA conducts military exercises around Taiwan
+
+![The Taiwan Affairs Office says the drills target separatist activities advocating "Taiwan independence" and are not directed at the broader population of Taiwan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798421_1_20250401123058.jpg&q=90)
+  
+
+The People's Liberation Army (PLA) Eastern Theater Command on Tuesday started to conduct joint exercises around Taiwan Island.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm)
+
+---
+
 # China condemns fresh sanctions on officials
 
 ![The Commissioner's Office of the Foreign Ministry in Hong Kong has accused the US of slandering the city's rule of law, democracy, freedom and human rights situation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798399_1_20250401103258.jpg&q=85)
@@ -1415,29 +1439,5 @@ Retail sales in China accelerated slightly in the first two months of the year, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm)
-
----
-
-# 'Action plan to stabilise stock, property markets'
-
-![Central authorities have said arresting the protracted slide in the property market was among its major tasks this year. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796002_1_20250317095840.jpg&q=80)
-  
-
-Mainland officials on Monday said a special action plan to boost consumption,will, for the first time, put an emphasis on the need to stabilise both the stock and property markets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm)
 
 ---

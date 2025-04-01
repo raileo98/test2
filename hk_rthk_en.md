@@ -1,3 +1,27 @@
+# PLA conducts military exercises around Taiwan
+
+![The Taiwan Affairs Office says the drills target separatist activities advocating "Taiwan independence" and are not directed at the broader population of Taiwan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798421_1_20250401123058.jpg&q=90)
+  
+
+The People's Liberation Army (PLA) Eastern Theater Command on Tuesday started to conduct joint exercises around Taiwan Island.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm)
+
+---
+
 # Stocks market maker plans to expand in Central
 
 ![Jane Street is in talks with Hongkong Land to take over two more floors in Central. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798414_1_20250401120606.jpg&q=85)
@@ -120,7 +144,7 @@ Beijing has warned of "strong and resolute" countermeasures against fresh sancti
 
 # Bangkok reviews construction safety in quake aftermath
 
-![Satellite images of the tower in Bangkok taken on December 25 and after its collapse on Friday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798389_1_20250401094853.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798389_1_20250401094853.jpg&q=90)
   
 
 Thai authorities said they were investigating why a single office tower block under construction in Bangkok collapsed during Friday's earthquake that otherwise caused limited damage in the capital.
@@ -1413,29 +1437,5 @@ Four of the mainland's largest state-owned banks said on Sunday they plan to rai
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798177-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798177-20250331.htm)
-
----
-
-# Bagnaia wins USA MotoGP after Márquez crash
-
-![Francesco Bagnaia of Italy rides during the 2025 Grand Prix of the Americas at Circuit of The Americas. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798175_1_20250331060812.jpg&q=90)
-  
-
-Francesco Bagnaia won an eventful Grand Prix of the Americas to end crash-victim Marc Márquez's perfect start to the MotoGP season.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798175-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798175-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798175-20250331.htm)
 
 ---
