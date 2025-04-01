@@ -1,3 +1,50 @@
+# 回應美國制裁官員　警方指會繼續堅定不移維護國家及香港安全
+
+  
+
+美國國務院以進行跨國打壓及損害香港自治為由，制裁六名中央和香港特區官員，其中包括警務處處長蕭澤頤。警方回應，維護國家安全是警務人員的責任和榮譽。美國政府企圖用政治施壓手段嚴重干預警隊的執法工作，變相鼓吹違法行為。警隊會繼續做好本份，無畏無懼，堅定不移維護國家及香港安全，嚴正執法。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798503-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798503-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798503-20250401.htm)
+
+---
+
+# 比亞迪首季新能源汽車銷量按年升近60%
+
+![比亞迪3月新能源汽車銷量按年升近25%，首季升近60%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798502_1_20250401193701.jpg&q=90)
+  
+
+比亞迪公布，3月新能源汽車銷量逾37.7萬輛，按年升近25%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm)
+
+---
+
 # 特區救援隊：災區非常惡劣兩次緊急撤離部署　冀盡早救出被困人士
 
 ![特區救援隊繼續在緬甸曼特勒災區搜救。（保安局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798501_1_20250401192854.jpg&q=70)
@@ -75,7 +122,7 @@
 ![《華盛頓郵報》引述白宮消息報道，特朗普政府計劃向大部分進口商品徵收約20%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798498_1_20250401191654.jpg&q=85)
   
 
-《華盛頓郵報》引述白宮消息報道，特朗普政府計劃向大部分進口商品徵收約20%關稅。
+《華盛頓郵報》引述美國白宮消息報道，特朗普政府計劃向大部分進口商品徵收約20%關稅。
 
   
 
@@ -120,6 +167,7 @@
 
 # 港澳辦再轉載文章引述政商界冀長和配合審查重塑良好企業形象
 
+![港澳辦網站再次轉載文章，引述指國家市場監督管理總局對長和出售巴拿馬運河港口等資產的審查，是維護市場公平的必要舉措。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798496_1_20250401194227.jpg&q=80)
   
 
 港澳辦網站再次轉載《大公報》文章，文中引述多名立法會議員指出，國家市場監督管理總局對長和出售巴拿馬運河港口等資產的審查，是維護市場公平的必要舉措，又指香港政商界希望長和配合好今次反壟斷審查，重塑良好企業的形象，贏得公眾信任。

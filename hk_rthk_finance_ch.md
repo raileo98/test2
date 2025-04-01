@@ -1,3 +1,27 @@
+# 比亞迪首季新能源汽車銷量按年升近60%
+
+![比亞迪3月新能源汽車銷量按年升近25%，首季升近60%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798502_1_20250401193701.jpg&q=90)
+  
+
+比亞迪公布，3月新能源汽車銷量逾37.7萬輛，按年升近25%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm)
+
+---
+
 # 滙控：有信心有形股本回報率可達標
 
 ![杜嘉褀指，集團定下有形股本回報率(RoTE)在今年起的3年約15%，有信心可以達標。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798497_1_20250401191612.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798335-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798335-20250331.htm)
-
----
-
-# 佳兆業集團去年虧損擴大43%　不派末期息
-
-![佳兆業集團去年虧損285.3億元人民幣，按年擴大43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798332_1_20250331214824.jpg&q=90)
-  
-
-佳兆業集團公布，去年虧損285.3億元人民幣，按年擴大43%，不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm)
 
 ---
