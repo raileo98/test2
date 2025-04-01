@@ -1,3 +1,26 @@
+# 考評局稱文憑試視藝科各試場運作暢順　9成考生使用「報到易」
+
+  
+
+文憑試首科筆試、視覺藝術科今日開考。考評局表示，超過3900名考生於全港58個一般試場及超過240個特別試場應考，各試場的整體運作暢順。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798481-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798481-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798481-20250401.htm)
+
+---
+
 # 陳茂波：香港百業興旺有賴穩定安全供水系統
 
   
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm)
-
----
-
-# 議員憂業主減租誘劏房戶不舉報　何永賢：機制有助防止地下化問題
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798285_1_20250331183324.jpg&q=90)
-  
-
-立法會一個委員會討論簡樸房最新規管制度建議方案，財政司副司長黃偉綸表示，針對工廈違規劏房的執法，現時的過程較為迂迴，發展局和民青局將會在「簡樸房」規管制度通過後，很大可能分別就《建築物條例》和《床位寓所條例》作相適應的調整，並會在下一屆立法會會期處理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798285-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798285-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798285-20250331.htm)
 
 ---
