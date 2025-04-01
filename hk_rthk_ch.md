@@ -1,3 +1,50 @@
+# 當局辦「1+」新藥註冊講座　逾70業界代表出席
+
+  
+
+​衞生署昨日舉行首場「1+」新藥註冊申請簡介講座，向業界及持份者介紹「1+」機制下的藥劑製品註冊要求，以及今年稍後推出的各項諮詢服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798424-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798424-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798424-20250401.htm)
+
+---
+
+# 西藏自治區政府推出多項措施促進就業
+
+![西藏政府為外來企業提供補貼，包括水電費、廠房租金等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798423_1_20250401123305.jpg&q=80)
+  
+
+繼續西藏自治區成立60周年系列報道。西藏曾是全國貧困發生率最高的地區，當地政府推出多項措施促進就業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm)
+
+---
+
 # 文憑試視覺藝術科開考　有考生擔心電子點名系統故障提早到場
 
   
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm)
-
----
-
-# 特區救援隊緬甸展開工作　透過無人機或根據居民資訊搜尋生還者
-
-![消防處派出兩支隊伍去到最近瓦礫的位置嘗試搜救。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798337_1_20250331230318.jpg&q=90)
-  
-
-正在緬甸的特區救援隊，展開救援工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm)
-
----
-
-# 吳安儀衛冕英國女子公開賽冠軍　贏得職業桌球生涯第22項錦標
-
-![吳安儀勇奪生涯第22冠。（桌球總會FB圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798336_1_20250331230125.jpg&q=90)
-  
-
-本港女子桌球手吳安儀成功衛冕英國女子公開賽冠軍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm)
 
 ---

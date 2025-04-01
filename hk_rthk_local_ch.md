@@ -1,3 +1,26 @@
+# 當局辦「1+」新藥註冊講座　逾70業界代表出席
+
+  
+
+​衞生署昨日舉行首場「1+」新藥註冊申請簡介講座，向業界及持份者介紹「1+」機制下的藥劑製品註冊要求，以及今年稍後推出的各項諮詢服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798424-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798424-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798424-20250401.htm)
+
+---
+
 # 文憑試視覺藝術科開考　有考生擔心電子點名系統故障提早到場
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm)
-
----
-
-# 恒指下午開市後跌逾300點
-
-![恒指下午初段報23086點，跌339點，跌幅1.45%；科技指數報5371點，跌幅2.45%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798238_1_20250331131133.jpg&q=75)
-  
-
-港股下午開市初段跌幅稍為收窄，恒生指數較早時報23086點，跌339點，跌幅1.45%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798238-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798238-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798238-20250331.htm)
 
 ---

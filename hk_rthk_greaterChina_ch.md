@@ -1,3 +1,27 @@
+# 西藏自治區政府推出多項措施促進就業
+
+![西藏政府為外來企業提供補貼，包括水電費、廠房租金等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798423_1_20250401123305.jpg&q=80)
+  
+
+繼續西藏自治區成立60周年系列報道。西藏曾是全國貧困發生率最高的地區，當地政府推出多項措施促進就業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm)
+
+---
+
 # 國家水利部長：全力做好對港供水保障工作
 
 ![李國英指會堅決貫徹落實一國兩制方針，與香港特區政府有關部門加強交流，全力做好對港供水保障等工作。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798407_1_20250401121819.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm)
-
----
-
-# 鄧炳強：特區救援隊汲取土耳其救援經驗　第二梯隊準備好可支援
-
-![救援隊共51人，包括41名消防、4名保安局人員、兩名入境處人員、醫管局兩名醫生和兩名護士。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798020_2_20250329160034.jpg&q=90)
-  
-
-特區政府派出51人組成的救援隊到緬甸，協助地震災區的搜救工作。保安局局長鄧炳強說，昨日發生大地震後，救援隊已經隨時候命，今日正式收到緬甸駐港總領事館要求後，人員在很短時間就到機場出發。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798020-20250329.htm)
 
 ---
