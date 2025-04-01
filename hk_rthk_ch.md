@@ -1,3 +1,27 @@
+# 馬來西亞有天然氣管道爆炸引發大火　據報30人受傷
+
+![馬來西亞有天然氣管道爆炸引發大火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798435_1_20250401133105.jpg&q=90)
+  
+
+馬來西亞雪蘭莪州蒲種市上午發生天然氣管道爆炸事故，並引發大火，據報已導致30人受傷送院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798435-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798435-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798435-20250401.htm)
+
+---
+
 # 復星國際：將堅持加大AI相關領域投入
 
 ![徐曉亮指出，集團利用人工智能(AI)協助藥物研發3年，已有一定成果。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798434_1_20250401132717.jpg&q=90)
