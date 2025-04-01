@@ -1,3 +1,49 @@
+# 特區救援隊繼續在緬甸災區搜救　出動不同儀器協助
+
+  
+
+特區救援隊繼續在緬甸曼特勒災區搜救，並使用生還者搜索儀、無人機系統、電動旋轉鑿鎚機、混凝土切割工具等搜救工具，以及先進電子儀器協助，增強救援效率。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798445-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798445-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798445-20250401.htm)
+
+---
+
+# 民建聯及經民聯對美國制裁6名官員表示反對
+
+  
+
+民建聯對美國國務院宣布制裁6名中央政府駐港機構和香港特區政府官員，並發布所謂「2025年香港政策法報告」，表示強烈不滿和堅決反對，批評粗暴干涉香港事務和中國內政，嚴重踐踏國際法與國際關係基本準則，敦促美方立即停止政治操弄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798444-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798444-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798444-20250401.htm)
+
+---
+
 # 當局辦「1+」新藥註冊講座　逾70業界代表出席
 
 ![衞生署昨日舉行首場「1+」新藥註冊申請簡介講座，向業界及持份者介紹「1+」機制下的藥劑製品註冊要求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798424_1_20250401124632.jpg&q=80)
@@ -1389,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798244-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798244-20250331.htm)
-
----
-
-# 衞生黑點大減8成半至約100個　卓永興感謝各部門配合
-
-![卓永興感謝各部門在過去兩年多同心協力和積極配合，持續整頓巡查，令打擊衞生黑點計劃收效顯著。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798242_1_20250331141156.jpg&q=85)
-  
-
-政府更新衞生黑點名單，大幅剔除630多個衞生黑點，佔整體衞生黑點數目八成半。黑點數目由730多個減至約100個。由於更新黑點名單中計及情況已獲改善但仍未達兩年的60多個衞生黑點，因此實際上94%曾出現在黑點名單的地點，整體情況已得到改善。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798242-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798242-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798242-20250331.htm)
-
----
-
-# 港深西部鐵路下半年邀請意向書　陳美寶：對招標持開放態度
-
-![陳美寶表示，是否就項目的「計劃，建造，營運」分開獨立招標持開放態度。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798241_1_20250331135823.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶表示，就連接洪水橋至深圳前海的港深西部鐵路，將於下半年邀請意向書，了解市場反應，包括是否可以採取「計劃，建造，營運」一站式合約，強調希望「摸一摸市場脈搏」，至於鐵路日後採取「一地兩檢」，口岸會設在深圳灣還是前海就仍在與深圳方面商討。就鐵路的成本效益方面，已做了兩期研究，就乘客量的評估，估計2038年本地及跨境客量介乎29萬至35萬人次，到2046年估計有38萬至46萬人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm)
 
 ---

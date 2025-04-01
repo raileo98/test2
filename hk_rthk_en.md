@@ -1,3 +1,27 @@
+# Australia hit by inland floods the size of France
+
+![A homestead is inundated by floodwaters near the town of Jundah in south-west Queensland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798443_1_20250401145343.jpg&q=85)
+  
+
+Whole herds of cattle have drowned in vast inland floods sweeping across the Australian outback, officials said on Tuesday, as the muddy tide drenched an area the size of France.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798443-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798443-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798443-20250401.htm)
+
+---
+
 # Fab Four get own beat in 'bingeable' film experience
 
 ![At the CinemaCon in Caesars Palace in Las Vegas are, from left, Sam Mendes, Paul Mescal, Joseph Quinn, Barry Keoghan and Harris Dickinson. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798436_1_20250401134811.jpg&q=90)
@@ -1413,29 +1437,5 @@ The China National Offshore Oil Corporation (CNOOC) has discovered an oilfield i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798194-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798194-20250331.htm)
-
----
-
-# Venezuela says high-level criminal among US deportees
-
-![Repatriation flight with migrants deported from the US lands in at Simon Bolivar International Airport in Maiquetia, Venezuela. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798190_1_20250331090008.jpg&q=90)
-  
-
-Venezuelan authorities reported the arrival on Sunday of a new flight of 175 migrants expelled by the United States, including a gang leader - the first time Caracas has confirmed a criminal was among the deportees.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 金價創新高　美國關稅計劃引發通脹擔憂
+
+![現貨金高見每盎司3148.88美元，創新高，較早時報3132.39美元，升幅0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798442_1_20250401145159.jpg&q=90)
+  
+
+金價創紀錄新高，市場憂慮美國總統特朗普的對等關稅計劃，可能助長通脹壓力並阻礙經濟增長，刺激避險需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798442-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798442-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798442-20250401.htm)
+
+---
+
 # 韓股重上2500點關口　高收近2%
 
 ![首爾綜合指數收市報2521點，升40點，升幅1.62%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798441_1_20250401144533.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798311-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798311-20250331.htm)
-
----
-
-# 北部都會區三個「片區開發」試點最少收12份意向書
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798305_1_20250331183446.jpg&q=80)
-  
-
-發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，最少收到12份意向書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm)
 
 ---

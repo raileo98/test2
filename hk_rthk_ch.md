@@ -1,3 +1,73 @@
+# 特區救援隊繼續在緬甸災區搜救　出動不同儀器協助
+
+  
+
+特區救援隊繼續在緬甸曼特勒災區搜救，並使用生還者搜索儀、無人機系統、電動旋轉鑿鎚機、混凝土切割工具等搜救工具，以及先進電子儀器協助，增強救援效率。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798445-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798445-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798445-20250401.htm)
+
+---
+
+# 民建聯及經民聯對美國制裁6名官員表示反對
+
+  
+
+民建聯對美國國務院宣布制裁6名中央政府駐港機構和香港特區政府官員，並發布所謂「2025年香港政策法報告」，表示強烈不滿和堅決反對，批評粗暴干涉香港事務和中國內政，嚴重踐踏國際法與國際關係基本準則，敦促美方立即停止政治操弄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798444-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798444-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798444-20250401.htm)
+
+---
+
+# 金價創新高　美國關稅計劃引發通脹擔憂
+
+![現貨金高見每盎司3148.88美元，創新高，較早時報3132.39美元，升幅0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798442_1_20250401145159.jpg&q=90)
+  
+
+金價創紀錄新高，市場憂慮美國總統特朗普的對等關稅計劃，可能助長通脹壓力並阻礙經濟增長，刺激避險需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798442-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798442-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798442-20250401.htm)
+
+---
+
 # 韓股重上2500點關口　高收近2%
 
 ![首爾綜合指數收市報2521點，升40點，升幅1.62%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798441_1_20250401144533.jpg&q=90)
