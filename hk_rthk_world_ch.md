@@ -1,3 +1,27 @@
+# 中俄外長會面　拉夫羅夫稱將為下月俄中元首峰會做好準備
+
+![俄羅斯外長拉夫羅夫指出，王毅訪問俄羅斯的主要目的，是為今年5月舉行的俄中元首峰會做好準備。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798483_1_20250401173549.jpg&q=90)
+  
+
+中俄外長在俄羅斯首都莫斯科會面。俄羅斯外長拉夫羅夫發言時提到，王毅今次正式訪問的主要目的，是為今年5月在莫斯科舉行的俄中元首峰會做好準備。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798483-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798483-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798483-20250401.htm)
+
+---
+
 # 中國救援隊伍在緬甸已救出8名倖存者
 
 ![中國救援隊在曼德勒協助救援。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798479_1_20250401173446.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798168-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798168-20250331.htm)
-
----
-
-# 特朗普：尋求第三度擔任總統並非開玩笑
-
-![特朗普接受訪問時談到尋求第三個任期問題。他說，不是開玩笑，但現在考慮這個問題為時尚早。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798167_1_20250331034814.jpg&q=90)
-  
-
-美國總統特朗普表示，尋求第三度擔任總統並非講笑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm)
 
 ---
