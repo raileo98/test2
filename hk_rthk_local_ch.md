@@ -1,3 +1,49 @@
+# 警方打鼓嶺村屋搗種植場　檢逾600棵懷疑大麻
+
+  
+
+警方在打鼓嶺一間村屋檢獲669棵、重約21公斤的懷疑大麻植物、約5公斤大麻花收成品及大量用作栽植大麻植物的工具和裝備，行動中檢獲的毒品市值約530萬元，拘捕一男一女。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798488-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798488-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798488-20250401.htm)
+
+---
+
+# 慶祝20周年　香港迪士尼捐20萬張門票予社會有需要人士
+
+  
+
+香港迪士尼樂園為慶祝20周年，將捐出20萬張樂園門票予社區有需要人士，較過去每年平均捐出門票增加一倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798487-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798487-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798487-20250401.htm)
+
+---
+
 # 考評局稱文憑試視藝科各試場運作暢順　9成考生使用「報到易」
 
   
@@ -1392,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798294-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798294-20250331.htm)
-
----
-
-# 利物浦熱刺及阿仙奴分別公開操練　讓球迷與球員接觸
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798292_1_20250331202455.jpg&q=85)
-  
-
-四支歐洲勁旅，包括三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月來港，在啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm)
-
----
-
-# 七姊妹道爆水管致煤氣管受損　煤氣公司目標明天中午前恢復供氣
-
-![煤氣公司表示，已向有需要的商業用户提供合適的協助。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798289_1_20250331183855.jpg&q=90)
-  
-
-煤氣公司表示，受七姊妹道爆水管事故影響，該處地下煤氣喉管受損，正配合相關水務工程進行緊急維修，目標明天中午前恢復供氣，具體時間須視乎水務工程復修進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm)
 
 ---
