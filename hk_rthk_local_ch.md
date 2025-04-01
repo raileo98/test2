@@ -1,3 +1,26 @@
+# 吳安儀凱旋回港　盼有更多時間推廣桌球
+
+  
+
+成功衛冕英國女子公開賽冠軍的本港女子桌球手吳安儀返抵香港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm)
+
+---
+
 # 美國制裁6名中央和特區官員　中方稱堅決反制美方錯誤行徑
 
 ![郭嘉昆重申，香港事務純屬中國內政，敦促美方停止以任何方式插手香港事務和中國內政。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798451_1_20250401154203.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798254-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798254-20250331.htm)
-
----
-
-# 黃澤林期待於啟德體育園作賽　今年目標爭取排名世界前100
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798253_1_20250331150941.jpg&q=90)
-  
-
-香港網球「一哥」黃澤林表示，昨日到啟德體育園觀看七欖賽事，氣氛很好，自己很期待日後可以在這個香港主場進行網球比賽，相信到時會很震撼。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798253-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798253-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798253-20250331.htm)
 
 ---

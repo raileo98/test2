@@ -51,7 +51,7 @@ Members of the DAB on Tuesday staged a protest outside the US consulate in Centr
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798428_1_20250401125448.jpg&q=90)
   
 
-A school representative said on Tuesday that proposed changes to the Native English Teacher (NET) scheme gives headteachers more flexibility.
+A school representative said on Tuesday that proposed changes to the Native-speaking English Teacher (NET) scheme gives headteachers more flexibility.
 
   
 

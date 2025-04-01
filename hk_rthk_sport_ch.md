@@ -1,3 +1,26 @@
+# 吳安儀凱旋回港　盼有更多時間推廣桌球
+
+  
+
+成功衛冕英國女子公開賽冠軍的本港女子桌球手吳安儀返抵香港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm)
+
+---
+
 # 意甲拉素與拖連奴賽和1:1　維羅納0:0帕爾馬
 
 ![拉素（白衫）與拖連奴賽和1:1。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798363_1_20250401073812.jpg&q=90)
@@ -1435,28 +1458,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796640-20250320.htm)
-
----
-
-# 北京U20球員郭嘉璇離世　北京足協感痛心組專家分析訓練賽視頻
-
-  
-
-早前於西班牙集訓期間意外受傷、導致腦死亡的北京U20足球隊隊員郭嘉璇，星期三晚在北京天壇醫院去世，終年18歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796570-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796570-20250320.htm](https://news.rthk.hk/rthk/ch/component/k2/1796570-20250320.htm)
 
 ---

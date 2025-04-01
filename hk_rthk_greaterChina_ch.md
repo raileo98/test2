@@ -1,3 +1,27 @@
+# 外交部：解放軍聯合演訓是對台獨分裂勢力嚴重警告
+
+![郭嘉昆稱，解放軍聯合演訓是對台獨分裂勢力的嚴重警告和有力遏制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798452_1_20250401154745.jpg&q=90)
+  
+
+解放軍東部戰區於台島周邊組織聯合演訓。在北京，外交部發言人郭嘉昆表示，有關聯合演訓是對台獨分裂勢力的嚴重警告和有力遏制，是捍衛國家主權，維護國家統一的正當必要行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798452-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798452-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798452-20250401.htm)
+
+---
+
 # 美國制裁6名中央和特區官員　中方稱堅決反制美方錯誤行徑
 
 ![郭嘉昆重申，香港事務純屬中國內政，敦促美方停止以任何方式插手香港事務和中國內政。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798451_1_20250401154203.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798053-20250329.htm)
-
----
-
-# 張軍晤林定國　稱最高人民法院持續推進與香港司法法律界交流合作
-
-![最高人民法院院長張軍(右)早上在北京會見律政司司長林定國。(人民法院報圖片)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798042_1_20250329214059.jpg&q=90)
-  
-
-最高人民法院院長張軍早上在北京會見律政司司長林定國。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798042-20250329.htm)
 
 ---
