@@ -1,3 +1,75 @@
+# 港股美國預託證券較本港收市個別發展
+
+![阿里巴巴美國預託證券較本港收市跌約0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798539_1_20250402061644.jpg&q=90)
+  
+
+阿里巴巴美國預託證券折合129.07港元，較本港收市跌約0.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798539-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798539-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798539-20250402.htm)
+
+---
+
+# 美元兌主要貨幣個別發展
+
+![美元兌日圓下跌，兌歐元則向上。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798538_1_20250402060801.jpg&q=80)
+  
+
+美元兌日圓下跌，兌歐元則向上。美國製造業萎縮，勞動力市場亦疲弱，勞工部報告顯示，2月職位空缺減少至756.8萬個。有分析認為，美國製造業已經受到特朗普保護主義政策的衝擊，未來幾個月或蔓延到其他經濟領域。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798538-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798538-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798538-20250402.htm)
+
+---
+
+# 紐約期油回落約0.4%
+
+![原油期貨價格從5周高位回落。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798537_1_20250402055530.jpg&q=90)
+  
+
+原油期貨價格從5周高位回落。交易商擔心美國總統特朗普即將公布的對等關稅措施將加劇全球貿易戰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798537-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798537-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798537-20250402.htm)
+
+---
+
 # 紐約期金回吐逾4美元
 
 ![外圍金價回吐，但仍接近紀錄高位。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798536_1_20250402054918.jpg&q=90)
@@ -1365,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798366-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798366-20250401.htm)
-
----
-
-# 日股開市反彈
-
-![日經指數較早時報35970點，升352點，升幅0.99%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798365_1_20250401081008.jpg&q=75)
-  
-
-東京股市反彈。日經指數較早時報35970點，升352點，升幅0.99%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798365-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798365-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798365-20250401.htm)
-
----
-
-# 日本2月失業率降至2.4%
-
-![日本政府公布，2月失業率降至2.4%，較1月下跌0.1個百分點，低於市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798364_1_20250401080053.jpg&q=80)
-  
-
-日本政府公布，2月失業率降至2.4%，較1月下跌0.1個百分點，低於市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798364-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798364-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798364-20250401.htm)
-
----
-
-# 格奧爾基耶娃：美國推動全面關稅短期內不太可能引發經濟衰退
-
-![格奧爾基耶娃稱美國推動全面關稅正造成巨大不確定並打擊信心，但短期內不致引發經濟衰退。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798361_1_20250401070655.jpg&q=90)
-  
-
-國際貨幣基金組織總裁格奧爾基耶娃表示，美國總統特朗普推動全面關稅，正造成巨大不確定性並打擊信心，但短期內不太可能引發經濟衰退，又認為美國今年通脹回落進程可能放緩，但不足以改變聯儲局明年令通脹重返2%的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm)
 
 ---

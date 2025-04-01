@@ -1,3 +1,27 @@
+# Real Madrid hold Real Sociedad in eight-goal thriller
+
+![Antonio Rudiger, right, were among the scorers for Real Madrid. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798540_2_20250402062922.jpg&q=90)
+  
+
+Real Madrid edged into the Copa del Rey final with a thrilling 4-4 draw against Real Sociedad after extra-time, securing a 5-4 aggregate semi-final victory.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm)
+
+---
+
 # Trump 'perfecting' tariffs with hours to go
 
 ![White House Press Secretary Karoline Leavitt told a briefing that the tariffs would take effect "immediately" after the announcement. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798530_1_20250402033307.jpg&q=90)
@@ -1413,29 +1437,5 @@ US President Donald Trump said the tariffs he plans to impose in the coming days
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm)
-
----
-
-# S Korean police set to question wildfires suspect
-
-![An Uiseong surveys what else is left after a wildfire devastated his village. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798256_1_20250331151631.jpg&q=45)
-  
-
-South Korean police plan to question a 56-year-old man on suspicion of starting at least one of the wildfires that recently devastated the country’s southern regions, killing 30 people and burning through more than 48,000 hectares.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798256-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798256-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798256-20250331.htm)
 
 ---

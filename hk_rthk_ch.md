@@ -1,3 +1,75 @@
+# 港股美國預託證券較本港收市個別發展
+
+![阿里巴巴美國預託證券較本港收市跌約0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798539_1_20250402061644.jpg&q=90)
+  
+
+阿里巴巴美國預託證券折合129.07港元，較本港收市跌約0.6%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798539-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798539-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798539-20250402.htm)
+
+---
+
+# 美元兌主要貨幣個別發展
+
+![美元兌日圓下跌，兌歐元則向上。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798538_1_20250402060801.jpg&q=80)
+  
+
+美元兌日圓下跌，兌歐元則向上。美國製造業萎縮，勞動力市場亦疲弱，勞工部報告顯示，2月職位空缺減少至756.8萬個。有分析認為，美國製造業已經受到特朗普保護主義政策的衝擊，未來幾個月或蔓延到其他經濟領域。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798538-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798538-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798538-20250402.htm)
+
+---
+
+# 紐約期油回落約0.4%
+
+![原油期貨價格從5周高位回落。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798537_1_20250402055530.jpg&q=90)
+  
+
+原油期貨價格從5周高位回落。交易商擔心美國總統特朗普即將公布的對等關稅措施將加劇全球貿易戰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798537-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798537-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798537-20250402.htm)
+
+---
+
 # 紐約期金回吐逾4美元
 
 ![外圍金價回吐，但仍接近紀錄高位。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798536_1_20250402054918.jpg&q=90)
@@ -1364,78 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798467-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798467-20250401.htm)
-
----
-
-# 高山道社區客廳開幕　料每年服務8萬人次
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798474_1_20250401171326.jpg&q=90)
-  
-
-位於高山道的社區客廳今日起開放，為期3年，為九龍城區劏房戶提供服務，開放時間為每日早上11時至晚上10時。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798474-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798474-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798474-20250401.htm)
-
----
-
-# 特區救援隊與國家隊展開首次緬甸地震聯合搜救
-
-![特區救援隊今早與中國救援隊在一受災區域進行首次聯合行動。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_1_20250401171159.jpg&q=80)
-![特區救援隊繼續在緬甸曼德勒災區搜救。（消防處片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_3_20250401184459.jpg&q=90)
-  
-
-特區救援隊繼續在緬甸曼德勒災區搜救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm)
-
----
-
-# 中聯辦斥美國亂港遏華用心險惡　注定徒勞無功
-
-![中聯辦表示，國家安全是香港長期繁榮穩定的基石，堅定不移依法維護國家安全，是對香港法治、民主、人權和自由的最根本保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798468_1_20250401171248.jpg&q=85)
-  
-
-中聯辦強烈譴責美國國務院對中央駐港機構和香港特區政府有關官員進行所謂「制裁」，及發表惡意抹黑香港民主法治的「2025年香港政策法報告」。中聯辦指出，美國再次以卑劣手段粗暴干涉中國內政和香港事務，粗暴踐踏國際法原則和國際關係基本準則，充分暴露其亂港遏華的險惡用心，但注定徒勞無功。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm)
 
 ---
