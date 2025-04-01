@@ -1,3 +1,27 @@
+# 外交部：中方促美方停止借涉藏問題干涉中國內政
+
+![郭嘉昆說，中方敦促美方恪守在西藏問題上所做承諾，停止借涉藏問題干涉中國內政。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798486_1_20250401175100.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆表示，美方粗暴干涉西藏事務和中國內政，嚴重違反國際法和國際關係基本準則。中方對此強烈不滿，堅決反對，將採取必要措施，對美方錯誤行徑予以堅決對等反制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798486-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798486-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798486-20250401.htm)
+
+---
+
 # 理想汽車3月交付量按年增長近27%　首季升近16%
 
 ![理想汽車3月新車交付量近3.7萬輛，按年增長近27%；首季累計交付近9.3萬輛，按年增長近16%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798484_1_20250401174151.jpg&q=90)
