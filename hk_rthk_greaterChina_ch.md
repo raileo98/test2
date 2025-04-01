@@ -1,4 +1,27 @@
-# 普京稱俄中關係保持高水平發展　王毅指為兩國為動蕩世界穩定力量
+# 李強與王毅就地震導致人員傷亡及財產損失分別向泰方致慰問電
+
+  
+
+國務院總理李強就泰國受緬甸地震影響、遭受人員傷亡及財產損失，向泰國總理佩通坦致慰問電。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm)
+
+---
+
+# 普京稱俄中關係保持高水平發展　王毅指兩國為動蕩世界的穩定力量
 
   
 
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm)
-
----
-
-# 中國救援隊在緬甸曼德勒救出一名被困60小時女子
-
-![中國救援隊在緬甸曼德勒市的長城飯店救援。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798163_1_20250331023225.jpg&q=90)
-  
-
-中國救援隊在緬甸曼德勒市的長城飯店，經過5個多小時救援，在當地時間周一凌晨，救出一名被困人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm)
 
 ---

@@ -1,4 +1,50 @@
-# 普京稱俄中關係保持高水平發展　王毅指為兩國為動蕩世界穩定力量
+# 李強與王毅就地震導致人員傷亡及財產損失分別向泰方致慰問電
+
+  
+
+國務院總理李強就泰國受緬甸地震影響、遭受人員傷亡及財產損失，向泰國總理佩通坦致慰問電。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm)
+
+---
+
+# 馬來西亞燃氣管道爆炸大火已救熄　過百人受傷
+
+  
+
+馬來西亞雪蘭莪州因燃氣管道爆炸引發的大火，昨日下午救熄，大火導致112人受傷，事故原因有待進一步調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798521-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798521-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798521-20250402.htm)
+
+---
+
+# 普京稱俄中關係保持高水平發展　王毅指兩國為動蕩世界的穩定力量
 
   
 
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm)
-
----
-
-# 美國制裁6名中央和特區官員　中方稱堅決反制美方錯誤行徑
-
-![郭嘉昆重申，香港事務純屬中國內政，敦促美方停止以任何方式插手香港事務和中國內政。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798451_1_20250401154203.jpg&q=90)
-  
-
-美國以損害香港自治為由，制裁6名中央和特區官員。在北京，外交部發言人郭嘉昆表示強烈不滿，堅決反對，並予以強烈譴責，表明將堅決反制美方錯誤行徑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm)
-
----
-
-# 稅務局陸續發出報稅表　鼓勵使用「稅務易」
-
-![稅務局發出約23萬份2024至25課稅年度利得稅報稅表、12萬份物業稅報稅表及33萬份僱主報稅表。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798450_1_20250401153312.jpg&q=90)
-  
-
-稅務局發出約23萬份2024至25課稅年度利得稅報稅表、12萬份物業稅報稅表及33萬份僱主報稅表，並將於5月2日發出約266萬份個別人士報稅表。納稅人及僱主一般須於報稅表發出日起一個月內填報。就已委任稅務代表的個案，提交報稅表期限載列於已上載稅務局網站的「整批延期提交報稅表的通函」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798450-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798450-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798450-20250401.htm)
 
 ---

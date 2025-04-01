@@ -1,4 +1,50 @@
-# 普京稱俄中關係保持高水平發展　王毅指為兩國為動蕩世界穩定力量
+# 李強與王毅就地震導致人員傷亡及財產損失分別向泰方致慰問電
+
+  
+
+國務院總理李強就泰國受緬甸地震影響、遭受人員傷亡及財產損失，向泰國總理佩通坦致慰問電。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm)
+
+---
+
+# 馬來西亞燃氣管道爆炸大火已救熄　過百人受傷
+
+  
+
+馬來西亞雪蘭莪州因燃氣管道爆炸引發的大火，昨日下午救熄，大火導致112人受傷，事故原因有待進一步調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798521-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798521-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798521-20250402.htm)
+
+---
+
+# 普京稱俄中關係保持高水平發展　王毅指兩國為動蕩世界的穩定力量
 
   
 
@@ -1386,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798223-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798223-20250331.htm)
-
----
-
-# 紅十字會稱緬甸地震災區缺庇護所　憂爆發流行病
-
-![程德君表示，當地約七成房屋受破壞倒塌，民眾暫時無安全的庇護所，部分民眾要在街上睡覺。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798217_1_20250331124046.jpg&q=40)
-  
-
-緬甸地震增至1700人死亡，3400多人受傷。香港紅十字會國際及賑災服務主管程德君表示，當地部分災區約七成房屋受破壞倒塌，民眾暫時無安全的庇護所，有民眾要在街上睡覺，乾淨食水及醫療服務都受影響，有部分居民出現肚瀉情況，擔心當地會爆發流行病。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm)
-
----
-
-# 緬甸反政府武裝組織指責軍政府攻擊村莊無視震後民眾苦難
-
-![新加坡指停火有助分發人道主義援助物資。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798210_1_20250331103217.jpg&q=90)
-  
-
-在緬甸由少數民族組成的反政府武裝組織「克倫民族聯盟」指責軍政府在國家遭受地震重創時，仍然空襲組織控制的村莊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798210-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798210-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798210-20250331.htm)
 
 ---
