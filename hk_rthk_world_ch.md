@@ -1,3 +1,47 @@
+# 中國救援隊在緬甸已救出8名倖存者
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm)
+
+---
+
+# 外交部：伊朗核問題再走到十字路口　美方應早日回歸復談
+
+![郭嘉昆說，美方應展現政治誠意，早日回歸復談，制裁施壓、武力威脅沒有出路。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798478_1_20250401172222.jpg&q=90)
+  
+
+美國總統特朗普早前警告，如果伊朗不與美國就核問題達成協議，美國將轟炸伊朗，並對伊朗產品徵收關稅。在北京，外交部發言人郭嘉昆表示，伊朗核問題全面協議的執行因美方執意退出而受到干擾，美方應展現政治誠意，早日回歸復談，制裁施壓、武力威脅沒有出路。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm)
+
+---
+
 # 王毅：中俄不斷深化戰略協作夥伴關係有利彼此成就
 
 ![王毅說，相信中俄兩國將堅定延續偉大友誼，為推動國際秩序朝著更公正合理的方向發展作出「中俄貢獻」 。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798463_1_20250401165210.jpg&q=90)
@@ -1387,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798167-20250331.htm)
-
----
-
-# 內塔尼亞胡：以色列準備好下一階段停火談判　哈馬斯必須放下武器
-
-![內塔尼亞胡說，要實現談判，哈馬斯要放下武器。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798166_1_20250331031615.jpg&q=90)
-  
-
-以色列總理內塔尼亞胡表示，以色列準備好就加沙停火協議進行下一階段談判，但巴勒斯坦武裝組織哈馬斯必須放下武器。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798166-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798166-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798166-20250331.htm)
-
----
-
-# 中國救援隊在緬甸曼德勒救出一名被困60小時女子
-
-![中國救援隊在緬甸曼德勒市的長城飯店救援。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798163_1_20250331023225.jpg&q=90)
-  
-
-中國救援隊在緬甸曼德勒市的長城飯店，經過5個多小時救援，在當地時間周一凌晨，救出一名被困人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798163-20250331.htm)
 
 ---

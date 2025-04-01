@@ -1,3 +1,49 @@
+# 陳茂波：香港百業興旺有賴穩定安全供水系統
+
+  
+
+財政司司長陳茂波表示，東江供水系統不斷擴展和優化，支撐香港經濟蓬勃發展，即使其間東江流域受到旱情威脅，仍是確保香港的用水充足、優質和安全。今天香港是國際金融、貿易和航運中心，百業興旺，這些都有賴於國家的堅實支持和穩定安全的用水供應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm)
+
+---
+
+# 港澳辦：美國制裁暴露霸權霸道　黔驢技窮歇斯底里
+
+  
+
+國務院港澳辦表示，強烈反對、嚴厲譴責美國國務院發表所謂「香港政策法報告」，抹黑詆毀香港國安法治並對中央政府和香港特區政府有關官員實施所謂制裁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm)
+
+---
+
 # 高山道社區客廳開幕　料每年服務8萬人次
 
 ![位於高山道的社區客廳今日起開放。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798474_1_20250401171326.jpg&q=90)
@@ -73,7 +119,7 @@
 
 # 麥美娟稱區議員交代接觸市民數字做法史無前例
 
-![麥美娟強調，今屆區議會加入履職監察機制，區議員要交代接觸市民統計數字，是史無前例。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798461_1_20250401171113.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798461_1_20250401171113.jpg&q=90)
   
 
 本屆區議員工作報告昨日起在各區民政事務處供市民查閱。民政及青年事務局局長麥美娟出席活動時被問到報告為何不放上網、市民亦不能用手機拍攝；她回應，各區民政處有提供報告複印服務，亦按政府一般提供影印文件服務的收費。
@@ -1393,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798285-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798285-20250331.htm)
-
----
-
-# 會財局定下3年策略　倡導可持續發展及數碼化轉型
-
-![會財局發布2025年至2027年策略重點，包括倡導可持續發展、數碼化轉型及人才管理，促進會計專業發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798280_1_20250331170516.jpg&q=90)
-  
-
-會計及財務匯報局發布2025年至2027年策略重點，涉及4個核心支柱，包括監管、管治、發展、組織效能。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm)
-
----
-
-# 香港今個財政年度首11個月赤字923億元
-
-![政府公布，本港今個財政年度首11個月，亦即截至2月底，錄得赤字923億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798277_1_20250331165029.jpg&q=85)
-  
-
-政府公布，本港今個財政年度首11個月，亦即截至2月底，錄得赤字923億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm)
 
 ---

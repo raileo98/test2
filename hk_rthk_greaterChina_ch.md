@@ -1,3 +1,93 @@
+# 陳茂波：香港百業興旺有賴穩定安全供水系統
+
+  
+
+財政司司長陳茂波表示，東江供水系統不斷擴展和優化，支撐香港經濟蓬勃發展，即使其間東江流域受到旱情威脅，仍是確保香港的用水充足、優質和安全。今天香港是國際金融、貿易和航運中心，百業興旺，這些都有賴於國家的堅實支持和穩定安全的用水供應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm)
+
+---
+
+# 中國救援隊在緬甸已救出8名倖存者
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm)
+
+---
+
+# 外交部：伊朗核問題再走到十字路口　美方應早日回歸復談
+
+![郭嘉昆說，美方應展現政治誠意，早日回歸復談，制裁施壓、武力威脅沒有出路。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798478_1_20250401172222.jpg&q=90)
+  
+
+美國總統特朗普早前警告，如果伊朗不與美國就核問題達成協議，美國將轟炸伊朗，並對伊朗產品徵收關稅。在北京，外交部發言人郭嘉昆表示，伊朗核問題全面協議的執行因美方執意退出而受到干擾，美方應展現政治誠意，早日回歸復談，制裁施壓、武力威脅沒有出路。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm)
+
+---
+
+# 港澳辦：美國制裁暴露霸權霸道　黔驢技窮歇斯底里
+
+  
+
+國務院港澳辦表示，強烈反對、嚴厲譴責美國國務院發表所謂「香港政策法報告」，抹黑詆毀香港國安法治並對中央政府和香港特區政府有關官員實施所謂制裁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm)
+
+---
+
 # 特區救援隊與國家隊展開首次緬甸地震聯合搜救
 
 ![特區救援隊今早與中國救援隊在一受災區域進行首次聯合行動。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_1_20250401171159.jpg&q=80)
@@ -1343,101 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm)
-
----
-
-# 赫格塞斯：日本是遏制中國不可或缺的夥伴
-
-![赫格塞斯在東京與日本防衛大臣中谷元會晤。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798108_1_20250330144518.jpg&q=90)
-  
-
-美國國防部長赫格塞斯表示，日本是遏制中國不可或缺的夥伴，協助華府在包括台灣海峽等地區建立可靠的阻嚇力量。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798108-20250330.htm)
-
----
-
-# 緬甸地震逾1600人死亡　十多名中國公民受傷
-
-![緬甸地震增至1600多人死亡，3400多人受傷，百多人失蹤。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798098_2_20250330122453.jpg&q=90)
-  
-
-緬甸中部大地震至今，增至1600多人死亡，3400多人受傷，百多人失蹤。雲南救援醫療隊凌晨在內比都救出1名被困近40小時的長者。中國駐緬甸大使館至今確認十多名中國公民在地震中受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798098-20250330.htm)
-
----
-
-# 中國駐緬甸大使館︰至少10名中國公民在地震中受傷
-
-![中國駐緬甸大使館確認10多名中國公民在地震中受傷。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798096_1_20250330122529.jpg&q=90)
-  
-
-中國駐緬甸大使館表示，已確認至少10名中國公民在地震中受傷，都在醫院接受治療。由於災區救援工作仍在進行，後續傷亡人數可能還會增加，使館將全力協調救援。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798096-20250330.htm)
-
----
-
-# 雲南救援醫療隊在緬甸內比都救出1名倖存者
-
-![救援人員在緬甸內比都一間醫院的廢墟下救出一名倖存者。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798085_2_20250330104841.jpg&q=90)
-  
-
-新華社報道，雲南救援醫療隊在緬甸內比都救出1名被困近40小時的長者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798085-20250330.htm)
 
 ---
