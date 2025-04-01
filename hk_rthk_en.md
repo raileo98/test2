@@ -1,3 +1,27 @@
+# Fab Four get own beat in 'bingeable' film experience
+
+![At the CinemaCon in Caesars Palace in Las Vegas are, from left, Sam Mendes, Paul Mescal, Joseph Quinn, Barry Keoghan and Harris Dickinson. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798436_1_20250401134811.jpg&q=90)
+  
+
+Sam Mendes will release four movies about The Beatles in the same month, the director has announced, with Paul Mescal playing Paul McCartney and Harris Dickinson portraying John Lennon in "the first bingeable theatrical experience."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm)
+
+---
+
 # DAB stages protest against US sanctions
 
 ![Members of the DAB handed in petitions at the US consulate in Central. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798432_1_20250401131459.jpg&q=80)
@@ -1413,29 +1437,5 @@ Venezuelan authorities reported the arrival on Sunday of a new flight of 175 mig
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm)
-
----
-
-# Starmer, Trump discuss possible US-UK trade deal
-
-![British Prime Minister Keir Starmer had "productive" talks with US President Donald Trump about a potential UK-US trade deal. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798188_1_20250331085352.jpg&q=85)
-  
-
-Keir Starmer and Donald Trump spoke on Sunday and had "productive" talks towards a UK-US trade deal, the British Prime Minister's Downing Street office said on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm)
 
 ---

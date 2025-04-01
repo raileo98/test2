@@ -1,3 +1,27 @@
+# Fab Four get own beat in 'bingeable' film experience
+
+![At the CinemaCon in Caesars Palace in Las Vegas are, from left, Sam Mendes, Paul Mescal, Joseph Quinn, Barry Keoghan and Harris Dickinson. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798436_1_20250401134811.jpg&q=90)
+  
+
+Sam Mendes will release four movies about The Beatles in the same month, the director has announced, with Paul Mescal playing Paul McCartney and Harris Dickinson portraying John Lennon in "the first bingeable theatrical experience."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm)
+
+---
+
 # 33 injured in Kuala Lumpur gas pipeline fireball
 
 ![Rescue efforts are ongoing for those trapped in houses in Kampung Kuala Sungai Baru on the outskirts of Kuala Lumpur. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798431_2_20250401131510.jpg&q=90)
@@ -1415,29 +1439,5 @@ Denmark welcomed on Wednesday Washington's decision to limit an American delegat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797564-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797564-20250327.htm)
-
----
-
-# Netanyahu threatens to seize parts of Gaza
-
-![Israeli Prime Minister Benjamin Netanyahu has threatened to seize more of Gaza if the remaining hostages are not released. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797593_1_20250327035155.jpg&q=90)
-  
-
-Israeli Prime Minister Benjamin Netanyahu threatened on Wednesday to seize parts of Gaza if Hamas does not release hostages, while the militant group warned they would return "in coffins" if Israel does not stop bombing the Palestinian territory.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm)
 
 ---
