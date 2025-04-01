@@ -1,3 +1,27 @@
+# Tesla faces backlash over Musk, weakening demand
+
+![Sales of Tesla EVs are slowing in Europe amid a growing backlash against its CEO Elon Musk over his political views. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798413_1_20250401120524.jpg&q=90)
+  
+
+Tesla investors are bracing for a drop in first-quarter vehicle deliveries as a backlash against CEO Elon Musk's politics exacerbates weakening demand for the electric vehicle maker's lineup.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm)
+
+---
+
 # Crypto investor Wang leads first polar space mission
 
 ![SpaceX's Falcon 9 rocket carries the four commercial astronauts into a 90-degree inclination polar orbit on the Fram2 mission after launching from Kennedy Space Center in Cape Canaveral, Florida. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798408_1_20250401112340.jpg&q=90)
@@ -1415,29 +1439,5 @@ US President Donald Trump announced steep tariffs on auto imports Wednesday, in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm)
-
----
-
-# Magazine publishes US attack plan shared in group chat
-
-![In the Signal chat, Defence Secretary Pete Hegseth lays out the weather conditions, times of attacks and types of aircraft being used. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797576_1_20250326222631.jpg&q=90)
-  
-
-The Atlantic magazine on Wednesday published what it said was the entire text of a chat group mistakenly shared with a journalist by top US national security officials, laying out plans for an imminent attack on Yemen.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797576-20250326.htm)
 
 ---

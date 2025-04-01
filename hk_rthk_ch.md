@@ -1,3 +1,27 @@
+# 澳洲維持利率不變　央行指前景仍不明朗
+
+![澳洲央行維持指標利率在4.1厘不變，指出前景仍不明朗。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798411_1_20250401114558.jpg&q=90)
+  
+
+澳洲央行維持指標利率在4.1厘不變，符合市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798411-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798411-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798411-20250401.htm)
+
+---
+
 # 內地股市半日靠穩
 
 ![上證指數半日報3355點，升19點，升幅0.59%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798410_1_20250401113635.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm)
-
----
-
-# 何立峰：中方將進一步全面深化改革　歡迎國際投資者分享發展機遇
-
-![何立峰表示，歡迎國際投資者積極參與中國資本市場建設，分享發展機遇。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798331_1_20250331214447.jpg&q=90)
-  
-
-中共中央政治局委員、中央財辦主任何立峰在北京與美國橋水基金創始人達利歐會面，雙方就宏觀經濟形勢、中美經貿關係交換意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm)
 
 ---

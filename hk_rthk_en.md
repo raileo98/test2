@@ -1,3 +1,51 @@
+# Stocks market maker plans to expand in Central
+
+![Jane Street is in talks with Hongkong Land to take over two more floors in Central. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798414_1_20250401120606.jpg&q=85)
+  
+
+Jane Street, one of the world's largest quant trading firms and market makers, is planning a sharp increase in Hong Kong office space, two people familiar with the matter said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm)
+
+---
+
+# Tesla faces backlash over Musk, weakening demand
+
+![Sales of Tesla EVs are slowing in Europe amid a growing backlash against its CEO Elon Musk over his political views. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798413_1_20250401120524.jpg&q=90)
+  
+
+Tesla investors are bracing for a drop in first-quarter vehicle deliveries as a backlash against CEO Elon Musk's politics exacerbates weakening demand for the electric vehicle maker's lineup.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm)
+
+---
+
 # Crypto investor Wang leads first polar space mission
 
 ![SpaceX's Falcon 9 rocket carries the four commercial astronauts into a 90-degree inclination polar orbit on the Fram2 mission after launching from Kennedy Space Center in Cape Canaveral, Florida. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798408_1_20250401112340.jpg&q=90)
@@ -1389,53 +1437,5 @@ Francesco Bagnaia won an eventful Grand Prix of the Americas to end crash-victim
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798175-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798175-20250331.htm)
-
----
-
-# Barcelona restore Liga lead in Girona romp
-
-![Lewandowski scored twice as Barca remain unbeaten this year in 20 matches. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798174_1_20250331055012.jpg&q=90)
-  
-
-Robert Lewandowski bagged a brace as Barcelona eased to a 4-1 victory over Girona to move three points clear at the top of La Liga.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798174-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798174-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798174-20250331.htm)
-
----
-
-# Foreign aid, rescuers come to Myanmar's assistance
-
-![This building in Mandalay is among those that collapsed in Friday's killer earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798150_1_20250330223525.jpg&q=80)
-  
-
-The toll from Myanmar's earthquake continued to rise on Sunday, as foreign rescue teams and aid rushed into the country where hospitals were overwhelmed and some communities scrambled to mount rescue efforts with limited resources.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm)
 
 ---
