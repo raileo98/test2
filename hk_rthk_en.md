@@ -1,3 +1,27 @@
+# US sanctions just 'a piece of waste paper': Beijing
+
+![The Office for Safeguarding National Security says Washington should stop its bullying tactics as soon as possible. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798470_1_20250401170116.jpg&q=80)
+  
+
+Beijing's Office for Safeguarding National Security in Hong Kong has issued a stern warning against the United States for sanctioning six officials, saying such punitive actions are simply "a piece of waste paper."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm)
+
+---
+
 # Far-right party chief calls for rally over Le Pen ban
 
 ![Marine Le Pen with Jordan Bardella at the Elysee presidential palace in Paris in August. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798485_1_20250401174939.jpg&q=85)
@@ -1412,29 +1436,5 @@ The City University of Hong Kong (CityU) and the University of Cambridge signed 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798243-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798243-20250331.htm)
-
----
-
-# 'Design, build, run model possible for new link to SZ'
-
-![The government is hoping that a cross-border railway link between Hung Shui Kiu and Qianhai will become operational in 2035. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798240_1_20250331131812.jpg&q=80)
-  
-
-The government is looking into the possibility of having a single contractor design, build and operate a planned cross-border railway in the northwestern New Territories and says officials will start gauging developers' interest later this year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm)
 
 ---

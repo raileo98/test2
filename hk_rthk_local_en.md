@@ -1,3 +1,27 @@
+# US sanctions just 'a piece of waste paper': Beijing
+
+![The Office for Safeguarding National Security says Washington should stop its bullying tactics as soon as possible. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798470_1_20250401170116.jpg&q=80)
+  
+
+Beijing's Office for Safeguarding National Security in Hong Kong has issued a stern warning against the United States for sanctioning six officials, saying such punitive actions are simply "a piece of waste paper."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm)
+
+---
+
 # Ng On-yee happy that billiards keep Tier A status
 
 ![Ng On-yee shows off her British Open trophy upon her return to Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798472_1_20250401170234.jpg&q=90)
@@ -1432,29 +1456,5 @@ The chairman of Polytechnic University (PolyU)'s governing council on Thursday s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797724-20250327.htm)
-
----
-
-# HK to continue leveraging 'its unique position'
-
-![John Lee meets FAO director-general Qu Dongyu in Hainan. Photo: John Lee's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797694_1_20250327162229.jpg&q=90)
-  
-
-Hong Kong will continue to deepen international co-operation and integrate into national development despite a complex external environment, Chief Executive John Lee said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm)
 
 ---

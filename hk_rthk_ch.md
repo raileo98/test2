@@ -1,3 +1,75 @@
+# 習近平與印度總統就兩國建交75周年互致賀電
+
+![習近平表示，中印雙方應加強各領域交流合作，推動中印關係沿著健康穩定軌道向前發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798499_1_20250401191702.jpg&q=90)
+  
+
+國家主席習近平與印度總統穆爾穆互致賀電，慶祝兩國建交75周年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm)
+
+---
+
+# 《華郵》指美國擬向進口商品徵約20%關稅　歐盟表明將反擊
+
+![《華盛頓郵報》引述白宮消息報道，特朗普政府計劃向大部分進口商品徵收約20%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798498_1_20250401191654.jpg&q=85)
+  
+
+《華盛頓郵報》引述白宮消息報道，特朗普政府計劃向大部分進口商品徵收約20%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm)
+
+---
+
+# 滙控：有信心有形股本回報率可達標
+
+![杜嘉褀指，集團定下有形股本回報率(RoTE)在今年起的3年約15%，有信心可以達標。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798497_1_20250401191612.jpg&q=90)
+  
+
+滙控舉行股東非正式會議，有小股東關注交通銀行向財政部等配售A股，滙控對交行持股被攤薄至16.06%如何影響投資回報。滙控主席杜嘉祺指出，雙方20年來一直是的重要戰略合作夥伴，未來會繼續與交行密切合作，集團正研究當中的技術細節，但強調未來會繼續持股。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798497-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798497-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798497-20250401.htm)
+
+---
+
 # 港澳辦再轉載文章引述政商界冀長和配合審查重塑良好企業形象
 
   
@@ -23,6 +95,7 @@
 
 # 夏寶龍會見港協暨奧委會會長霍震霆一行　冀繼續高舉愛國愛港旗幟
 
+![在北京，中央港澳辦、國務院港澳辦主任夏寶龍（右）會見港協暨奧委會會長霍震霆（左）等人。（港協暨奧委會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798495_1_20250401192053.jpg&q=90)
   
 
 在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見港協暨奧委會會長霍震霆等人，指港協在發展和推廣體育運動，促進香港與內地以及世界各國各地區體育交流合作等方面，發揮了重要作用。
@@ -239,7 +312,7 @@
 
 # 慶祝20周年　香港迪士尼捐20萬張門票予社會有需要人士
 
-![香港迪士尼樂園為慶祝20周年，將捐出20萬張樂園門票予社區有需要人士。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798487_1_20250401181713.jpg&q=90)
+![香港迪士尼樂園為慶祝20周年，將捐出20萬張樂園門票予社區有需要人士。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798487_1_20250401192127.jpg&q=90)
   
 
 香港迪士尼樂園為慶祝20周年，將捐出20萬張樂園門票予社區有需要人士，較過去每年平均捐出門票增加一倍。

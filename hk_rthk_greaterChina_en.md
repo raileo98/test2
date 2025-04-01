@@ -1,3 +1,27 @@
+# US sanctions just 'a piece of waste paper': Beijing
+
+![The Office for Safeguarding National Security says Washington should stop its bullying tactics as soon as possible. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798470_1_20250401170116.jpg&q=80)
+  
+
+Beijing's Office for Safeguarding National Security in Hong Kong has issued a stern warning against the United States for sanctioning six officials, saying such punitive actions are simply "a piece of waste paper."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm)
+
+---
+
 # Xiaomi hands over data in fatal SU7 crash in Anhui
 
 ![Xiaomi' SU7 has outsold Tesla's Model 3. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798464_1_20250401165627.jpg&q=85)
@@ -1415,29 +1439,5 @@ The foreign ministers of South Korea, China and Japan will hold a meeting in Tok
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm)
-
----
-
-# Kiribati eyes deep-sea mining deal with China
-
-![View of Kiribati's Parliament House. Kiribati opened discussions with China after a deal with Canada's The Metals Company fell through. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796176_1_20250318084916.jpg&q=85)
-  
-
-Pacific nation Kiribati says it is exploring a deep-sea mining partnership with China, dangling access to a vast patch of Pacific Ocean harbouring coveted metals and minerals.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm)
 
 ---

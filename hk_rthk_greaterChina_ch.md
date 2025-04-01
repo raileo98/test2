@@ -1,5 +1,30 @@
+# 習近平與印度總統就兩國建交75周年互致賀電
+
+![習近平表示，中印雙方應加強各領域交流合作，推動中印關係沿著健康穩定軌道向前發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798499_1_20250401191702.jpg&q=90)
+  
+
+國家主席習近平與印度總統穆爾穆互致賀電，慶祝兩國建交75周年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm)
+
+---
+
 # 夏寶龍會見港協暨奧委會會長霍震霆一行　冀繼續高舉愛國愛港旗幟
 
+![在北京，中央港澳辦、國務院港澳辦主任夏寶龍（右）會見港協暨奧委會會長霍震霆（左）等人。（港協暨奧委會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798495_1_20250401192053.jpg&q=90)
   
 
 在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見港協暨奧委會會長霍震霆等人，指港協在發展和推廣體育運動，促進香港與內地以及世界各國各地區體育交流合作等方面，發揮了重要作用。
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798146-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798146-20250330.htm)
-
----
-
-# 港澳辦轉載文章籲長和懸崖勒馬　各界支持市監總局依法審查交易
-
-![港澳辦轉載的文章引述政商界人士指，當前國際形勢下，相關交易的影響已遠超商業範疇。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798136_1_20250330191246.jpg&q=75)
-  
-
-國務院港澳辦再度轉載本港報章評論長和計劃出售巴拿馬運河資產的文章，文章引述本港政商界人士認為，在當前國際形勢下，相關交易的影響已遠超商業範疇，涉及國家安全、市場競爭、國家戰略發展等多方面，國家市場監督管理總局依法審查，不僅是對市場公平競爭和社會公共利益的維護，更是對國家核心利益的捍衛，希望長和懸崖勒馬。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798136-20250330.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 習近平與印度總統就兩國建交75周年互致賀電
+
+![習近平表示，中印雙方應加強各領域交流合作，推動中印關係沿著健康穩定軌道向前發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798499_1_20250401191702.jpg&q=90)
+  
+
+國家主席習近平與印度總統穆爾穆互致賀電，慶祝兩國建交75周年。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm)
+
+---
+
+# 《華郵》指美國擬向進口商品徵約20%關稅　歐盟表明將反擊
+
+![《華盛頓郵報》引述白宮消息報道，特朗普政府計劃向大部分進口商品徵收約20%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798498_1_20250401191654.jpg&q=85)
+  
+
+《華盛頓郵報》引述白宮消息報道，特朗普政府計劃向大部分進口商品徵收約20%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm)
+
+---
+
 # 特區政府強烈譴責和反對美國《香港政策法》報告
 
 ![特區政府就美國發表所謂2025年《香港政策法》報告中對香港特區各方面情況的失實言論和污衊抹黑，表示強烈譴責和反對。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798494_1_20250401185407.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798183-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798183-20250331.htm)
-
----
-
-# 施紀賢與特朗普通話討論英美貿易協議問題
-
-![施紀賢曾於2月訪問白宮，與特朗普會面。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798178_1_20250331071945.jpg&q=85)
-  
-
-英國首相施紀賢和美國總統特朗普通話，英國首相府說，兩人討論了有關英美貿易協議「富有成效」的談判。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798178-20250331.htm)
-
----
-
-# 特朗普稱對普京非常生氣　威脅對俄石油徵收「二級關稅」
-
-![特朗普說，他對於普京最近批評烏克蘭總統澤連斯基的可信度等言論「非常生氣」和「惱火」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798171_1_20250331051441.jpg&q=90)
-  
-
-美國總統特朗普表示，他對俄羅斯總統普京「非常生氣」，如果因俄羅斯的原因導致俄烏不能達成停火協議，美國可能對俄羅斯石油買家徵收「二級關稅」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798171-20250331.htm)
 
 ---

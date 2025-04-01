@@ -1,3 +1,27 @@
+# 滙控：有信心有形股本回報率可達標
+
+![杜嘉褀指，集團定下有形股本回報率(RoTE)在今年起的3年約15%，有信心可以達標。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798497_1_20250401191612.jpg&q=90)
+  
+
+滙控舉行股東非正式會議，有小股東關注交通銀行向財政部等配售A股，滙控對交行持股被攤薄至16.06%如何影響投資回報。滙控主席杜嘉祺指出，雙方20年來一直是的重要戰略合作夥伴，未來會繼續與交行密切合作，集團正研究當中的技術細節，但強調未來會繼續持股。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798497-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798497-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798497-20250401.htm)
+
+---
+
 # 羅淑佩：香港迪士尼利用償還款項自資興建新設施是較好
 
 ![香港迪士尼樂園已開始償還由特區政府及華特迪士尼提供的貸款，至今已償還超過六成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798493_1_20250401185342.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798332-20250331.htm)
-
----
-
-# 美股初段下跌　大型科技股向下
-
-![道瓊斯指數較早時報41299點，跌284點，跌幅0.68%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798330_1_20250331213846.jpg&q=90)
-  
-
-美股開市初段下跌，大型科技股向下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm)
 
 ---
