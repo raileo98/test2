@@ -1,3 +1,26 @@
+# 入境處料清明節假期約458萬人次進出香港
+
+  
+
+入境處預計，清明節假期期間、即本月3日至6日，預計約有458萬人次經各管制站進出香港，其中預計有391萬人次會經各陸路邊境管制站出入境，較繁忙的日子為本周五，出境人次約56萬1千，入境高峰期為周日，預料大約有60萬8千人次入境。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798509-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798509-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798509-20250401.htm)
+
+---
+
 # 特區政府與水利部簽署涉水事務合作協議
 
   
@@ -1414,30 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm)
-
----
-
-# 國家水利部稱國家心繫香港同胞　廣東省冀與香港共建世界級灣區
-
-![李國英說，將全面加強與特區政府水利合作，持續完善大灣區水安全保障體系。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798320_2_20250331215050.jpg&q=80)
-![王偉中說，扎實做好水質保護，堅決守護好東江水。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798320_1_20250331215050.jpg&q=85)
-  
-
-東江水供港六十周年紀念典禮暨「舞動水滴展」開幕禮在政府總部舉行。國家水利部部長李國英致辭說，60年來，中央始終心繫香港同胞，始終高度重視對港供水工作，在政策、資金、規劃等方面給予大力支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm)
 
 ---

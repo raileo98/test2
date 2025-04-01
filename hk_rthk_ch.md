@@ -1,3 +1,26 @@
+# 入境處料清明節假期約458萬人次進出香港
+
+  
+
+入境處預計，清明節假期期間、即本月3日至6日，預計約有458萬人次經各管制站進出香港，其中預計有391萬人次會經各陸路邊境管制站出入境，較繁忙的日子為本周五，出境人次約56萬1千，入境高峰期為周日，預料大約有60萬8千人次入境。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798509-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798509-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798509-20250401.htm)
+
+---
+
 # 特區政府與水利部簽署涉水事務合作協議
 
   
