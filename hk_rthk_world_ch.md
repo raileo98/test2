@@ -1,3 +1,27 @@
+# 惡劣天氣在美國導致至少6死　加拿大安大略省逾39萬戶停電
+
+![加拿大安大略省在惡劣天氣下有樹木的樹枝折斷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798422_1_20250401131603.jpg&q=75)
+  
+
+美國風暴天氣持續，導致至少6人死亡，超過40萬人處於斷電狀態，數千萬人受惡劣天氣威脅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798422-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798422-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798422-20250401.htm)
+
+---
+
 # 王毅：美方倘一味施壓　中方必將堅決反制
 
 ![王毅說，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798425_1_20250401124309.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798157-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798157-20250331.htm)
-
----
-
-# 湯加地震　當局發布海嘯警告　要求沿海民眾轉移
-
-![湯加地震　當局發布海嘯警告　要求沿海民眾轉移](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798153_1_20250330225443.jpg&q=90)
-  
-
-太平洋島國湯加群島發生7級地震。湯加當局向所有沿海地區發出海嘯警告，指示有關地區民眾立即轉移至地勢較高的地方或內陸地區，避開海灘及沿海低窪地區，同時按當局的疏散路線及緊急指示轉移，警告民眾在官方解除警報前，切勿返回沿海地區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798153-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798153-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798153-20250330.htm)
 
 ---

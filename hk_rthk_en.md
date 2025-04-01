@@ -1,6 +1,30 @@
+# DAB stages protest against US sanctions
+
+![Members of the DAB handed in petitions at the US consulate in Central. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798432_1_20250401131459.jpg&q=80)
+  
+
+Members of the DAB on Tuesday staged a protest outside the US consulate in Central against Washington's move to put six mainland and Hong Kong officials on its sanctions list.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm)
+
+---
+
 # 33 injured in Kuala Lumpur gas pipeline fireball
 
-![Rescue efforts are ongoing for those trapped in houses in Kampung Kuala Sungai Baru on the outskirts of Kuala Lumpur. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798431_1_20250401131029.jpg&q=90)
+![Rescue efforts are ongoing for those trapped in houses in Kampung Kuala Sungai Baru on the outskirts of Kuala Lumpur. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798431_2_20250401131510.jpg&q=90)
   
 
 A fire at a gas pipeline operated by Malaysia state energy firm Petronas injured 33 people on Tuesday on the outskirts of the capital Kuala Lumpur, authorities said.
@@ -1413,29 +1437,5 @@ Keir Starmer and Donald Trump spoke on Sunday and had "productive" talks towards
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm)
-
----
-
-# Myanmar quake a top-level emergency, says WHO
-
-![Rescuers work at the site of a damaged building in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798187_1_20250331084335.jpg&q=45)
-  
-
-The World Health Organisation (WHO) said on Sunday that the Myanmar earthquake was a top-level emergency as it urgently sought US$8 million to save lives and prevent disease outbreaks over the next 30 days.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm)
 
 ---

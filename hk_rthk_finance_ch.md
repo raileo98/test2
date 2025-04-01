@@ -1,3 +1,51 @@
+# 復星國際：將堅持加大AI相關領域投入
+
+![徐曉亮指出，集團利用人工智能(AI)協助藥物研發3年，已有一定成果。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798434_1_20250401132717.jpg&q=90)
+  
+
+復星國際聯席首席執行官徐曉亮指出，集團利用人工智能(AI)協助藥物研發3年，已有一定成果，基於AI設計的藥物亦已進入臨床試驗階段，認為AI能大幅提高藥物研發效率，期望未來能與國家研究機構一同構建AI藥物研發公共平台。此外，復星旅文亦已成立人工智能創新中心，推動AI科技在旅遊度假領域的應用。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798434-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798434-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798434-20250401.htm)
+
+---
+
+# 復星國際：投資菜鳥本身是盈利能力非常好項目　續推進輕資產業務
+
+![受累對菜鳥投資產生一次性非現金賬面損失約51億元人民幣，復星國際去年由盈轉虧，但龔平形容項目本身盈利能力非常好。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798433_1_20250401131922.jpg&q=90)
+  
+
+受累對菜鳥投資產生一次性非現金賬面損失約51億元人民幣，復星國際去年由盈轉虧，蝕逾43億元人民幣，前年獲利近14億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798433-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798433-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798433-20250401.htm)
+
+---
+
 # 恒指下午初段升近0.8%
 
 ![恒指較早時報23294點，升175點，升幅0.76%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798430_1_20250401130537.jpg&q=80)
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm)
-
----
-
-# 七姊妹道爆水管致煤氣管受損　煤氣公司目標明天中午前恢復供氣
-
-![煤氣公司表示，已向有需要的商業用户提供合適的協助。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798289_1_20250331183855.jpg&q=90)
-  
-
-煤氣公司表示，受七姊妹道爆水管事故影響，該處地下煤氣喉管受損，正配合相關水務工程進行緊急維修，目標明天中午前恢復供氣，具體時間須視乎水務工程復修進展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798289-20250331.htm)
-
----
-
-# 本港上月認可機構港元存款升2.1%　人民幣存款升4.9%
-
-![金管局公布，上月認可機構港元存款上升2.1%，香港人民幣存款上升4.9%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798283_1_20250331170731.jpg&q=80)
-  
-
-金管局公布，上月認可機構存款總額上升1.3%，港元存款及外幣存款分別上升2.1%及0.6%。今年首兩個月，存款總額及港元存款分別上升2.7%及3.4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm)
 
 ---

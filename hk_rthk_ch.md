@@ -1,3 +1,75 @@
+# 復星國際：將堅持加大AI相關領域投入
+
+![徐曉亮指出，集團利用人工智能(AI)協助藥物研發3年，已有一定成果。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798434_1_20250401132717.jpg&q=90)
+  
+
+復星國際聯席首席執行官徐曉亮指出，集團利用人工智能(AI)協助藥物研發3年，已有一定成果，基於AI設計的藥物亦已進入臨床試驗階段，認為AI能大幅提高藥物研發效率，期望未來能與國家研究機構一同構建AI藥物研發公共平台。此外，復星旅文亦已成立人工智能創新中心，推動AI科技在旅遊度假領域的應用。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798434-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798434-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798434-20250401.htm)
+
+---
+
+# 復星國際：投資菜鳥本身是盈利能力非常好項目　續推進輕資產業務
+
+![受累對菜鳥投資產生一次性非現金賬面損失約51億元人民幣，復星國際去年由盈轉虧，但龔平形容項目本身盈利能力非常好。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798433_1_20250401131922.jpg&q=90)
+  
+
+受累對菜鳥投資產生一次性非現金賬面損失約51億元人民幣，復星國際去年由盈轉虧，蝕逾43億元人民幣，前年獲利近14億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798433-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798433-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798433-20250401.htm)
+
+---
+
+# 惡劣天氣在美國導致至少6死　加拿大安大略省逾39萬戶停電
+
+![加拿大安大略省在惡劣天氣下有樹木的樹枝折斷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798422_1_20250401131603.jpg&q=75)
+  
+
+美國風暴天氣持續，導致至少6人死亡，超過40萬人處於斷電狀態，數千萬人受惡劣天氣威脅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798422-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798422-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798422-20250401.htm)
+
+---
+
 # 恒指下午初段升近0.8%
 
 ![恒指較早時報23294點，升175點，升幅0.76%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798430_1_20250401130537.jpg&q=80)

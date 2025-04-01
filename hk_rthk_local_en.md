@@ -1,3 +1,27 @@
+# DAB stages protest against US sanctions
+
+![Members of the DAB handed in petitions at the US consulate in Central. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798432_1_20250401131459.jpg&q=80)
+  
+
+Members of the DAB on Tuesday staged a protest outside the US consulate in Central against Washington's move to put six mainland and Hong Kong officials on its sanctions list.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm)
+
+---
+
 # 'Schools welcome proposed NET scheme changes'
 
 ![Officials are planning changes to the NET scheme. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798428_1_20250401125448.jpg&q=90)
@@ -1432,29 +1456,5 @@ The Hospital Authority's chief pharmacist said on Thursday the upcoming hike in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797648-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797648-20250327.htm)
-
----
-
-# 'Winter flu season over but summer poses new threat'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797642_1_20250327113342.jpg&q=90)
-  
-
-The Centre for Health Protection (CHP) says the winter influenza season has come to an end after about 11 weeks, but people should next get jabs to protect themselves against a possible summer flu season.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797642-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797642-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797642-20250327.htm)
 
 ---
