@@ -1,3 +1,26 @@
+# 伊朗外長稱任何情況下不尋求及生產或獲取核武
+
+  
+
+伊朗外交部長阿拉格奇表示，伊朗重申在任何情況下，都不會尋求、生產或獲取核武器。他說伊朗核協議簽署已過去10年，自美國單方面退出協議已7年，至今沒有任何證據表明伊朗違反協議承諾，又指過去的外交互動已證明協議有效性，如今仍然可行，但所有人都必須清楚，沒有所謂的「軍事選項」，更不用說「軍事解決方案」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798531-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798531-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798531-20250402.htm)
+
+---
+
 # 俄外長稱俄美正準備新一輪會談以實現接觸正常化
 
 ![拉夫羅夫說俄美團隊透過電話及視像會議接觸，目前看到一些進展。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798528_1_20250402025636.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798461-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798461-20250401.htm)
-
----
-
-# 國家金融監管總局：鼓勵金融機構加強科技領域金融支持
-
-![國家金融監管總局、科技部等聯合發文，鼓勵金融機構加強對國家重大科技任務，和科技型中小企的金融支持。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798460_1_20250401163404.jpg&q=80)
-  
-
-國家金融監管總局、科技部等聯合發文，鼓勵金融機構加強對國家重大科技任務，和科技型中小企的金融支持，做好國家科技重大項目、國家戰略科技力量，和國家級科技創新平台基地的金融服務，並要求一視同仁服務民營、外商投資的科技型企業和研發中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm)
 
 ---
