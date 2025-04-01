@@ -1,6 +1,6 @@
 # Dongjiang water fuels HK's economic miracle: Lee
 
-![John Lee says the Dongjiang supplies 70 to 80 percent of Hong Kong's water supply. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798404_1_20250401105005.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798404_1_20250401105005.jpg&q=90)
   
 
 Chief Executive John Lee said on Tuesday Dongjiang water has fuelled Hong Kong's economic miracle, contributing to the city's sustainable development and long-term prosperity.

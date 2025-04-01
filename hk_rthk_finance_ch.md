@@ -22,6 +22,77 @@
 
 ---
 
+# 5隊的士車隊未獲正式車隊牌照　運輸署：積極協助各車隊籌備工作
+
+  
+
+早前獲政府批出的5隊的士車隊，現時未獲發正式車隊牌照，全部只獲「有條件暫准通知」。現正試營運的包括「樂行」和「星群的士」兩支車隊。運輸署回覆查詢表示，署方一直積極協助各車隊的籌備工作。試行的安排可讓市民率先體驗新品牌的服務，亦有助車隊收集營運經驗和用家回饋。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm)
+
+---
+
+# 房協兩個資助項目今日起接受申請　有市民認為定價合理
+
+![房協兩個資助出售房屋項目觀塘「峻然」及「聚然」今日起至本月14日接受合資格人士申請。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798406_1_20250401113509.jpg&q=80)
+  
+
+房協資助出售房屋項目觀塘「峻然」及粉嶺「聚然」共1604個單位，今日起至本月14日接受合資格人士申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm)
+
+---
+
+# 國家移民管理局料清明假期全國口岸日均出入境逾2百萬人次
+
+![國家移民局預計，羅湖、福田、深圳灣、蓮塘及高鐵西九龍站口岸，預計日均會有大約10萬至近25萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798405_1_20250401111050.jpg&q=90)
+  
+
+國家移民管理局預計，今年清明節假期全國口岸日均出入境將達210萬人次，較去年同期增長約21%。北京首都、上海浦東及廣州白雲等大型國際機場口岸，出入境客流小幅增長。毗鄰港澳陸路口岸旅客流量快速增長，返鄉祭祖的港澳台居民、海外僑胞將明顯增多。其中，港珠澳大橋日均出入境預計將達到超過12萬人次，深圳羅湖、福田、深圳灣、蓮塘及高鐵西九龍站口岸，預計會有大約10萬至近25萬人次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm)
+
+---
+
 # 港股曾升逾270點
 
 ![恒指高開近百點後，最多升逾270點，升至23392點，較早時報23301點，升182點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798402_1_20250401104051.jpg&q=45)
@@ -91,6 +162,31 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798400-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798400-20250401.htm)
+
+---
+
+# 啟德發展區兩段新共融通道開放予公眾使用
+
+![啟德海濱花園近土瓜灣避風塘的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_1_20250401102511.jpg&q=90)
+![承豐道公園的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_2_20250401111307.jpg&q=80)
+  
+
+發展局發言人表示，啟德發展區兩段新的共融通道分別位於承豐道公園及啟德海濱花園近土瓜灣避風塘，已開放予公眾使用，各長約1公里，市民可沿共融通道欣賞海濱景色。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm)
 
 ---
 
@@ -307,6 +403,32 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm)
+
+---
+
+# 西藏多項措施促就業　企業稱校企合作與補貼有助發展
+
+![企業為學生提供陶瓷藝術繪畫及手工拉坯課程。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_1_20250401082246.jpg&q=85)
+![廚具公司受政府補貼進駐拉薩設廠，創造逾百個就業職位。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_2_20250401082246.jpg&q=85)
+![落戶西藏的廚具公司獲政府補貼，研發符合西藏居民需求的產品，例如全自動酥油茶壺等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_3_20250401083605.jpg&q=80)
+  
+
+西藏自治區成立60周年，當地政府近年推出多項措施促進就業，降低貧窮率，包括提供大學生創業補貼、實施就業見習補貼，亦鼓勵企業聘用區内高校畢業生，其中拉薩市去年高校畢業生就業率達95%，連續多年維持於高水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm)
 
 ---
 
@@ -571,6 +693,54 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798352-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798352-20250401.htm)
+
+---
+
+# 特朗普周三公布對等關稅政策　白宮稱對美不公國家應預料成為目標
+
+![萊維特說，關稅將扭轉幾十年來一直剝削美國的不公平貿易行為。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798348_1_20250401032921.jpg&q=75)
+  
+
+美國白宮表示，總統特朗普將於星期三在白宮玫瑰園的活動上，宣布對等關稅政策。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm)
+
+---
+
+# 意大利Tesla展廳火警17輛車被毀　馬斯克斥恐怖主義行為
+
+![火警導致展廳內17輛汽車被燒毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798345_1_20250401015100.jpg&q=75)
+  
+
+意大利首都羅馬市郊一間Tesla汽車展廳發生火警，至少17輛電動車被燒毀，警方正調查是否與無政府主義者的抗議活動有關。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm)
 
 ---
 
@@ -1268,172 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798269-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798269-20250331.htm)
-
----
-
-# 市監局查長和交易　北京：一貫反對霸道霸凌損害他國正當權益行為
-
-![郭嘉昆重申，中方一貫堅決反對利用經濟脅迫、霸道霸凌侵犯損害他國正當權益的行為。(外交部網站)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798266_1_20250331170054.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆回應國家市場監督管理總局將審查長和與貝萊德財團計劃簽署巴拿馬港口的交易協議時重申，中方一貫堅決反對利用經濟脅迫、霸道霸凌侵犯損害他國正當權益的行為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm)
-
----
-
-# 利物浦AC米蘭7.26　阿仙奴熱刺7.31啟德主場館表演賽
-
-  
-
-三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月到港於啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm)
-
----
-
-# 滬指3月升近0.5%　首季跌約0.5%
-
-![上證綜合指數收市報3335點，跌15點，跌幅0.46%。指數3月升0.45%，首季則跌0.48%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798258_1_20250331152023.jpg&q=85)
-  
-
-滬深股市3大指數收市下跌，3月和首季度則個別發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798258-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798258-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798258-20250331.htm)
-
----
-
-# 韓股失守2500點　3月跌2%　首季升逾3%
-
-![首爾綜合指數收市報2481點，跌幅3%。3月累計跌2%，首季升3.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798252_1_20250331144731.jpg&q=85)
-  
-
-南韓股市低收3%，失守2500點關口。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798252-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798252-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798252-20250331.htm)
-
----
-
-# 日股低收約4.1%　首季累計急挫10.7%
-
-![日經指數收市報35617點，跌1502點，跌幅4.05%，首季累計跌10.7%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798250_1_20250331144032.jpg&q=75)
-  
-
-日股急挫，日經指數低見35541點，創逾半年新低，收市報35617點，跌1502點，跌幅4.05%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798250-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798250-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798250-20250331.htm)
-
----
-
-# 台股低收4.2%　跌穿21000點　創近8個月新低
-
-![台股創近8個月新低，加權指數收報20695點，跌906點，跌幅4.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798246_1_20250331141206.jpg&q=90)
-  
-
-台股急挫收市，跌穿21000點水平，創近8個月新低，連跌4個交易日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798246-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798246-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798246-20250331.htm)
-
----
-
-# 港深西部鐵路下半年邀請意向書　陳美寶：對招標持開放態度
-
-![陳美寶表示，是否就項目的「計劃，建造，營運」分開獨立招標持開放態度。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798241_1_20250331135823.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶表示，就連接洪水橋至深圳前海的港深西部鐵路，將於下半年邀請意向書，了解市場反應，包括是否可以採取「計劃，建造，營運」一站式合約，強調希望「摸一摸市場脈搏」，至於鐵路日後採取「一地兩檢」，口岸會設在深圳灣還是前海就仍在與深圳方面商討。就鐵路的成本效益方面，已做了兩期研究，就乘客量的評估，估計2038年本地及跨境客量介乎29萬至35萬人次，到2046年估計有38萬至46萬人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm)
 
 ---
