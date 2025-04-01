@@ -1,3 +1,26 @@
+# 以色列空襲貝魯特剷除黎巴嫩真主黨成員　指其協助策劃重大恐襲
+
+  
+
+以色列政府發表聲明指出，以軍戰機在當地星期二凌晨，空襲黎巴嫩首都貝魯特南郊，剷除黎巴嫩真主黨成員貝戴爾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798523-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798523-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798523-20250402.htm)
+
+---
+
 # 李強與王毅就地震導致人員傷亡及財產損失分別向泰方致慰問電
 
   
@@ -1409,28 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm)
-
----
-
-# 日本政府估算南海海槽大地震最多可致29萬人死亡
-
-  
-
-日本政府地震特別工作小組發布的修訂報告，指如果南海海槽發生地震，可能造成多達29萬8千人死亡。而採取減輕損失的措施後，死亡人數將比2012 年的估計數字減少約一成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798223-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798223-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798223-20250331.htm)
 
 ---

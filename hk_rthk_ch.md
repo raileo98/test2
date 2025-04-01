@@ -1,3 +1,26 @@
+# 以色列空襲貝魯特剷除黎巴嫩真主黨成員　指其協助策劃重大恐襲
+
+  
+
+以色列政府發表聲明指出，以軍戰機在當地星期二凌晨，空襲黎巴嫩首都貝魯特南郊，剷除黎巴嫩真主黨成員貝戴爾。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798523-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798523-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798523-20250402.htm)
+
+---
+
 # 李強與王毅就地震導致人員傷亡及財產損失分別向泰方致慰問電
 
   
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798452-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798452-20250401.htm)
-
----
-
-# 吳安儀凱旋回港　盼有更多時間推廣桌球
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798453_1_20250401160211.jpg&q=90)
-  
-
-成功衛冕英國女子公開賽冠軍的本港女子桌球手吳安儀返抵香港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm)
 
 ---
