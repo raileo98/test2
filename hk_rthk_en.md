@@ -1,4 +1,4 @@
-# Far right party chief calls for rally over Le Pen ban
+# Far-right party chief calls for rally over Le Pen ban
 
 ![Marine Le Pen with Jordan Bardella at the Elysee presidential palace in Paris in August. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798485_1_20250401174939.jpg&q=85)
   
@@ -22,7 +22,7 @@ Far-right party chief Jordan Bardella called on the French to rally this weekend
 
 ---
 
-# Ng On-yee happy that billiards keep its Tier A status
+# Ng On-yee happy that billiards keep Tier A status
 
 ![Ng On-yee shows off her British Open trophy upon her return to Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798472_1_20250401170234.jpg&q=90)
   

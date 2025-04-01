@@ -1,4 +1,4 @@
-# Ng On-yee happy that billiards keep its Tier A status
+# Ng On-yee happy that billiards keep Tier A status
 
 ![Ng On-yee shows off her British Open trophy upon her return to Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798472_1_20250401170234.jpg&q=90)
   

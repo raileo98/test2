@@ -1,3 +1,49 @@
+# 黃偉綸到中環海濱參觀東江水供港展覽　感謝國家支持香港
+
+  
+
+財政司副司長黃偉綸表示，本港正舉辦連串活動，紀念及慶祝東江水供港60周年，其中大型藝術展覽「舞動水滴展」，今日起亮相中環海濱，他聯同政務司副司長卓永興今日專程前往參觀和「打卡」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798490-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798490-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798490-20250401.htm)
+
+---
+
+# 區志光稱對制裁無所畏懼　必定恪盡職守
+
+  
+
+美國國務院以進行跨國打壓及損害香港自治為由，制裁六名中央和香港特區官員，其中包括特區維護國家安全委員會秘書長區志光。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798489-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798489-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798489-20250401.htm)
+
+---
+
 # 警方打鼓嶺村屋搗種植場　檢逾600棵懷疑大麻
 
   
@@ -1390,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798297-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798297-20250331.htm)
-
----
-
-# 不法分子以免費旅遊招攬販毒　警方機場拘捕一對涉案情侶
-
-![警方拘捕一男一女，檢獲約50公斤懷疑氯胺酮，市值逾2470萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798295_1_20250331215827.jpg&q=60)
-  
-
-警方昨日在機場展開反毒品行動，以「販運危險藥物」罪拘捕一男一女，檢獲約50公斤懷疑氯胺酮，市值逾2470萬港元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798295-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798295-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798295-20250331.htm)
-
----
-
-# 海關機場檢逾100公斤懷疑氯胺酮　3名女遊客被捕
-
-![海關共檢獲約102公斤，估計市值約5000萬元的懷疑氯胺酮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798294_1_20250331180357.jpg&q=85)
-  
-
-海關過去兩日在機場偵破兩宗行李藏毒的販毒案件，共檢獲約102公斤，估計市值約5000萬元的懷疑氯胺酮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798294-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798294-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798294-20250331.htm)
 
 ---

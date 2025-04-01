@@ -1,3 +1,49 @@
+# 黃偉綸到中環海濱參觀東江水供港展覽　感謝國家支持香港
+
+  
+
+財政司副司長黃偉綸表示，本港正舉辦連串活動，紀念及慶祝東江水供港60周年，其中大型藝術展覽「舞動水滴展」，今日起亮相中環海濱，他聯同政務司副司長卓永興今日專程前往參觀和「打卡」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798490-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798490-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798490-20250401.htm)
+
+---
+
+# 區志光稱對制裁無所畏懼　必定恪盡職守
+
+  
+
+美國國務院以進行跨國打壓及損害香港自治為由，制裁六名中央和香港特區官員，其中包括特區維護國家安全委員會秘書長區志光。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798489-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798489-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798489-20250401.htm)
+
+---
+
 # 警方打鼓嶺村屋搗種植場　檢逾600棵懷疑大麻
 
   
