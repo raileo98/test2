@@ -1,3 +1,51 @@
+# 紐約期金回吐逾4美元
+
+![外圍金價回吐，但仍接近紀錄高位。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798536_1_20250402054918.jpg&q=90)
+  
+
+外圍金價回吐，但仍接近紀錄高位。近日投資者在美國總統特朗普宣布對等關稅前，將資金轉向避險資產。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798536-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798536-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798536-20250402.htm)
+
+---
+
+# 歐洲主要股市造好　德股高收1.7%
+
+![法蘭克福DAX指數報22539點，升376點，漲幅1.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798534_1_20250402052431.jpg&q=90)
+  
+
+歐洲主要股市反彈。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798534-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798534-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798534-20250402.htm)
+
+---
+
 # 美股收市個別發展　市場等候特朗普公布對等關稅措施
 
 ![投資者對美國總統特朗普快將宣布對等關稅措施的焦慮情緒主導美股走勢。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798532_1_20250402052011.jpg&q=90)
@@ -1389,52 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm)
-
----
-
-# 洪水橋5幅商業地原址換地申請延至年底　恒地稱好事
-
-  
-
-洪水橋5幅商業用地原址換地申請，原定接納包括補地價的基本條款建議期限，由3月底延長至今年底。市場資料指，有關商業用地涉及逾百萬平方呎，由新地及恒地持有，將用作商業發展用途，涉及樓面近千萬平方呎。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm)
-
----
-
-# 歐元區3月製造業PMI連升3個月　產出兩年來首次擴張
-
-![歐元區3月製造業PMI終值升至48.6，連升3個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798462_1_20250401164722.jpg&q=90)
-  
-
-標普全球與漢堡商業銀行（HCOB）聯合公布，歐元區3月製造業採購經理指數（PMI）終值為48.6，連升3個月，但低於初值的48.7，而2月終值為47.6。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm)
 
 ---

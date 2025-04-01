@@ -1,3 +1,51 @@
+# 紐約期金回吐逾4美元
+
+![外圍金價回吐，但仍接近紀錄高位。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798536_1_20250402054918.jpg&q=90)
+  
+
+外圍金價回吐，但仍接近紀錄高位。近日投資者在美國總統特朗普宣布對等關稅前，將資金轉向避險資產。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798536-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798536-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798536-20250402.htm)
+
+---
+
+# 歐洲主要股市造好　德股高收1.7%
+
+![法蘭克福DAX指數報22539點，升376點，漲幅1.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798534_1_20250402052431.jpg&q=90)
+  
+
+歐洲主要股市反彈。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798534-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798534-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798534-20250402.htm)
+
+---
+
 # 美股收市個別發展　市場等候特朗普公布對等關稅措施
 
 ![投資者對美國總統特朗普快將宣布對等關稅措施的焦慮情緒主導美股走勢。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798532_1_20250402052011.jpg&q=90)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm)
-
----
-
-# 港股美國預託證券較本港收市普遍靠穩
-
-![滙控美國預託證券較本港收市升逾1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798359_1_20250401061750.jpg&q=90)
-  
-
-滙控美國預託證券折合89.37港元，較本港收市升逾1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798359-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798359-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798359-20250401.htm)
-
----
-
-# 美元兌主要貨幣靠穩
-
-![美元兌主要貨幣靠穩。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798358_1_20250401060503.jpg&q=75)
-  
-
-美元兌主要貨幣靠穩。市場觀望美國總統特朗普周三公布的關稅措施。他在周日時透露，基本上會向所有國家徵收關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798358-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798358-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798358-20250401.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Real Madrid hold Real Sociedad in eight-goal thriller
+
+![Real Madrid's Antonio Rudiger celebrates after scoring his side's first goal. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798540_1_20250402062741.jpg&q=85)
+  
+
+Real Madrid edged into the Copa del Rey final with a thrilling 4-4 draw against Real Sociedad after extra-time, securing a 5-4 aggregate semi-final victory.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm)
+
+---
+
 # Forest beat Man Utd; Saka scores on Arsenal return
 
 ![Nottingham Forest's Anthony Elanga scored the only goal of the match against United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798535_1_20250402054006.jpg&q=90)
@@ -1426,29 +1450,5 @@ Fifth-seeded American Madison Keys, the Australian Open champion, crashed out of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797077-20250324.htm)
-
----
-
-# Norway's Jakob Ingebrigtsen wins 1,500m in Nanjing
-
-![Norway’s Jakob Ingebrigtsen celebrates after winning the men’s 1500m final during the Indoor World Athletics Championships in Nanjing, Jiangsu province. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797058_1_20250323214422.jpg&q=90)
-  
-
-Norway's Jakob Ingebrigtsen won the 1,500m in Nanjing on Sunday to claim not only a first global gold in his favoured distance, but also a rare world indoor track distance double.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797058-20250323.htm)
 
 ---
