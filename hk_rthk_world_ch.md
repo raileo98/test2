@@ -1,6 +1,10 @@
 # 尹錫悅彈劾案4月4日宣判
 
+![尹錫悅彈劾案4月4日宣判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798390_1_20250401100632.jpg&q=90)
   
+
+南韓憲法法院宣布，將於4月4日上午對尹錫悅彈劾案開庭宣判，裁決結果將決定尹錫悅總統職務去留。
+
   
 
 

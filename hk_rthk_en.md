@@ -1,3 +1,75 @@
+# Bangkok reviews construction safety in quake aftermath
+
+![Satellite images of the tower in Bangkok taken on December 25 and after its collapse on Friday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798389_1_20250401094853.jpg&q=90)
+  
+
+Thai authorities said they were investigating why a single office tower block under construction in Bangkok collapsed during Friday's earthquake that otherwise caused limited damage in the capital.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798389-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798389-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798389-20250401.htm)
+
+---
+
+# Impeachment crunch time for Yoon on Friday
+
+![Yoon Suk-yeol will learn whether he has the top job in South Korea come Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798397_1_20250401101622.jpg&q=90)
+  
+
+South Korea's Constitutional Court, which is reviewing President Yoon Suk-yeol's impeachment, will announce its decision on whether to remove him from office permanently or reinstate him on Friday, the court said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798397-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798397-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798397-20250401.htm)
+
+---
+
+# Hong Kong stocks rise ahead of Trump tariffs
+
+![US President Donald Trump will announces his new tariff regime on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798391_1_20250401101418.jpg&q=65)
+  
+
+The Hang Seng Index gained 97.53 points, or 0.42 percent, to open at 23,217.11 points on Tuesday, as the market prepares for more news about US tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm)
+
+---
+
 # China calls for Ukraine peace talks to continue
 
 ![Wang Yi gave a wide-ranging interview to the Russian RIA state news agency, on his visit to Moscow. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798386_1_20250401092729.jpg&q=90)
@@ -1365,77 +1437,5 @@ An SAR government rescue team is set to begin inspection work on the ground in e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798131-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798131-20250330.htm)
-
----
-
-# 'Bigger house, bigger party' in new Kai Tak experience
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798130_2_20250330181531.jpg&q=90)
-  
-
-The head of the Hong Kong, China Rugby Association, James Farndon, on Sunday hailed the first-ever Sevens at the Kai Tak Stadium, calling the event a massive success for the SAR.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798130-20250330.htm)
-
----
-
-# 'As Sevens hosts, Kai Tak keeps improving'
-
-![Rosanna Law says the atmosphere and operations at the Kai Tak Sports Park are very good in general. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798129_1_20250330173648.jpg&q=75)
-  
-
-Culture, sports and tourism minister Rosanna Law said operators of Kai Tak Sports Park made improvements every day during the three-day Rugby Sevens tournament.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798129-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798129-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798129-20250330.htm)
-
----
-
-# Cathay plane flyover marks old airport's centennial
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798127_1_20250330171537.jpg&q=90)
-  
-
-A Cathay Pacific aircraft on Sunday flew near Kai Tak during the Hong Kong Sevens, an area where the city's former international airport began operations 100 years ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 財新中國3月製造業PMI升至51.2　創4個月新高
+
+![財新中國3月製造業採購經理指數升至51.2，創4個月新高，連續6個月處於擴張水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798394_1_20250401095905.jpg&q=65)
+  
+
+財新中國3月製造業採購經理指數(PMI)升至51.2，高於2月的50.8，創4個月新高，連續6個月處於50以上的擴張水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798394-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798394-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798394-20250401.htm)
+
+---
+
+# 內地3月百城二手住宅均價按月跌近0.6%　按年跌逾7%
+
+![內地3月百城二手住宅均價每平方米13988元人民幣，按月跌幅擴大至0.59%，按年跌7.29%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798388_1_20250401094754.jpg&q=65)
+  
+
+中國房地產研究機構中指研究院報告顯示，3月百城二手住宅均價每平方米13988元人民幣，按月跌幅擴大至0.59%，按年跌7.29%；新建住宅均價每平方米16740元，按月升0.17%，按年升2.63%，受惠優質改善項目入市所帶動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798388-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798388-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798388-20250401.htm)
+
+---
+
 # 滬深股市初段靠穩
 
 ![內地股市初段靠穩，上證指數較早時報3344點，升9點，升幅0.27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798387_1_20250401093555.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm)
-
----
-
-# 中國海外去年盈利跌約39%　末期息減少33%
-
-![中國海外派發末期息每股30港仙，全年派息60港仙，按年分別跌33%和25%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798232_1_20250331123252.jpg&q=90)
-  
-
-中國海外去年盈利156.4億元人民幣，按年跌約39%。派發末期息每股30港仙，全年派息60港仙，按年分別跌33%和25%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798232-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798232-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798232-20250331.htm)
-
----
-
-# 港股半日跌近2%　長和跌約4%
-
-![港股中午收市前跌幅擴大，創近1個月低位。恒生指數中午收市報23022點，跌404點，跌幅1.73%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798228_1_20250331121035.jpg&q=85)
-  
-
-港股連續兩日向下，中午收市前跌幅擴大，創近1個月低位。恒生指數今早低開逾200點後，跌幅一度收窄至不足30點，中午收市報23022點，跌404點，跌幅1.73%，主板半日成交約1438億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798228-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798228-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798228-20250331.htm)
 
 ---

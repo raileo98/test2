@@ -1,3 +1,27 @@
+# Hong Kong stocks rise ahead of Trump tariffs
+
+![US President Donald Trump will announces his new tariff regime on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798391_1_20250401101418.jpg&q=65)
+  
+
+The Hang Seng Index gained 97.53 points, or 0.42 percent, to open at 23,217.11 points on Tuesday, as the market prepares for more news about US tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm)
+
+---
+
 # OpenAI to raise US$40 billion in new funding
 
 ![SoftBank is to pump US$10 billion into OpenAI to start, and US$30 billion more by the end of this year pending certain conditions. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798374_1_20250401084730.jpg&q=90)
@@ -1413,29 +1437,5 @@ China on Tuesday jailed the former boss of state-owned banking giant Everbright 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796277-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796277-20250318.htm)
-
----
-
-# Stocks jump as mainland tech spree continues
-
-![Local stocks jumped up 2.46 percent to 24,740.57. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796240_1_20250318161915.jpg&q=75)
-  
-
-Markets rose 2.2 percent on Tuesday, led by continued buying of mainland Chinese tech firms.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796240-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796240-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796240-20250318.htm)
 
 ---

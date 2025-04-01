@@ -1,3 +1,76 @@
+# 啟德發展區兩段新共融通道開放予公眾使用
+
+![啟德海濱花園近土瓜灣避風塘的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_1_20250401102511.jpg&q=90)
+![承豐道公園的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_2_20250401102511.jpg&q=90)
+  
+
+發展局發言人表示，啟德發展區兩段新的共融通道分別位於承豐道公園及啟德海濱花園近土瓜灣避風塘，已開放予公眾使用，各長約1公里，市民可沿共融通道欣賞海濱景色。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm)
+
+---
+
+# 財新中國3月製造業PMI升至51.2　創4個月新高
+
+![財新中國3月製造業採購經理指數升至51.2，創4個月新高，連續6個月處於擴張水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798394_1_20250401095905.jpg&q=65)
+  
+
+財新中國3月製造業採購經理指數(PMI)升至51.2，高於2月的50.8，創4個月新高，連續6個月處於50以上的擴張水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798394-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798394-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798394-20250401.htm)
+
+---
+
+# 內地3月百城二手住宅均價按月跌近0.6%　按年跌逾7%
+
+![內地3月百城二手住宅均價每平方米13988元人民幣，按月跌幅擴大至0.59%，按年跌7.29%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798388_1_20250401094754.jpg&q=65)
+  
+
+中國房地產研究機構中指研究院報告顯示，3月百城二手住宅均價每平方米13988元人民幣，按月跌幅擴大至0.59%，按年跌7.29%；新建住宅均價每平方米16740元，按月升0.17%，按年升2.63%，受惠優質改善項目入市所帶動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798388-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798388-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798388-20250401.htm)
+
+---
+
 # 佐敦文英街院舍失蹤男子已尋回沒受傷
 
   
@@ -69,7 +142,11 @@
 
 # 尹錫悅彈劾案4月4日宣判
 
+![尹錫悅彈劾案4月4日宣判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798390_1_20250401100632.jpg&q=90)
   
+
+南韓憲法法院宣布，將於4月4日上午對尹錫悅彈劾案開庭宣判，裁決結果將決定尹錫悅總統職務去留。
+
   
 
 
@@ -1360,77 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm)
-
----
-
-# 李家超稱東江水供港承載家國深情　構築未雨綢繆長遠謀劃
-
-![李家超出席東江水供港六十周年紀念典禮暨「舞動水滴展」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_2_20250331201314.jpg&q=85)
-  
-
-行政長官李家超表示，國家的東江水，是香港的生命之源。東江水佔全香港的食水用量，達到七成至八成，支撐香港經濟持續發展，滋養香港市民安居樂業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm)
-
----
-
-# 港澳辦再次轉載報道引述政商界支持市監局依法審查長和交易
-
-![港澳辦引述報道指，各界希望有關買賣決策要考慮到對香港和國家的影響。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798317_1_20250331200534.jpg&q=75)
-  
-
-港澳辦網站再次轉載《大公報》文章，指長和計劃出售巴拿馬運河兩端港口資產，事件持續引發熱議。文章引述多名香港政商界人士指出，鑒於當前中美貿易戰的複雜背景，不少大型交易可能會觸及國家利益，認為長和作為一間扎根香港的大企業，各界希望有關買賣決策要考慮到對香港和國家的影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm)
-
----
-
-# 緬甸地震增至2056人死亡　近4千人受傷
-
-![緬甸地震增至2056人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798316_1_20250331192640.jpg&q=75)
-  
-
-緬甸地震增至2056人死亡，近4千人受傷，270人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm)
 
 ---

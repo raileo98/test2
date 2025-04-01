@@ -1,3 +1,28 @@
+# 啟德發展區兩段新共融通道開放予公眾使用
+
+![啟德海濱花園近土瓜灣避風塘的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_1_20250401102511.jpg&q=90)
+![承豐道公園的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_2_20250401102511.jpg&q=90)
+  
+
+發展局發言人表示，啟德發展區兩段新的共融通道分別位於承豐道公園及啟德海濱花園近土瓜灣避風塘，已開放予公眾使用，各長約1公里，市民可沿共融通道欣賞海濱景色。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm)
+
+---
+
 # 佐敦文英街院舍失蹤男子已尋回沒受傷
 
   
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm)
-
----
-
-# 陳茂波：外資「驚執輸」後悔低配中資股　正在急於補倉
-
-![陳茂波指出，外資「驚執輸」的原因，主要是因為早兩年受地緣政治等因素影響，基金經理的投資組合中，都傾向低配中資股（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798215_1_20250331114546.jpg&q=90)
-  
-
-財政司司長陳茂波表示，多名來港出席金融盛事活動的與會者都指出，香港今年整體市面興旺，外國客人增加，各類金融機構對本港都有積極正面的評價。期間他接觸的金融領袖中，給他最深刻的印象是「驚執輸」，不少人後悔「低配了」中資股，正在急於補倉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm)
 
 ---

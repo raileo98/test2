@@ -1,3 +1,51 @@
+# Bangkok reviews construction safety in quake aftermath
+
+![Satellite images of the tower in Bangkok taken on December 25 and after its collapse on Friday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798389_1_20250401094853.jpg&q=90)
+  
+
+Thai authorities said they were investigating why a single office tower block under construction in Bangkok collapsed during Friday's earthquake that otherwise caused limited damage in the capital.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798389-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798389-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798389-20250401.htm)
+
+---
+
+# Impeachment crunch time for Yoon on Friday
+
+![Yoon Suk-yeol will learn whether he has the top job in South Korea come Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798397_1_20250401101622.jpg&q=90)
+  
+
+South Korea's Constitutional Court, which is reviewing President Yoon Suk-yeol's impeachment, will announce its decision on whether to remove him from office permanently or reinstate him on Friday, the court said on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798397-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798397-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798397-20250401.htm)
+
+---
+
 # Myanmar to mark minute of silence for quake victims
 
 ![An aerial view shows flattened buildings in the Mandalay region, Myanmar. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798381_1_20250401091723.jpg&q=80)
@@ -1391,53 +1439,5 @@ The UK government halved its 2025 growth forecast on Wednesday as it made billio
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797575-20250326.htm)
-
----
-
-# Seoul found responsible for abuse of adoptions process
-
-![International adoptions from South Korea began after the Korean War as a way to remove mixed-race children. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797520_2_20250326170321.jpg&q=90)
-  
-
-A South Korean official enquiry said on Wednesday the government was responsible for abuse in international adoptions of local children, including record fabrication and inadequate consent, and recommended an official state apology.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797520-20250326.htm)
-
----
-
-# Seoul court clears opposition leader for top job run
-
-![Lee Jae-myung appeals for patience outside the court in Seoul. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797498_1_20250326152240.jpg&q=90)
-  
-
-A South Korean appeals court reversed on Wednesday a lower court's ruling and found main opposition leader Lee Jae-myung not guilty of violating the election law, removing a barrier that could have blocked him from running for president.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm)
 
 ---
