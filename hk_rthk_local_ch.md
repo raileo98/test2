@@ -1,3 +1,26 @@
+# 梁振英籲企業多作慈善公益工作　做到兼濟天下
+
+  
+
+全國政協副主席梁振英出席一個有關企業社會責任頒獎禮致辭時說，國務院總理李強上月初宣讀政府工作報告時，就香港部分首次提出，支援港澳地區深化國際合作交往，但其後不少港人將有關講話較狹窄地演繹為香港如何作為「超級聯繫人」、怎樣做好金融及商貿等經濟活動。他認為，當中不僅包含經貿活動，亦涵蓋文化、體育等國際交往合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm)
+
+---
+
 # 吳安儀凱旋回港　盼有更多時間推廣桌球
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm)
-
----
-
-# 謝展寰：本港空氣質素持續改善　三區排水口污染量大減九成
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798254_1_20250331151913.jpg&q=90)
-  
-
-環境及生態局局長謝展寰在立法會環境事務委員會會議表示，政府在多年努力下，香港的空氣質素和水質均已大幅改善。空氣質素方面，主要空氣污染物濃度持續下降，並維持自回歸以來的最低水平。跟2004年相比，去年大氣中主要空氣污染物年均濃度大幅下降約40%至90%。另外，現時維港兩岸，特別是荃灣、深水埗和九龍城區相關雨水排水口污染量大幅減少近90%，三區的海濱近岸氣味亦顯著改善。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798254-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798254-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798254-20250331.htm)
 
 ---
