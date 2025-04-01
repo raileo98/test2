@@ -1,6 +1,54 @@
+# 粵港澳大灣區專責小組首次會議　張國鈞稱用好大灣區獨特優勢
+
+![張國鈞主持新一屆粵港澳大灣區專責小組首次會議。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798513_1_20250401220009.jpg&q=90)
+  
+
+律政司副司長張國鈞今日主持新一屆粵港澳大灣區專責小組首次會議，強調「創新」對促進三地機制對接、規則銜接和人才連接尤其重要，能更充分地支持香港融入國家發展大局，提升大灣區的創新能力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm)
+
+---
+
+# 特區政府與水利部簽署涉水事務合作協議
+
+![李家超和水利部部長李國英（後排左）在禮賓府會面，共同見證水利部與特區政府簽署《涉水事務管理與合作的安排》。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798508_1_20250401215640.jpg&q=85)
+  
+
+行政長官李家超和水利部部長李國英在禮賓府會面，共同見證水利部與特區政府簽署《涉水事務管理與合作的安排》。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm)
+
+---
+
 # 特區救援隊：災區非常惡劣兩次緊急撤離部署　冀盡早救出被困人士
 
-![特區救援隊繼續在緬甸曼特勒災區搜救。（保安局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798501_1_20250401192854.jpg&q=70)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798501_1_20250401192854.jpg&q=70)
   
 
 特區救援隊繼續在緬甸曼特勒災區搜救。正在當地的特區救援隊指揮官趙汝珏接受本台訪問時表示，當地大規模樓宇倒塌、道路裂開，情況非常惡劣。特區救援隊抵達曼特勒災區基地後，與國家救援隊舉行會議，之後出發參與搜救，特區救援隊至今出動27次，到26個地點搜救。他說，抵達曼特勒後，曾面對3次餘震，救援隊在其中兩次餘震發生時要作緊急撤離部署。雖然暫未尋獲生還者，但會繼續根據求助報告搜救，希望盡早救出被困人士。
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798160-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798160-20250331.htm)
-
----
-
-# 中方多支救援隊在緬甸地震災區全力搜救
-
-![中國救援隊在緬甸曼德勒長城飯店救援3名被困人士。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798158_1_20250331005458.jpg&q=90)
-  
-
-中方多支救援隊在緬甸地震災區全力搜救。在當地救援力量配合下至今救出兩名幸存者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798158-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798158-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798158-20250331.htm)
-
----
-
-# 廣東省茂名市3級地震　震央附近東岸鎮有輕微震感
-
-![廣東省茂名市3級地震　震央附近東岸鎮有輕微震感](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798154_1_20250330231533.jpg&q=90)
-  
-
-廣東省茂名市晚上發生3級地震 ，震源深度10公里，暫未收到災情報告。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798154-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798154-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798154-20250330.htm)
 
 ---
