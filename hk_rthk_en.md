@@ -1,3 +1,27 @@
+# 33 injured in Kuala Lumpur gas pipeline fireball
+
+![Rescue efforts are ongoing for those trapped in houses in Kampung Kuala Sungai Baru on the outskirts of Kuala Lumpur. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798431_1_20250401131029.jpg&q=90)
+  
+
+A fire at a gas pipeline operated by Malaysia state energy firm Petronas injured 33 people on Tuesday on the outskirts of the capital Kuala Lumpur, authorities said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm)
+
+---
+
 # 'Schools welcome proposed NET scheme changes'
 
 ![Officials are planning changes to the NET scheme. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798428_1_20250401125448.jpg&q=90)
@@ -1413,29 +1437,5 @@ The World Health Organisation (WHO) said on Sunday that the Myanmar earthquake w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm)
-
----
-
-# Actor Richard Chamberlain dies aged 90
-
-![Chamberlain rocketed to fame in the TV medical drama "Dr Kildare" and starred in the mini-series "Shogun" and "The Thorn Birds". File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798193_1_20250331091507.jpg&q=90)
-  
-
-Richard Chamberlain, the Emmy-nominated actor and 1960s heartthrob who rocketed to fame in the TV medical drama "Dr Kildare" and starred in the mini-series "Shogun" and "The Thorn Birds" has died at the age of 90, publicist Harlan Boll said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm)
 
 ---

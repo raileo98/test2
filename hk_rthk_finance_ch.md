@@ -1,3 +1,51 @@
+# 恒指下午初段升近0.8%
+
+![恒指較早時報23294點，升175點，升幅0.76%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798430_1_20250401130537.jpg&q=80)
+  
+
+港股下午初段升近0.8%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798430-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798430-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798430-20250401.htm)
+
+---
+
+# 分析關注內地政策刺激能否延續至今季　否則政策要加碼
+
+![沈建光表示，關注政策刺激能否延續至第2季，形成持久作用，否則政策需要加碼。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798416_1_20250401121456.jpg&q=85)
+  
+
+內地官方及財新數據都顯示，3月製造業活動擴張步伐加快。官方製造業採購經理指數(PMI)升至50.5，創1年新高；財新中國製造業PMI亦升至51.2，是4個月以來最高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798416-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798416-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798416-20250401.htm)
+
+---
+
 # 羅開揚由大快活執董調為非執董　子羅輝承獲任為董事會副主席
 
 ![羅開揚（左）由公司執行董事調任為非執行董事，羅輝承（右）獲委任為董事會副主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798429_1_20250401125811.jpg&q=90)
@@ -19,6 +67,78 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798429-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798429-20250401.htm)
+
+---
+
+# 王毅：美方倘一味施壓　中方必將堅決反制
+
+![王毅說，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798425_1_20250401124309.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅說，中國從來不接受強權霸權，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm)
+
+---
+
+# 西藏自治區政府推出多項措施促進就業
+
+![西藏政府為外來企業提供補貼，包括水電費、廠房租金等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798423_1_20250401123305.jpg&q=80)
+  
+
+繼續西藏自治區成立60周年系列報道。西藏曾是全國貧困發生率最高的地區，當地政府推出多項措施促進就業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm)
+
+---
+
+# 李家超︰致力將創新科技應用於水務管理　推動設施數字化運作
+
+![李家超指於去年成立數字水務辦公室，推動水務設施的數字化運作。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798418_1_20250401124209.jpg&q=90)
+  
+
+行政長官李家超表示，如要確保水資源的可持續供應，需要以創新方式投資未來，當局致力於將創新科技應用於水務管理，並於去年成立數字水務辦公室，推動水務設施的數字化運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm)
 
 ---
 
@@ -1319,125 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798283-20250331.htm)
-
----
-
-# 會財局定下3年策略　倡導可持續發展及數碼化轉型
-
-![會財局發布2025年至2027年策略重點，包括倡導可持續發展、數碼化轉型及人才管理，促進會計專業發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798280_1_20250331170516.jpg&q=90)
-  
-
-會計及財務匯報局發布2025年至2027年策略重點，涉及4個核心支柱，包括監管、管治、發展、組織效能。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798280-20250331.htm)
-
----
-
-# 外匯基金上月總資產減少1029億港元
-
-![金管局公布，截至2月底，外匯基金總資產40090億港元，按月減少1029億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798278_1_20250331165401.jpg&q=90)
-  
-
-金管局公布，截至2月底，外匯基金總資產40090億港元，按月減少1029億元，其中，港元資產減少760億元，外幣資產減少269億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798278-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798278-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798278-20250331.htm)
-
----
-
-# 香港今個財政年度首11個月赤字923億元
-
-![政府公布，本港今個財政年度首11個月，亦即截至2月底，錄得赤字923億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798277_1_20250331165029.jpg&q=85)
-  
-
-政府公布，本港今個財政年度首11個月，亦即截至2月底，錄得赤字923億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm)
-
----
-
-# 本港上月新申請住宅按揭貸款個案按月增加0.4%
-
-![金管局公布，2月新申請住宅按揭貸款個案按月增加0.4%至6542宗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798279_1_20250331165523.jpg&q=85)
-  
-
-金管局公布，2月新申請住宅按揭貸款個案按月增加0.4%至6542宗。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798279-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798279-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798279-20250331.htm)
-
----
-
-# 證監會：2月底在港註冊的開放式基金型公司增至502間
-
-![證監會表示，至2月底，在港註冊的開放式基金型公司按年增加81%至502間。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798274_1_20250331164619.jpg&q=90)
-  
-
-證監會表示，得悉為支持在香港設立開放式基金型公司及房地產信託基金，而推出的資助計劃，獲業界廣泛支持及參與。至2月底，在港註冊的開放式基金型公司按年增加81%至502間，合共430間開放式基金型公司及1隻房地產基金已受惠於資助計劃。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798274-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798274-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798274-20250331.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 33 injured in Kuala Lumpur gas pipeline fireball
+
+![Rescue efforts are ongoing for those trapped in houses in Kampung Kuala Sungai Baru on the outskirts of Kuala Lumpur. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798431_1_20250401131029.jpg&q=90)
+  
+
+A fire at a gas pipeline operated by Malaysia state energy firm Petronas injured 33 people on Tuesday on the outskirts of the capital Kuala Lumpur, authorities said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm)
+
+---
+
 # Tesla faces backlash over Musk, weakening demand
 
 ![Sales of Tesla EVs are slowing in Europe amid a growing backlash against its CEO Elon Musk over his political views. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798413_1_20250401120524.jpg&q=90)
@@ -1415,29 +1439,5 @@ Israeli Prime Minister Benjamin Netanyahu threatened on Wednesday to seize parts
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797593-20250327.htm)
-
----
-
-# Trump announces 25pc tariff on non-US-built cars
-
-![US President Donald Trump announces tariffs on auto imports in the Oval Office. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797599_1_20250327060802.jpg&q=90)
-  
-
-US President Donald Trump announced steep tariffs on auto imports Wednesday, in a move set to fuel tensions with trading partners ahead of further promised levies next week.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797599-20250327.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 恒指下午初段升近0.8%
+
+![恒指較早時報23294點，升175點，升幅0.76%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798430_1_20250401130537.jpg&q=80)
+  
+
+港股下午初段升近0.8%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798430-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798430-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798430-20250401.htm)
+
+---
+
+# 分析關注內地政策刺激能否延續至今季　否則政策要加碼
+
+![沈建光表示，關注政策刺激能否延續至第2季，形成持久作用，否則政策需要加碼。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798416_1_20250401121456.jpg&q=85)
+  
+
+內地官方及財新數據都顯示，3月製造業活動擴張步伐加快。官方製造業採購經理指數(PMI)升至50.5，創1年新高；財新中國製造業PMI亦升至51.2，是4個月以來最高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798416-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798416-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798416-20250401.htm)
+
+---
+
 # 羅開揚由大快活執董調為非執董　子羅輝承獲任為董事會副主席
 
 ![羅開揚（左）由公司執行董事調任為非執行董事，羅輝承（右）獲委任為董事會副主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798429_1_20250401125811.jpg&q=90)
