@@ -1,3 +1,27 @@
+# 內地股市半日靠穩
+
+![上證指數半日報3355點，升19點，升幅0.59%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798410_1_20250401113635.jpg&q=90)
+  
+
+滬深股市半日靠穩，醫藥、CRO概念股造好，銀行、貴金屬股回調。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798410-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798410-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798410-20250401.htm)
+
+---
+
 # 港股曾升逾270點
 
 ![恒指高開近百點後，最多升逾270點，升至23392點，較早時報23301點，升182點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798402_1_20250401104051.jpg&q=45)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798241-20250331.htm)
-
----
-
-# 恒指下午開市後跌逾300點
-
-![恒指下午初段報23086點，跌339點，跌幅1.45%；科技指數報5371點，跌幅2.45%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798238_1_20250331131133.jpg&q=75)
-  
-
-港股下午開市初段跌幅稍為收窄，恒生指數較早時報23086點，跌339點，跌幅1.45%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798238-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798238-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798238-20250331.htm)
 
 ---

@@ -72,7 +72,7 @@ The SAR government on Tuesday condemned the United States after the US put six m
 
 # China condemns 'economic coercion'
 
-![Guo Jiakun says the State Administration for Market Regulation is aware of the deal between CK Hutchison and a BlackRock-led group and will conduct a review to ensure fair market competition. Photo courtesy of CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798334_1_20250331215247.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798334_1_20250331215247.jpg&q=90)
   
 
 China on Monday reaffirmed its resolute opposition to moves that infringe upon and undermine other countries' legitimate rights and interests through economic coercion, hegemonic practices or bullying.

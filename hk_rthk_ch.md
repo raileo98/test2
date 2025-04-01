@@ -1,3 +1,27 @@
+# 內地股市半日靠穩
+
+![上證指數半日報3355點，升19點，升幅0.59%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798410_1_20250401113635.jpg&q=90)
+  
+
+滬深股市半日靠穩，醫藥、CRO概念股造好，銀行、貴金屬股回調。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798410-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798410-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798410-20250401.htm)
+
+---
+
 # 5隊的士車隊未獲正式車隊牌照　運輸署：積極協助各車隊籌備工作
 
   
@@ -46,6 +70,7 @@
 
 # 房協兩個資助項目今日起接受申請　有市民認為定價合理
 
+![房協兩個資助出售房屋項目觀塘「峻然」及「聚然」今日起至本月14日接受合資格人士申請。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798406_1_20250401113509.jpg&q=80)
   
 
 房協資助出售房屋項目觀塘「峻然」及粉嶺「聚然」共1604個單位，今日起至本月14日接受合資格人士申請。
@@ -1412,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm)
-
----
-
-# 萬科去年轉蝕約495億元人民幣
-
-![萬科企業公布，去年轉蝕494.8億元人民幣。收入跌26%至3431.8億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798329_1_20250331211949.jpg&q=90)
-  
-
-萬科企業公布，去年轉蝕494.8億元人民幣，前年錄得盈利121.6億元。不派息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798329-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798329-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798329-20250331.htm)
 
 ---
