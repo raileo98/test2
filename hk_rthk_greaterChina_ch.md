@@ -72,7 +72,7 @@
 
 # 國家水利部長：全力做好對港供水保障工作
 
-![李國英指會堅決貫徹落實一國兩制方針，與香港特區政府有關部門加強交流，全力做好對港供水保障等工作。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798407_1_20250401121819.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798407_1_20250401121819.jpg&q=90)
   
 
 國家水利部部長李國英表示，當前氣候變化影響加劇，為人類社會帶來深遠影響，保障水安全的形勢更趨嚴峻複雜，未來水利部將堅定不移實踐國家主席習近平的治水思路，堅決貫徹落實一國兩制方針，與香港特區政府有關部門加強交流，全力做好對港供水保障等工作。
@@ -144,7 +144,7 @@
 
 # 李家超：東江水支持香港經濟　確保可持續發展和長期繁榮
 
-![李家超指出，東江水支持香港經濟和社區，確保香港可持續發展和長期繁榮。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798393_1_20250401111135.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798393_1_20250401111135.jpg&q=90)
   
 
 行政長官李家超表示，60年前東江水正式供港，60年間為香港提供70%至80%的用水需求。隨著香港對水資源需求增加，東深供水系統已進行過3次擴建和改造，對港供水量提升到每年8億2000萬立方米，增長12倍。
