@@ -1,3 +1,27 @@
+# 美股由跌轉升　道指曾跌逾480點
+
+![道瓊斯指數早段曾跌逾480點，較早時報42091點，升89點，升幅0.21%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798519_1_20250401232218.jpg&q=90)
+  
+
+美股3大指數初段下跌，其後轉升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm)
+
+---
+
 # 美國2月JOLTs職位空缺跌至756.8萬個少過預期
 
 ![美國勞工部2月JOLTs調查顯示，截至2月底，職位空缺按月減少19.4萬個，降至756.8萬個，少過市場預期的761萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798517_1_20250401224945.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798356-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798356-20250401.htm)
-
----
-
-# 紐約期金高收逾1%
-
-![金價升穿每盎士3100美元，再創新高。圍繞關稅的不確定性提升黃金的避險需求。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798355_1_20250401054858.jpg&q=90)
-  
-
-外圍金價升穿每盎士3100美元，再創新高。圍繞關稅的不確定性提升黃金的避險需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798355-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798355-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798355-20250401.htm)
 
 ---

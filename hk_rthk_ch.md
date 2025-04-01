@@ -1,3 +1,75 @@
+# 美股由跌轉升　道指曾跌逾480點
+
+![道瓊斯指數早段曾跌逾480點，較早時報42091點，升89點，升幅0.21%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798519_1_20250401232218.jpg&q=90)
+  
+
+美股3大指數初段下跌，其後轉升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm)
+
+---
+
+# 美國2月JOLTs職位空缺跌至756.8萬個少過預期
+
+![美國勞工部2月JOLTs調查顯示，截至2月底，職位空缺按月減少19.4萬個，降至756.8萬個，少過市場預期的761萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798517_1_20250401224945.jpg&q=90)
+  
+
+美國勞工部公布的職位空缺和勞動力流動調查（JOLTs）顯示，截至2月底，職位空缺按月減少19.4萬個，降至756.8萬個，少過市場預期的761萬個。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm)
+
+---
+
+# 雷軍回應電動車事故：小米會持續配合調查　不會迴避
+
+![雷軍回應SU7電動車交通事故，表示小米不會迴避，將持續配合警方調查悼。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798518_1_20250401231640.jpg&q=90)
+  
+
+小米集團董事長雷軍回應SU7電動車交通事故，對3位年輕女孩不幸離世表示最深切哀悼，亦向其家人致以誠摯慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm)
+
+---
+
 # 美國2月建築開支按月升0.7%多過預期
 
 ![美國2月建築支出按月上升0.7%，升幅高過市場預期的0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798515_1_20250401224222.jpg&q=80)
