@@ -1,3 +1,27 @@
+# 港交所計劃今年優化ETP業務　降低參與者營運負擔
+
+![港交所今年計劃優化交易所買賣產品業務，降低主要參與者的營運負擔，提高市場效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798412_1_20250401115826.jpg&q=90)
+  
+
+港交所計劃今年優化交易所買賣產品(ETP)業務，包括將ETP的實物申購及贖回機制數碼化及自動化，使用數碼平台取代部分人手和紙本作業，降低主要ETP參與者的營運負擔，提高ETP市場效率。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798412-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798412-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798412-20250401.htm)
+
+---
+
 # 復星國際：將堅持加大AI相關領域投入
 
 ![徐曉亮指出，集團利用人工智能(AI)協助藥物研發3年，已有一定成果。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798434_1_20250401132717.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798287-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798287-20250331.htm)
-
----
-
-# 利物浦熱刺及阿仙奴分別公開操練　讓球迷與球員接觸
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798292_1_20250331202455.jpg&q=85)
-  
-
-四支歐洲勁旅，包括三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月來港，在啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm)
 
 ---

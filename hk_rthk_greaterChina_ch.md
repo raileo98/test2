@@ -1,3 +1,27 @@
+# 中國成功發射衛星互聯網技術試驗衛星
+
+![中國成功發射衛星互聯網技術試驗衛星。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798437_1_20250401133737.jpg&q=90)
+  
+
+酒泉衛星發射中心中午使用長征二號丁運載火箭，成功將衛星互聯網技術試驗衛星發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798437-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798437-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798437-20250401.htm)
+
+---
+
 # 王毅：美方倘一味施壓　中方必將堅決反制
 
 ![王毅說，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798425_1_20250401124309.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm)
-
----
-
-# 國家救援隊83名隊員赴緬甸災區　國航派包機搭載隊員
-
-![國航接到緊急運輸任務後，迅速完成航班運行準備工作，派出救援包機搭載救援隊員。（中國民航報）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798029_1_20250329175858.jpg&q=90)
-  
-
-國家救援隊83名隊員，帶備通信、搜救、指揮、醫療、應急食品等近22噸應急救援物資，下午近1時從北京首都機場起飛，前往緬甸地震災區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm)
 
 ---

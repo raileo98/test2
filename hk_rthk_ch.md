@@ -1,3 +1,51 @@
+# 港交所計劃今年優化ETP業務　降低參與者營運負擔
+
+![港交所今年計劃優化交易所買賣產品業務，降低主要參與者的營運負擔，提高市場效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798412_1_20250401115826.jpg&q=90)
+  
+
+港交所計劃今年優化交易所買賣產品(ETP)業務，包括將ETP的實物申購及贖回機制數碼化及自動化，使用數碼平台取代部分人手和紙本作業，降低主要ETP參與者的營運負擔，提高ETP市場效率。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798412-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798412-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798412-20250401.htm)
+
+---
+
+# 中國成功發射衛星互聯網技術試驗衛星
+
+![中國成功發射衛星互聯網技術試驗衛星。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798437_1_20250401133737.jpg&q=90)
+  
+
+酒泉衛星發射中心中午使用長征二號丁運載火箭，成功將衛星互聯網技術試驗衛星發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798437-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798437-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798437-20250401.htm)
+
+---
+
 # 馬來西亞有天然氣管道爆炸引發大火　據報30人受傷
 
 ![馬來西亞有天然氣管道爆炸引發大火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798435_1_20250401133105.jpg&q=90)
