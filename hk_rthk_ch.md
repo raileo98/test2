@@ -1,3 +1,27 @@
+# 羅開揚由大快活執董調為非執董　子羅輝承獲任為董事會副主席
+
+![羅開揚（左）由公司執行董事調任為非執行董事，羅輝承（右）獲委任為董事會副主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798429_1_20250401125811.jpg&q=90)
+  
+
+大快活公布，羅開揚已由公司執行董事調任為非執行董事，但仍留任為董事會主席及提名委員會主席；其兒子羅輝承獲委任為董事會副主席，並辭任行政總裁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798429-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798429-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798429-20250401.htm)
+
+---
+
 # 王毅：美方倘一味施壓　中方必將堅決反制
 
 ![王毅說，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798425_1_20250401124309.jpg&q=90)

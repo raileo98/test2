@@ -1,3 +1,27 @@
+# 羅開揚由大快活執董調為非執董　子羅輝承獲任為董事會副主席
+
+![羅開揚（左）由公司執行董事調任為非執行董事，羅輝承（右）獲委任為董事會副主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798429_1_20250401125811.jpg&q=90)
+  
+
+大快活公布，羅開揚已由公司執行董事調任為非執行董事，但仍留任為董事會主席及提名委員會主席；其兒子羅輝承獲委任為董事會副主席，並辭任行政總裁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798429-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798429-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798429-20250401.htm)
+
+---
+
 # 港股半日升244點　醫藥及本地地產股造好
 
 ![恒生指數最多升近340點，中午報23363點，升244點，升幅約1.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798415_1_20250401120905.jpg&q=75)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798274-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798274-20250331.htm)
-
----
-
-# 李家超稱重視發展人工智能　加大投資革新創科產業思路
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798276_1_20250331165722.jpg&q=90)
-  
-
-行政長官李家超說，總理的政府工作報告提出，要健全因地制宜發展新質生產力體制機制，完善推動人工智能等戰略產業發展政策和治理體系，人工智能是新一輪科技革命和產業變革的核心推動力量，也是發展新質生產力重要引擎，對全球經濟社會發展和人類文明進步影響深遠。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm)
 
 ---

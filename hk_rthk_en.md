@@ -1,3 +1,27 @@
+# 'Schools welcome proposed NET scheme changes'
+
+![Officials are planning changes to the NET scheme. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798428_1_20250401125448.jpg&q=90)
+  
+
+A school representative said on Tuesday that proposed changes to the Native English Teacher (NET) scheme gives headteachers more flexibility.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798428-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798428-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798428-20250401.htm)
+
+---
+
 # US sanctions have 'no impact' on Paul Lam
 
 ![Justice chief Paul Lam is among six mainland and Hong Kong officials placed on Washington's sanctions list. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798426_1_20250401124951.jpg&q=80)
@@ -49,7 +73,7 @@ Veteran Al Horford turned back the clock to help the NBA champion Boston Celtics
 
 # Top court overturns ex-lawmaker's acquittal
 
-![The top court is split three to two, with the ruling overturning former lawmaker Lam Cheuk-ting's acquittal. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798417_1_20250401121740.jpg&q=80)
+![In a 3-2 ruling, the Court of Final Appeal overturns former lawmaker Lam Cheuk-ting's acquittal. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798417_1_20250401121740.jpg&q=80)
   
 
 Hong Kong's top court has overturned the acquittal of a former lawmaker for revealing that a police officer who was on duty during clashes in Yuen Long amid the 2019 protests was facing an anti-graft probe.
@@ -1413,30 +1437,5 @@ Richard Chamberlain, the Emmy-nominated actor and 1960s heartthrob who rocketed 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm)
-
----
-
-# Rashford lifts Villa into FA Cup semis; Man City roll
-
-![Marcus Rashford bagged a brace for Aston Villa in the win. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798189_1_20250331085621.jpg&q=90)
-![Manchester City's Erling Haaland was substituted with an ankle injury in the 60th minute against Bournemouth. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798189_2_20250331085621.jpg&q=90)
-  
-
-Marcus Rashford's first goals for Aston Villa inspired a 3-0 win against Preston that sent his side into the FA Cup semi-finals for the first time in 10 years.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm)
 
 ---
