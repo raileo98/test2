@@ -1,3 +1,27 @@
+# 美股收市個別發展　市場等候特朗普公布對等關稅措施
+
+![投資者對美國總統特朗普快將宣布對等關稅措施的焦慮情緒主導美股走勢。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798532_1_20250402052011.jpg&q=90)
+  
+
+紐約股市收市個別發展，走勢反覆。投資者對美國總統特朗普快將宣布對等關稅措施的焦慮情緒主導市場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798532-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798532-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798532-20250402.htm)
+
+---
+
 # 救援組織指緬甸災區迫切需要大量食物食水及衛生設施與安置所
 
 ![聯合國兒童基金會人員形容有社區被夷為平地，民眾所受的心理創傷同樣巨大。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798533_1_20250402052240.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm)
-
----
-
-# 王毅：中俄不斷深化戰略協作夥伴關係有利彼此成就
-
-![王毅說，相信中俄兩國將堅定延續偉大友誼，為推動國際秩序朝著更公正合理的方向發展作出「中俄貢獻」 。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798463_1_20250401165210.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅說，中俄互為最大鄰國，都是世界大國，對維護世界和平發展負有特殊責任。兩國不斷深化戰略協作夥伴關係，有利雙方和睦相處、彼此成就。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm)
 
 ---

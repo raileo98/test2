@@ -1,3 +1,27 @@
+# 美股收市個別發展　市場等候特朗普公布對等關稅措施
+
+![投資者對美國總統特朗普快將宣布對等關稅措施的焦慮情緒主導美股走勢。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798532_1_20250402052011.jpg&q=90)
+  
+
+紐約股市收市個別發展，走勢反覆。投資者對美國總統特朗普快將宣布對等關稅措施的焦慮情緒主導市場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798532-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798532-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798532-20250402.htm)
+
+---
+
 # 美股由跌轉升　道指曾跌逾480點
 
 ![道瓊斯指數早段曾跌逾480點，較早時報42091點，升89點，升幅0.21%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798519_1_20250401232218.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798358-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798358-20250401.htm)
-
----
-
-# 期油價格創5周新高
-
-![紐約5月期油收市報每桶71.48美元，升2.12美元，升幅3.06%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798356_1_20250401055727.jpg&q=90)
-  
-
-原油期貨價格創5周新高。市場關注美國會否向俄羅斯徵收更多關稅；以及美國因為核問題攻擊伊朗的威脅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798356-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798356-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798356-20250401.htm)
 
 ---
