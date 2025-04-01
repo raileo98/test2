@@ -1,3 +1,27 @@
+# 白宮稱特朗普與團隊一同完善對等關稅措施細節　指各國尋求談判
+
+![萊維特（圖）說對等關稅將於特朗普宣布後立即生效。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798542_1_20250402065113.jpg&q=90)
+  
+
+美國白宮證實，總統特朗普將於當地星期三宣布一系列對等關稅措施，但未有透露徵收的規模及範圍等細節。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm)
+
+---
+
 # 港股美國預託證券較本港收市個別發展
 
 ![阿里巴巴美國預託證券較本港收市跌約0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798539_1_20250402061644.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798368-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798368-20250401.htm)
-
----
-
-# 韓股開市後上升
-
-![首爾綜合指數較早時報2510點，升29點，升幅1.2%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798366_1_20250401081145.jpg&q=90)
-  
-
-南韓股市上升。首爾綜合指數較早時報2510點，升29點，升幅1.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798366-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798366-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798366-20250401.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 白宮稱特朗普與團隊一同完善對等關稅措施細節　指各國尋求談判
+
+![萊維特（圖）說對等關稅將於特朗普宣布後立即生效。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798542_1_20250402065113.jpg&q=90)
+  
+
+美國白宮證實，總統特朗普將於當地星期三宣布一系列對等關稅措施，但未有透露徵收的規模及範圍等細節。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm)
+
+---
+
 # 救援組織指緬甸災區迫切需要大量食物食水及衛生設施與安置所
 
 ![聯合國兒童基金會人員形容有社區被夷為平地，民眾所受的心理創傷同樣巨大。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798533_1_20250402052240.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm)
-
----
-
-# 泰國警方據報拘捕4名中國男子涉嫌非法進入地震倒塌大樓取走文件
-
-![泰國當局繼續在倒塌的大樓搜救。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798267_1_20250331160837.jpg&q=85)
-  
-
-泰國傳媒報道，警方拘捕4名中國男子，涉嫌非法進入地震中倒塌的大樓取走多份文件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798267-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798267-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798267-20250331.htm)
 
 ---
