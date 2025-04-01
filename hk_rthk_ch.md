@@ -1,3 +1,50 @@
+# 美股初段下跌
+
+![道瓊斯指數較早時報41776點，跌225點，跌幅0.54%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798512_1_20250401213700.jpg&q=90)
+  
+
+美股在開市初段下跌。市場等待美國總統特朗普就關稅細節作明確表態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm)
+
+---
+
+# 消防搜索近40小時尋獲於大埔上碗窰失聯的65歲女子
+
+  
+
+一名年約65歲女子在大埔上碗窰失去聯絡。消防處昨日凌晨接報，聯同民安隊和飛行服務隊進行搜救接近40小時，至今日下午4時，在距離主要山徑200米位置的隱敝密林中發現失蹤人士，送院治理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798511-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798511-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798511-20250401.htm)
+
+---
+
 # 入境處料清明節假期約458萬人次進出香港
 
   

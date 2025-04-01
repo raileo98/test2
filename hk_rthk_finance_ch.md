@@ -1,3 +1,27 @@
+# 美股初段下跌
+
+![道瓊斯指數較早時報41776點，跌225點，跌幅0.54%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798512_1_20250401213700.jpg&q=90)
+  
+
+美股在開市初段下跌。市場等待美國總統特朗普就關稅細節作明確表態。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm)
+
+---
+
 # 越秀地產以11億元人民幣投得杭州住宅地
 
 ![越秀地產公布，旗下附屬公司以11億元人民幣投得杭州一幅住宅地皮。公司認為，收購成本合理，有助進一步鞏固公司在杭州的戰略地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798505_1_20250401211314.jpg&q=80)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm)
-
----
-
-# 中日韓據報同意合作對沖美國關稅　中方希望進口日韓晶片產品
-
-![中日韓經貿部長會議日前在首爾舉行。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798338_1_20250331232647.jpg&q=90)
-  
-
-中日韓經貿部長會議日前在首爾舉行，央視旗下社交平台玉淵譚天報道，中日韓同意透過合作和維護多邊貿易機制，以確定性來對沖美國加徵對等關稅等行徑為全球貿易帶來的不確定性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm)
 
 ---

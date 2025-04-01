@@ -1,3 +1,26 @@
+# 消防搜索近40小時尋獲於大埔上碗窰失聯的65歲女子
+
+  
+
+一名年約65歲女子在大埔上碗窰失去聯絡。消防處昨日凌晨接報，聯同民安隊和飛行服務隊進行搜救接近40小時，至今日下午4時，在距離主要山徑200米位置的隱敝密林中發現失蹤人士，送院治理。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798511-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798511-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798511-20250401.htm)
+
+---
+
 # 入境處料清明節假期約458萬人次進出香港
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm)
-
----
-
-# 北部都會區三個「片區開發」試點收到22份意向書
-
-![發展局表示，提交意向書的企業或機構包括本地和內地的發展商、承建商、綜合企業和電商物流公司等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798321_1_20250331204741.jpg&q=90)
-  
-
-發展局於去年12月31日就位於洪水橋/厦村新發展區、粉嶺北新發展區及新田科技城的三個「片區開發」試點邀請市場提交意向書，至今日截止，共收到22份意向書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm)
 
 ---
