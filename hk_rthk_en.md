@@ -1,3 +1,27 @@
+# Wall Street tumbles on uncertainty over Liberation Day
+
+![All the nervousness in the market helped push the price of gold to records - it briefly topped US$3,175 per ounce. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798541_1_20250402064055.jpg&q=85)
+  
+
+US stocks finished mixed on Tuesday on a quiet trading day as investors braced for Donald Trump's tariff announcement, which he has dubbed "Liberation Day".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798541-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798541-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798541-20250402.htm)
+
+---
+
 # Real Madrid hold Real Sociedad in eight-goal thriller
 
 ![Antonio Rudiger, right, were among the scorers for Real Madrid. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798540_2_20250402062922.jpg&q=90)
@@ -1413,29 +1437,5 @@ Hong Kong just wrapped up another year of art festivals, including Art Basel and
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798264-20250331.htm)
-
----
-
-# US tariffs to target 'all countries'
-
-![Donald Trump arrives back at the White House. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798259_1_20250331152712.jpg&q=90)
-  
-
-US President Donald Trump said the tariffs he plans to impose in the coming days would include "all countries," not just those with the largest trade imbalances with the United States.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm)
 
 ---

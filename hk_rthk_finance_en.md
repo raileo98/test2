@@ -1,3 +1,27 @@
+# Wall Street tumbles on uncertainty over Liberation Day
+
+![All the nervousness in the market helped push the price of gold to records - it briefly topped US$3,175 per ounce. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798541_1_20250402064055.jpg&q=85)
+  
+
+US stocks finished mixed on Tuesday on a quiet trading day as investors braced for Donald Trump's tariff announcement, which he has dubbed "Liberation Day".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798541-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798541-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798541-20250402.htm)
+
+---
+
 # HK stocks close higher
 
 ![The Hang Seng Index finished up 0.4 percent at 23,206. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798476_1_20250401171429.jpg&q=75)
@@ -1413,29 +1437,5 @@ Equity markets were mixed and gold hit another record high on Wednesday as trade
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm)
-
----
-
-# Trump to unveil reciprocal tariffs on April 2
-
-![US Treasury Secretary Scott Bessent said if countries stop their practices, the US would not put up the tariff wall. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796362_1_20250319092836.jpg&q=90)
-  
-
-Washington is expected to present US trading partners on April 2 with a number representing their tariff and other barriers, as it unveils reciprocal levies tailored to each country, US Treasury Secretary Scott Bessent said on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm)
 
 ---
