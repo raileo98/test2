@@ -1,3 +1,26 @@
+# 陳國基冀市民透過各項展覽了解東江水供港歷史及國家關懷
+
+  
+
+政務司司長陳國基表示，東江水是香港主要的食水來源，形容如同血脈般滋養這片土地，為香港社會經濟發展和市民安居樂業築牢根基。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798448-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798448-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798448-20250401.htm)
+
+---
+
 # 中國成功發射衛星互聯網技術試驗衛星
 
 ![中國成功發射衛星互聯網技術試驗衛星。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798437_1_20250401133737.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798038-20250329.htm)
-
----
-
-# 中國救援隊抵達緬甸仰光國際機場
-
-![中國救援隊乘坐的飛機抵達緬甸仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798037_1_20250329184929.jpg&q=90)
-  
-
-緬甸發生大地震後，中國救援隊上午乘坐國航包機，從首都機場出發前往災區，在下午抵達緬甸仰光國際機場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798037-20250329.htm)
 
 ---

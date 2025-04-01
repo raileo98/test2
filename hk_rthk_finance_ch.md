@@ -1,3 +1,27 @@
+# 滬指高收近0.4%　深證成指偏軟
+
+![上證綜合指數報3348點，升12點，升幅0.38%。深證成份指數報10503點，跌不足1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798447_1_20250401151207.jpg&q=90)
+  
+
+滬深股市收市個別發展，醫藥醫療相關股份上升，人形機械人和貴金屬板塊下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798447-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798447-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798447-20250401.htm)
+
+---
+
 # 泰國政府預期地震只對經濟造成短期影響
 
 ![泰國副財政部長表示，上星期在泰國造成破壞的強烈地震，或只對經濟造成短期影響，預計今年經濟增長仍將達到3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798446_1_20250401150404.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798314-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798314-20250331.htm)
-
----
-
-# 證監會：近年企業欺詐有令人關注的趨勢
-
-![證監會指，近年企業欺詐方面有令人關注的趨勢，上市公司高層或會利用貸款安排，作為將公司資金轉移給關連方的手段。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798312_1_20250331184722.jpg&q=85)
-  
-
-證監會重新刊發《執法通訊》，提到近年在企業欺詐方面，觀察到令人關注的趨勢，上市公司高層或會利用貸款安排，作為將公司資金轉移給關連方的手段。這些貸款安排看似合法，但卻欠缺真正的商業目的，而且其後出現減值，實際上掩飾屬欺詐性的資金流失。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm)
 
 ---

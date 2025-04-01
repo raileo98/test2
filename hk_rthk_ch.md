@@ -1,3 +1,50 @@
+# 陳國基冀市民透過各項展覽了解東江水供港歷史及國家關懷
+
+  
+
+政務司司長陳國基表示，東江水是香港主要的食水來源，形容如同血脈般滋養這片土地，為香港社會經濟發展和市民安居樂業築牢根基。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798448-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798448-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798448-20250401.htm)
+
+---
+
+# 滬指高收近0.4%　深證成指偏軟
+
+![上證綜合指數報3348點，升12點，升幅0.38%。深證成份指數報10503點，跌不足1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798447_1_20250401151207.jpg&q=90)
+  
+
+滬深股市收市個別發展，醫藥醫療相關股份上升，人形機械人和貴金屬板塊下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798447-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798447-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798447-20250401.htm)
+
+---
+
 # 泰國政府預期地震只對經濟造成短期影響
 
 ![泰國副財政部長表示，上星期在泰國造成破壞的強烈地震，或只對經濟造成短期影響，預計今年經濟增長仍將達到3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798446_1_20250401150404.jpg&q=80)

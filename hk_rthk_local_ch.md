@@ -1,3 +1,26 @@
+# 陳國基冀市民透過各項展覽了解東江水供港歷史及國家關懷
+
+  
+
+政務司司長陳國基表示，東江水是香港主要的食水來源，形容如同血脈般滋養這片土地，為香港社會經濟發展和市民安居樂業築牢根基。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798448-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798448-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798448-20250401.htm)
+
+---
+
 # 特區救援隊繼續在緬甸災區搜救　出動不同儀器協助
 
 ![特區救援隊於昨日抵達緬甸曼德勒，隨即展開搜救，包括在兩個災區進行救援。（消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798445_1_20250401151109.jpg&q=80)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798245-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798245-20250331.htm)
-
----
-
-# 港鐵爭取年內完成東鐵綫安裝月台閘門　外判客服中心不涉裁員
-
-![楊美珍表示，已向現有員工承諾不會裁員，亦不會將他們調離現有車站。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798244_1_20250331135857.jpg&q=90)
-  
-
-立法會一個委員會討論港鐵提升設施的最新進展。港鐵常務總監楊美珍表示，現時東鐵綫只餘下3個車站未完成安裝月台閘門，形容安裝進度順利，會爭取在年內盡快完成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798244-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798244-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798244-20250331.htm)
 
 ---
