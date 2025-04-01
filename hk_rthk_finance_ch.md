@@ -1,3 +1,51 @@
+# 美國2月JOLTs職位空缺跌至756.8萬個少過預期
+
+![美國勞工部2月JOLTs調查顯示，截至2月底，職位空缺按月減少19.4萬個，降至756.8萬個，少過市場預期的761萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798517_1_20250401224945.jpg&q=90)
+  
+
+美國勞工部公布的職位空缺和勞動力流動調查（JOLTs）顯示，截至2月底，職位空缺按月減少19.4萬個，降至756.8萬個，少過市場預期的761萬個。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm)
+
+---
+
+# 雷軍回應電動車事故：小米會持續配合調查　不會迴避
+
+![雷軍回應SU7電動車交通事故，表示小米不會迴避，將持續配合警方調查悼。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798518_1_20250401231640.jpg&q=90)
+  
+
+小米集團董事長雷軍回應SU7電動車交通事故，對3位年輕女孩不幸離世表示最深切哀悼，亦向其家人致以誠摯慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm)
+
+---
+
 # 美國2月建築開支按月升0.7%多過預期
 
 ![美國2月建築支出按月上升0.7%，升幅高過市場預期的0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798515_1_20250401224222.jpg&q=80)
@@ -142,7 +190,7 @@
 
 ---
 
-# 羅淑佩：香港迪士尼利用償還款項自資興建新設施是較好
+# 香港迪士尼今年將償還四成貸款　羅淑佩稱樂園自資增建項目是好事
 
 ![香港迪士尼樂園已開始償還由特區政府及華特迪士尼提供的貸款，至今已償還超過六成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798493_1_20250401185342.jpg&q=85)
   
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798355-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798355-20250401.htm)
-
----
-
-# 歐洲主要股市低收近1%或以上
-
-![法蘭克福DAX指數報22163點，跌298點，跌幅1.33%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798353_1_20250401053127.jpg&q=90)
-  
-
-歐洲主要股市下跌。美國總統特朗普表示將對所有國家徵收關稅，加劇市場對全球經濟放緩的憂慮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798353-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798353-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798353-20250401.htm)
-
----
-
-# 美股首季下跌　納指累計挫逾10%
-
-![美股收市個別發展。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798352_1_20250401052630.jpg&q=90)
-  
-
-紐約股市個別發展。金融、必須消費品及能源相關股份表現較好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798352-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798352-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798352-20250401.htm)
 
 ---
