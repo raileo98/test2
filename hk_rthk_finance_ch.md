@@ -1,3 +1,75 @@
+# 港股曾升逾270點
+
+![恒指高開近百點後，最多升逾270點，升至23392點，較早時報23301點，升182點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798402_1_20250401104051.jpg&q=45)
+  
+
+港股在4月首個交易日上升，恒指高開近百點後，最多升逾270點，升至23392點，較早時報23301點，升182點，升0.79%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798402-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798402-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798402-20250401.htm)
+
+---
+
+# 日本央行任命經濟學家中村康治為央行新理事
+
+![日本央行任命經濟學家中村康治為央行新理事，將負責監督貨幣政策和金融市場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798398_1_20250401103100.jpg&q=75)
+  
+
+日本央行任命經濟學家中村康治為央行新理事，接替4年任期屆滿的加藤毅，中村康治將負責監督貨幣政策和金融市場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798398-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798398-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798398-20250401.htm)
+
+---
+
+# 日股半日升逾200點
+
+![日經指數半日報35825點，升208點，升幅0.58%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798400_1_20250401103308.jpg&q=90)
+  
+
+東京股市半日升逾200點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798400-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798400-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798400-20250401.htm)
+
+---
+
 # 財新中國3月製造業PMI升至51.2　創4個月新高
 
 ![財新中國3月製造業採購經理指數升至51.2，創4個月新高，連續6個月處於擴張水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798394_1_20250401095905.jpg&q=65)
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798238-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798238-20250331.htm)
-
----
-
-# 大酒店去年轉蝕9.4億元　基本虧損約1.8億元
-
-![大酒店去年由盈轉虧，虧損9.43億元，基本虧損1.76億元，不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798237_1_20250331130925.jpg&q=80)
-  
-
-大酒店去年由盈轉虧，虧損9.43億元，不派末期息；前年盈利1.46億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798237-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798237-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798237-20250331.htm)
-
----
-
-# 大新銀行去年盈利升約11%　大新金融多賺5%
-
-![大新銀行去年盈利20.6億元，按年升約11%。淨息差2.17厘，按年擴闊16個基點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798235_1_20250331125430.jpg&q=90)
-  
-
-大新銀行去年盈利20.6億元，按年升約11%。末期息0.39元。去年營運收入升17%至69.3億元，信貸減值虧損升逾1倍至17.9億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798235-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798235-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798235-20250331.htm)
-
----
-
-# 星展香港：四大行增加核心一級資本屬支持經濟政策跟進措施
-
-![周洪禮認為，今次注資可配合往後穩定樓市、促進內需消費、支持高新科技產業等政策。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798234_1_20250331125341.jpg&q=85)
-  
-
-中國銀行、建設銀行、交通銀行及郵儲銀行，星期日發通告，計劃向財政部等機構發行A股集資，總規模不超過5200億元人民幣，用於增加核心一級資本，更好服務實體經濟。四家銀行A股發行價，較上星期五收市溢價約9%至近22%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm)
 
 ---

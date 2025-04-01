@@ -120,7 +120,7 @@ Rory McIlroy has joined Tiger Woods in surpassing US$100 million in career earni
 
 # HK set to see Reds, Arsenal, Spurs and Milan in action
 
-![Liverpool and AC Milan will face off on July 26 for the Standard Chartered Trophy while Arsenal will play Tottenham Hotspur on July 31. Photo courtesy of Hong Kong Football Festival](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798296_1_20250331174722.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798296_1_20250331174722.jpg&q=80)
   
 
 Four of the world’s top football teams will be coming to Hong Kong this summer for pre-season friendlies as they gear up for the 2025-26 season, organisers said on Monday.

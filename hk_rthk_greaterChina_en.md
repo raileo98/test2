@@ -1,3 +1,27 @@
+# China condemns fresh sanctions on officials
+
+![The Commissioner's Office of the Foreign Ministry in Hong Kong has accused the US of slandering the city's rule of law, democracy, freedom and human rights situation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798399_1_20250401103258.jpg&q=85)
+  
+
+Beijing has warned of "strong and resolute" countermeasures against fresh sanctions imposed on six mainland and Hong Kong officials by the United States.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798399-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798399-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798399-20250401.htm)
+
+---
+
 # China calls for Ukraine peace talks to continue
 
 ![Wang Yi gave a wide-ranging interview to the Russian RIA state news agency, on his visit to Moscow. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798386_1_20250401092729.jpg&q=90)
@@ -1415,29 +1439,5 @@ Mainland officials on Monday said a special action plan to boost consumption,wil
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796002-20250317.htm)
-
----
-
-# CK Hutchison ports deal questioned again
-
-![View of Port of Balboa, managed by CK Hutchison Holdings at the entrance of the Panama Canal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795930_1_20250316152201.jpg&q=90)
-  
-
-Beijing officials have shared a second article by the Ta Kung Pao newspaper criticising the sale by Hong Kong conglomerate CK Hutchison of its Panama Canal ports – and dozens of other ports across the globe – to a US consortium.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm)
 
 ---

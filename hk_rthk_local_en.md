@@ -1,3 +1,51 @@
+# Dongjiang water fuels HK's economic miracle: Lee
+
+![John Lee says the Dongjiang supplies 70 to 80 percent of Hong Kong's water supply. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798404_1_20250401105005.jpg&q=90)
+  
+
+Chief Executive John Lee said on Tuesday Dongjiang water has fuelled Hong Kong's economic miracle, contributing to the city's sustainable development and long-term prosperity.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798404-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798404-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798404-20250401.htm)
+
+---
+
+# China condemns fresh sanctions on officials
+
+![The Commissioner's Office of the Foreign Ministry in Hong Kong has accused the US of slandering the city's rule of law, democracy, freedom and human rights situation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798399_1_20250401103258.jpg&q=85)
+  
+
+Beijing has warned of "strong and resolute" countermeasures against fresh sanctions imposed on six mainland and Hong Kong officials by the United States.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798399-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798399-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798399-20250401.htm)
+
+---
+
 # SAR government hits out as officials sanctioned by US
 
 ![The government said the move exposed US barbarity under its hegemony. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798354_1_20250401054205.jpg&q=80)
@@ -72,7 +120,7 @@ The Hospital Authority (HA) on Monday announced a series of smart measures in ac
 
 # HK set to see Reds, Arsenal, Spurs and Milan in action
 
-![Liverpool and AC Milan will face off on July 26 for the Standard Chartered Trophy while Arsenal will play Tottenham Hotspur on July 31. Photo courtesy of Hong Kong Football Festival](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798296_1_20250331174722.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798296_1_20250331174722.jpg&q=80)
   
 
 Four of the world’s top football teams will be coming to Hong Kong this summer for pre-season friendlies as they gear up for the 2025-26 season, organisers said on Monday.
@@ -1408,53 +1456,5 @@ Chief Executive John Lee said on Wednesday a cooperation deal between Hong Kong 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797500-20250326.htm)
-
----
-
-# Two subsidised flat projects go on sale from April 1
-
-![The "Hemma Emerald" project on Anderson Road offers 960 flats. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797502_1_20250326153430.jpg&q=90)
-  
-
-The Housing Society on Wednesday announced two subsidised flat projects in Fanling and Kwun Tong, with units to be sold at 70 percent of market value, will go on sale in April.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797502-20250326.htm)
-
----
-
-# Certify your subdivided flat early or pay more: govt
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797475_1_20250326133032.jpg&q=90)
-  
-
-Discounts will be offered to landlords who get their subdivided homes certified early under a proposed certification system, according to housing minister Winnie Ho.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm)
 
 ---

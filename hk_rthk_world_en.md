@@ -27,7 +27,7 @@ Thai authorities said they were investigating why a single office tower block un
 ![Yoon Suk-yeol will learn whether he has the top job in South Korea come Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798397_1_20250401101622.jpg&q=90)
   
 
-South Korea's Constitutional Court, which is reviewing President Yoon Suk-yeol's impeachment, will announce its decision on whether to remove him from office permanently or reinstate him on Friday, the court said on Tuesday.
+South Korea’s Constitutional Court said it will rule on whether to formally dismiss or reinstate impeached President Yoon Suk Yeol on Friday.
 
   
 

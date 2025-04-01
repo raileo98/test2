@@ -1,7 +1,151 @@
+# 國家移民管理局料清明假期全國口岸日均出入境逾2百萬人次
+
+![國家移民局預計，羅湖、福田、深圳灣、蓮塘及高鐵西九龍站口岸，預計日均會有大約10萬至近25萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798405_1_20250401111050.jpg&q=90)
+  
+
+國家移民管理局預計，今年清明節假期全國口岸日均出入境將達210萬人次，較去年同期增長約21%。北京首都、上海浦東及廣州白雲等大型國際機場口岸，出入境客流小幅增長。毗鄰港澳陸路口岸旅客流量快速增長，返鄉祭祖的港澳台居民、海外僑胞將明顯增多。其中，港珠澳大橋日均出入境預計將達到超過12萬人次，深圳羅湖、福田、深圳灣、蓮塘及高鐵西九龍站口岸，預計會有大約10萬至近25萬人次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm)
+
+---
+
+# 中國駐美使館：中方敦促美方停止誣衊抹黑香港民主法治
+
+![發言人說，中方敦促美方停止干涉中國內政，停止誣衊抹黑香港民主法治。（中國駐美使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798403_1_20250401104720.jpg&q=90)
+  
+
+中國駐美使館發言人表示，美方所謂「香港政策法報告」延續抹黑香港民主法治、人權自由狀況的陳詞濫調，並對中國中央政府駐港機構和香港特區政府官員妄施所謂「制裁」，粗暴干涉中國內政和香港事務，嚴重違反國際法和國際關係基本準則，中方對此強烈譴責、堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm)
+
+---
+
+# 港股曾升逾270點
+
+![恒指高開近百點後，最多升逾270點，升至23392點，較早時報23301點，升182點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798402_1_20250401104051.jpg&q=45)
+  
+
+港股在4月首個交易日上升，恒指高開近百點後，最多升逾270點，升至23392點，較早時報23301點，升182點，升0.79%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798402-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798402-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798402-20250401.htm)
+
+---
+
+# 日本央行任命經濟學家中村康治為央行新理事
+
+![日本央行任命經濟學家中村康治為央行新理事，將負責監督貨幣政策和金融市場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798398_1_20250401103100.jpg&q=75)
+  
+
+日本央行任命經濟學家中村康治為央行新理事，接替4年任期屆滿的加藤毅，中村康治將負責監督貨幣政策和金融市場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798398-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798398-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798398-20250401.htm)
+
+---
+
+# 日股半日升逾200點
+
+![日經指數半日報35825點，升208點，升幅0.58%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798400_1_20250401103308.jpg&q=90)
+  
+
+東京股市半日升逾200點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798400-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798400-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798400-20250401.htm)
+
+---
+
+# 林卓廷披露游乃強受查案　律政司終極上訴得直
+
+![律政司提出終極上訴，終審法院今日頒下判詞，以大比數裁定律政司上訴得直，恢復林卓廷罪成判決。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798401_1_20250401111220.jpg&q=80)
+  
+
+立法會前議員林卓廷向公眾披露，廉署在「元朗7.21事件」後，調查時任元朗警區助理指揮官游乃強涉嫌「公職人員行為失當」，林卓廷被控違反《防止賄賂條例》中，有關不當披露受查人身份的條文，原審裁定罪成後上訴得直，撤銷定罪。律政司提出終極上訴，終審法院今日頒下判詞，以大比數裁定律政司上訴得直，恢復林卓廷罪成判決，及監禁4個月的判刑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798401-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798401-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798401-20250401.htm)
+
+---
+
 # 啟德發展區兩段新共融通道開放予公眾使用
 
 ![啟德海濱花園近土瓜灣避風塘的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_1_20250401102511.jpg&q=90)
-![承豐道公園的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_2_20250401102511.jpg&q=90)
+![承豐道公園的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_2_20250401111307.jpg&q=80)
   
 
 發展局發言人表示，啟德發展區兩段新的共融通道分別位於承豐道公園及啟德海濱花園近土瓜灣避風塘，已開放予公眾使用，各長約1公里，市民可沿共融通道欣賞海濱景色。
@@ -73,6 +217,7 @@
 
 # 佐敦文英街院舍失蹤男子已尋回沒受傷
 
+![失蹤男子昨日下午在廣東道及佐敦道交界一公園被尋回，沒有受傷，案件沒有可疑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798395_1_20250401111400.jpg&q=90)
   
 
 一名日前失蹤的70歲男子已被尋回。
@@ -96,6 +241,7 @@
 
 # 李家超：東江水支持香港經濟　確保可持續發展和長期繁榮
 
+![李家超指出，東江水支持香港經濟和社區，確保香港可持續發展和長期繁榮。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798393_1_20250401111135.jpg&q=90)
   
 
 行政長官李家超表示，60年前東江水正式供港，60年間為香港提供70%至80%的用水需求。隨著香港對水資源需求增加，東深供水系統已進行過3次擴建和改造，對港供水量提升到每年8億2000萬立方米，增長12倍。
@@ -119,6 +265,7 @@
 
 # 文憑試視藝科開考　考生憂「報到易」再故障提早到場
 
+![文憑試視覺藝術科今日開考，考生攜帶畫具到考場。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798392_1_20250401111103.jpg&q=85)
   
 
 文憑試首科筆試、視覺藝術科今日開考，有近4千人報考。在觀塘一個試場，有考生提早1小時到場，因擔心有突發情況，認為「早到好過遲到」。亦有家長擔心女兒要花時間找路及協助攜帶畫具，所以接送女兒到考場，希望她放鬆心情，盡力考好文憑試。
@@ -1292,150 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm)
-
----
-
-# 中央港澳辦與社科院簽訂協議做好一國兩制理論和實踐研究
-
-![協議旨在深入落實中央有關部署要求，全面準確、堅定不移貫徹「一國兩制」方針。（港澳辦微信）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798324_1_20250331215335.jpg&q=90)
-  
-
-中央港澳辦與中國社科院在北京簽署戰略合作框架協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm)
-
----
-
-# 克宮：莫斯科正繼續與華盛頓合作　普京仍願意與特朗普接觸
-
-![佩斯科夫表示，普京仍願意與特朗普接觸。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798323_1_20250331203714.jpg&q=90)
-  
-
-俄羅斯克里姆林宮發言人佩斯科夫表示，莫斯科正繼續與華盛頓合作，總統普京仍願意與美國總統特朗普接觸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm)
-
----
-
-# 羅淑佩明晚往北京訪問　將拜會港澳辦與相關部委
-
-![羅淑佩將拜會國務院港澳辦、國家文化和旅遊部、國家體育總局及國家電影局等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798322_1_20250331205348.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩明日晚上啓程前往北京訪問，她將拜會國務院港澳事務辦公室、國家文化和旅遊部、國家體育總局及國家電影局，亦會與其他文博機構的相關官員會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm)
-
----
-
-# 北部都會區三個「片區開發」試點收到22份意向書
-
-![發展局表示，提交意向書的企業或機構包括本地和內地的發展商、承建商、綜合企業和電商物流公司等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798321_1_20250331204741.jpg&q=90)
-  
-
-發展局於去年12月31日就位於洪水橋/厦村新發展區、粉嶺北新發展區及新田科技城的三個「片區開發」試點邀請市場提交意向書，至今日截止，共收到22份意向書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm)
-
----
-
-# 國家水利部稱國家心繫香港同胞　廣東省冀與香港共建世界級灣區
-
-![李國英說，將全面加強與特區政府水利合作，持續完善大灣區水安全保障體系。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798320_2_20250331215050.jpg&q=80)
-![王偉中說，扎實做好水質保護，堅決守護好東江水。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798320_1_20250331215050.jpg&q=85)
-  
-
-東江水供港六十周年紀念典禮暨「舞動水滴展」開幕禮在政府總部舉行。國家水利部部長李國英致辭說，60年來，中央始終心繫香港同胞，始終高度重視對港供水工作，在政策、資金、規劃等方面給予大力支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm)
-
----
-
-# 克宮料普京未來幾日內與到訪的王毅會面
-
-![佩斯科夫表示，預計普京將在未來幾日內與王毅會面。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798319_1_20250331201559.jpg&q=90)
-  
-
-中共中央政治局委員、外交部長王毅應俄羅斯外長拉夫羅夫邀請，今日至後日對俄羅斯進行正式訪問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm)
 
 ---

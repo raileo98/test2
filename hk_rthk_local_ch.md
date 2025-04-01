@@ -1,7 +1,55 @@
+# 中國駐美使館：中方敦促美方停止誣衊抹黑香港民主法治
+
+![發言人說，中方敦促美方停止干涉中國內政，停止誣衊抹黑香港民主法治。（中國駐美使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798403_1_20250401104720.jpg&q=90)
+  
+
+中國駐美使館發言人表示，美方所謂「香港政策法報告」延續抹黑香港民主法治、人權自由狀況的陳詞濫調，並對中國中央政府駐港機構和香港特區政府官員妄施所謂「制裁」，粗暴干涉中國內政和香港事務，嚴重違反國際法和國際關係基本準則，中方對此強烈譴責、堅決反對。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm)
+
+---
+
+# 林卓廷披露游乃強受查案　律政司終極上訴得直
+
+![律政司提出終極上訴，終審法院今日頒下判詞，以大比數裁定律政司上訴得直，恢復林卓廷罪成判決。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798401_1_20250401111220.jpg&q=80)
+  
+
+立法會前議員林卓廷向公眾披露，廉署在「元朗7.21事件」後，調查時任元朗警區助理指揮官游乃強涉嫌「公職人員行為失當」，林卓廷被控違反《防止賄賂條例》中，有關不當披露受查人身份的條文，原審裁定罪成後上訴得直，撤銷定罪。律政司提出終極上訴，終審法院今日頒下判詞，以大比數裁定律政司上訴得直，恢復林卓廷罪成判決，及監禁4個月的判刑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798401-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798401-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798401-20250401.htm)
+
+---
+
 # 啟德發展區兩段新共融通道開放予公眾使用
 
 ![啟德海濱花園近土瓜灣避風塘的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_1_20250401102511.jpg&q=90)
-![承豐道公園的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_2_20250401102511.jpg&q=90)
+![承豐道公園的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_2_20250401111307.jpg&q=80)
   
 
 發展局發言人表示，啟德發展區兩段新的共融通道分別位於承豐道公園及啟德海濱花園近土瓜灣避風塘，已開放予公眾使用，各長約1公里，市民可沿共融通道欣賞海濱景色。
@@ -25,6 +73,7 @@
 
 # 佐敦文英街院舍失蹤男子已尋回沒受傷
 
+![失蹤男子昨日下午在廣東道及佐敦道交界一公園被尋回，沒有受傷，案件沒有可疑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798395_1_20250401111400.jpg&q=90)
   
 
 一名日前失蹤的70歲男子已被尋回。
@@ -48,6 +97,7 @@
 
 # 李家超：東江水支持香港經濟　確保可持續發展和長期繁榮
 
+![李家超指出，東江水支持香港經濟和社區，確保香港可持續發展和長期繁榮。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798393_1_20250401111135.jpg&q=90)
   
 
 行政長官李家超表示，60年前東江水正式供港，60年間為香港提供70%至80%的用水需求。隨著香港對水資源需求增加，東深供水系統已進行過3次擴建和改造，對港供水量提升到每年8億2000萬立方米，增長12倍。
@@ -71,6 +121,7 @@
 
 # 文憑試視藝科開考　考生憂「報到易」再故障提早到場
 
+![文憑試視覺藝術科今日開考，考生攜帶畫具到考場。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798392_1_20250401111103.jpg&q=85)
   
 
 文憑試首科筆試、視覺藝術科今日開考，有近4千人報考。在觀塘一個試場，有考生提早1小時到場，因擔心有突發情況，認為「早到好過遲到」。亦有家長擔心女兒要花時間找路及協助攜帶畫具，所以接送女兒到考場，希望她放鬆心情，盡力考好文憑試。
@@ -1386,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798219-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798219-20250331.htm)
-
----
-
-# 北都3個「片區開發」試點暫時收到最少6份意向書
-
-![發展局邀請市場就北都3個「片區開發」試點提交意向書，新世界發展的代表到場遞交意向書。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798218_1_20250331105323.jpg&q=90)
-  
-
-發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，暫時收到6份意向書，遞交的發展商包括新世界發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm)
-
----
-
-# 紅十字會稱緬甸地震災區缺庇護所　憂爆發流行病
-
-![程德君表示，當地約七成房屋受破壞倒塌，民眾暫時無安全的庇護所，部分民眾要在街上睡覺。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798217_1_20250331124046.jpg&q=40)
-  
-
-緬甸地震增至1700人死亡，3400多人受傷。香港紅十字會國際及賑災服務主管程德君表示，當地部分災區約七成房屋受破壞倒塌，民眾暫時無安全的庇護所，有民眾要在街上睡覺，乾淨食水及醫療服務都受影響，有部分居民出現肚瀉情況，擔心當地會爆發流行病。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798217-20250331.htm)
 
 ---

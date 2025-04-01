@@ -1,3 +1,51 @@
+# Dongjiang water fuels HK's economic miracle: Lee
+
+![John Lee says the Dongjiang supplies 70 to 80 percent of Hong Kong's water supply. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798404_1_20250401105005.jpg&q=90)
+  
+
+Chief Executive John Lee said on Tuesday Dongjiang water has fuelled Hong Kong's economic miracle, contributing to the city's sustainable development and long-term prosperity.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798404-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798404-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798404-20250401.htm)
+
+---
+
+# China condemns fresh sanctions on officials
+
+![The Commissioner's Office of the Foreign Ministry in Hong Kong has accused the US of slandering the city's rule of law, democracy, freedom and human rights situation. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798399_1_20250401103258.jpg&q=85)
+  
+
+Beijing has warned of "strong and resolute" countermeasures against fresh sanctions imposed on six mainland and Hong Kong officials by the United States.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798399-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798399-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798399-20250401.htm)
+
+---
+
 # Bangkok reviews construction safety in quake aftermath
 
 ![Satellite images of the tower in Bangkok taken on December 25 and after its collapse on Friday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798389_1_20250401094853.jpg&q=90)
@@ -27,7 +75,7 @@ Thai authorities said they were investigating why a single office tower block un
 ![Yoon Suk-yeol will learn whether he has the top job in South Korea come Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798397_1_20250401101622.jpg&q=90)
   
 
-South Korea's Constitutional Court, which is reviewing President Yoon Suk-yeol's impeachment, will announce its decision on whether to remove him from office permanently or reinstate him on Friday, the court said on Tuesday.
+South Korea’s Constitutional Court said it will rule on whether to formally dismiss or reinstate impeached President Yoon Suk Yeol on Friday.
 
   
 
@@ -504,7 +552,7 @@ The Hospital Authority (HA) on Monday announced a series of smart measures in ac
 
 # HK set to see Reds, Arsenal, Spurs and Milan in action
 
-![Liverpool and AC Milan will face off on July 26 for the Standard Chartered Trophy while Arsenal will play Tottenham Hotspur on July 31. Photo courtesy of Hong Kong Football Festival](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798296_1_20250331174722.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798296_1_20250331174722.jpg&q=80)
   
 
 Four of the world’s top football teams will be coming to Hong Kong this summer for pre-season friendlies as they gear up for the 2025-26 season, organisers said on Monday.
@@ -1389,53 +1437,5 @@ A fireworks display capped off a three-day rugby extravaganza at the Kai Tak Sta
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798148-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798148-20250330.htm)
-
----
-
-# Argentina in seventh heaven over maiden HK title
-
-![New Zealand performed the haka following the victory over Australia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798137_2_20250330193653.jpg&q=85)
-  
-
-Argentina on Sunday captured the Hong Kong Rugby Sevens for the first time, defeating France in a hard-fought men's final at the Kai Tak Stadium.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798137-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798137-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798137-20250330.htm)
-
----
-
-# SAR rescue team to begin work in quake-hit Myanmar
-
-![International rescue organisations have called for support for the victims of Friday's tremor. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798131_1_20250330182417.jpg&q=60)
-  
-
-An SAR government rescue team is set to begin inspection work on the ground in earthquake-stricken Myanmar as they arrived in the country's capital Naypyidaw.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798131-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798131-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798131-20250330.htm)
 
 ---
