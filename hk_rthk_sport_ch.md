@@ -1,3 +1,27 @@
+# 英超聯賽　阿仙奴主場2:1挫富咸　諾定咸森林和狼隊主場亦取勝
+
+![布卡約沙卡傷癒復出，為阿仙奴攻入一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798543_1_20250402070614.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，阿仙奴主場2:1擊敗富咸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798543-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798543-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798543-20250402.htm)
+
+---
+
 # 夏寶龍會見港協暨奧委會會長霍震霆一行　冀繼續高舉愛國愛港旗幟
 
 ![在北京，中央港澳辦、國務院港澳辦主任夏寶龍（右）會見港協暨奧委會會長霍震霆（左）等人。（港協暨奧委會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798495_1_20250401192053.jpg&q=90)
@@ -1435,29 +1459,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796708-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796708-20250321.htm)
-
----
-
-# 津巴布韋體育部長考文垂當選國際奧委會主席
-
-![考文垂將成為首位女性及來自非洲的國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796685_1_20250321002325.jpg&q=90)
-  
-
-津巴布韋體育部長考文垂當選國際奧委會主席，將在6月接替巴赫，成為首位女性及來自非洲的國際奧委會主席。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796685-20250321.htm)
 
 ---

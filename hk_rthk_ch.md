@@ -1,3 +1,27 @@
+# 英超聯賽　阿仙奴主場2:1挫富咸　諾定咸森林和狼隊主場亦取勝
+
+![布卡約沙卡傷癒復出，為阿仙奴攻入一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798543_1_20250402070614.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，阿仙奴主場2:1擊敗富咸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798543-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798543-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798543-20250402.htm)
+
+---
+
 # 白宮稱特朗普與團隊一同完善對等關稅措施細節　指各國尋求談判
 
 ![萊維特（圖）說對等關稅將於特朗普宣布後立即生效。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798542_1_20250402065113.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm)
-
----
-
-# 港澳辦：美國制裁暴露霸權霸道　黔驢技窮歇斯底里
-
-![發言人表示，美國所謂報告的鼓噪和制裁的恫嚇，絲毫動搖不了中央政府和香港特區政府維護國家安全和香港法治的決心意志。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798477_1_20250401174045.jpg&q=80)
-  
-
-國務院港澳辦表示，強烈反對、嚴厲譴責美國國務院發表所謂「香港政策法報告」，抹黑詆毀香港國安法治並對中央政府和香港特區政府有關官員實施所謂制裁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm)
 
 ---
