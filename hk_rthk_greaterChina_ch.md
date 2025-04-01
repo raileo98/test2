@@ -1,3 +1,27 @@
+# 王毅：美方倘一味施壓　中方必將堅決反制
+
+![王毅說，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798425_1_20250401124309.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅說，中國從來不接受強權霸權，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm)
+
+---
+
 # 西藏自治區政府推出多項措施促進就業
 
 ![西藏政府為外來企業提供補貼，包括水電費、廠房租金等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798423_1_20250401123305.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798029-20250329.htm)
-
----
-
-# 丘應樺及麥美娟等政府官員明赴河南省出席黃帝故里拜祖大典
-
-![丘應樺、麥美娟和劉震明日前往河南省鄭州市，出席乙巳年黃帝故里拜祖大典。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798025_1_20250329173019.jpg&q=85)
-  
-
-商務及經濟發展局局長丘應樺、民政及青年事務局局長麥美娟和文化體育及旅遊局副局長劉震，明日前往河南省鄭州市，代表香港特別行政區政府出席乙巳年黃帝故里拜祖大典。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798025-20250329.htm)
 
 ---

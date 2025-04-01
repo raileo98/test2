@@ -1,9 +1,9 @@
-# Stocks market maker plans to expand in Central
+# Top court overturns ex-lawmaker's acquittal
 
-![Jane Street is in talks with Hongkong Land to take over two more floors in Central. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798414_1_20250401120606.jpg&q=85)
+![The top court is split three to two, with the ruling overturning former lawmaker Lam Cheuk-ting's acquittal. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798417_1_20250401121740.jpg&q=80)
   
 
-Jane Street, one of the world's largest quant trading firms and market makers, is planning a sharp increase in Hong Kong office space, two people familiar with the matter said.
+Hong Kong's top court has overturned the acquittal of a former lawmaker for revealing that a police officer who was on duty during a mob attack at a railway station during the 2019 protests was facing an anti-graft probe.
 
   
 
@@ -11,14 +11,14 @@ Jane Street, one of the world's largest quant trading firms and market makers, i
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm>
+<https://news.rthk.hk/rthk/en/component/k2/1798417-20250401.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm)
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798417-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798417-20250401.htm)
 
 ---
 

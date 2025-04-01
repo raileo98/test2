@@ -1,5 +1,30 @@
+# 王毅：美方倘一味施壓　中方必將堅決反制
+
+![王毅說，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798425_1_20250401124309.jpg&q=90)
+  
+
+中共中央政治局委員、外長王毅說，中國從來不接受強權霸權，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm)
+
+---
+
 # 林定國：制裁是赤裸裸霸權欺凌　對他毫無影響
 
+![林定國指出，客觀而言，實施制裁的理由完全站不住腳。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798419_1_20250401124140.jpg&q=90)
   
 
 美國國務院以進行跨國打壓及損害香港自治為由，制裁6名中央和香港特區官員，包括律政司司長林定國。林定國回應傳媒查詢表示，有關制裁對他毫無影響，不影響他的工作和生活。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798153-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798153-20250330.htm)
-
----
-
-# 香港紅十字會：緬甸災區食水供應受阻衞生設施受損　憂爆發傳染病
-
-![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798151_1_20250330230731.jpg&q=45)
-  
-
-緬甸大地震後，多方派出救援隊伍到當地協助救災。香港紅十字會國際及賑災服務主管程德君表示，香港方面已準備好提供衞生及心理健康支援，正與緬甸紅十字會等溝通協調。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798151-20250330.htm)
 
 ---

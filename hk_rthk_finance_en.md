@@ -1,3 +1,27 @@
+# Stocks market maker plans to expand in Central
+
+![Jane Street is said to be in talks with Hongkong Land to take over two more floors in Central. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798414_1_20250401120606.jpg&q=85)
+  
+
+Jane Street, one of the world's largest quant trading firms and market makers, is planning a sharp increase in Hong Kong office space, two people familiar with the matter said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm)
+
+---
+
 # Tesla faces backlash over Musk, weakening demand
 
 ![Sales of Tesla EVs are slowing in Europe amid a growing backlash against its CEO Elon Musk over his political views. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798413_1_20250401120524.jpg&q=90)
@@ -1413,29 +1437,5 @@ The Hang Seng Index lost 42.94 points, or 0.17 percent, to open at 24,697.63 on 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm)
-
----
-
-# US stocks end lower on geopolitical concerns
-
-![Stocks had risen the last two days in a partial rebound from declines in recent weeks. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796340_1_20250319064754.jpg&q=90)
-  
-
-Wall Street stocks resumed their downward slide on Tuesday as worries over the Ukraine and Middle East conflicts added to unease over President Trump's aggressive trade agenda.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796340-20250319.htm)
 
 ---
