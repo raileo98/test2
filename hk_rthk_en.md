@@ -1,3 +1,27 @@
+# 'Disneyland expansion needs careful planning'
+
+![Rosanna Law says any plans to use public money to expand Hong Kong Disneyland should be carefully considered. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798510_1_20250401213045.jpg&q=85)
+  
+
+Tourism minister Rosanna Law said on Tuesday any plans to expand Hong Kong Disneyland with public funding should be carefully considered, especially in the current economic climate.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798510-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798510-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798510-20250401.htm)
+
+---
+
 # US sanctions just 'a piece of waste paper': Beijing
 
 ![The Office for Safeguarding National Security says Washington should stop its bullying tactics as soon as possible. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798470_1_20250401170116.jpg&q=80)
@@ -120,10 +144,10 @@ Police have arrested two people after busting a cannabis production facility in 
 
 # ESF proposes to raise tuition fees by 4.8 percent
 
-![The English Schools Foundation increase means parents will have to fork out HK$650 to HK$750  more a month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798469_1_20250401170058.jpg&q=90)
+![The proposed ESF increase means parents would have to fork out HK$650 to HK$750 more a month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798469_1_20250401170058.jpg&q=90)
   
 
-The English Schools Foundation (ESF) announced on Tuesday it will raise tuition fees by an average of 4.8 percent in the coming academic year.
+The English Schools Foundation (ESF) on Tuesday proposed to raise tuition fees by an average of 4.8 percent in the coming academic year.
 
   
 
@@ -1412,29 +1436,5 @@ The Office of the Privacy Commissioner for Personal Data (PCPD) on Monday issued
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798247-20250331.htm)
-
----
-
-# CityU strikes global research deal with Cambridge
-
-![City University president Freddy Boey with University of Cambridge vice-chancellor Deborah Prentice at the signing ceremony. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798243_1_20250331135251.jpg&q=85)
-  
-
-The City University of Hong Kong (CityU) and the University of Cambridge signed a global research collaboration deal on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798243-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798243-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798243-20250331.htm)
 
 ---
