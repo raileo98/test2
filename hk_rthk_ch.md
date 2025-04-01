@@ -46,7 +46,7 @@
 
 ---
 
-# 美元兌主要貨幣個別發展
+# 美元兌主要貨幣個別發展　10年期債息創1個月低位
 
 ![美元兌日圓下跌，兌歐元則向上。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798538_1_20250402060801.jpg&q=80)
   
@@ -70,7 +70,7 @@
 
 ---
 
-# 紐約期油回落約0.4%
+# 紐約期油跌約0.4%
 
 ![原油期貨價格從5周高位回落。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798537_1_20250402055530.jpg&q=90)
   
@@ -118,7 +118,7 @@
 
 ---
 
-# 歐洲主要股市造好　德股高收1.7%
+# 歐洲主要股市高收　德股升1.7%
 
 ![法蘭克福DAX指數報22539點，升376點，漲幅1.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798534_1_20250402052431.jpg&q=90)
   
