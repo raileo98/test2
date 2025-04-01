@@ -1,3 +1,75 @@
+# Braves' Profar suspended 80 games for doping violation
+
+![Profar agreed to a three-year deal with the Atlanta Braves in January. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798372_1_20250401083652.jpg&q=90)
+  
+
+Major League Baseball has suspended Atlanta Braves slugger Jurickson Profar for 80 games after he tested positive for the performance-enhancing chorionic gonadotropin (hCG), MLB announced.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm)
+
+---
+
+# Trump will 'be kind' over further tariffs this week
+
+![US President Donald Trump speaks to reporters aboard Air Force One. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798346_1_20250401021518.jpg&q=90)
+  
+
+US President Donald Trump said Monday he would be "very kind" to trading partners when he unveils further tariffs this week, risking global turmoil to address what he says are unfair trade imbalances.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm)
+
+---
+
+# Haaland sidelined by injury in major Man City blow
+
+![Manchester City did not provide an exact timeline for Haaland's return. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798367_1_20250401081333.jpg&q=90)
+  
+
+Manchester City were dealt a major blow with leading scorer Erling Haaland set for a spell on the sidelines after suffering an ankle injury as the season reaches its climax.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798367-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798367-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798367-20250401.htm)
+
+---
+
 # Cycling to adopt 23-team format for Grand Tours
 
 ![The initiative for the Grand Tours has been rubber-stamped by the International Cycling Union, the sport's governing body. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798362_1_20250401071622.jpg&q=75)
@@ -1369,77 +1441,5 @@ World number one Aryna Sabalenka powered her way to the Miami Open title on Satu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm)
-
----
-
-# Protesters target Tesla in anti-Musk campaign
-
-![Protesters hold up signs outside a Tesla dealership in Michigan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798089_1_20250330101458.jpg&q=80)
-  
-
-Demonstrators descended on Tesla dealerships across the United States and in Europe and Canada on Saturday to protest company chief Elon Musk, who has amassed extraordinary power as a top advisor to US President Donald Trump.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798089-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798089-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798089-20250330.htm)
-
----
-
-# Police arrest woman in Tseung Kwan O drugs bust
-
-![During a raid on a flat, police found suspected drugs and suspected drug-making equipment. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798087_2_20250330095027.jpg&q=80)
-  
-
-A 43-year-old Indonesian woman remains in police custody on Sunday following her arrest in a Tseung Kwan O drugs operation late on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798087-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798087-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798087-20250330.htm)
-
----
-
-# Mexico brings in junk food ban
-
-![A man walks past a sign that refers to the labelling of products, in the subway of Mexico City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798081_1_20250330075336.jpg&q=90)
-  
-
-A government-sponsored junk food ban in schools across Mexico took effect on Saturday, officials said, as the country tries to tackle one of the world’s worst obesity and diabetes epidemics.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm)
 
 ---

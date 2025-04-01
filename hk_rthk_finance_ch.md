@@ -1,3 +1,99 @@
+# 恒大汽車今早9時正起停牌
+
+![中國恒大汽車今早9時正起暫停股份買賣。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798368_1_20250401082229.jpg&q=90)
+  
+
+中國恒大汽車今早9時正起暫停股份買賣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798368-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798368-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798368-20250401.htm)
+
+---
+
+# 韓股開市後上升
+
+![首爾綜合指數較早時報2510點，升29點，升幅1.2%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798366_1_20250401081145.jpg&q=90)
+  
+
+南韓股市上升。首爾綜合指數較早時報2510點，升29點，升幅1.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798366-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798366-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798366-20250401.htm)
+
+---
+
+# 日股開市反彈
+
+![日經指數較早時報35970點，升352點，升幅0.99%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798365_1_20250401081008.jpg&q=75)
+  
+
+東京股市反彈。日經指數較早時報35970點，升352點，升幅0.99%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798365-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798365-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798365-20250401.htm)
+
+---
+
+# 日本2月失業率降至2.4%
+
+![日本政府公布，2月失業率降至2.4%，較1月下跌0.1個百分點，低於市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798364_1_20250401080053.jpg&q=80)
+  
+
+日本政府公布，2月失業率降至2.4%，較1月下跌0.1個百分點，低於市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798364-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798364-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798364-20250401.htm)
+
+---
+
 # 格奧爾基耶娃：美國推動全面關稅短期內不太可能引發經濟衰退
 
 ![格奧爾基耶娃稱美國推動全面關稅正造成巨大不確定並打擊信心，但短期內不致引發經濟衰退。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798361_1_20250401070655.jpg&q=90)
@@ -1339,101 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798201-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798201-20250331.htm)
-
----
-
-# 內地3月官方製造業PMI升至50.5　創1年新高
-
-![內地3月製造業採購經理指數升至50.5，創1年新高。國家統計局表示，內地經濟保持擴張。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798200_1_20250331094129.jpg&q=90)
-  
-
-國家統計局、中國物流與採購聯合會公布，內地3月製造業採購經理指數（PMI）升至50.5，創1年新高，比2月升0.3點，反映製造業擴張步伐加快。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm)
-
----
-
-# 港股季結日低開219點　恒指競價時段報23207點
-
-![港股在3月最後1個交易日下跌，恒生指數競價時段報23207點，跌219點，跌幅0.94%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798198_1_20250331092445.jpg&q=40)
-  
-
-港股在3月最後1個交易日下跌，恒生指數競價時段報23207點，跌219點，跌幅0.94%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798198-20250331.htm)
-
----
-
-# 人民幣兌美元中間價跌30點子
-
-![人民幣中間價報7.1782兌1美元，較上星期五中間價跌30點子，創近1星期新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798196_1_20250331091921.jpg&q=70)
-  
-
-人民幣中間價報7.1782兌1美元，較上星期五中間價跌30點子，創近1星期新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798196-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798196-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798196-20250331.htm)
-
----
-
-# 財政部：積極支持國有大行補充核心一級資本更好服務實體經濟
-
-![財政部稱四大行資本補充工作將按照市場化、法治化原則穩妥推進。（財政部網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798191_1_20250331090137.jpg&q=90)
-  
-
-財政部表示，將發行首批特別國債5000億元人民幣，積極支持中國銀行、建設銀行、交通銀行、郵儲銀行補充核心一級資本，將按照市場化、法治化原則穩妥推進。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm)
 
 ---

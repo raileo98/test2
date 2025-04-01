@@ -1,3 +1,27 @@
+# Trump will 'be kind' over further tariffs this week
+
+![US President Donald Trump speaks to reporters aboard Air Force One. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798346_1_20250401021518.jpg&q=90)
+  
+
+US President Donald Trump said Monday he would be "very kind" to trading partners when he unveils further tariffs this week, risking global turmoil to address what he says are unfair trade imbalances.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm)
+
+---
+
 # Kremlin says Putin 'remains open' to speaking to Trump
 
 ![US President Donald Trump (Left) earlier criticised Russian President Vladimir Putin for the lack of progress on a ceasefire deal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798328_1_20250331211156.jpg&q=90)
@@ -1415,29 +1439,5 @@ French star actor Gerard Depardieu, on trial for sexual assault, told the Paris 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm)
-
----
-
-# Trump, intel chiefs dismiss chat breach
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797390_1_20250326032257.jpg&q=90)
-  
-
-US President Donald Trump and his top intelligence officials raced on Tuesday to stem a growing scandal after a journalist was accidentally added to a group chat about air strikes on Yemen's Houthi rebels in a security breach.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797390-20250326.htm)
 
 ---

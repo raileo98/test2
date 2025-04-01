@@ -1,3 +1,148 @@
+# 西藏多項措施促就業　企業稱校企合作與補貼有助發展
+
+![企業為學生提供陶瓷藝術繪畫及手工拉坯課程。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_1_20250401082246.jpg&q=85)
+![廚具公司受政府補貼進駐拉薩設廠，創造逾百個就業職位。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_2_20250401082246.jpg&q=85)
+![落戶西藏的廚具公司獲政府補貼，研發符合西藏居民需求的產品，例如全自動酥油茶壺等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_3_20250401083605.jpg&q=80)
+  
+
+西藏自治區成立60周年，當地政府近年推出多項措施促進就業，降低貧窮率，包括提供大學生創業補貼、實施就業見習補貼，亦鼓勵企業聘用區内高校畢業生，其中拉薩市去年高校畢業生就業率達95%，連續多年維持於高水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm)
+
+---
+
+# 新華社：解放軍東部戰區進行演訓　組織艦機多向抵近台島
+
+  
+
+新華社報道，解放軍東部戰區組織陸軍、海軍、空軍、火箭軍等兵力，今日開始進行演訓，於台島周邊組織艦機多向抵近台島，東部戰區新聞發言人表示，演習是對「台獨」分裂勢力的嚴重警告和有力遏制，是捍衛國家主權、維護國家統一的正當必要行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798369-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798369-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798369-20250401.htm)
+
+---
+
+# 恒大汽車今早9時正起停牌
+
+![中國恒大汽車今早9時正起暫停股份買賣。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798368_1_20250401082229.jpg&q=90)
+  
+
+中國恒大汽車今早9時正起暫停股份買賣。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798368-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798368-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798368-20250401.htm)
+
+---
+
+# 韓股開市後上升
+
+![首爾綜合指數較早時報2510點，升29點，升幅1.2%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798366_1_20250401081145.jpg&q=90)
+  
+
+南韓股市上升。首爾綜合指數較早時報2510點，升29點，升幅1.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798366-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798366-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798366-20250401.htm)
+
+---
+
+# 日股開市反彈
+
+![日經指數較早時報35970點，升352點，升幅0.99%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798365_1_20250401081008.jpg&q=75)
+  
+
+東京股市反彈。日經指數較早時報35970點，升352點，升幅0.99%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798365-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798365-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798365-20250401.htm)
+
+---
+
+# 日本2月失業率降至2.4%
+
+![日本政府公布，2月失業率降至2.4%，較1月下跌0.1個百分點，低於市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798364_1_20250401080053.jpg&q=80)
+  
+
+日本政府公布，2月失業率降至2.4%，較1月下跌0.1個百分點，低於市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798364-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798364-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798364-20250401.htm)
+
+---
+
 # 意甲拉素與拖連奴賽和1:1　維羅納0:0帕爾馬
 
 ![拉素（白衫）與拖連奴賽和1:1。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798363_1_20250401073812.jpg&q=90)
@@ -1293,149 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm)
-
----
-
-# 私隱公署發表僱員使用AI指引　建議訂明禁止輸入資料種類
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798286_1_20250331175358.jpg&q=90)
-  
-
-個人資料私隱專員公署發表《僱員使用生成式AI的指引清單》，協助機構制定僱員在工作時使用生成式AI的內部政策或指引，包括建議機構訂明獲准許使用的生成式人工智能工具和用途，以及要清晰指示可以和禁止輸入資料的種類。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm)
-
----
-
-# 醫管局陸續於急症室裝設地理圍欄定位系統防止病人走失
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798301_1_20250331191058.jpg&q=90)
-  
-
-醫管局引進多項科技措施，陸續在急症室裝設地理圍欄定位系統，預計今年底前所有急症室完成安裝並全面投入使用，判斷未回應應診的病人是否仍在急症室。系統包括適用於精神或認知障礙，或無法溝通的病人，他們會配戴設有藍牙裝置的手帶，如果病人離開走近大門時會發出警報，提醒職員及時阻止。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798301-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798301-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798301-20250331.htm)
-
----
-
-# 胡耀邦兒子胡德華據報逝世　終年77歲
-
-![內地媒體報道，胡德華昨晚病逝。（紅船融媒網上截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798298_1_20250331181141.jpg&q=90)
-  
-
-有內地新媒體平台報道，中共已故總書記胡耀邦的兒子胡德華，昨晚因病逝世，終年77歲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798298-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798298-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798298-20250331.htm)
-
----
-
-# 房委會加入6名新委員　另有5人再獲委任
-
-![行政長官委任6名新委員加入房委會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798297_1_20250331182030.jpg&q=85)
-  
-
-行政長官委任6名新委員加入房委會，包括梁文廣、梁邦媛、趙子翹、羅啟華、張仁良及陸頌雄，任期由明天開始，為期兩年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798297-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798297-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798297-20250331.htm)
-
----
-
-# 不法分子以免費旅遊招攬販毒　警方機場拘捕一對涉案情侶
-
-![警方拘捕一男一女，檢獲約50公斤懷疑氯胺酮，市值逾2470萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798295_1_20250331215827.jpg&q=60)
-  
-
-警方昨日在機場展開反毒品行動，以「販運危險藥物」罪拘捕一男一女，檢獲約50公斤懷疑氯胺酮，市值逾2470萬港元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798295-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798295-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798295-20250331.htm)
-
----
-
-# 海關機場檢逾100公斤懷疑氯胺酮　3名女遊客被捕
-
-![海關共檢獲約102公斤，估計市值約5000萬元的懷疑氯胺酮。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798294_1_20250331180357.jpg&q=85)
-  
-
-海關過去兩日在機場偵破兩宗行李藏毒的販毒案件，共檢獲約102公斤，估計市值約5000萬元的懷疑氯胺酮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798294-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798294-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798294-20250331.htm)
 
 ---

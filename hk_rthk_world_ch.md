@@ -1,3 +1,27 @@
+# 格奧爾基耶娃：美國推動全面關稅短期內不太可能引發經濟衰退
+
+![格奧爾基耶娃稱美國推動全面關稅正造成巨大不確定並打擊信心，但短期內不致引發經濟衰退。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798361_1_20250401070655.jpg&q=90)
+  
+
+國際貨幣基金組織總裁格奧爾基耶娃表示，美國總統特朗普推動全面關稅，正造成巨大不確定性並打擊信心，但短期內不太可能引發經濟衰退，又認為美國今年通脹回落進程可能放緩，但不足以改變聯儲局明年令通脹重返2%的目標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm)
+
+---
+
 # 曼谷倒塌大樓有鋼材樣本不符合標準　曼谷解除地震災區公告
 
 ![當局出動大型機械清理瓦礫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798351_1_20250401045552.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm)
-
----
-
-# 特區救援隊抵達緬甸首都　隨即展開勘察及部署
-
-![緬甸日前發生大地震，特區政府派出救援隊協助救援。（保安局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798124_2_20250330190435.jpg&q=90)
-  
-
-緬甸日前發生大地震，特區政府派出救援隊協助救援。保安局在社交網站上載片段，救援隊領隊趙汝珏說，昨晚大約9時抵達仰光機場，凌晨3時半出發前往首都內比都，經過大約10小時車程，當地時間中午後到達，之後將立即進行勘察工作，並與其他國家救援隊聯絡，了解當前狀況並再作部署。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798124-20250330.htm)
 
 ---

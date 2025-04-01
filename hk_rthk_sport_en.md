@@ -1,3 +1,51 @@
+# Braves' Profar suspended 80 games for doping violation
+
+![Profar agreed to a three-year deal with the Atlanta Braves in January. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798372_1_20250401083652.jpg&q=90)
+  
+
+Major League Baseball has suspended Atlanta Braves slugger Jurickson Profar for 80 games after he tested positive for the performance-enhancing chorionic gonadotropin (hCG), MLB announced.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm)
+
+---
+
+# Haaland sidelined by injury in major Man City blow
+
+![Manchester City did not provide an exact timeline for Haaland's return. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798367_1_20250401081333.jpg&q=90)
+  
+
+Manchester City were dealt a major blow with leading scorer Erling Haaland set for a spell on the sidelines after suffering an ankle injury as the season reaches its climax.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798367-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798367-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798367-20250401.htm)
+
+---
+
 # Cycling to adopt 23-team format for Grand Tours
 
 ![The initiative for the Grand Tours has been rubber-stamped by the International Cycling Union, the sport's governing body. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798362_1_20250401071622.jpg&q=75)
@@ -1400,53 +1448,5 @@ Hong Kong tennis star Coleman Wong pulled off the biggest triumph of his career 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797004-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797004-20250323.htm)
-
----
-
-# Oscar Piastri on pole for Chinese Grand Prix
-
-![Now in his third season in Formula One, the Australian already has two wins to his name and starts as favourite. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796987_1_20250323065602.jpg&q=90)
-  
-
-A pumped Oscar Piastri seized his first Formula One pole position at the Chinese Grand Prix on Saturday and said he had done the hairpin of his life to smash the Shanghai circuit record.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796987-20250323.htm)
-
----
-
-# Durant scores 42 as Suns eclipse Cavs
-
-![Phoenix Suns forward Kevin Durant soars above Cleveland Cavaliers forward De'Andre Hunter. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796939_1_20250322180740.jpg&q=90)
-  
-
-Kevin Durant scored 42 points as the Phoenix Suns reignited their playoff hopes with a 123-112 upset of the Eastern Conference-leading Cleveland Cavaliers on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796939-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796939-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796939-20250322.htm)
 
 ---

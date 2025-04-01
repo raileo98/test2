@@ -1,3 +1,52 @@
+# 西藏多項措施促就業　企業稱校企合作與補貼有助發展
+
+![企業為學生提供陶瓷藝術繪畫及手工拉坯課程。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_1_20250401082246.jpg&q=85)
+![廚具公司受政府補貼進駐拉薩設廠，創造逾百個就業職位。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_2_20250401082246.jpg&q=85)
+![落戶西藏的廚具公司獲政府補貼，研發符合西藏居民需求的產品，例如全自動酥油茶壺等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_3_20250401083605.jpg&q=80)
+  
+
+西藏自治區成立60周年，當地政府近年推出多項措施促進就業，降低貧窮率，包括提供大學生創業補貼、實施就業見習補貼，亦鼓勵企業聘用區内高校畢業生，其中拉薩市去年高校畢業生就業率達95%，連續多年維持於高水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm)
+
+---
+
+# 新華社：解放軍東部戰區進行演訓　組織艦機多向抵近台島
+
+  
+
+新華社報道，解放軍東部戰區組織陸軍、海軍、空軍、火箭軍等兵力，今日開始進行演訓，於台島周邊組織艦機多向抵近台島，東部戰區新聞發言人表示，演習是對「台獨」分裂勢力的嚴重警告和有力遏制，是捍衛國家主權、維護國家統一的正當必要行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798369-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798369-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798369-20250401.htm)
+
+---
+
 # 外交部駐港公署強烈譴責美國制裁中央和特區官員　將堅決反制
 
 ![發言人指，中方必將採取有力措施堅決反制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798350_1_20250401041931.jpg&q=85)
@@ -1391,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm)
-
----
-
-# 緬甸強震增至694人死逾1600人傷　習近平向敏昂萊致慰問電
-
-![地震亦導致泰國曼谷至少10人喪生，約100人仍然失蹤。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797999_1_20250329123436.jpg&q=70)
-  
-
-緬甸中部7級以上強烈地震，在當地增至最少694人死亡，1670人受傷，暫時未有中國公民死亡報告，多處有建築物受損，中國派出救援隊趕赴震區。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797999-20250329.htm)
-
----
-
-# 特區政府救援隊赴緬甸助搜救　李家超：短時間應召集結展無私精神
-
-![李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797996_1_20250329121806.jpg&q=25)
-  
-
-行政長官李家超表示，特區政府將派遣一隊救援隊，今天前往緬甸地震災區協助搜救，盡全力協助當地拯救生命。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1797996-20250329.htm)
 
 ---
