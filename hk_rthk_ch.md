@@ -1,3 +1,146 @@
+# 在岸人民幣兌美元收市創近1個月低位
+
+![在岸人民幣收市報7.2687兌1美元，較上日收市跌171點子，創近1個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798467_1_20250401170741.jpg&q=85)
+  
+
+在岸人民幣兌美元收市創近1個月新低，報7.2687兌1美元，較上日收市價跌171點子。中間價稍為反彈至7.1775兌1美元，與市場預測偏離仍逾800點子，反映監管層維穩意圖。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798467-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798467-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798467-20250401.htm)
+
+---
+
+# 高山道社區客廳開幕　料每年服務8萬人次
+
+  
+
+位於高山道的社區客廳今日起開放，為期3年，為九龍城區劏房戶提供服務，開放時間為每日早上11時至晚上10時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798474-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798474-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798474-20250401.htm)
+
+---
+
+# 特區救援隊與國家隊展開首次緬甸地震聯合搜救
+
+![特區救援隊今早與中國救援隊在一受災區域進行首次聯合行動。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_1_20250401171159.jpg&q=80)
+![特區救援隊善用例如無人機、石屎爆破、位移探測儀等高科技儀器，更精準鎖定搜救區域。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_2_20250401171159.jpg&q=85)
+  
+
+特區救援隊繼續在緬甸曼德勒災區搜救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm)
+
+---
+
+# 中聯辦斥美國亂港遏華用心險惡　注定徒勞無功
+
+![中聯辦表示，國家安全是香港長期繁榮穩定的基石，堅定不移依法維護國家安全，是對香港法治、民主、人權和自由的最根本保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798468_1_20250401171248.jpg&q=85)
+  
+
+中聯辦強烈譴責美國國務院對中央駐港機構和香港特區政府有關官員進行所謂「制裁」，及發表惡意抹黑香港民主法治的「2025年香港政策法報告」。中聯辦指出，美國再次以卑劣手段粗暴干涉中國內政和香港事務，粗暴踐踏國際法原則和國際關係基本準則，充分暴露其亂港遏華的險惡用心，但注定徒勞無功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm)
+
+---
+
+# 洪水橋5幅商業地原址換地申請延至年底　恒地稱好事
+
+  
+
+洪水橋5幅商業用地原址換地申請，原定接納包括補地價的基本條款建議期限，由3月底延長至今年底。市場資料指，有關商業用地涉及逾百萬平方呎，由新地及恒地持有，將用作商業發展用途，涉及近千萬平方呎。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm)
+
+---
+
+# 歐元區3月製造業PMI連升3個月　產出兩年來首次擴張
+
+![歐元區3月製造業PMI終值升至48.6，連升3個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798462_1_20250401164722.jpg&q=90)
+  
+
+標普全球與漢堡商業銀行（HCOB）聯合公布，歐元區3月製造業採購經理指數（PMI）終值為48.6，連升3個月，但低於初值的48.7，而2月終值為47.6。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm)
+
+---
+
 # 王毅：中俄不斷深化戰略協作夥伴關係有利彼此成就
 
 ![王毅說，相信中俄兩國將堅定延續偉大友誼，為推動國際秩序朝著更公正合理的方向發展作出「中俄貢獻」 。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798463_1_20250401165210.jpg&q=90)
@@ -24,6 +167,7 @@
 
 # 麥美娟稱區議員交代接觸市民數字做法史無前例
 
+![麥美娟強調，今屆區議會加入履職監察機制，區議員要交代接觸市民統計數字，是史無前例。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798461_1_20250401171113.jpg&q=90)
   
 
 本屆區議員工作報告昨日起在各區民政事務處供市民查閱。民政及青年事務局局長麥美娟出席活動時被問到報告為何不放上網、市民亦不能用手機拍攝；她回應，各區民政處有提供報告複印服務，亦按政府一般提供影印文件服務的收費。
@@ -191,7 +335,7 @@
 
 # 吳安儀凱旋回港　盼有更多時間推廣桌球
 
-![吳安儀（右）說，滿意比賽表現；陳惠淋（左）說在決賽有些許輕敵最終只得亞軍，感到少許遺憾。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798453_1_20250401160211.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798453_1_20250401160211.jpg&q=90)
   
 
 成功衛冕英國女子公開賽冠軍的本港女子桌球手吳安儀返抵香港。

@@ -1,3 +1,27 @@
+# Xiaomi hands over data in fatal SU7 crash in Anhui
+
+![Xiaomi' SU7 has outsold Tesla's Model 3. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798464_1_20250401165627.jpg&q=85)
+  
+
+Xiaomi said on Tuesday that it was actively cooperating with police after a fatal accident involving a SU7 electric vehicle on Saturday and that it had handed over driving and system data.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm)
+
+---
+
 # PLA conducts military exercises around Taiwan
 
 ![The Taiwan Affairs Office says the drills target separatist activities advocating "Taiwan independence" and are not directed at the broader population of Taiwan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798421_1_20250401123058.jpg&q=90)
@@ -1415,29 +1439,5 @@ Pacific nation Kiribati says it is exploring a deep-sea mining partnership with 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796176-20250318.htm)
-
----
-
-# China retail sales up four percent
-
-![Total retail sales of consumer goods reached over 8.37 trillion yuan, according to official figures. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796017_1_20250317110913.jpg&q=80)
-  
-
-Retail sales in China accelerated slightly in the first two months of the year, government data showed on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm](https://news.rthk.hk/rthk/en/component/k2/1796017-20250317.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 在岸人民幣兌美元收市創近1個月低位
+
+![在岸人民幣收市報7.2687兌1美元，較上日收市跌171點子，創近1個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798467_1_20250401170741.jpg&q=85)
+  
+
+在岸人民幣兌美元收市創近1個月新低，報7.2687兌1美元，較上日收市價跌171點子。中間價稍為反彈至7.1775兌1美元，與市場預測偏離仍逾800點子，反映監管層維穩意圖。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798467-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798467-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798467-20250401.htm)
+
+---
+
+# 洪水橋5幅商業地原址換地申請延至年底　恒地稱好事
+
+  
+
+洪水橋5幅商業用地原址換地申請，原定接納包括補地價的基本條款建議期限，由3月底延長至今年底。市場資料指，有關商業用地涉及逾百萬平方呎，由新地及恒地持有，將用作商業發展用途，涉及近千萬平方呎。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm)
+
+---
+
 # 歐元區3月製造業PMI連升3個月　產出兩年來首次擴張
 
 ![歐元區3月製造業PMI終值升至48.6，連升3個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798462_1_20250401164722.jpg&q=90)
@@ -1390,54 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm)
-
----
-
-# 北部都會區三個「片區開發」試點收到22份意向書
-
-![發展局表示，提交意向書的企業或機構包括本地和內地的發展商、承建商、綜合企業和電商物流公司等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798321_1_20250331204741.jpg&q=90)
-  
-
-發展局於去年12月31日就位於洪水橋/厦村新發展區、粉嶺北新發展區及新田科技城的三個「片區開發」試點邀請市場提交意向書，至今日截止，共收到22份意向書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798321-20250331.htm)
-
----
-
-# 國家水利部稱國家心繫香港同胞　廣東省冀與香港共建世界級灣區
-
-![李國英說，將全面加強與特區政府水利合作，持續完善大灣區水安全保障體系。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798320_2_20250331215050.jpg&q=80)
-![王偉中說，扎實做好水質保護，堅決守護好東江水。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798320_1_20250331215050.jpg&q=85)
-  
-
-東江水供港六十周年紀念典禮暨「舞動水滴展」開幕禮在政府總部舉行。國家水利部部長李國英致辭說，60年來，中央始終心繫香港同胞，始終高度重視對港供水工作，在政策、資金、規劃等方面給予大力支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm)
 
 ---

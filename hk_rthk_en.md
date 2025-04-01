@@ -1,3 +1,75 @@
+# ESF set to raise tuition fees by 4.8 percent
+
+![The English Schools Foundation increase means parents will have to pay HK$7,000 to HK$9,000 more a year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798469_1_20250401170058.jpg&q=90)
+  
+
+The English Schools Foundation (ESF) announced on Tuesday it will raise tuition fees by an average of 4.8 percent in the coming academic year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm)
+
+---
+
+# Xiaomi hands over data in fatal SU7 crash in Anhui
+
+![Xiaomi' SU7 has outsold Tesla's Model 3. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798464_1_20250401165627.jpg&q=85)
+  
+
+Xiaomi said on Tuesday that it was actively cooperating with police after a fatal accident involving a SU7 electric vehicle on Saturday and that it had handed over driving and system data.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm)
+
+---
+
+# Numbers may not fully reflect work of DC members: Govt
+
+![Alice Mak described the current district councils as having unprecedented transparency. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798466_1_20250401165907.jpg&q=90)
+  
+
+Home affairs minister Alice Mak said on Tuesday that the number of cases a district councillor handles in a year may not fully reflect the actual work done.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm)
+
+---
+
 # Junta leader fears worse to come as toll passes 2,700
 
 ![People are preferring to take their chances out in the open in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798458_1_20250401162658.jpg&q=90)
@@ -1365,77 +1437,5 @@ Novak Djokovic faced a series of obstacles in the Miami Open final: a delay of m
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm)
-
----
-
-# SAR rescue team heads for quake-stricken Mandalay
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798216_1_20250331104806.jpg&q=90)
-  
-
-An SAR government rescue team is on its way to quake-hit Mandalay in Myanmar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798216-20250331.htm)
-
----
-
-# Seven kicked out of NBA game after court 'brawl'
-
-![Pistons forward Ronald Holland drives towards the basket as Timberwolves center Naz Reid defends during the second quarter at Target Center in Minnesota. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798214_1_20250331103953.jpg&q=90)
-  
-
-Seven players and members of coaching staff were ejected after a wild brawl broke out during the Minnesota Timberwolves' 123-104 victory over the Detroit Pistons in the NBA.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798214-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798214-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798214-20250331.htm)
-
----
-
-# China's factory PMI expands at fastest pace in a year
-
-![Official data shows the purchasing managers' index for manufacturing was up 0.3 percentage points from February. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798209_1_20250331101633.jpg&q=80)
-  
-
-China's manufacturing activity expanded at the fastest pace in a year in March, an official factory survey showed on Monday, in a positive sign for the world's second-largest economy as it deals with an escalating US trade war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm)
 
 ---

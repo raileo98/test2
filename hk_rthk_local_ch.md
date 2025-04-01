@@ -1,5 +1,78 @@
+# 高山道社區客廳開幕　料每年服務8萬人次
+
+  
+
+位於高山道的社區客廳今日起開放，為期3年，為九龍城區劏房戶提供服務，開放時間為每日早上11時至晚上10時。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798474-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798474-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798474-20250401.htm)
+
+---
+
+# 特區救援隊與國家隊展開首次緬甸地震聯合搜救
+
+![特區救援隊今早與中國救援隊在一受災區域進行首次聯合行動。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_1_20250401171159.jpg&q=80)
+![特區救援隊善用例如無人機、石屎爆破、位移探測儀等高科技儀器，更精準鎖定搜救區域。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_2_20250401171159.jpg&q=85)
+  
+
+特區救援隊繼續在緬甸曼德勒災區搜救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm)
+
+---
+
+# 中聯辦斥美國亂港遏華用心險惡　注定徒勞無功
+
+![中聯辦表示，國家安全是香港長期繁榮穩定的基石，堅定不移依法維護國家安全，是對香港法治、民主、人權和自由的最根本保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798468_1_20250401171248.jpg&q=85)
+  
+
+中聯辦強烈譴責美國國務院對中央駐港機構和香港特區政府有關官員進行所謂「制裁」，及發表惡意抹黑香港民主法治的「2025年香港政策法報告」。中聯辦指出，美國再次以卑劣手段粗暴干涉中國內政和香港事務，粗暴踐踏國際法原則和國際關係基本準則，充分暴露其亂港遏華的險惡用心，但注定徒勞無功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm)
+
+---
+
 # 麥美娟稱區議員交代接觸市民數字做法史無前例
 
+![麥美娟強調，今屆區議會加入履職監察機制，區議員要交代接觸市民統計數字，是史無前例。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798461_1_20250401171113.jpg&q=90)
   
 
 本屆區議員工作報告昨日起在各區民政事務處供市民查閱。民政及青年事務局局長麥美娟出席活動時被問到報告為何不放上網、市民亦不能用手機拍攝；她回應，各區民政處有提供報告複印服務，亦按政府一般提供影印文件服務的收費。
@@ -95,7 +168,7 @@
 
 # 吳安儀凱旋回港　盼有更多時間推廣桌球
 
-![吳安儀（右）說，滿意比賽表現；陳惠淋（左）說在決賽有些許輕敵最終只得亞軍，感到少許遺憾。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798453_1_20250401160211.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798453_1_20250401160211.jpg&q=90)
   
 
 成功衛冕英國女子公開賽冠軍的本港女子桌球手吳安儀返抵香港。
@@ -1367,77 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798277-20250331.htm)
-
----
-
-# 李家超稱重視發展人工智能　加大投資革新創科產業思路
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798276_1_20250331165722.jpg&q=90)
-  
-
-行政長官李家超說，總理的政府工作報告提出，要健全因地制宜發展新質生產力體制機制，完善推動人工智能等戰略產業發展政策和治理體系，人工智能是新一輪科技革命和產業變革的核心推動力量，也是發展新質生產力重要引擎，對全球經濟社會發展和人類文明進步影響深遠。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798276-20250331.htm)
-
----
-
-# 二月零售業總銷貨價值臨時估計為294億元　按年跌13%
-
-![今年2月零售業總銷貨價值的臨時估計為294億元，較去年同月下跌13%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798273_1_20250331174842.jpg&q=90)
-  
-
-政府統計處公布，今年2月零售業總銷貨價值的臨時估計為294億元，較去年同月下跌13%。與去年同期比較，今年首兩個月合計的零售業總銷貨價值的臨時估計下跌7.8%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798273-20250331.htm)
-
----
-
-# 特區救援隊展開於曼德勒兩個受災區域搜救
-
-![抵達緬甸曼德勒的特區救援隊，正於其中兩個受災區域進行搜救行動。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798271_1_20250331180952.jpg&q=80)
-  
-
-保安局表示，抵達緬甸曼德勒的特區救援隊，帶上專業裝備及搜救犬，正於其中兩個受災區域進行搜救行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm)
 
 ---

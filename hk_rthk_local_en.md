@@ -1,3 +1,75 @@
+# Police bust cannabis farm, seize drugs worth HK$5m
+
+![Officers seized hundreds of cannabis plants in a raid in Ta Kwu Ling. Photo courtesy of Hong Kong Police.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798475_1_20250401170614.jpg&q=90)
+  
+
+Police have arrested two people after busting a cannabis production facility in Ta Kwu Ling.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm)
+
+---
+
+# ESF set to raise tuition fees by 4.8 percent
+
+![The English Schools Foundation increase means parents will have to pay HK$7,000 to HK$9,000 more a year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798469_1_20250401170058.jpg&q=90)
+  
+
+The English Schools Foundation (ESF) announced on Tuesday it will raise tuition fees by an average of 4.8 percent in the coming academic year.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm)
+
+---
+
+# Numbers may not fully reflect work of DC members: Govt
+
+![Alice Mak described the current district councils as having unprecedented transparency. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798466_1_20250401165907.jpg&q=90)
+  
+
+Home affairs minister Alice Mak said on Tuesday that the number of cases a district councillor handles in a year may not fully reflect the actual work done.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm)
+
+---
+
 # DSE exams get underway
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798449_1_20250401152353.jpg&q=90)
@@ -1384,77 +1456,5 @@ Police on Thursday said they are investigating a suspected assault at a flat in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797689-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797689-20250327.htm)
-
----
-
-# Thais give green light to draft law for casinos
-
-![Protesters rally near Government House in Bangkok against the casino-entertainment complex bill. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797665_1_20250327133509.jpg&q=90)
-  
-
-Thailand's cabinet on Thursday approved a draft law for casinos and entertainment complexes, as the government looks to attract more tourists and build a major gaming industry.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797665-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797665-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797665-20250327.htm)
-
----
-
-# 'Exporters remain positive despite trade tensions'
-
-![Irina Fan, director of research at the Trade Development Council, says the impact of US tariffs on Hong Kong is "relatively mild". File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797662_1_20250327132129.jpg&q=60)
-  
-
-The Trade Development Council said Hong Kong exporters are well-prepared for the new round of US tariffs set to take effect on April 2.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797662-20250327.htm)
-
----
-
-# 'Art Basel, Art Central a barometer for art market'
-
-![Daniel Kwok, an independent art consultant, says that art fairs and auctions will give the city's art market a boost. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797660_1_20250327130541.jpg&q=90)
-  
-
-An expert has said that ongoing art shows and upcoming auctions will give the mainland and Hong Kong art scene a boost, and serve as a barometer for future market performance.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797660-20250327.htm)
 
 ---
