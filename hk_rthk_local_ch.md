@@ -1,3 +1,145 @@
+# 佐敦文英街院舍失蹤男子已尋回沒受傷
+
+  
+
+一名日前失蹤的70歲男子已被尋回。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798395-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798395-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798395-20250401.htm)
+
+---
+
+# 李家超：東江水支持香港經濟　確保可持續發展和長期繁榮
+
+  
+
+行政長官李家超表示，60年前東江水正式供港，60年間為香港提供70%至80%的用水需求。隨著香港對水資源需求增加，東深供水系統已進行過3次擴建和改造，對港供水量提升到每年8億2000萬立方米，增長12倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm)
+
+---
+
+# 文憑試視藝科開考　考生憂「報到易」再故障提早到場
+
+  
+
+文憑試首科筆試、視覺藝術科今日開考，有近4千人報考。在觀塘一個試場，有考生提早1小時到場，因擔心有突發情況，認為「早到好過遲到」。亦有家長擔心女兒要花時間找路及協助攜帶畫具，所以接送女兒到考場，希望她放鬆心情，盡力考好文憑試。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798392-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798392-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798392-20250401.htm)
+
+---
+
+# 港股高開近百點
+
+![恒指競價時段報23217點，升97點，升幅0.42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798384_1_20250401092319.jpg&q=80)
+  
+
+港股高開，恒指競價時段報23217點，升97點，升幅0.42%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm)
+
+---
+
+# 鍾麗玲：以顧客資料助建立AI言語模型需徵得同意
+
+![鍾麗玲提醒機構輸入顧客資料受到私隱條例規管，如涉及改變用途目的，需要取得客戶同意。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798383_1_20250401092917.jpg&q=90)
+  
+
+個人資料私隱專員公署公布指引，協助機構制定使用生成式AI的內部政策。私隱專員鍾麗玲表示，不少企業以生成式AI提高產品質素，用作起草文件或製作短片，而生成式AI特別是言語模型，需要很大量數據及文字。她提醒有關機構輸入顧客資料，是受私隱條例規管，如果涉及改變用途目的，需要取得客戶同意。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm)
+
+---
+
+# 特區救援隊於緬甸地震災區通宵搜救
+
+![搜救行動通宵進行，早上仍然持續。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798379_1_20250401092513.jpg&q=90)
+![特區救援隊自昨日抵達緬甸曼德勒後，立即展開搜救。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798379_2_20250401092513.jpg&q=85)
+  
+
+特區救援隊自昨日抵達緬甸曼德勒後，立即展開搜救，與其他隊伍協調後，前往多個區域進行現場評估和快速搜索，並在Chan Aye thar san及Mahar Aung Myay 兩個災區進行救援。救援隊再於昨晚派出11人小隊，在曼德勒皇宮附近的一棟建築物使用技術搜索工具和爆破工具協助搜救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm)
+
+---
+
 # 外交部駐港公署強烈譴責美國制裁中央和特區官員　將堅決反制
 
 ![發言人指，中方必將採取有力措施堅決反制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798350_1_20250401041931.jpg&q=85)
@@ -1291,150 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm)
-
----
-
-# 鄭泳舜：七欖銷售食物安排可改善　區議員：球迷村聲浪影響居民
-
-![香港國際七人欖球賽昨日結束，大會表示，3日賽事有超過11萬名觀眾出席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798212_1_20250331114445.jpg&q=35)
-  
-
-首年在啟德體育園主場館舉行的香港國際七人欖球賽昨日結束，大會表示，3日賽事有超過11萬名觀眾出席。身兼立法會議員的大型體育活動事務委員會副主席鄭泳舜表示，賽事氣氛好，與大球場有很大分別，部分細節相信可以改善。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798212-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798212-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798212-20250331.htm)
-
----
-
-# 何永賢：簡約公屋彩興項目近尾聲　辦事處已開始運作
-
-![何永賢到彩興項目視察工程進度，檢視項目質素。（何永賢社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798211_2_20250331103431.jpg&q=80)
-![何永賢表示，簡約公屋彩興項目今個月取得不少進展，最後一個MiC組件已於本月22日完成吊裝。（何永賢社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798211_1_20250331103431.jpg&q=90)
-  
-
-房屋局局長何永賢表示，簡約公屋彩興項目今個月取得不少進展，最後一個MiC組件已於本月22日完成吊裝，意味工程已到最後階段，而位於石硤尾邨的彩興路簡約公屋辦事處，上周四已開始運作，處理相關申請的資格審核。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798211-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798211-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798211-20250331.htm)
-
----
-
-# 鄧炳強：本港仍面對軟對抗等四項國安威脅　籲市民慎思明辨
-
-![鄧炳強提到，本港仍面對四項威脅，包括外部勢力抹黑和制裁、潛逃者繼續從事危害國家安全的行為、本土恐怖主義及軟對抗。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798207_1_20250331103321.jpg&q=90)
-  
-
-保安局局長鄧炳強表示，隨著《香港國安法》和《維護國家安全條例》實施，社會已由亂到治，但不能掉以輕心，軟對抗每日都發生，市民必須慎思明辨。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798207-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798207-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798207-20250331.htm)
-
----
-
-# 特區救援隊料稍後抵達緬甸地震重災區曼德勒
-
-![緬甸當局指派特區救援隊往另一重災區曼德勒，救援隊連夜動身啟程。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798205_1_20250331100653.jpg&q=90)
-  
-
-保安局表示，到緬甸協助地震救援的特區救援隊，預計今早稍後到達重災區曼德勒。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm)
-
----
-
-# 七姊妹道爆水管　城巴部分路線須改道
-
-![運輸署表示，因水管爆裂，七姊妹道介乎琴行街與書局街之間的全線仍然封閉。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798204_1_20250331100726.jpg&q=55)
-  
-
-運輸署表示，因水管爆裂，七姊妹道介乎琴行街與書局街之間的全線仍然封閉。受影響城巴第82及85號線須改道行駛。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798204-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798204-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798204-20250331.htm)
-
----
-
-# 將軍澳消防及救護學院下月辦開放日　入場券今日起接受申請
-
-![消防處將於下月13日在將軍澳消防及救護學院舉行開放日，入場券今日起接受申請。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798202_1_20250331100542.jpg&q=90)
-  
-
-為響應和支持第10個「全民國家安全教育日」，消防處將於下月13日在將軍澳消防及救護學院舉行開放日，入場券今日起接受申請。有興趣的市民今日起至下月2日可透過消防處流動應用程式申請二維碼入場券，每人最多可申請4張。電腦抽籤結果將於下月3日經消防處流動應用程式通知中籤者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798202-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798202-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798202-20250331.htm)
 
 ---

@@ -1,3 +1,27 @@
+# SAR government hits out as officials sanctioned by US
+
+![The government said the move exposed US barbarity under its hegemony. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798354_1_20250401054205.jpg&q=80)
+  
+
+The SAR government on Tuesday condemned the United States after the US put six mainland and Hong Kong officials on its sanctions list.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798354-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798354-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798354-20250401.htm)
+
+---
+
 # China condemns 'economic coercion'
 
 ![Guo Jiakun says the State Administration for Market Regulation is aware of the deal between CK Hutchison and a BlackRock-led group and will conduct a review to ensure fair market competition. Photo courtesy of CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798334_1_20250331215247.jpg&q=90)
@@ -1432,29 +1456,5 @@ Discounts will be offered to landlords who get their subdivided homes certified 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797475-20250326.htm)
-
----
-
-# GBA cities need to maximise tourism synergy: survey
-
-![The study, led by the Polytechnic University, suggests cities in the Greater Bay Area work together to grow the tourism market together. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797477_1_20250326142939.jpg&q=85)
-  
-
-Findings from a study led by the Polytechnic University’s School of Hotel and Tourism Management have indicated there’s great potential for cities within the Greater Bay Area (GBA) to collaborate further in their tourism strategies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797477-20250326.htm)
 
 ---

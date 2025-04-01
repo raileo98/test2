@@ -1,3 +1,50 @@
+# 李家超：東江水支持香港經濟　確保可持續發展和長期繁榮
+
+  
+
+行政長官李家超表示，60年前東江水正式供港，60年間為香港提供70%至80%的用水需求。隨著香港對水資源需求增加，東深供水系統已進行過3次擴建和改造，對港供水量提升到每年8億2000萬立方米，增長12倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm)
+
+---
+
+# 國台辦：解放軍聯合演訓是對賴清德當局猖狂謀「獨」挑釁堅決懲戒
+
+![國台辦稱，解放軍聯合演訓是對賴清德當局猖狂謀「獨」挑釁的堅決懲戒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798382_1_20250401092006.jpg&q=90)
+  
+
+解放軍東部戰區於台島周邊開展聯合演訓，國台辦表示，演訓是對賴清德當局倡狂謀「獨」挑釁的堅決懲戒，是對「台獨」分裂勢力蓄意破壞台海和平的嚴正警告，是捍衛國家主權和領土完整的必要之舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798382-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798382-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798382-20250401.htm)
+
+---
+
 # 西藏多項措施促就業　企業稱校企合作與補貼有助發展
 
 ![企業為學生提供陶瓷藝術繪畫及手工拉坯課程。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_1_20250401082246.jpg&q=85)
@@ -1393,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798011-20250329.htm)
-
----
-
-# 特區政府救援隊前赴緬甸　李家超及多名官員將到機場送行
-
-![李家超下午將到機場送行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798008_1_20250329135721.jpg&q=90)
-  
-
-特區政府派出保安局、消防處、入境處和醫管局人員組成的救援隊前往緬甸，協助地震災區的搜救工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798008-20250329.htm)
-
----
-
-# 有來自泰國旅客對地震感到震驚　有轉機旅客指曼谷機場有較多旅客
-
-![有抵港的泰國旅客表示，地震發生時在25樓，當時感到震驚。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798002_1_20250329135915.jpg&q=85)
-  
-
-緬甸中部7級以上強烈地震，泰國曼谷出現強烈震感。機管局表示，截至今早10時半，有5班來往泰國的航班，包括2班到港及3班離港航班延誤，未有航班取消。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798002-20250329.htm)
 
 ---

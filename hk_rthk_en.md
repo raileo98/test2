@@ -1,3 +1,195 @@
+# China calls for Ukraine peace talks to continue
+
+![Wang Yi gave a wide-ranging interview to the Russian RIA state news agency, on his visit to Moscow. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798386_1_20250401092729.jpg&q=90)
+  
+
+A peace agreement on ending the conflict in Ukraine should be fair, binding and acceptable to all parties involved, Foreign Minister Wang Yi said in remarks published on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798386-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798386-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798386-20250401.htm)
+
+---
+
+# Myanmar to mark minute of silence for quake victims
+
+![An aerial view shows flattened buildings in the Mandalay region, Myanmar. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798381_1_20250401091723.jpg&q=80)
+  
+
+Myanmar will mark a minute of silence on Tuesday in tribute to victims of the country's devastating earthquake that has killed more than 2,000 people, as hopes dim of finding more survivors in the rubble of ruined buildings.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm)
+
+---
+
+# Nasa's astronauts speak after unexpected stay in space
+
+![Nasa astronauts, from left - Nick Hague, Suni Williams and Butch Wilmore - speak out for the first time since their return to Earth. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798377_1_20250401090640.jpg&q=90)
+  
+
+Nasa astronauts Butch Wilmore and Suni Williams said on Monday that they hold themselves partly responsible for what went wrong on their extended stay in space and would fly on Boeing's Starliner again.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm)
+
+---
+
+# Trump task force to review Harvard's funding
+
+![Harvard University in Cambridge, Massachusetts. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798375_1_20250401085409.jpg&q=65)
+  
+
+Harvard University has become the latest target in the Trump administration’s approach to fight campus anti-semitism, with the announcement of a new “comprehensive review” that could jeopardise billions of dollars for the Ivy League college.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm)
+
+---
+
+# HK snooker star Ng defends British Open crown
+
+![The victory solidified Ng's hold on second position in the world rankings. Photo courtesy of World Snooker Tour](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798376_1_20250401085554.jpg&q=90)
+  
+
+Hong Kong, China snooker player Ng On-yee on Monday defeated World No. 1 Mink Nutcharut of Thailand to defend her title at the British Open in Walsall, England.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm)
+
+---
+
+# Over 320 children killed in Gaza in 10 days, says UN
+
+![A mourner carries the body of a Palestinian child killed in Israeli strikes, at Nasser hospital, in Khan Younis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798373_1_20250401083731.jpg&q=85)
+  
+
+Israel's renewed offensive in Gaza has reportedly left at least 322 children dead and 609 wounded in the Palestinian territory in the past 10 days, UNICEF said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm)
+
+---
+
+# OpenAI to raise US$40 billion in new funding
+
+![SoftBank is to pump US$10 billion into OpenAI to start, and US$30 billion more by the end of this year pending certain conditions. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798374_1_20250401084730.jpg&q=90)
+  
+
+OpenAI on Monday said it raised US$40 billion in a new funding round that valued the ChatGPT maker at US$300 billion, the biggest capital-raising session ever for a startup.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm)
+
+---
+
+# SAR government hits out as officials sanctioned by US
+
+![The government said the move exposed US barbarity under its hegemony. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798354_1_20250401054205.jpg&q=80)
+  
+
+The SAR government on Tuesday condemned the United States after the US put six mainland and Hong Kong officials on its sanctions list.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798354-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798354-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798354-20250401.htm)
+
+---
+
 # Braves' Profar suspended 80 games for doping violation
 
 ![Profar agreed to a three-year deal with the Atlanta Braves in January. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798372_1_20250401083652.jpg&q=90)
@@ -1245,201 +1437,5 @@ A Cathay Pacific aircraft on Sunday flew near Kai Tak during the Hong Kong Seven
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798127-20250330.htm)
-
----
-
-# Hong Kong, China sweep Melrose Claymores
-
-![It's the second straight year that the Hong Kong, China men's team has won the Melrose Claymore. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798126_2_20250330171036.jpg&q=75)
-  
-
-Both the SAR men's and women's teams won an invitational in style at the first Hong Kong Sevens at Kai Tak Stadium on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798126-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798126-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798126-20250330.htm)
-
----
-
-# Who's who at the Rugby Sevens, and it's quite a cast!
-
-![Brian Hopkins (right) is celebrating his 40th birthday. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_2_20250330161122.jpg&q=90)
-![Brett Muntz, who's supporting Fiji, says the Sevens is "all about the people". Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_3_20250330161122.jpg&q=90)
-![Epeli Buliciri shows off his pin collection. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_4_20250330161122.jpg&q=90)
-![These Smurfs are confident that they have the best costume. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_5_20250330161122.jpg&q=90)
-![This group decides to draw inspiration from Freddy the weatherman. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798118_6_20250330161122.jpg&q=70)
-  
-
-Rugby lovers from Hong Kong and beyond filled up the Kai Tak Stadium on Sunday to enjoy a final day of sport and partying at the Hong Kong Sevens.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798118-20250330.htm)
-
----
-
-# 'Hutchison deal won't stop family offices coming here'
-
-![Christopher Hui says the SAR is an attractive destination for capital and family offices. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798116_1_20250330155453.jpg&q=90)
-  
-
-The controversy over CK Hutchison's plans to sell dozens of ports won't affect family offices' interest in investing in Hong Kong, financial services minister Christopher Hui said on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798116-20250330.htm)
-
----
-
-# France, Argentina to battle in Sevens men's final
-
-![Enahemo Artaud (48) and his French teammates celebrate their dramatic victory over Fiji. Photo courtesy of World Rugby](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798111_1_20250330151645.jpg&q=85)
-  
-
-France's emphatic run at the Hong Kong Sevens continued on Sunday as they scored a dramatic, nail-biting victory over Fiji to book a place in the final where they will battle Argentina.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798111-20250330.htm)
-
----
-
-# Hong Kong Super March is a big draw: Paul Chan
-
-![Paul Chan says he hopes more people will do business in Hong Kong apart from enjoying art. Image courtesy of Paul Chan's blog](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798103_1_20250330133135.jpg&q=90)
-  
-
-Financial Secretary Paul Chan said "Super March" has attracted more than 3.4 million visitors to Hong Kong, a 12 percent increase from a year ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm)
-
----
-
-# Young people see police in better light: Commissioner
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798097_3_20250330123521.jpg&q=90)
-  
-
-Police Commissioner Raymond Siu on Sunday said the force's efforts to raise its image among young people were bearing fruit.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm)
-
----
-
-# HK sets aside HK$30 million for Myanmar quake victims
-
-![A 51-member SAR rescue team has arrived in Yangon. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798095_1_20250330110807.jpg&q=90)
-  
-
-Chief Executive John Lee says the SAR government has earmarked HK$30 million from the Disaster Relief Fund to help victims of the severe earthquake that struck central Myanmar on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm)
-
----
-
-# Sabalenka beats Pegula to take Miami Open
-
-![The title was the Belarusian's first at Miami. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798090_1_20250330101920.jpg&q=90)
-  
-
-World number one Aryna Sabalenka powered her way to the Miami Open title on Saturday, beating American Jessica Pegula 7-5 6-2 in the WTA 1000 event at Hard Rock Stadium.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798090-20250330.htm)
 
 ---

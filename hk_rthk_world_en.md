@@ -1,3 +1,123 @@
+# Myanmar to mark minute of silence for quake victims
+
+![An aerial view shows flattened buildings in the Mandalay region, Myanmar. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798381_1_20250401091723.jpg&q=80)
+  
+
+Myanmar will mark a minute of silence on Tuesday in tribute to victims of the country's devastating earthquake that has killed more than 2,000 people, as hopes dim of finding more survivors in the rubble of ruined buildings.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm)
+
+---
+
+# Nasa's astronauts speak after unexpected stay in space
+
+![Nasa astronauts, from left - Nick Hague, Suni Williams and Butch Wilmore - speak out for the first time since their return to Earth. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798377_1_20250401090640.jpg&q=90)
+  
+
+Nasa astronauts Butch Wilmore and Suni Williams said on Monday that they hold themselves partly responsible for what went wrong on their extended stay in space and would fly on Boeing's Starliner again.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm)
+
+---
+
+# Trump task force to review Harvard's funding
+
+![Harvard University in Cambridge, Massachusetts. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798375_1_20250401085409.jpg&q=65)
+  
+
+Harvard University has become the latest target in the Trump administration’s approach to fight campus anti-semitism, with the announcement of a new “comprehensive review” that could jeopardise billions of dollars for the Ivy League college.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm)
+
+---
+
+# Over 320 children killed in Gaza in 10 days, says UN
+
+![A mourner carries the body of a Palestinian child killed in Israeli strikes, at Nasser hospital, in Khan Younis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798373_1_20250401083731.jpg&q=85)
+  
+
+Israel's renewed offensive in Gaza has reportedly left at least 322 children dead and 609 wounded in the Palestinian territory in the past 10 days, UNICEF said on Monday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm)
+
+---
+
+# OpenAI to raise US$40 billion in new funding
+
+![SoftBank is to pump US$10 billion into OpenAI to start, and US$30 billion more by the end of this year pending certain conditions. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798374_1_20250401084730.jpg&q=90)
+  
+
+OpenAI on Monday said it raised US$40 billion in a new funding round that valued the ChatGPT maker at US$300 billion, the biggest capital-raising session ever for a startup.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm)
+
+---
+
 # Trump will 'be kind' over further tariffs this week
 
 ![US President Donald Trump speaks to reporters aboard Air Force One. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798346_1_20250401021518.jpg&q=90)
@@ -1319,125 +1439,5 @@ A South Korean appeals court reversed on Wednesday a lower court's ruling and fo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797498-20250326.htm)
-
----
-
-# Thai PM beats no-confidence motion handily
-
-![Paetongtarn Shinawatra with members of the government after surviving the no-confidence vote. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797488_1_20250326144940.jpg&q=90)
-  
-
-Thai Prime Minister Paetongtarn Shinawatra survived a no-confidence vote in parliament on Wednesday, defeating a challenge from opposition parties who accused her of being a puppet of her father, billionaire ex-premier Thaksin Shinawatra.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797488-20250326.htm)
-
----
-
-# Toll hits at least 24 in S Korea's worst wildfires
-
-![About 20 of 30 buildings and structures in the Gounsa temple complex, including two of South Korea's three state-designated 'treasures,' in Uiseong were burned to the ground. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797453_1_20250326115256.jpg&q=90)
-  
-
-Wildfires in South Korea have killed 24 people, officials said on Wednesday, warning that the toll in one of South Korea's worst wildfire outbreaks could rise further, with more people injured and the blaze still not under control.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797453-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797453-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797453-20250326.htm)
-
----
-
-# French police arrest four over toddler's death
-
-![Authorities stand outside the house of the grandparents of Emile Soleil. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797420_1_20250326091733.jpg&q=80)
-  
-
-A months-long investigation into the mysterious death of a French toddler took a surprise turn on Tuesday when police arrested four people including the boy's grandparents on suspicion of murder and concealment of a body.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797420-20250326.htm)
-
----
-
-# Deals reached on Ukraine maritime and energy truce
-
-![Ukrainian Defence Minister Rustem Umerov talks to reporters after US-Russia talks on a Ukraine ceasefire. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797401_1_20250326063126.jpg&q=90)
-  
-
-The United States reached deals on Tuesday with Ukraine and Russia to pause attacks at sea and against energy targets, with Washington agreeing to push to lift some sanctions against Moscow in its latest step towards endorsing Russia's positions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797401-20250326.htm)
-
----
-
-# Depardieu denies 'groping' in sex abuse trial
-
-![Gerard Depardieu, 76, has been accused of improper behaviour by around 20 women but this is the first case to come to trial. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797392_1_20250326035129.jpg&q=90)
-  
-
-French star actor Gerard Depardieu, on trial for sexual assault, told the Paris court on Tuesday that he was not in the habit of "groping" women, and called the #MeToo movement a "reign of terror".
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797392-20250326.htm)
 
 ---

@@ -1,3 +1,27 @@
+# China calls for Ukraine peace talks to continue
+
+![Wang Yi gave a wide-ranging interview to the Russian RIA state news agency, on his visit to Moscow. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798386_1_20250401092729.jpg&q=90)
+  
+
+A peace agreement on ending the conflict in Ukraine should be fair, binding and acceptable to all parties involved, Foreign Minister Wang Yi said in remarks published on Tuesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798386-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798386-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798386-20250401.htm)
+
+---
+
 # China condemns 'economic coercion'
 
 ![Guo Jiakun says the State Administration for Market Regulation is aware of the deal between CK Hutchison and a BlackRock-led group and will conduct a review to ensure fair market competition. Photo courtesy of CCTV](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798334_1_20250331215247.jpg&q=90)
@@ -1415,29 +1439,5 @@ Beijing officials have shared a second article by the Ta Kung Pao newspaper crit
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795930-20250316.htm)
-
----
-
-# 'National Games test events show room for improvement'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1795914_1_20250316112203.jpg&q=90)
-  
-
-The local official who heads the National Games Coordination Office on Sunday said test runs for cross-border sports events have shown there is room for improvement.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm](https://news.rthk.hk/rthk/en/component/k2/1795914-20250316.htm)
 
 ---

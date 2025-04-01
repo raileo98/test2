@@ -1,9 +1,177 @@
+# 滬深股市初段靠穩
+
+![內地股市初段靠穩，上證指數較早時報3344點，升9點，升幅0.27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798387_1_20250401093555.jpg&q=90)
+  
+
+內地股市初段靠穩，上證指數較早時報3344點，升9點，升幅0.27%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798387-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798387-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798387-20250401.htm)
+
+---
+
+# 人行逆回購操作649億元人民幣　單日轉為淨回籠3130億元
+
+![人行公開市場開展649億元人民幣7天期逆回購操作，單日轉為淨回籠3130億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798385_1_20250401092650.jpg&q=90)
+  
+
+人民銀行公開市場開展649億元人民幣7天期逆回購操作，中標量與投標量相同，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798385-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798385-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798385-20250401.htm)
+
+---
+
+# 港股高開近百點
+
+![恒指競價時段報23217點，升97點，升幅0.42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798384_1_20250401092319.jpg&q=80)
+  
+
+港股高開，恒指競價時段報23217點，升97點，升幅0.42%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm)
+
+---
+
+# 鍾麗玲：以顧客資料助建立AI言語模型需徵得同意
+
+![鍾麗玲提醒機構輸入顧客資料受到私隱條例規管，如涉及改變用途目的，需要取得客戶同意。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798383_1_20250401092917.jpg&q=90)
+  
+
+個人資料私隱專員公署公布指引，協助機構制定使用生成式AI的內部政策。私隱專員鍾麗玲表示，不少企業以生成式AI提高產品質素，用作起草文件或製作短片，而生成式AI特別是言語模型，需要很大量數據及文字。她提醒有關機構輸入顧客資料，是受私隱條例規管，如果涉及改變用途目的，需要取得客戶同意。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm)
+
+---
+
+# 人民幣兌美元中間價微升
+
+![人民幣中間價報7.1775兌1美元，較上日中間價升7點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798380_1_20250401091715.jpg&q=70)
+  
+
+人民幣中間價報7.1775兌1美元，較上日中間價升7點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798380-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798380-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798380-20250401.htm)
+
+---
+
+# 台股開市後升逾1%
+
+![台灣加權指數較早時報20972點，升276點，升幅1.34%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798378_1_20250401090727.jpg&q=90)
+  
+
+台灣股市上升。加權指數較早時報20972點，升276點，升幅1.34%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798378-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798378-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798378-20250401.htm)
+
+---
+
+# 聯儲局官員對減息態度謹慎
+
+![威廉姆斯稱無法預測聯儲局何時可能調整利率。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798371_1_20250401083536.jpg&q=90)
+  
+
+紐約聯邦儲備銀行總裁威廉姆斯表示，貨幣政策處於良好位置，足以應對今年經濟可能出現的情況，但同時承認，通脹有再次升溫的風險，需要獲取更多信息，才能明確關稅對價格壓力的影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm)
+
+---
+
 # 恒大汽車今早9時正起停牌
 
 ![中國恒大汽車今早9時正起暫停股份買賣。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798368_1_20250401082229.jpg&q=90)
   
 
-中國恒大汽車今早9時正起暫停股份買賣。
+中國恒大汽車今早9時正起暫停股份買賣，以待刊發2024年度業績。
 
   
 
@@ -1267,173 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798228-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798228-20250331.htm)
-
----
-
-# 北都3個「片區開發」試點中午截收意向書　現場所見收12份
-
-![北部都會區3個「片區開發」試點中午截收意向書，華懋派代表遞交意向書。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798227_1_20250331120705.jpg&q=90)
-  
-
-發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，現場所見，收到12份意向書，遞交的發展商包括華懋及新世界發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798227-20250331.htm)
-
----
-
-# 滬深股市半日跌約1%至近2%　建行逆市升3%
-
-![內地3大指數臨近中午跌幅擴大，半日跌約1%至近2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798225_1_20250331114321.jpg&q=85)
-  
-
-內地股市臨近中午跌幅擴大，3大指數半日跌約1%至近2%。化工、機器人概念股下挫，銀行、貴金屬、汽車整車、黃金等股份逆市向上。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798225-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798225-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798225-20250331.htm)
-
----
-
-# 北都3個「片區開發」試點暫時收到最少6份意向書
-
-![發展局邀請市場就北都3個「片區開發」試點提交意向書，新世界發展的代表到場遞交意向書。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798218_1_20250331105323.jpg&q=90)
-  
-
-發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，暫時收到6份意向書，遞交的發展商包括新世界發展。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798218-20250331.htm)
-
----
-
-# 陳茂波：外資「驚執輸」後悔低配中資股　正在急於補倉
-
-![陳茂波指出，外資「驚執輸」的原因，主要是因為早兩年受地緣政治等因素影響，基金經理的投資組合中，都傾向低配中資股（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798215_1_20250331114546.jpg&q=90)
-  
-
-財政司司長陳茂波表示，多名來港出席金融盛事活動的與會者都指出，香港今年整體市面興旺，外國客人增加，各類金融機構對本港都有積極正面的評價。期間他接觸的金融領袖中，給他最深刻的印象是「驚執輸」，不少人後悔「低配了」中資股，正在急於補倉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798215-20250331.htm)
-
----
-
-# 日股創逾半年新低　半日急挫近4%
-
-![日經指數今早低見35574點，創逾半年新低，半日收報35691點，跌1428點，跌幅3.85%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798213_1_20250331103532.jpg&q=90)
-  
-
-日股裂口低開，沽壓顯著，創逾半年新低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798213-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798213-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798213-20250331.htm)
-
----
-
-# 滬深股市初段偏軟　4隻配股集資內銀股價靠穩
-
-![上證指數較早時報3345點，跌6點，跌幅0.18%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798203_1_20250331095531.jpg&q=90)
-  
-
-內地股市初段向下，上證指數較早時報3345點，跌6點，跌幅0.18%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798203-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798203-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798203-20250331.htm)
-
----
-
-# 人行逆回購1667億元人民幣　單日轉為淨投放317億元
-
-![人行公開市場開展1667億元人民幣7天期逆回購操作，對沖到期量後，單日淨投放317億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798201_1_20250331094740.jpg&q=75)
-  
-
-人民銀行公開市場開展1667億元人民幣7天期逆回購操作，中標量與投標量相同，利率維持1.5厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798201-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798201-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798201-20250331.htm)
 
 ---

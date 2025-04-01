@@ -1,3 +1,27 @@
+# HK snooker star Ng defends British Open crown
+
+![The victory solidified Ng's hold on second position in the world rankings. Photo courtesy of World Snooker Tour](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798376_1_20250401085554.jpg&q=90)
+  
+
+Hong Kong, China snooker player Ng On-yee on Monday defeated World No. 1 Mink Nutcharut of Thailand to defend her title at the British Open in Walsall, England.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm)
+
+---
+
 # Braves' Profar suspended 80 games for doping violation
 
 ![Profar agreed to a three-year deal with the Atlanta Braves in January. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798372_1_20250401083652.jpg&q=90)
@@ -1424,29 +1448,5 @@ Oscar Piastri led from pole to win the Chinese Grand Prix on Sunday as McLaren u
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm)
-
----
-
-# Coleman Wong beats Shelton, reaches Miami Open last 32
-
-![Coleman Wong outlasted home favourite Ben Shelton in two hours and 16 minutes. Photo: ATP Media via Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797004_2_20250323112824.jpg&q=90)
-  
-
-Hong Kong tennis star Coleman Wong pulled off the biggest triumph of his career in dramatic fashion, defeating 13th seed Ben Shelton of the United States at the Miami Open.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797004-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797004-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797004-20250323.htm)
 
 ---

@@ -1,3 +1,72 @@
+# 尹錫悅彈劾案4月4日宣判
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798390-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798390-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798390-20250401.htm)
+
+---
+
+# 特區救援隊於緬甸地震災區通宵搜救
+
+![搜救行動通宵進行，早上仍然持續。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798379_1_20250401092513.jpg&q=90)
+![特區救援隊自昨日抵達緬甸曼德勒後，立即展開搜救。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798379_2_20250401092513.jpg&q=85)
+  
+
+特區救援隊自昨日抵達緬甸曼德勒後，立即展開搜救，與其他隊伍協調後，前往多個區域進行現場評估和快速搜索，並在Chan Aye thar san及Mahar Aung Myay 兩個災區進行救援。救援隊再於昨晚派出11人小隊，在曼德勒皇宮附近的一棟建築物使用技術搜索工具和爆破工具協助搜救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm)
+
+---
+
+# 聯儲局官員對減息態度謹慎
+
+![威廉姆斯稱無法預測聯儲局何時可能調整利率。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798371_1_20250401083536.jpg&q=90)
+  
+
+紐約聯邦儲備銀行總裁威廉姆斯表示，貨幣政策處於良好位置，足以應對今年經濟可能出現的情況，但同時承認，通脹有再次升溫的風險，需要獲取更多信息，才能明確關稅對價格壓力的影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm)
+
+---
+
 # 格奧爾基耶娃：美國推動全面關稅短期內不太可能引發經濟衰退
 
 ![格奧爾基耶娃稱美國推動全面關稅正造成巨大不確定並打擊信心，但短期內不致引發經濟衰退。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798361_1_20250401070655.jpg&q=90)
@@ -1362,77 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798144-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798144-20250330.htm)
-
----
-
-# 丹麥有民眾遊行抗議美國計劃奪取格陵蘭島控制權
-
-![哥本哈根有民眾出席集會，表達對格陵蘭島及當地人民的支持。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798140_1_20250330201545.jpg&q=90)
-  
-
-丹麥首都哥本哈根有民眾遊行，抗議美國政府計劃奪取丹麥自治領地格陵蘭島的控制權，以及美國副總統萬斯日前訪問格陵蘭島。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798140-20250330.htm)
-
----
-
-# 中方救援隊在緬甸曼德勒救出一名倖存者
-
-![救援隊透過生命探測器在曼德勒佛學禮堂發現一名被困者仍有生命體徵。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798134_1_20250330184542.jpg&q=90)
-  
-
-中國救援隊再在緬甸地震災區救出倖存者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798134-20250330.htm)
-
----
-
-# 中日韓經貿部長會議　商定繼續擴大經貿領域合作
-
-![中日韓經貿部長會議在南韓首爾舉行。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798121_1_20250330162709.jpg&q=90)
-  
-
-中日韓經貿部長會議在南韓首爾舉行，重申在促進區域及全球經濟繁榮穩定方面加強三邊合作的必要性，商定繼續擴大經貿領域合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798121-20250330.htm)
 
 ---

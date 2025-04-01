@@ -1,3 +1,309 @@
+# 佐敦文英街院舍失蹤男子已尋回沒受傷
+
+  
+
+一名日前失蹤的70歲男子已被尋回。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798395-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798395-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798395-20250401.htm)
+
+---
+
+# 李家超：東江水支持香港經濟　確保可持續發展和長期繁榮
+
+  
+
+行政長官李家超表示，60年前東江水正式供港，60年間為香港提供70%至80%的用水需求。隨著香港對水資源需求增加，東深供水系統已進行過3次擴建和改造，對港供水量提升到每年8億2000萬立方米，增長12倍。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm)
+
+---
+
+# 文憑試視藝科開考　考生憂「報到易」再故障提早到場
+
+  
+
+文憑試首科筆試、視覺藝術科今日開考，有近4千人報考。在觀塘一個試場，有考生提早1小時到場，因擔心有突發情況，認為「早到好過遲到」。亦有家長擔心女兒要花時間找路及協助攜帶畫具，所以接送女兒到考場，希望她放鬆心情，盡力考好文憑試。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798392-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798392-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798392-20250401.htm)
+
+---
+
+# 尹錫悅彈劾案4月4日宣判
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798390-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798390-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798390-20250401.htm)
+
+---
+
+# 滬深股市初段靠穩
+
+![內地股市初段靠穩，上證指數較早時報3344點，升9點，升幅0.27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798387_1_20250401093555.jpg&q=90)
+  
+
+內地股市初段靠穩，上證指數較早時報3344點，升9點，升幅0.27%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798387-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798387-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798387-20250401.htm)
+
+---
+
+# 人行逆回購操作649億元人民幣　單日轉為淨回籠3130億元
+
+![人行公開市場開展649億元人民幣7天期逆回購操作，單日轉為淨回籠3130億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798385_1_20250401092650.jpg&q=90)
+  
+
+人民銀行公開市場開展649億元人民幣7天期逆回購操作，中標量與投標量相同，利率維持1.5厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798385-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798385-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798385-20250401.htm)
+
+---
+
+# 港股高開近百點
+
+![恒指競價時段報23217點，升97點，升幅0.42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798384_1_20250401092319.jpg&q=80)
+  
+
+港股高開，恒指競價時段報23217點，升97點，升幅0.42%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm)
+
+---
+
+# 鍾麗玲：以顧客資料助建立AI言語模型需徵得同意
+
+![鍾麗玲提醒機構輸入顧客資料受到私隱條例規管，如涉及改變用途目的，需要取得客戶同意。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798383_1_20250401092917.jpg&q=90)
+  
+
+個人資料私隱專員公署公布指引，協助機構制定使用生成式AI的內部政策。私隱專員鍾麗玲表示，不少企業以生成式AI提高產品質素，用作起草文件或製作短片，而生成式AI特別是言語模型，需要很大量數據及文字。她提醒有關機構輸入顧客資料，是受私隱條例規管，如果涉及改變用途目的，需要取得客戶同意。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm)
+
+---
+
+# 人民幣兌美元中間價微升
+
+![人民幣中間價報7.1775兌1美元，較上日中間價升7點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798380_1_20250401091715.jpg&q=70)
+  
+
+人民幣中間價報7.1775兌1美元，較上日中間價升7點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798380-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798380-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798380-20250401.htm)
+
+---
+
+# 國台辦：解放軍聯合演訓是對賴清德當局猖狂謀「獨」挑釁堅決懲戒
+
+![國台辦稱，解放軍聯合演訓是對賴清德當局猖狂謀「獨」挑釁的堅決懲戒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798382_1_20250401092006.jpg&q=90)
+  
+
+解放軍東部戰區於台島周邊開展聯合演訓，國台辦表示，演訓是對賴清德當局倡狂謀「獨」挑釁的堅決懲戒，是對「台獨」分裂勢力蓄意破壞台海和平的嚴正警告，是捍衛國家主權和領土完整的必要之舉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798382-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798382-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798382-20250401.htm)
+
+---
+
+# 特區救援隊於緬甸地震災區通宵搜救
+
+![搜救行動通宵進行，早上仍然持續。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798379_1_20250401092513.jpg&q=90)
+![特區救援隊自昨日抵達緬甸曼德勒後，立即展開搜救。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798379_2_20250401092513.jpg&q=85)
+  
+
+特區救援隊自昨日抵達緬甸曼德勒後，立即展開搜救，與其他隊伍協調後，前往多個區域進行現場評估和快速搜索，並在Chan Aye thar san及Mahar Aung Myay 兩個災區進行救援。救援隊再於昨晚派出11人小隊，在曼德勒皇宮附近的一棟建築物使用技術搜索工具和爆破工具協助搜救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm)
+
+---
+
+# 台股開市後升逾1%
+
+![台灣加權指數較早時報20972點，升276點，升幅1.34%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798378_1_20250401090727.jpg&q=90)
+  
+
+台灣股市上升。加權指數較早時報20972點，升276點，升幅1.34%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798378-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798378-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798378-20250401.htm)
+
+---
+
+# 聯儲局官員對減息態度謹慎
+
+![威廉姆斯稱無法預測聯儲局何時可能調整利率。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798371_1_20250401083536.jpg&q=90)
+  
+
+紐約聯邦儲備銀行總裁威廉姆斯表示，貨幣政策處於良好位置，足以應對今年經濟可能出現的情況，但同時承認，通脹有再次升溫的風險，需要獲取更多信息，才能明確關稅對價格壓力的影響。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm)
+
+---
+
 # 西藏多項措施促就業　企業稱校企合作與補貼有助發展
 
 ![企業為學生提供陶瓷藝術繪畫及手工拉坯課程。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_1_20250401082246.jpg&q=85)
@@ -53,7 +359,7 @@
 ![中國恒大汽車今早9時正起暫停股份買賣。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798368_1_20250401082229.jpg&q=90)
   
 
-中國恒大汽車今早9時正起暫停股份買賣。
+中國恒大汽車今早9時正起暫停股份買賣，以待刊發2024年度業績。
 
   
 
@@ -1126,318 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm)
-
----
-
-# 財政部第2季發行5年和7年期特別國債　對中央金融機構注資
-
-![財政部公布第2季國債發行計劃，其中安排特別國債發行用於對中央金融機構注資，期限5年和7年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798314_1_20250331191656.jpg&q=90)
-  
-
-財政部公布第2季國債發行計劃，其中，安排特別國債發行用於對中央金融機構注資，期限5年和7年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798314-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798314-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798314-20250331.htm)
-
----
-
-# 證監會：近年企業欺詐有令人關注的趨勢
-
-![證監會指，近年企業欺詐方面有令人關注的趨勢，上市公司高層或會利用貸款安排，作為將公司資金轉移給關連方的手段。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798312_1_20250331184722.jpg&q=85)
-  
-
-證監會重新刊發《執法通訊》，提到近年在企業欺詐方面，觀察到令人關注的趨勢，上市公司高層或會利用貸款安排，作為將公司資金轉移給關連方的手段。這些貸款安排看似合法，但卻欠缺真正的商業目的，而且其後出現減值，實際上掩飾屬欺詐性的資金流失。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798312-20250331.htm)
-
----
-
-# 中石油：貿易和產品採購油氣渠道多元化　關注關稅政策變化
-
-![中石油財務總監王華表示，集團亦已經在亞洲、歐洲及美洲建立三大油氣貿易中心，貿易和產品採購渠道多元化。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798311_1_20250331184650.jpg&q=90)
-  
-
-中國早前對美國進口的煤炭、液化天然氣加徵15%關稅，並對美國的進口原油加徵10%關稅。中石油財務總監王華表示，集團亦已經在亞洲、歐洲及美洲建立三大油氣貿易中心，貿易和產品採購渠道多元化，去年已從20多國進口超過50種原油。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798311-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798311-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798311-20250331.htm)
-
----
-
-# 緬甸地震造成3名中國公民遇難　另14人受傷
-
-![在緬甸，搜救人員繼續搜救被困人士。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798310_1_20250331184926.jpg&q=90)
-  
-
-緬甸7級以上地震救援黃金72小時過去，救援隊繼續搜救被困人士。中方救援隊先後救出6名倖存者，中方首批物資亦已運抵仰光。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm)
-
----
-
-# 私隱公署公布指引協助機構制定僱員使用生成式AI的內部政策
-
-![私隱公署公布指引協助機構制定僱員使用生成式AI的內部政策](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798309_1_20250331190828.jpg&q=90)
-  
-
-個人資料私隱專員公署公布指引，協助機構制定僱員使用生成式AI的內部政策。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798309-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798309-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798309-20250331.htm)
-
----
-
-# 何永賢：業主有充足時間登記簡樸房　設舉報機制嚴重違規屬刑事
-
-![何永賢說業主有充足時間登記簡樸房。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798308_1_20250331190743.jpg&q=90)
-  
-
-政府建議就「簡樸房」認證收取費用，並在推出初期提供寬減優惠，吸引業主盡早登記。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798308-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798308-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798308-20250331.htm)
-
----
-
-# 黃澤林稱邁阿密賽增強自信　冀改變外界輕視本港運動員態度
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798282_1_20250331183435.jpg&q=85)
-  
-
-在美國邁阿密網球公開賽打入男單第三圈的本港網球員黃澤林，返港後接受訪問。他說，在大賽造出理想成績，令他更有自信，過去一年的打法亦更進取及成熟。他希望以成績改變一些人輕視本港運動員的態度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm)
-
----
-
-# 陳美寶：港深西部鐵路一地兩檢口岸設於深圳灣或前海仍待商討
-
-![陳美寶表示，連接洪水橋至前海的「港深西部鐵路」將探用「一地兩檢」。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798307_1_20250331190646.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶表示，連接洪水橋至前海的「港深西部鐵路」將探用「一地兩檢」，至於口岸設在深圳灣還是前海，仍有待與深圳商討。她透露已就乘客量作初步評估，估計2038年本地及跨境客量介乎29萬至35萬人次，到2046年估計有38萬至46萬人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm)
-
----
-
-# 緬甸地震全國哀悼7日　泰國曼谷市長稱關鍵拯救時間過去仍會搜救
-
-![在緬甸曼德勒，救援人員繼續在倒塌建築物的瓦礫中搜索。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798293_1_20250331173359.jpg&q=90)
-![泰國總理佩通坦到倒塌的建築物現場視察。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798293_2_20250331173359.jpg&q=85)
-  
-
-緬甸7級以上地震救援黃金72小時過去，救援隊繼續爭分奪秒搜救被困人士。中方救援隊先後救出6名倖存者，中方首批物資亦已運抵仰光。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm)
-
----
-
-# 北部都會區三個「片區開發」試點最少收12份意向書
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798305_1_20250331183446.jpg&q=80)
-  
-
-發展局邀請市場就北部都會區3個「片區開發」試點提交意向書，今日中午截止，最少收到12份意向書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm)
-
----
-
-# 一站式「墳場及火葬場服務平台」方便市民處理先人後事
-
-![一站式網上服務，提供轄下所有墳場及火葬場的服務，簡化電子申請程序及個人化服務。（墳場及火葬場服務平台網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798303_1_20250331182559.jpg&q=90)
-  
-
-食環署推出「墳場及火葬場服務平台」，透過一站式網上服務，提供轄下所有墳場及火葬場的服務，簡化電子申請程序及個人化服務，進一步利便市民處理先人後事。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798303-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798303-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798303-20250331.htm)
-
----
-
-# 越秀地產去年盈利跌67%　不派末期息
-
-![越秀地產去年盈利10.4億元人民幣，按年跌67.3%，不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798300_1_20250331175248.jpg&q=80)
-  
-
-越秀地產公布，去年盈利10.4億元人民幣，按年跌67.3%。不派末期息，全年派息每股0.189港元，派息總額約佔核心淨利潤44%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798300-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798300-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798300-20250331.htm)
-
----
-
-# 證監會引入新的「市場偵測模型」　AI分析數據及早識別風險
-
-![證監會引入新的「市場偵測模型」，運用AI協助數據分析，及時識別風險預警跡象。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798299_1_20250331175241.jpg&q=90)
-  
-
-證監會重新刊發《執法通訊》，闡述當局打擊企業失當行為的主要執法工作。當局引入新的「市場偵測模型」，運用以人工智能（AI）驅動的分析方法，來評估財務披露、市場趨勢及各項管治指標，以識別風險狀況加劇的公司。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm)
 
 ---
