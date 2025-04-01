@@ -27,7 +27,7 @@ Beijing's Office for Safeguarding National Security in Hong Kong has issued a st
 ![Ng On-yee shows off her British Open trophy upon her return to Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798472_1_20250401170234.jpg&q=90)
   
 
-Hong Kong, China snooker star Ng On-yee said a decision last week allowing billiards to retain its Tier A status will help the players as well as the sport's overall development.
+Hong Kong, China snooker star Ng On-yee said a decision by the government last week allowing billiards to retain its Tier A status will help the players as well as the sport's overall development.
 
   
 
