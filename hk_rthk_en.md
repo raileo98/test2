@@ -1,3 +1,27 @@
+# DSE exams get underway
+
+![Some candidates arrived early at an exam venue in Kwun Tong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798449_1_20250401152353.jpg&q=90)
+  
+
+Hong Kong's university entrance exams began on Tuesday, with some candidates arriving early to avoid potential issues with the electronic check-in system.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798449-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798449-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798449-20250401.htm)
+
+---
+
 # Australia hit by floods in inland area size of France
 
 ![A homestead is inundated by floodwaters near the town of Jundah in south-west Queensland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798443_1_20250401145343.jpg&q=85)
@@ -1413,29 +1437,5 @@ The Hang Seng Index lost 0.94 percent to open at 23,207 points on Monday.
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm)
-
----
-
-# China discovers major oilfield in South China Sea
-
-![CNOOC says the new oilfield is around 170 km off the coast of Shenzhen. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798194_1_20250331091600.jpg&q=90)
-  
-
-The China National Offshore Oil Corporation (CNOOC) has discovered an oilfield in the South China Sea with proven reserves exceeding 100 million tonnes, Xinhua news agency reported on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798194-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798194-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798194-20250331.htm)
 
 ---
