@@ -1,5 +1,30 @@
+# 俄外長稱俄美正準備新一輪會談以實現接觸正常化
+
+![拉夫羅夫說俄美團隊透過電話及視像會議接觸，目前看到一些進展。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798528_1_20250402025636.jpg&q=90)
+  
+
+俄羅斯外交部長拉夫羅夫表示，俄羅斯與美國正準備新一輪會談，以消除雙邊關係中的刺激因素，實現接觸正常化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798528-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798528-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798528-20250402.htm)
+
+---
+
 # 中方轉交中國紅十字會向緬甸所提供150萬元人民幣現匯援助
 
+![中國向緬甸提供1億元人民幣緊急人道主義地震救災援助。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798527_1_20250402031421.jpg&q=80)
   
 
 中國駐緬甸使館公使銜參贊曹靜，昨日在仰光會見緬甸紅十字會主席苗紐，轉交中國紅十字會向緬方提供的150萬元人民幣現匯援助。
@@ -23,6 +48,7 @@
 
 # 芬蘭增國防開支　稱回應當前歐洲安全形勢
 
+![芬蘭增國防開支　稱回應當前歐洲安全形勢](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798526_1_20250402031654.jpg&q=90)
   
 
 芬蘭國防部發表公告表示，將於2029年將國防開支，提高到至少佔當地國內生產總值的3%。
@@ -1410,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm)
-
----
-
-# 文憑試視藝科開考　考生報到系統運作順暢
-
-![鄔景聰表示，今日有45名考生在禮堂應考，程序整體順暢，沒有收到考生「報到易」故障的報告。（彭冠中攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798459_1_20250401163841.jpg&q=90)
-  
-
-文憑試首科筆試、視覺藝術科今日開考，有近4千人報考。在觀塘一個試場，有考生提早1小時到場，因擔心有突發情況，認為「早到好過遲到」。考生今年要繼續使用電子點名系統「報到易」自行簽到，有考生擔心系統故障，所以提早到達學校。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798459-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798459-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798459-20250401.htm)
 
 ---

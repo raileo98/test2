@@ -1,5 +1,30 @@
+# 俄外長稱俄美正準備新一輪會談以實現接觸正常化
+
+![拉夫羅夫說俄美團隊透過電話及視像會議接觸，目前看到一些進展。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798528_1_20250402025636.jpg&q=90)
+  
+
+俄羅斯外交部長拉夫羅夫表示，俄羅斯與美國正準備新一輪會談，以消除雙邊關係中的刺激因素，實現接觸正常化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798528-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798528-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798528-20250402.htm)
+
+---
+
 # 中方轉交中國紅十字會向緬甸所提供150萬元人民幣現匯援助
 
+![中國向緬甸提供1億元人民幣緊急人道主義地震救災援助。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798527_1_20250402031421.jpg&q=80)
   
 
 中國駐緬甸使館公使銜參贊曹靜，昨日在仰光會見緬甸紅十字會主席苗紐，轉交中國紅十字會向緬方提供的150萬元人民幣現匯援助。
@@ -23,6 +48,7 @@
 
 # 芬蘭增國防開支　稱回應當前歐洲安全形勢
 
+![芬蘭增國防開支　稱回應當前歐洲安全形勢](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798526_1_20250402031654.jpg&q=90)
   
 
 芬蘭國防部發表公告表示，將於2029年將國防開支，提高到至少佔當地國內生產總值的3%。
@@ -1411,28 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm)
-
----
-
-# 利物浦AC米蘭7.26　阿仙奴熱刺7.31啟德主場館表演賽
-
-  
-
-三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月到港於啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm)
 
 ---
