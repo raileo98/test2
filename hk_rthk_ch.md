@@ -1,3 +1,27 @@
+# 王毅指美方如果續加關稅施壓　中方必將堅決反制
+
+![王毅回應美國對華加徵關稅，指中國從來不接受強權霸權，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798516_1_20250401224644.jpg&q=90)
+  
+
+正在俄羅斯訪問的中共中央政治局委員、外交部長王毅，回應美國對華加徵關稅，他說中國從來不接受強權霸權，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798516-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798516-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798516-20250401.htm)
+
+---
+
 # 美國3月製造業PMI終值勝預期　ISM製造業指數遜預期
 
 ![標普全球公布，美國3月製造業PMI終值為50.2，高過市場預期的49.9；美國供應管理協會（ISM）3月製造業指數跌至49，低過預期的49.5。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798514_1_20250401221159.jpg&q=90)

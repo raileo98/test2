@@ -1,3 +1,27 @@
+# 王毅指美方如果續加關稅施壓　中方必將堅決反制
+
+![王毅回應美國對華加徵關稅，指中國從來不接受強權霸權，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798516_1_20250401224644.jpg&q=90)
+  
+
+正在俄羅斯訪問的中共中央政治局委員、外交部長王毅，回應美國對華加徵關稅，他說中國從來不接受強權霸權，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798516-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798516-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798516-20250401.htm)
+
+---
+
 # 緬甸地震　63歲女子被困91小時後獲救
 
 ![俄羅斯救援人員協助搜索地震災區。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798504_1_20250401200751.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798208-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798208-20250331.htm)
-
----
-
-# 特區救援隊料稍後抵達緬甸地震重災區曼德勒
-
-![緬甸當局指派特區救援隊往另一重災區曼德勒，救援隊連夜動身啟程。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798205_1_20250331100653.jpg&q=90)
-  
-
-保安局表示，到緬甸協助地震救援的特區救援隊，預計今早稍後到達重災區曼德勒。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm)
 
 ---
