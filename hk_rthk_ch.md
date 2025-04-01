@@ -1,3 +1,49 @@
+# 中方轉交中國紅十字會向緬甸所提供150萬元人民幣現匯援助
+
+  
+
+中國駐緬甸使館公使銜參贊曹靜，昨日在仰光會見緬甸紅十字會主席苗紐，轉交中國紅十字會向緬方提供的150萬元人民幣現匯援助。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm)
+
+---
+
+# 芬蘭增國防開支　稱回應當前歐洲安全形勢
+
+  
+
+芬蘭國防部發表公告表示，將於2029年將國防開支，提高到至少佔當地國內生產總值的3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798526-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798526-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798526-20250402.htm)
+
+---
+
 # 美國制裁一批實體與個人　指其參與伊朗武器採購網絡威脅平民
 
 ![貝森特指伊朗向德黑蘭於區內的恐怖主義代理人及俄羅斯提供無人機及導彈。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798525_1_20250402014150.jpg&q=90)
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798459-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798459-20250401.htm)
-
----
-
-# 恒指高收87點　結束兩日跌勢　小米挫逾5%
-
-![恒生指數最多曾升近340點，高見23456點，其後升幅收窄，收市報23206點，升87點，升幅近0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798457_1_20250401161816.jpg&q=90)
-  
-
-港股結束兩日跌勢，恒生指數最多曾升近340點，高見23456點，其後升幅收窄，收市報23206點，升87點，升幅近0.4%，全日主板成交額2502億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798457-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798457-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798457-20250401.htm)
-
----
-
-# 駐港國安公署嚴厲譴責　稱美國制裁是一張廢紙
-
-![駐港國安公署嚴厲譴責美方行為，並嚴正警告任何外部勢力妄圖干涉香港維護國家安全必定碰壁。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798456_1_20250401164543.jpg&q=80)
-  
-
-美國以損害香港自治為由，制裁6名中央和特區官員。駐港國安公署嚴厲譴責美方行為，並嚴正警告任何外部勢力妄圖干涉香港維護國家安全必定碰壁，美方應趁早收起狂妄肆意囂張的霸凌做法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm)
 
 ---

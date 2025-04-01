@@ -1,3 +1,49 @@
+# 中方轉交中國紅十字會向緬甸所提供150萬元人民幣現匯援助
+
+  
+
+中國駐緬甸使館公使銜參贊曹靜，昨日在仰光會見緬甸紅十字會主席苗紐，轉交中國紅十字會向緬方提供的150萬元人民幣現匯援助。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm)
+
+---
+
+# 芬蘭增國防開支　稱回應當前歐洲安全形勢
+
+  
+
+芬蘭國防部發表公告表示，將於2029年將國防開支，提高到至少佔當地國內生產總值的3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798526-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798526-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798526-20250402.htm)
+
+---
+
 # 美國制裁一批實體與個人　指其參與伊朗武器採購網絡威脅平民
 
 ![貝森特指伊朗向德黑蘭於區內的恐怖主義代理人及俄羅斯提供無人機及導彈。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798525_1_20250402014150.jpg&q=90)
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm)
-
----
-
-# 世衞指急需8百萬美元為緬甸地震傷者提供創傷護理並預防疾病爆發
-
-![世衞表示正組織全球緊急醫療團隊，到緬甸開展救援行動。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798248_1_20250331142730.jpg&q=70)
-  
-
-世界衞生組織形容強烈地震已摧毀緬甸中部，擾亂衞生服務，大批民眾處於危及生命的傷害及疾病爆發風險當中，世衞正以最高級別的緊急行動應對，並作出緊急呼籲，表示迫切需要800萬美元資金，在未來一個月為傷者提供創傷護理、預防疾病爆發及恢復基本衞生服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798248-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798248-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798248-20250331.htm)
-
----
-
-# 特區救援隊抵達曼德勒　將與國家隊分工展開搜救
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798239_1_20250331135742.jpg&q=75)
-  
-
-保安局表示，特區救援隊剛抵達緬甸地震災區曼德勒，立即與中國救援隊會合，聽取國家隊對當地災情的簡介。沿途見到不少房屋倒塌，災民在空地搭建臨時帳篷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm)
 
 ---

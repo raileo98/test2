@@ -1,3 +1,26 @@
+# 中方轉交中國紅十字會向緬甸所提供150萬元人民幣現匯援助
+
+  
+
+中國駐緬甸使館公使銜參贊曹靜，昨日在仰光會見緬甸紅十字會主席苗紐，轉交中國紅十字會向緬方提供的150萬元人民幣現匯援助。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm)
+
+---
+
 # 普京指俄中應續發加強戰略協作信號　王毅稱兩國合作不受外部干擾
 
 ![普京說俄中應持續向世界發出加強戰略協作的有力信號；王毅表示中俄政治互信不斷加深。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798195-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798195-20250331.htm)
-
----
-
-# 財政部：積極支持國有大行補充核心一級資本更好服務實體經濟
-
-![財政部稱四大行資本補充工作將按照市場化、法治化原則穩妥推進。（財政部網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798191_1_20250331090137.jpg&q=90)
-  
-
-財政部表示，將發行首批特別國債5000億元人民幣，積極支持中國銀行、建設銀行、交通銀行、郵儲銀行補充核心一級資本，將按照市場化、法治化原則穩妥推進。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798191-20250331.htm)
 
 ---
