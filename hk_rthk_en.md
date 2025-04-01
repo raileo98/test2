@@ -1,9 +1,58 @@
+# US sanctions have 'no impact' on Paul Lam
+
+![Justice chief Paul Lam is among six mainland and Hong Kong officials placed on Washington's sanctions list. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798426_1_20250401124951.jpg&q=80)
+  
+
+Secretary for Justice Paul Lam has stressed sanctions imposed by the United States "had no impact on him" and didn't affect his work and life, saying the best way to respond is to "remain calm and collected."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm)
+
+---
+
+# Celtics, Thunder keep NBA winning streaks alive
+
+![Al Horford led the way for Boston with 26 points against Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798427_1_20250401125147.jpg&q=90)
+![Isaiah Joe came up big off the bench in the Thunder's win over the Bulls. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798427_2_20250401125400.jpg&q=90)
+  
+
+Veteran Al Horford turned back the clock to help the NBA champion Boston Celtics notch a ninth straight victory and nab a franchise first with a 117-103 win over the Grizzlies in Memphis.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798427-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798427-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798427-20250401.htm)
+
+---
+
 # Top court overturns ex-lawmaker's acquittal
 
 ![The top court is split three to two, with the ruling overturning former lawmaker Lam Cheuk-ting's acquittal. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798417_1_20250401121740.jpg&q=80)
   
 
-Hong Kong's top court has overturned the acquittal of a former lawmaker for revealing that a police officer who was on duty during a mob attack at a railway station during the 2019 protests was facing an anti-graft probe.
+Hong Kong's top court has overturned the acquittal of a former lawmaker for revealing that a police officer who was on duty during clashes in Yuen Long amid the 2019 protests was facing an anti-graft probe.
 
   
 
@@ -1389,53 +1438,5 @@ Marcus Rashford's first goals for Aston Villa inspired a 3-0 win against Preston
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798189-20250331.htm)
-
----
-
-# Trump threatens Iran with bombings and tariffs
-
-![In a telephone interview with NBC News, Trump said US and Iranian officials were talking but did not elaborate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798156_2_20250331075407.jpg&q=90)
-  
-
-US President Donald Trump on Sunday threatened Iran with bombings and secondary tariffs if Tehran did not come to an agreement with Washington over its nuclear programme.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm)
-
----
-
-# Mitchell magic as Cavs down Clippers to bag 60th win
-
-![Donovan Mitchell scored 24 points in the Cavs' win over the Los Angeles Clippers. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798179_1_20250331075136.jpg&q=90)
-  
-
-Donovan Mitchell led from the front as the Cleveland Cavaliers bagged their 60th win of the NBA season with a 127-122 victory over the in-form Los Angeles Clippers.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798179-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798179-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798179-20250331.htm)
 
 ---

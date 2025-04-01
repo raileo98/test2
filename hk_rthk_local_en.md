@@ -1,9 +1,33 @@
+# US sanctions have 'no impact' on Paul Lam
+
+![Justice chief Paul Lam is among six mainland and Hong Kong officials placed on Washington's sanctions list. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798426_1_20250401124951.jpg&q=80)
+  
+
+Secretary for Justice Paul Lam has stressed sanctions imposed by the United States "had no impact on him" and didn't affect his work and life, saying the best way to respond is to "remain calm and collected."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm)
+
+---
+
 # Top court overturns ex-lawmaker's acquittal
 
 ![The top court is split three to two, with the ruling overturning former lawmaker Lam Cheuk-ting's acquittal. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798417_1_20250401121740.jpg&q=80)
   
 
-Hong Kong's top court has overturned the acquittal of a former lawmaker for revealing that a police officer who was on duty during a mob attack at a railway station during the 2019 protests was facing an anti-graft probe.
+Hong Kong's top court has overturned the acquittal of a former lawmaker for revealing that a police officer who was on duty during clashes in Yuen Long amid the 2019 protests was facing an anti-graft probe.
 
   
 
@@ -1432,29 +1456,5 @@ People who have financial difficulties would be able to apply online for waivers
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797528-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797528-20250326.htm)
-
----
-
-# Investment migrant scheme could lure at least HK$27b
-
-![Christopher Hui says more than 900 capital investment migrant applications have been received. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797505_1_20250326155229.jpg&q=85)
-  
-
-The government on Wednesday said a renewed capital investment migrant scheme could bring investments worth HK$27 billion to Hong Kong.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797505-20250326.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797505-20250326.htm](https://news.rthk.hk/rthk/en/component/k2/1797505-20250326.htm)
 
 ---

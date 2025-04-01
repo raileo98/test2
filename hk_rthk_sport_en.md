@@ -1,3 +1,28 @@
+# Celtics, Thunder keep NBA winning streaks alive
+
+![Al Horford led the way for Boston with 26 points against Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798427_1_20250401125147.jpg&q=90)
+![Isaiah Joe came up big off the bench in the Thunder's win over the Bulls. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798427_2_20250401125400.jpg&q=90)
+  
+
+Veteran Al Horford turned back the clock to help the NBA champion Boston Celtics notch a ninth straight victory and nab a franchise first with a 117-103 win over the Grizzlies in Memphis.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798427-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798427-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798427-20250401.htm)
+
+---
+
 # HK snooker star Ng defends British Open crown
 
 ![The victory solidified Ng's hold on second position in the world rankings. Photo courtesy of World Snooker Tour](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798376_1_20250401085554.jpg&q=90)
@@ -1424,29 +1449,5 @@ Ticket sales for the Hong Kong Rugby Sevens are breaking records less than one w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm)
-
----
-
-# McLaren's Piastri wins Chinese Grand Prix
-
-![McLaren's Oscar Piastri celebrates on the podium after winning the Chinese Grand Prix with second placed McLaren's Lando Norris and third placed Mercedes' George Russell. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797037_1_20250323172831.jpg&q=55)
-  
-
-Oscar Piastri led from pole to win the Chinese Grand Prix on Sunday as McLaren used a one-stop strategy to complete a dominant one-two with Lando Norris second.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797037-20250323.htm)
 
 ---
