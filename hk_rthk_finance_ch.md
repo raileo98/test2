@@ -1,3 +1,27 @@
+# 美國2月建築開支按月升0.7%多過預期
+
+![美國2月建築支出按月上升0.7%，升幅高過市場預期的0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798515_1_20250401224222.jpg&q=80)
+  
+
+美國商務部公布，美國2月建築支出按月上升0.7%，升幅高過市場預期的0.3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm)
+
+---
+
 # 美國3月製造業PMI終值勝預期　ISM製造業指數遜預期
 
 ![標普全球公布，美國3月製造業PMI終值為50.2，高過市場預期的49.9；美國供應管理協會（ISM）3月製造業指數跌至49，低過預期的49.5。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798514_1_20250401221159.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798352-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798352-20250401.htm)
-
----
-
-# 特朗普周三公布對等關稅政策　白宮稱對美不公國家應預料成為目標
-
-![萊維特說，關稅將扭轉幾十年來一直剝削美國的不公平貿易行為。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798348_1_20250401032921.jpg&q=75)
-  
-
-美國白宮表示，總統特朗普將於星期三在白宮玫瑰園的活動上，宣布對等關稅政策。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm)
 
 ---

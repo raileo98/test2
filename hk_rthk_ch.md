@@ -1,3 +1,27 @@
+# 美國2月建築開支按月升0.7%多過預期
+
+![美國2月建築支出按月上升0.7%，升幅高過市場預期的0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798515_1_20250401224222.jpg&q=80)
+  
+
+美國商務部公布，美國2月建築支出按月上升0.7%，升幅高過市場預期的0.3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm)
+
+---
+
 # 王毅指美方如果續加關稅施壓　中方必將堅決反制
 
 ![王毅回應美國對華加徵關稅，指中國從來不接受強權霸權，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798516_1_20250401224644.jpg&q=90)
