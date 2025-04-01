@@ -1,3 +1,27 @@
+# 羅淑佩：香港迪士尼利用償還款項自資興建新設施是較好
+
+![香港迪士尼樂園已開始償還由特區政府及華特迪士尼提供的貸款，至今已償還超過六成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798493_1_20250401185342.jpg&q=85)
+  
+
+立法會一個委員會討論香港迪士尼樂園度假區最新進展報告。民建聯立法會議員陳勇指出，香港迪士尼樂園已轉虧為盈，但仍有四成貸款未償還予特區政府及華特迪士尼，關注何時完成還款，又能否將部分盈利回撥予政府。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm)
+
+---
+
 # 理想汽車3月交付量按年增長近27%　首季升近16%
 
 ![理想汽車3月新車交付量近3.7萬輛，按年增長近27%；首季累計交付近9.3萬輛，按年增長近16%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798484_1_20250401174151.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798330-20250331.htm)
-
----
-
-# 萬科去年轉蝕約495億元人民幣
-
-![萬科企業公布，去年轉蝕494.8億元人民幣。收入跌26%至3431.8億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798329_1_20250331211949.jpg&q=90)
-  
-
-萬科企業公布，去年轉蝕494.8億元人民幣，前年錄得盈利121.6億元。不派息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798329-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798329-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798329-20250331.htm)
 
 ---

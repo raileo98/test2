@@ -1,3 +1,26 @@
+# 港澳辦再轉載文章引述政商界冀長和配合審查重塑良好企業形象
+
+  
+
+港澳辦網站再次轉載《大公報》文章，文中引述多名立法會議員指出，國家市場監督管理總局對長和出售巴拿馬運河港口等資產的審查，是維護市場公平的必要舉措，又指香港政商界希望長和配合好今次反壟斷審查，重塑良好企業的形象，贏得公眾信任。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798496-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798496-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798496-20250401.htm)
+
+---
+
 # 夏寶龍會見港協暨奧委會會長霍震霆一行　冀繼續高舉愛國愛港旗幟
 
   
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm)
-
----
-
-# 陳美寶：港深西部鐵路一地兩檢口岸設於深圳灣或前海仍待商討
-
-![陳美寶表示，連接洪水橋至前海的「港深西部鐵路」將探用「一地兩檢」。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798307_1_20250331190646.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶表示，連接洪水橋至前海的「港深西部鐵路」將探用「一地兩檢」，至於口岸設在深圳灣還是前海，仍有待與深圳商討。她透露已就乘客量作初步評估，估計2038年本地及跨境客量介乎29萬至35萬人次，到2046年估計有38萬至46萬人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm)
 
 ---
