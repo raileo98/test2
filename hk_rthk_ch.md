@@ -1,3 +1,27 @@
+# 緬甸地震　63歲女子被困91小時後獲救
+
+![俄羅斯救援人員協助搜索地震災區。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798504_1_20250401200751.jpg&q=85)
+  
+
+緬甸中部大地震，首都內比都一名63歲女子被困91小時後獲救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm)
+
+---
+
 # 回應美國制裁官員　警方指會繼續堅定不移維護國家及香港安全
 
   

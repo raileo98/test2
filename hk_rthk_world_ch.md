@@ -1,3 +1,27 @@
+# 緬甸地震　63歲女子被困91小時後獲救
+
+![俄羅斯救援人員協助搜索地震災區。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798504_1_20250401200751.jpg&q=85)
+  
+
+緬甸中部大地震，首都內比都一名63歲女子被困91小時後獲救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm)
+
+---
+
 # 特區救援隊：災區非常惡劣兩次緊急撤離部署　冀盡早救出被困人士
 
 ![特區救援隊繼續在緬甸曼特勒災區搜救。（保安局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798501_1_20250401192854.jpg&q=70)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798205-20250331.htm)
-
----
-
-# 中國救援隊再於曼德勒廢墟救出被埋者　獲救女子生命體徵良好
-
-![中國救援隊與公羊救援隊合作救出一名被困超過60小時的幼童。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798199_1_20250331092959.jpg&q=90)
-  
-
-中國救援力量在緬甸地震災區一再救出幾名被困人員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm)
 
 ---
