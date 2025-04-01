@@ -1,3 +1,27 @@
+# Ng On-yee happy that billiards keep its Tier A status
+
+![Ng On-yee shows off her British Open trophy upon her return to Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798472_1_20250401170234.jpg&q=90)
+  
+
+Hong Kong, China snooker star Ng On-yee said a decision last week allowing billiards to retain its Tier A status will help the players as well as the sport's overall development.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm)
+
+---
+
 # Police bust cannabis farm, seize drugs worth HK$5m
 
 ![Officers seized hundreds of cannabis plants in a raid in Ta Kwu Ling. Photo courtesy of Hong Kong Police.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798475_1_20250401170614.jpg&q=90)
@@ -1432,29 +1456,5 @@ Hong Kong will continue to deepen international co-operation and integrate into 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797694-20250327.htm)
-
----
-
-# Police probe alleged attack on elderly woman
-
-![Police say an elderly woman was taken to hospital with injuries to her face and hands. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797689_1_20250327160355.jpg&q=60)
-  
-
-Police on Thursday said they are investigating a suspected assault at a flat in Sham Shui Po after a video shared online appeared to show an elderly woman being physically abused by a helper.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797689-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797689-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797689-20250327.htm)
 
 ---

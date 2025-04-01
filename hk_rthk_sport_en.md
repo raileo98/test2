@@ -1,3 +1,27 @@
+# Ng On-yee happy that billiards keep its Tier A status
+
+![Ng On-yee shows off her British Open trophy upon her return to Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798472_1_20250401170234.jpg&q=90)
+  
+
+Hong Kong, China snooker star Ng On-yee said a decision last week allowing billiards to retain its Tier A status will help the players as well as the sport's overall development.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm)
+
+---
+
 # Celtics, Thunder keep NBA winning streaks alive
 
 ![Al Horford led the way for Boston with 26 points against Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798427_1_20250401125147.jpg&q=90)
@@ -1425,29 +1449,5 @@ Former Masters champion Patrick Reed qualified for the British Open after coming
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797045-20250323.htm)
-
----
-
-# Rugby Sevens tickets selling like hotcakes: organiser
-
-![The Hong Kong Sevens will take place from March 28 to 30 at Kai Tak Stadium. Photo courtesy of Hong Kong, China Rugby](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797035_1_20250323172148.jpg&q=75)
-  
-
-Ticket sales for the Hong Kong Rugby Sevens are breaking records less than one week before the event kicks off at the Kai Tak Sports Park, according to the event's organiser.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1797035-20250323.htm)
 
 ---

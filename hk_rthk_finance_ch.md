@@ -1,3 +1,51 @@
+# 理想汽車3月交付量按年增長近27%　首季升近16%
+
+![理想汽車3月新車交付量近3.7萬輛，按年增長近27%；首季累計交付近9.3萬輛，按年增長近16%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798484_1_20250401174151.jpg&q=90)
+  
+
+理想汽車公布，3月新車交付量近3.7萬輛，按年增長近27%；首季累計交付近9.3萬輛，按年增長近16%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798484-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798484-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798484-20250401.htm)
+
+---
+
+# 吉利3月總銷量按年增長約54%
+
+![吉利汽車3月總銷量逾23.2萬部汽車，按年增長約54%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798482_1_20250401173458.jpg&q=90)
+  
+
+吉利汽車公布，集團3月總銷量逾23.2萬部汽車，按年增長約54%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798482-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798482-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798482-20250401.htm)
+
+---
+
 # 在岸人民幣兌美元收市創近1個月低位
 
 ![在岸人民幣收市報7.2687兌1美元，較上日收市跌171點子，創近1個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798467_1_20250401170741.jpg&q=85)
@@ -1389,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798329-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798329-20250331.htm)
-
----
-
-# 恒大物業去年盈利跌近34%　不派末期息
-
-![恒大物業去年盈利按年跌近34%至10.2億元人民幣，不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798327_1_20250331210504.jpg&q=90)
-  
-
-恒大物業公布，去年盈利10.2億元人民幣，按年跌近34%，不派末期息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798327-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798327-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798327-20250331.htm)
-
----
-
-# 嘉禾黃埔戲院租約期滿下月10日起結束營業
-
-![嘉禾黃埔戲院租約期滿下月10日起結束營業](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798325_1_20250331220030.jpg&q=90)
-  
-
-嘉禾院線表示，由於租約期滿，嘉禾黃埔戲院將於下月10日起結束營業，衷心感謝大家多年來的支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm)
 
 ---

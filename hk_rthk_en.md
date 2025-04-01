@@ -1,3 +1,27 @@
+# Ng On-yee happy that billiards keep its Tier A status
+
+![Ng On-yee shows off her British Open trophy upon her return to Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798472_1_20250401170234.jpg&q=90)
+  
+
+Hong Kong, China snooker star Ng On-yee said a decision last week allowing billiards to retain its Tier A status will help the players as well as the sport's overall development.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm)
+
+---
+
 # HK stocks close higher
 
 ![The Hang Seng Index finished up 0.4 percent at 23,206. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798476_1_20250401171429.jpg&q=75)
@@ -1412,29 +1436,5 @@ US President Donald Trump said “I’m not joking” about trying to serve a th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798236-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798236-20250331.htm)
-
----
-
-# Duterte lawyer insists ICC 'has no jurisdiction'
-
-![Friends and relatives of some of the thousands killed during former Philippine president Rodrigo Duterte's 'war on drugs' call for justice and his conviction by the International Criminal Court in Manila on Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798229_1_20250331121432.jpg&q=90)
-  
-
-Rodrigo Duterte's lead lawyer said there was a "compelling" argument to throw out the International Criminal Court case against the former Philippines president before it even comes to trial.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm)
 
 ---

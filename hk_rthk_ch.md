@@ -1,3 +1,51 @@
+# 理想汽車3月交付量按年增長近27%　首季升近16%
+
+![理想汽車3月新車交付量近3.7萬輛，按年增長近27%；首季累計交付近9.3萬輛，按年增長近16%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798484_1_20250401174151.jpg&q=90)
+  
+
+理想汽車公布，3月新車交付量近3.7萬輛，按年增長近27%；首季累計交付近9.3萬輛，按年增長近16%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798484-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798484-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798484-20250401.htm)
+
+---
+
+# 吉利3月總銷量按年增長約54%
+
+![吉利汽車3月總銷量逾23.2萬部汽車，按年增長約54%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798482_1_20250401173458.jpg&q=90)
+  
+
+吉利汽車公布，集團3月總銷量逾23.2萬部汽車，按年增長約54%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798482-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798482-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798482-20250401.htm)
+
+---
+
 # 中俄外長會面　拉夫羅夫稱將為下月俄中元首峰會做好準備
 
 ![俄羅斯外長拉夫羅夫指出，王毅訪問俄羅斯的主要目的，是為今年5月舉行的俄中元首峰會做好準備。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798483_1_20250401173549.jpg&q=90)
