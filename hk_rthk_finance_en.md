@@ -1,3 +1,27 @@
+# HK stocks close higher
+
+![The Hang Seng Index finished up 0.4 percent at 23,206. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798476_1_20250401171429.jpg&q=75)
+  
+
+Hong Kong stocks ended higher on Tuesday, with the benchmark Hang Seng Index up 0.4 percent at 23,206.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm)
+
+---
+
 # Stocks market maker plans to expand in Central
 
 ![Jane Street is said to be in talks with Hongkong Land to take over two more floors in Central. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798414_1_20250401120606.jpg&q=85)
@@ -1413,29 +1437,5 @@ Washington is expected to present US trading partners on April 2 with a number r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796362-20250319.htm)
-
----
-
-# Hong Kong stocks open flat ahead of Fed decision
-
-![The Fed on Wednesday is expected to maintain current interest rates. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796365_1_20250319093927.jpg&q=90)
-  
-
-The Hang Seng Index lost 42.94 points, or 0.17 percent, to open at 24,697.63 on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796365-20250319.htm)
 
 ---

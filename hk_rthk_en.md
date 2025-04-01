@@ -1,6 +1,54 @@
+# HK stocks close higher
+
+![The Hang Seng Index finished up 0.4 percent at 23,206. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798476_1_20250401171429.jpg&q=75)
+  
+
+Hong Kong stocks ended higher on Tuesday, with the benchmark Hang Seng Index up 0.4 percent at 23,206.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm)
+
+---
+
+# Police bust cannabis farm, seize drugs worth HK$5m
+
+![Officers seized hundreds of cannabis plants in a raid in Ta Kwu Ling. Photo courtesy of Hong Kong Police.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798475_1_20250401170614.jpg&q=90)
+  
+
+Police have arrested two people after busting a cannabis production facility in Ta Kwu Ling.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm)
+
+---
+
 # ESF set to raise tuition fees by 4.8 percent
 
-![The English Schools Foundation increase means parents will have to pay HK$7,000 to HK$9,000 more a year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798469_1_20250401170058.jpg&q=90)
+![The English Schools Foundation increase means parents will have to fork out HK$650 to HK$750  more a month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798469_1_20250401170058.jpg&q=90)
   
 
 The English Schools Foundation (ESF) announced on Tuesday it will raise tuition fees by an average of 4.8 percent in the coming academic year.
@@ -1388,54 +1436,5 @@ Rodrigo Duterte's lead lawyer said there was a "compelling" argument to throw ou
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm)
-
----
-
-# Kai Tak operators 'inexperienced in serving big crowd'
-
-![Allan Zeman believes operators will learn a lesson from the Sevens, after some fans complained about not being able to get food at the venue. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798224_1_20250331112814.jpg&q=35)
-  
-
-Kai Tak Sports Park will "learn a good lesson" from hosting the Hong Kong Sevens and be better prepared in the future following complaints by fans over their inability to get food at the venue, a business tycoon said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798224-20250331.htm)
-
----
-
-# Teenage ace Mensik beats childhood hero Djokovic
-
-![Jakub Mensik slammed 14 aces past Novak Djokovic, who could only manage half that number. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798220_1_20250331110937.jpg&q=90)
-![Novak Djokovic had no answer for the creativity and speed of the Czech ace. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798220_2_20250331110937.jpg&q=90)
-  
-
-Novak Djokovic faced a series of obstacles in the Miami Open final: a delay of more than five-and-a-half hours before the match, an eye infection and a slippery court due to high levels of humidity following the rain.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798220-20250331.htm)
 
 ---

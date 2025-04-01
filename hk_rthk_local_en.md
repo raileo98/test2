@@ -24,7 +24,7 @@ Police have arrested two people after busting a cannabis production facility in 
 
 # ESF set to raise tuition fees by 4.8 percent
 
-![The English Schools Foundation increase means parents will have to pay HK$7,000 to HK$9,000 more a year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798469_1_20250401170058.jpg&q=90)
+![The English Schools Foundation increase means parents will have to fork out HK$650 to HK$750  more a month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798469_1_20250401170058.jpg&q=90)
   
 
 The English Schools Foundation (ESF) announced on Tuesday it will raise tuition fees by an average of 4.8 percent in the coming academic year.
