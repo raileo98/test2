@@ -1,3 +1,27 @@
+# 救援組織指緬甸災區迫切需要大量食物食水及衛生設施與安置所
+
+![聯合國兒童基金會人員形容有社區被夷為平地，民眾所受的心理創傷同樣巨大。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798533_1_20250402052240.jpg&q=85)
+  
+
+在緬甸大地震災區救援的組織表示，迫切需要大量食物、食水、衛生設施及災民安置所，又形容尋獲倖存者的窗口正在迅速關閉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798533-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798533-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798533-20250402.htm)
+
+---
+
 # 伊朗外長稱任何情況下不尋求及生產或獲取核武
 
 ![阿拉格奇向國際原子能機構介紹伊朗和平核計劃的進展及相關外交磋商。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798531_1_20250402035611.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm)
-
----
-
-# 麥美娟稱區議員交代接觸市民數字做法史無前例
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798461_1_20250401171113.jpg&q=90)
-  
-
-本屆區議員工作報告昨日起在各區民政事務處供市民查閱。民政及青年事務局局長麥美娟出席活動時被問到報告為何不放上網、市民亦不能用手機拍攝；她回應，各區民政處有提供報告複印服務，亦按政府一般提供影印文件服務的收費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798461-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798461-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798461-20250401.htm)
 
 ---

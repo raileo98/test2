@@ -1,3 +1,27 @@
+# 救援組織指緬甸災區迫切需要大量食物食水及衛生設施與安置所
+
+![聯合國兒童基金會人員形容有社區被夷為平地，民眾所受的心理創傷同樣巨大。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798533_1_20250402052240.jpg&q=85)
+  
+
+在緬甸大地震災區救援的組織表示，迫切需要大量食物、食水、衛生設施及災民安置所，又形容尋獲倖存者的窗口正在迅速關閉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798533-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798533-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798533-20250402.htm)
+
+---
+
 # 伊朗外長稱任何情況下不尋求及生產或獲取核武
 
 ![阿拉格奇向國際原子能機構介紹伊朗和平核計劃的進展及相關外交磋商。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798531_1_20250402035611.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798267-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798267-20250331.htm)
-
----
-
-# 緬甸全國哀悼7日　對地震遇難者下半旗致哀
-
-![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798263_1_20250331160712.jpg&q=75)
-  
-
-緬甸軍政府宣布今日至下月6日為全國哀悼日，對地震遇難者下半旗致哀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798263-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798263-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798263-20250331.htm)
 
 ---
