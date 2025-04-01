@@ -1,3 +1,51 @@
+# 韓股重上2500點關口　高收近2%
+
+![首爾綜合指數收市報2521點，升40點，升幅1.62%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798441_1_20250401144533.jpg&q=90)
+  
+
+南韓股市結束連續3日跌勢，反彈近2%收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798441-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798441-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798441-20250401.htm)
+
+---
+
+# 日股收市靠穩　結束3日跌勢
+
+![日經平均指數收市報35624點，升6點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798440_1_20250401144103.jpg&q=85)
+  
+
+日本股市自上日急跌逾1500點後回穩，日經平均指數收市報35624點，升6點，結束連續3日跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798440-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798440-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798440-20250401.htm)
+
+---
+
 # 台股高收近3%　結束4日跌勢
 
 ![台灣加權指數收市報21280點，升584點，升幅2.82%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798438_1_20250401142935.jpg&q=90)
@@ -22,9 +70,13 @@
 
 ---
 
-# 緬甸大地震增至逾2700人死亡
+# 緬甸大地震增至逾2700人死亡　全國舉行默哀儀式
 
+![在緬甸曼德勒，大量建築物倒塌或受損。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798439_1_20250401145209.jpg&q=80)
   
+
+緬甸中部大地震發生至今，增至超過2700人死亡，4500多人受傷，超過440人失蹤。領導人敏昂萊說，遇難人數可能會超過3000人。
+
   
 
 

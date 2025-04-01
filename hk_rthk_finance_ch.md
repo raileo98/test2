@@ -1,3 +1,51 @@
+# 韓股重上2500點關口　高收近2%
+
+![首爾綜合指數收市報2521點，升40點，升幅1.62%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798441_1_20250401144533.jpg&q=90)
+  
+
+南韓股市結束連續3日跌勢，反彈近2%收市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798441-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798441-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798441-20250401.htm)
+
+---
+
+# 日股收市靠穩　結束3日跌勢
+
+![日經平均指數收市報35624點，升6點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798440_1_20250401144103.jpg&q=85)
+  
+
+日本股市自上日急跌逾1500點後回穩，日經平均指數收市報35624點，升6點，結束連續3日跌勢。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798440-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798440-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798440-20250401.htm)
+
+---
+
 # 台股高收近3%　結束4日跌勢
 
 ![台灣加權指數收市報21280點，升584點，升幅2.82%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798438_1_20250401142935.jpg&q=90)
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798305-20250331.htm)
-
----
-
-# 越秀地產去年盈利跌67%　不派末期息
-
-![越秀地產去年盈利10.4億元人民幣，按年跌67.3%，不派末期息。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798300_1_20250331175248.jpg&q=80)
-  
-
-越秀地產公布，去年盈利10.4億元人民幣，按年跌67.3%。不派末期息，全年派息每股0.189港元，派息總額約佔核心淨利潤44%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798300-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798300-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798300-20250331.htm)
-
----
-
-# 證監會引入新的「市場偵測模型」　AI分析數據及早識別風險
-
-![證監會引入新的「市場偵測模型」，運用AI協助數據分析，及時識別風險預警跡象。（證監會圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798299_1_20250331175241.jpg&q=90)
-  
-
-證監會重新刊發《執法通訊》，闡述當局打擊企業失當行為的主要執法工作。當局引入新的「市場偵測模型」，運用以人工智能（AI）驅動的分析方法，來評估財務披露、市場趨勢及各項管治指標，以識別風險狀況加劇的公司。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798299-20250331.htm)
 
 ---
