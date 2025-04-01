@@ -1,3 +1,51 @@
+# Junta leader fears worse to come as toll passes 2,700
+
+![People are preferring to take their chances out in the open in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798458_1_20250401162658.jpg&q=90)
+  
+
+Aid groups in the worst-hit areas of Myanmar said there was an urgent need for shelter, food and water after an earthquake that killed more than 2,700 people, but said the country's civil war could prevent help reaching those in need.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm)
+
+---
+
+# Three killed in Beirut as Israel targets top militant
+
+![The airstrike targeted a Hezbollah militant in the top three floors of a building in south Beirut. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798455_1_20250401160916.jpg&q=90)
+  
+
+At least three people were killed and seven wounded in an Israeli airstrike on Beirut's southern suburbs on Tuesday, the Lebanese health ministry said, further testing a shaky four-month ceasefire between Israel and Hezbollah.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm)
+
+---
+
 # DSE exams get underway
 
 ![Some candidates arrived early at an exam venue in Kwun Tong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798449_1_20250401152353.jpg&q=90)
@@ -1389,53 +1437,5 @@ China's manufacturing activity expanded at the fastest pace in a year in March, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798209-20250331.htm)
-
----
-
-# CK Hutchison says no decision made on telecom spin-off
-
-![Reuters had cited sources as saying the company was mulling a spin-off of global telecom assets. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798206_1_20250331100402.jpg&q=90)
-  
-
-The board of Hong Kong conglomerate CK Hutchison said on Monday it has not made any decision on its global telecommunications business, in response to media reports about a potential spin-off listing of the assets.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798206-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798206-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798206-20250331.htm)
-
----
-
-# Hong Kong stocks open slightly lower at opening
-
-![On Monday, official data showed the mainland's manufacturing activity expanding at its fastest pace in a year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798185_1_20250331104203.jpg&q=75)
-  
-
-The Hang Seng Index lost 0.94 percent to open at 23,207 points on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798185-20250331.htm)
 
 ---

@@ -1,3 +1,51 @@
+# Junta leader fears worse to come as toll passes 2,700
+
+![People are preferring to take their chances out in the open in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798458_1_20250401162658.jpg&q=90)
+  
+
+Aid groups in the worst-hit areas of Myanmar said there was an urgent need for shelter, food and water after an earthquake that killed more than 2,700 people, but said the country's civil war could prevent help reaching those in need.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm)
+
+---
+
+# Three killed in Beirut as Israel targets top militant
+
+![The airstrike targeted a Hezbollah militant in the top three floors of a building in south Beirut. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798455_1_20250401160916.jpg&q=90)
+  
+
+At least three people were killed and seven wounded in an Israeli airstrike on Beirut's southern suburbs on Tuesday, the Lebanese health ministry said, further testing a shaky four-month ceasefire between Israel and Hezbollah.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm)
+
+---
+
 # Australia hit by floods in inland area size of France
 
 ![A homestead is inundated by floodwaters near the town of Jundah in south-west Queensland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798443_1_20250401145343.jpg&q=85)
@@ -1391,53 +1439,5 @@ Foreign Minister Wang Yi will meet top French diplomat Jean-Noel Barrot on Thurs
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm)
-
----
-
-# Canada PM dubs US auto tariffs 'direct attack'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797616_1_20250327083849.jpg&q=90)
-  
-
-Canadian Prime Minister Mark Carney reacted with anger on Wednesday to US President Donald Trump's imposition of import tariffs on cars, branding it a "direct attack" on his country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797616-20250327.htm)
-
----
-
-# Trump hints at lower tariffs for China over TikTok
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797610_1_20250327071906.jpg&q=90)
-  
-
-US President Donald Trump said on Wednesday he would be willing to reduce tariffs to get a deal done with TikTok's Chinese parent ByteDance to sell the short video app used by 170 million Americans.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797610-20250327.htm)
 
 ---

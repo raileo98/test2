@@ -1,5 +1,29 @@
+# 駐港國安公署嚴厲譴責　稱美國制裁是一張廢紙
+
+  
+
+美國以損害香港自治為由，制裁6名中央和特區官員。駐港國安公署嚴厲譴責美方行為，並嚴正警告任何外部勢力妄圖干涉香港維護國家安全必定碰壁，美方應趁早收起狂妄肆意囂張的霸凌做法。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm)
+
+---
+
 # 梁振英籲企業多作慈善公益工作　做到兼濟天下
 
+![梁振英呼籲，香港、國內外等企業多捐贈予非政府組織等，由他們在外多做慈善公益等工作。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798454_1_20250401161213.jpg&q=80)
   
 
 全國政協副主席梁振英出席一個有關企業社會責任頒獎禮致辭時說，國務院總理李強上月初宣讀政府工作報告時，就香港部分首次提出，支援港澳地區深化國際合作交往，但其後不少港人將有關講話較狹窄地演繹為香港如何作為「超級聯繫人」、怎樣做好金融及商貿等經濟活動。他認為，當中不僅包含經貿活動，亦涵蓋文化、體育等國際交往合作。
@@ -23,6 +47,7 @@
 
 # 吳安儀凱旋回港　盼有更多時間推廣桌球
 
+![吳安儀（右）說，滿意比賽表現；陳惠淋（左）說在決賽有些許輕敵最終只得亞軍，感到少許遺憾。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798453_1_20250401160211.jpg&q=90)
   
 
 成功衛冕英國女子公開賽冠軍的本港女子桌球手吳安儀返抵香港。
@@ -1414,28 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798262-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798262-20250331.htm)
-
----
-
-# 利物浦AC米蘭7.26　阿仙奴熱刺7.31啟德主場館表演賽
-
-  
-
-三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月到港於啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798260-20250331.htm)
 
 ---

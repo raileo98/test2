@@ -1,5 +1,29 @@
+# 駐港國安公署嚴厲譴責　稱美國制裁是一張廢紙
+
+  
+
+美國以損害香港自治為由，制裁6名中央和特區官員。駐港國安公署嚴厲譴責美方行為，並嚴正警告任何外部勢力妄圖干涉香港維護國家安全必定碰壁，美方應趁早收起狂妄肆意囂張的霸凌做法。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm)
+
+---
+
 # 梁振英籲企業多作慈善公益工作　做到兼濟天下
 
+![梁振英呼籲，香港、國內外等企業多捐贈予非政府組織等，由他們在外多做慈善公益等工作。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798454_1_20250401161213.jpg&q=80)
   
 
 全國政協副主席梁振英出席一個有關企業社會責任頒獎禮致辭時說，國務院總理李強上月初宣讀政府工作報告時，就香港部分首次提出，支援港澳地區深化國際合作交往，但其後不少港人將有關講話較狹窄地演繹為香港如何作為「超級聯繫人」、怎樣做好金融及商貿等經濟活動。他認為，當中不僅包含經貿活動，亦涵蓋文化、體育等國際交往合作。
@@ -1413,30 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798065-20250330.htm)
-
----
-
-# 新華社：中國香港特區救援隊抵達緬甸仰光國際機場
-
-![香港特區救援隊抵達仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798058_2_20250330012903.jpg&q=90)
-![香港特區救援隊攜同搜救犬抵達緬甸仰光機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798058_3_20250330012903.jpg&q=90)
-  
-
-新華社報道，緬甸時間星期六晚，中國香港特區救援隊抵達仰光國際機場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm](https://news.rthk.hk/rthk/ch/component/k2/1798058-20250329.htm)
 
 ---

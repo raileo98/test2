@@ -1,3 +1,27 @@
+# 恒指高收87點　結束兩日跌勢　小米挫逾5%
+
+![恒生指數最多曾升近340點，高見23456點，其後升幅收窄，收市報23206點，升87點，升幅近0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798457_1_20250401161816.jpg&q=90)
+  
+
+港股結束兩日跌勢，恒生指數最多曾升近340點，高見23456點，其後升幅收窄，收市報23206點，升87點，升幅近0.4%，全日主板成交額2502億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798457-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798457-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798457-20250401.htm)
+
+---
+
 # 滬指高收近0.4%　深證成指偏軟
 
 ![上證綜合指數報3348點，升12點，升幅0.38%。深證成份指數報10503點，跌不足1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798447_1_20250401151207.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm)
-
----
-
-# 財政部第2季發行5年和7年期特別國債　對中央金融機構注資
-
-![財政部公布第2季國債發行計劃，其中安排特別國債發行用於對中央金融機構注資，期限5年和7年。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798314_1_20250331191656.jpg&q=90)
-  
-
-財政部公布第2季國債發行計劃，其中，安排特別國債發行用於對中央金融機構注資，期限5年和7年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798314-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798314-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798314-20250331.htm)
 
 ---
