@@ -1,3 +1,49 @@
+# 特區救援隊：災區非常惡劣兩次緊急撤離部署　冀盡早救出被困人士
+
+  
+
+特區救援隊繼續在緬甸曼特勒災區搜救。正在當地的特區救援隊指揮官趙汝珏接受本台訪問時表示，當地大規模樓宇倒塌、道路裂開，情況非常惡劣。特區救援隊抵達曼特勒災區基地後，與國家救援隊舉行會議，之後出發參與搜救，特區救援隊至今出動27次，到26個地點搜救。他說，抵達曼特勒後，曾面對3次餘震，救援隊在其中兩次餘震發生時要作緊急撤離部署。雖然暫未尋獲生還者，但會繼續根據求助報告搜救，希望盡早救出被困人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm)
+
+---
+
+# 鄧炳強連線緬甸　希望特區救援隊救人之餘確保自身安全
+
+  
+
+特區救援隊正在緬甸災區救援，保安局局長鄧炳強表示，今日與消防處處長楊恩健及入境處處長郭俊峯一同連線緬甸，知道災區氣溫相當炎熱，市內通訊中斷，人員要在惡劣環境條件下長時間進行搜救。他希望救援隊在救人之餘，亦要確保自身安全與健康，又說會提供最大支持，亦祈願當地災民盡快重建家園。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm)
+
+---
+
 # 港澳辦再轉載文章引述政商界冀長和配合審查重塑良好企業形象
 
   
@@ -1393,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798309-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798309-20250331.htm)
-
----
-
-# 何永賢：業主有充足時間登記簡樸房　設舉報機制嚴重違規屬刑事
-
-![何永賢說業主有充足時間登記簡樸房。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798308_1_20250331190743.jpg&q=90)
-  
-
-政府建議就「簡樸房」認證收取費用，並在推出初期提供寬減優惠，吸引業主盡早登記。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798308-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798308-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798308-20250331.htm)
-
----
-
-# 黃澤林稱邁阿密賽增強自信　冀改變外界輕視本港運動員態度
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798282_1_20250331183435.jpg&q=85)
-  
-
-在美國邁阿密網球公開賽打入男單第三圈的本港網球員黃澤林，返港後接受訪問。他說，在大賽造出理想成績，令他更有自信，過去一年的打法亦更進取及成熟。他希望以成績改變一些人輕視本港運動員的態度。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798282-20250331.htm)
 
 ---

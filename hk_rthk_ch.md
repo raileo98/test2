@@ -1,3 +1,26 @@
+# 鄧炳強連線緬甸　希望特區救援隊救人之餘確保自身安全
+
+  
+
+特區救援隊正在緬甸災區救援，保安局局長鄧炳強表示，今日與消防處處長楊恩健及入境處處長郭俊峯一同連線緬甸，知道災區氣溫相當炎熱，市內通訊中斷，人員要在惡劣環境條件下長時間進行搜救。他希望救援隊在救人之餘，亦要確保自身安全與健康，又說會提供最大支持，亦祈願當地災民盡快重建家園。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm)
+
+---
+
 # 習近平與印度總統就兩國建交75周年互致賀電
 
 ![習近平表示，中印雙方應加強各領域交流合作，推動中印關係沿著健康穩定軌道向前發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798499_1_20250401191702.jpg&q=90)

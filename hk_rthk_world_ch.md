@@ -1,3 +1,49 @@
+# 特區救援隊：災區非常惡劣兩次緊急撤離部署　冀盡早救出被困人士
+
+  
+
+特區救援隊繼續在緬甸曼特勒災區搜救。正在當地的特區救援隊指揮官趙汝珏接受本台訪問時表示，當地大規模樓宇倒塌、道路裂開，情況非常惡劣。特區救援隊抵達曼特勒災區基地後，與國家救援隊舉行會議，之後出發參與搜救，特區救援隊至今出動27次，到26個地點搜救。他說，抵達曼特勒後，曾面對3次餘震，救援隊在其中兩次餘震發生時要作緊急撤離部署。雖然暫未尋獲生還者，但會繼續根據求助報告搜救，希望盡早救出被困人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm)
+
+---
+
+# 鄧炳強連線緬甸　希望特區救援隊救人之餘確保自身安全
+
+  
+
+特區救援隊正在緬甸災區救援，保安局局長鄧炳強表示，今日與消防處處長楊恩健及入境處處長郭俊峯一同連線緬甸，知道災區氣溫相當炎熱，市內通訊中斷，人員要在惡劣環境條件下長時間進行搜救。他希望救援隊在救人之餘，亦要確保自身安全與健康，又說會提供最大支持，亦祈願當地災民盡快重建家園。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm)
+
+---
+
 # 習近平與印度總統就兩國建交75周年互致賀電
 
 ![習近平表示，中印雙方應加強各領域交流合作，推動中印關係沿著健康穩定軌道向前發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798499_1_20250401191702.jpg&q=90)
@@ -1387,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm)
-
----
-
-# 中國救援隊再於緬甸災區救出被困者　獲救幼童生命體徵良好
-
-![中國救援力量較早時救出一名被埋超過60小時的孕婦。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798186_1_20250331091206.jpg&q=85)
-  
-
-中國救援隊在緬甸地震災區的廢墟中，再救出被困人員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798186-20250331.htm)
-
----
-
-# 特朗普稱烏克蘭欲退出礦產協議談判　又指烏克蘭不會成為北約成員
-
-![特朗普說烏克蘭想成為北約成員，但不會成真，澤連斯基明白這一點。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798183_1_20250331082526.jpg&q=90)
-  
-
-美國總統特朗普表示，烏克蘭總統澤連斯基想退出烏方與美方之間的礦產協議談判，警告如烏方真是退出，澤連斯基將面對很大的問題。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798183-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798183-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798183-20250331.htm)
 
 ---
