@@ -1,3 +1,27 @@
+# 外交部：中方促美方停止借涉藏問題干涉中國內政
+
+![郭嘉昆說，中方敦促美方恪守在西藏問題上所做承諾，停止借涉藏問題干涉中國內政。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798486_1_20250401175100.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆表示，美方粗暴干涉西藏事務和中國內政，嚴重違反國際法和國際關係基本準則。中方對此強烈不滿，堅決反對，將採取必要措施，對美方錯誤行徑予以堅決對等反制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798486-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798486-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798486-20250401.htm)
+
+---
+
 # 陳茂波：香港百業興旺有賴穩定安全供水系統
 
 ![陳茂波表示，東江供水系統不斷擴展和優化，支撐香港經濟蓬勃發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798480_1_20250401174125.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798113-20250330.htm)
-
----
-
-# 渤海海峽黃海北部執行軍事任務　大連海事局發警告禁止駛入
-
-![渤海海峽黃海北部執行軍事任務　大連海事局發警告禁止駛入](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798112_1_20250330153043.jpg&q=90)
-  
-
-大連海事局發布航行警告，今日下午4時至下月13日下午4時，渤海海峽黃海北部部分海域執行軍事任務，禁止船隻駛入。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm](https://news.rthk.hk/rthk/ch/component/k2/1798112-20250330.htm)
 
 ---

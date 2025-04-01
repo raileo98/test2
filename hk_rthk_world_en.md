@@ -1,3 +1,27 @@
+# Far right party chief calls for rally over Le Pen ban
+
+![Marine Le Pen with Jordan Bardella at the Elysee presidential palace in Paris in August. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798485_1_20250401174939.jpg&q=85)
+  
+
+Far-right party chief Jordan Bardella called on the French to rally this weekend to protest against a ruling that banned Marine Le Pen from running for public office for five years after being found guilty of embezzling European Union funds.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm)
+
+---
+
 # Junta leader fears worse to come as toll passes 2,700
 
 ![People are preferring to take their chances out in the open in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798458_1_20250401162658.jpg&q=90)
@@ -96,7 +120,7 @@ Sam Mendes will release four movies about The Beatles in the same month, the dir
 
 # Over 100 injured in Kuala Lumpur gas pipeline fireball
 
-![Rescue efforts are ongoing for those trapped in houses in Kampung Kuala Sungai Baru on the outskirts of Kuala Lumpur. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798431_2_20250401131510.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798431_2_20250401131510.jpg&q=90)
   
 
 A massive fire caused by a gas pipeline leak forced people from their homes and injured more than 100 during Eid celebrations near Malaysia's capital on Tuesday, fire officials said.
@@ -1415,29 +1439,5 @@ Wildfires raging in South Korea doubled in size on Thursday from a day earlier, 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797634-20250327.htm)
-
----
-
-# Wang Yi to meet French counterpart Jean-Noel Barrot
-
-![Foreign Minister Wang Yi will meet the top diplomat from France, Jean-Noel Barrot. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797631_1_20250327104617.jpg&q=90)
-  
-
-Foreign Minister Wang Yi will meet top French diplomat Jean-Noel Barrot on Thursday for talks on topics like the war in Ukraine and trade between China and the European Union.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797631-20250327.htm)
 
 ---

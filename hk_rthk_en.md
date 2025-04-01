@@ -1,3 +1,27 @@
+# Far right party chief calls for rally over Le Pen ban
+
+![Marine Le Pen with Jordan Bardella at the Elysee presidential palace in Paris in August. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798485_1_20250401174939.jpg&q=85)
+  
+
+Far-right party chief Jordan Bardella called on the French to rally this weekend to protest against a ruling that banned Marine Le Pen from running for public office for five years after being found guilty of embezzling European Union funds.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm)
+
+---
+
 # Ng On-yee happy that billiards keep its Tier A status
 
 ![Ng On-yee shows off her British Open trophy upon her return to Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798472_1_20250401170234.jpg&q=90)
@@ -288,7 +312,7 @@ Members of the DAB on Tuesday staged a protest outside the US consulate in Centr
 
 # Over 100 injured in Kuala Lumpur gas pipeline fireball
 
-![Rescue efforts are ongoing for those trapped in houses in Kampung Kuala Sungai Baru on the outskirts of Kuala Lumpur. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798431_2_20250401131510.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798431_2_20250401131510.jpg&q=90)
   
 
 A massive fire caused by a gas pipeline leak forced people from their homes and injured more than 100 during Eid celebrations near Malaysia's capital on Tuesday, fire officials said.
@@ -1412,29 +1436,5 @@ The government is looking into the possibility of having a single contractor des
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798240-20250331.htm)
-
----
-
-# Trump 'not joking' about bid for third term
-
-![Donald Trump chats with Secretary of Commerce Howard Lutnick, left, on board Marine One upon arrival at the White House on Sunday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798236_1_20250331125457.jpg&q=90)
-  
-
-US President Donald Trump said “I’m not joking” about trying to serve a third term, the clearest indication he is considering ways to breach a constitutional barrier against continuing to lead the country after his second term ends at the beginning of 2029.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798236-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798236-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798236-20250331.htm)
 
 ---
