@@ -1,3 +1,26 @@
+# 文憑試筆試開考首日九成考生用「報到易」　考評局指運作暢順
+
+  
+
+文憑試首科筆試、視覺藝術科今日開考。有考生表示緊張，亦有家長陪同子女到試場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798492-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798492-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798492-20250401.htm)
+
+---
+
 # 紀念東江水供港60載　「舞動水滴展」今日起亮相添馬公園
 
 ![展覽首階段裝置包括一個高18.8米的水滴裝置和百多個不倒翁小水滴。（發展局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798491_1_20250401181954.jpg&q=90)
@@ -193,7 +216,7 @@
 
 # 高山道社區客廳開幕　料每年服務8萬人次
 
-![位於高山道的社區客廳今日起開放。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798474_1_20250401171326.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798474_1_20250401171326.jpg&q=90)
   
 
 位於高山道的社區客廳今日起開放，為期3年，為九龍城區劏房戶提供服務，開放時間為每日早上11時至晚上10時。
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798286-20250331.htm)
-
----
-
-# 醫管局陸續於急症室裝設地理圍欄定位系統防止病人走失
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798301_1_20250331191058.jpg&q=90)
-  
-
-醫管局引進多項科技措施，陸續在急症室裝設地理圍欄定位系統，預計今年底前所有急症室完成安裝並全面投入使用，判斷未回應應診的病人是否仍在急症室。系統包括適用於精神或認知障礙，或無法溝通的病人，他們會配戴設有藍牙裝置的手帶，如果病人離開走近大門時會發出警報，提醒職員及時阻止。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798301-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798301-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798301-20250331.htm)
 
 ---

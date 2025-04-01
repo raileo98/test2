@@ -286,12 +286,12 @@ Sam Mendes will release four movies about The Beatles in the same month, the dir
 
 ---
 
-# DAB stages protest against US sanctions
+# SAR political groups speak out against US sanctions
 
 ![Members of the DAB handed in petitions at the US consulate in Central. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798432_1_20250401131459.jpg&q=80)
   
 
-Members of the DAB on Tuesday staged a protest outside the US consulate in Central against Washington's move to put six mainland and Hong Kong officials on its sanctions list.
+Local political groups have denounced Washington's move to put six mainland and Hong Kong officials on its sanctions list.
 
   
 
