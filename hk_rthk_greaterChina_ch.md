@@ -23,6 +23,7 @@
 
 # 普京稱俄中關係保持高水平發展　王毅指兩國為動蕩世界的穩定力量
 
+![普京（右二）在莫斯科會見王毅（左二）。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798520_1_20250402004746.jpg&q=90)
   
 
 俄羅斯總統普京在首都莫斯科，會見中共中央政治局委員、外長王毅。

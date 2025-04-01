@@ -1,3 +1,27 @@
+# 普京指俄中應續發加強戰略協作信號　王毅稱兩國合作不受外部干擾
+
+![普京說俄中應持續向世界發出加強戰略協作的有力信號；王毅表示中俄政治互信不斷加深。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
+  
+
+俄羅斯總統普京在首都莫斯科，會見到訪的中共中央政治局委員、外交部長王毅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm)
+
+---
+
 # 以色列空襲貝魯特剷除黎巴嫩真主黨成員　指其協助策劃重大恐襲
 
   
@@ -46,6 +70,7 @@
 
 # 馬來西亞燃氣管道爆炸大火已救熄　過百人受傷
 
+![火焰高數百米，數公里外清晰可見。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798521_1_20250402005128.jpg&q=90)
   
 
 馬來西亞雪蘭莪州因燃氣管道爆炸引發的大火，昨日下午救熄，大火導致112人受傷，事故原因有待進一步調查。
@@ -69,6 +94,7 @@
 
 # 普京稱俄中關係保持高水平發展　王毅指兩國為動蕩世界的穩定力量
 
+![普京（右二）在莫斯科會見王毅（左二）。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798520_1_20250402004746.jpg&q=90)
   
 
 俄羅斯總統普京在首都莫斯科，會見中共中央政治局委員、外長王毅。
@@ -1408,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm)
-
----
-
-# 一名中國公民於緬甸地震遇難　中方隊伍7小時內救出4名倖存者
-
-![岳馨說中方救援人員定位時需採取監控及敲擊詢問等方式，再開闢綠色通道，對隊員意志力及體能是極大挑戰。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798226_1_20250331124358.jpg&q=85)
-  
-
-緬甸大地震發生已接近三日，最少1700人死亡。新華社報道，一名中國公民遇難。各方力量繼續搜救，中方救援隊於7小時內在重災區曼德勒市先後救出4名倖存者；中方昨日在當地救援力量配合下，亦成功救出2名倖存者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm)
 
 ---

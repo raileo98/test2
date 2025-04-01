@@ -1,3 +1,27 @@
+# 普京指俄中應續發加強戰略協作信號　王毅稱兩國合作不受外部干擾
+
+![普京說俄中應持續向世界發出加強戰略協作的有力信號；王毅表示中俄政治互信不斷加深。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
+  
+
+俄羅斯總統普京在首都莫斯科，會見到訪的中共中央政治局委員、外交部長王毅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm)
+
+---
+
 # 以色列空襲貝魯特剷除黎巴嫩真主黨成員　指其協助策劃重大恐襲
 
   
@@ -46,6 +70,7 @@
 
 # 馬來西亞燃氣管道爆炸大火已救熄　過百人受傷
 
+![火焰高數百米，數公里外清晰可見。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798521_1_20250402005128.jpg&q=90)
   
 
 馬來西亞雪蘭莪州因燃氣管道爆炸引發的大火，昨日下午救熄，大火導致112人受傷，事故原因有待進一步調查。
@@ -69,6 +94,7 @@
 
 # 普京稱俄中關係保持高水平發展　王毅指兩國為動蕩世界的穩定力量
 
+![普京（右二）在莫斯科會見王毅（左二）。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798520_1_20250402004746.jpg&q=90)
   
 
 俄羅斯總統普京在首都莫斯科，會見中共中央政治局委員、外長王毅。
@@ -1408,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm)
-
----
-
-# 外交部：解放軍聯合演訓是對台獨分裂勢力嚴重警告
-
-![郭嘉昆稱，解放軍聯合演訓是對台獨分裂勢力的嚴重警告和有力遏制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798452_1_20250401154745.jpg&q=90)
-  
-
-解放軍東部戰區於台島周邊組織聯合演訓。在北京，外交部發言人郭嘉昆表示，有關聯合演訓是對台獨分裂勢力的嚴重警告和有力遏制，是捍衛國家主權，維護國家統一的正當必要行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798452-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798452-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798452-20250401.htm)
 
 ---
