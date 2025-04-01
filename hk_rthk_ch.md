@@ -1,3 +1,27 @@
+# 美國3月製造業PMI終值勝預期　ISM製造業指數遜預期
+
+![標普全球公布，美國3月製造業PMI終值為50.2，高過市場預期的49.9；美國供應管理協會（ISM）3月製造業指數跌至49，低過預期的49.5。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798514_1_20250401221159.jpg&q=90)
+  
+
+標普全球公布，美國3月製造業採購經理指數（PMI）終值為50.2，低過2月的52.7。但高過初值的49.8，以及高過市場預期的49.9，連續3個月處於50以上的擴張水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798514-20250401.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798514-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798514-20250401.htm)
+
+---
+
 # 粵港澳大灣區專責小組首次會議　張國鈞稱用好大灣區獨特優勢
 
 ![張國鈞主持新一屆粵港澳大灣區專責小組首次會議。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798513_1_20250401220009.jpg&q=90)
