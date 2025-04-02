@@ -1,3 +1,27 @@
+# 日本大隅半島東部近海發生6級地震
+
+![日本大隅半島東部近海發生6級地震](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798696_1_20250402234732.jpg&q=90)
+  
+
+日本九州宮崎縣大隅半島東部近海發生6級地震，氣象廳說，沒有海嘯風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798696-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798696-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798696-20250403.htm)
+
+---
+
 # 緬甸地震增至逾三千人死　軍方宣布暫時停火以便救災
 
 ![緬甸大地震增至超過3000人死亡，軍方宣布暫時停火以便救災。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798693_1_20250402225256.jpg&q=50)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm)
-
----
-
-# 英王查理斯三世本周將恢復參加公務活動
-
-![王室消息人士透露，查理斯三世本周將恢復參加公務活動。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798343_1_20250401012450.jpg&q=90)
-  
-
-英國王室消息人士透露，英王查理斯三世本周將恢復參加公務活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798343-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798343-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798343-20250401.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 日本大隅半島東部近海發生6級地震
+
+![日本大隅半島東部近海發生6級地震](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798696_1_20250402234732.jpg&q=90)
+  
+
+日本九州宮崎縣大隅半島東部近海發生6級地震，氣象廳說，沒有海嘯風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798696-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798696-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798696-20250403.htm)
+
+---
+
 # 政府完成黃大仙竹園聯合村聯合行動　相關用地日後發展公營房屋
 
 ![發展局表示，在照顧受發展影響住戶的同時，亦須確保發展計劃按時完成，無法再延長遷出寬限期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798695_1_20250402230234.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798623-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798623-20250402.htm)
-
----
-
-# 夏寶龍會見羅淑佩等訪京特區官員
-
-![在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見正進行訪京行程的文化體育及旅遊局局長羅淑佩。（國務院港澳事務辦公室）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798625_1_20250402152615.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見正進行訪京行程的文化體育及旅遊局局長羅淑佩。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm)
 
 ---
