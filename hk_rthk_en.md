@@ -1,3 +1,27 @@
+# Myanmar man pulled from ruins five days after quake
+
+![Buildings in Sagaing, near the epicentre of the 7.7-magnitude earthquake, are left in various states of peril. Photo: Yomiuri Shimbun/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798607_1_20250402134730.jpg&q=85)
+  
+
+Rescuers on Wednesday pulled a man alive from the rubble five days after Myanmar's devastating earthquake, as calls grew for the junta to allow more aid in and halt attacks on rebels.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm)
+
+---
+
 # Actor Val Kilmer loses bout with pnemonia
 
 ![Val Kilmer played the part of Jim Morrison in the 1991 film 'The Doors.' Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798601_1_20250402125919.jpg&q=90)
@@ -1414,29 +1438,5 @@ Manchester City were dealt a major blow with leading scorer Erling Haaland set f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798367-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798367-20250401.htm)
-
----
-
-# Cycling to adopt 23-team format for Grand Tours
-
-![The initiative for the Grand Tours has been rubber-stamped by the International Cycling Union, the sport's governing body. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798362_1_20250401071622.jpg&q=75)
-  
-
-The Giro d'Italia, Tour de France and Vuelta a Espana will all involve 23 teams from this year, with the initiative rubber-stamped by the International Cycling Union.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm)
 
 ---

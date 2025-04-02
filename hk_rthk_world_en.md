@@ -1,3 +1,27 @@
+# Myanmar man pulled from ruins five days after quake
+
+![Buildings in Sagaing, near the epicentre of the 7.7-magnitude earthquake, are left in various states of peril. Photo: Yomiuri Shimbun/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798607_1_20250402134730.jpg&q=85)
+  
+
+Rescuers on Wednesday pulled a man alive from the rubble five days after Myanmar's devastating earthquake, as calls grew for the junta to allow more aid in and halt attacks on rebels.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm)
+
+---
+
 # Actor Val Kilmer loses bout with pnemonia
 
 ![Val Kilmer played the part of Jim Morrison in the 1991 film 'The Doors.' Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798601_1_20250402125919.jpg&q=90)
@@ -1414,29 +1438,5 @@ Light rain offered some relief to South Korean authorities tackling the country'
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm)
-
----
-
-# Arctic sea ice hits record low, says US agency
-
-![A polar bear is seen on ice floes in the Franz Josef Land archipelago in 2021. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797792_1_20250328084339.jpg&q=90)
-  
-
-Arctic sea ice had its weakest winter buildup since record-keeping began 47 years ago, a symptom of climate change that will have repercussions globally, scientists said on Thursday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm)
 
 ---
