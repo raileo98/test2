@@ -1,3 +1,27 @@
+# Seoul braces for clashes over Yoon ruling
+
+![Police officers get ready for a potential showdown on Friday between pro and anti-Yoon supporters near the entrance of the Constitutional Court in Seoul. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798612_1_20250402141524.jpg&q=80)
+  
+
+South Korean police will mobilise "all available resources" to prevent violence when a court rules on Friday on the fate of impeached President Yoon Suk Yeol, with top tourist sites to close and embassies warning citizens to stay away.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798612-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798612-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798612-20250402.htm)
+
+---
+
 # Myanmar man pulled from ruins five days after quake
 
 ![Buildings in Sagaing, near the epicentre of the 7.7-magnitude earthquake, are left in various states of peril. Photo: Yomiuri Shimbun/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798607_1_20250402134730.jpg&q=85)
@@ -72,7 +96,7 @@ Sydney beachfront properties were flooded and coastal infrastructure damaged aft
 
 # Trump-backed candidate loses Wisconsin court election
 
-![Susan Crawford acknowledges the mood at her election night headquarters in Madison, Wisconsin, after her triumph. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798589_1_20250402120941.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798589_1_20250402120941.jpg&q=90)
   
 
 The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenger endorsed by President Donald Trump and billionaire Elon Musk, touting her victory as a win against powerful interests and cementing a liberal majority for at least three more years.
@@ -1414,29 +1438,5 @@ US President Donald Trump withdrew right-wing firebrand Elise Stefanik as his no
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797812-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797812-20250328.htm)
-
----
-
-# Light rain aids firefighters in South Korea
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797801_1_20250328093036.jpg&q=90)
-  
-
-Light rain offered some relief to South Korean authorities tackling the country's worst wildfires on record, with exhausted firefighters making another push on Friday to contain blazes stretching 70 km.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797801-20250328.htm)
 
 ---
