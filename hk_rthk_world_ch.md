@@ -1,3 +1,27 @@
+# 尹錫悅彈劾案宣判在即　中美提醒公民避免參與集會
+
+![尹錫悅彈劾案即將宣判，支持者和反對人士分別在首爾集會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798652_1_20250402175045.jpg&q=90)
+  
+
+南韓總統尹錫悅彈劾案周五宣判，警方提高戒備，表示單在首爾部署約1萬4千名警員，應對可能出現的大規模集會。中國和美國都提醒在當地的公民，避免參與集會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798652-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798652-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798652-20250402.htm)
+
+---
+
 # 中國政府援助緬甸第二批物資明天啟運
 
 ![中國政府首批援助物資日前運抵緬甸仰光國際機場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798641_1_20250402170035.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798333-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798333-20250331.htm)
-
----
-
-# 何立峰：中方將進一步全面深化改革　歡迎國際投資者分享發展機遇
-
-![何立峰表示，歡迎國際投資者積極參與中國資本市場建設，分享發展機遇。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798331_1_20250331214447.jpg&q=90)
-  
-
-中共中央政治局委員、中央財辦主任何立峰在北京與美國橋水基金創始人達利歐會面，雙方就宏觀經濟形勢、中美經貿關係交換意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm)
 
 ---

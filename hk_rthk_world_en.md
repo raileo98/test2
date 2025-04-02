@@ -1,3 +1,27 @@
+# Teen held over mass killings plan outside mosques
+
+![The 17-year-old is alleged to have targeted five mosques in Singapore as part of his plan to kill at least 100 Muslims. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798653_1_20250402175858.jpg&q=75)
+  
+
+A Singaporean teenager allegedly planning to kill dozens of Muslims outside several mosques has been detained, the city-state's Internal Security Department said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm)
+
+---
+
 # Warning shots fired at Chinese Red Cross convoy
 
 ![A Chinese Red Cross team looks for survivors among the ruins of a residential building in Mandalay on Sunday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798650_1_20250402174414.jpg&q=80)
@@ -1414,29 +1438,5 @@ Myanmar's junta chief Min Aung Hlaing will join a regional leaders' summit in Th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm)
-
----
-
-# Rallies set as Duterte marks 80th birthday in prison
-
-![Relatives of drug war and extrajudicial killing victims in Quezon City watch a live telecast of the initial appearance of Rodrigo Duterte at the International Criminal Court in the Hague. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797846_1_20250328130849.jpg&q=80)
-  
-
-Family and supporters of former Philippine president Rodrigo Duterte will rally on Friday to mark his 80th birthday and protest his detention in The Hague on a charge of crimes against humanity.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797846-20250328.htm)
 
 ---

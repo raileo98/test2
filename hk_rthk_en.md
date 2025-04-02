@@ -1,3 +1,27 @@
+# Teen held over mass killings plan outside mosques
+
+![The 17-year-old is alleged to have targeted five mosques in Singapore as part of his plan to kill at least 100 Muslims. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798653_1_20250402175858.jpg&q=75)
+  
+
+A Singaporean teenager allegedly planning to kill dozens of Muslims outside several mosques has been detained, the city-state's Internal Security Department said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm)
+
+---
+
 # Warning shots fired at Chinese Red Cross convoy
 
 ![A Chinese Red Cross team looks for survivors among the ruins of a residential building in Mandalay on Sunday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798650_1_20250402174414.jpg&q=80)
@@ -1414,29 +1438,5 @@ The Hang Seng Index gained 97.53 points, or 0.42 percent, to open at 23,217.11 p
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm)
-
----
-
-# China calls for Ukraine peace talks to continue
-
-![Wang Yi gave a wide-ranging interview to the Russian RIA state news agency, on his visit to Moscow. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798386_1_20250401092729.jpg&q=90)
-  
-
-A peace agreement on ending the conflict in Ukraine should be fair, binding and acceptable to all parties involved, Foreign Minister Wang Yi said in remarks published on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798386-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798386-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798386-20250401.htm)
 
 ---

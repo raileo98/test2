@@ -1,3 +1,27 @@
+# 分析料本港整體經濟下半年有較大起色　美國關稅影響不算太嚴重
+
+![謝家曦表示，本地需求仍有隠憂，整體經濟可能要到下半年才有較大起色。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798651_1_20250402174448.jpg&q=85)
+  
+
+港大經濟及商業策略研究所亞太經濟合作研究項目預測，本港首季經濟按年增長1.6%，第2季經濟增速將加快至2.5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798651-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798651-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798651-20250402.htm)
+
+---
+
 # 郵儲銀行：配股定價兼顧新舊股東利益　料短期造成一定攤薄
 
   
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798441-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798441-20250401.htm)
-
----
-
-# 日股收市靠穩　結束3日跌勢
-
-![日經平均指數收市報35624點，升6點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798440_1_20250401144103.jpg&q=85)
-  
-
-日本股市自上日急跌逾1500點後回穩，日經平均指數收市報35624點，升6點，結束連續3日跌勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798440-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798440-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798440-20250401.htm)
 
 ---
