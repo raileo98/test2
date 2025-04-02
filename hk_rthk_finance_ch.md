@@ -1,3 +1,27 @@
+# 特首辦本年度撥款增920萬元　新設3職位薪金約266萬元
+
+![特首辦指，一直秉持審慎理財、善用資源的公共財政原則，並積極透過內部人手和資源調配、精簡程序和應用科技以提升效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798692_1_20250402225213.jpg&q=80)
+  
+
+特首辦在2025至26年度撥款，較上一年度修訂預算增長7.8%，涉款920萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798692-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798692-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798692-20250402.htm)
+
+---
+
 # 美國上周原油及蒸餾油庫存出乎預期增加
 
 ![美國能源信息署公布，美國上星期原油庫存增加616.5萬桶，出乎市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798691_1_20250402224746.jpg&q=85)
@@ -1411,28 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798467-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798467-20250401.htm)
-
----
-
-# 洪水橋5幅商業地原址換地申請延至年底　恒地稱好事
-
-  
-
-洪水橋5幅商業用地原址換地申請，原定接納包括補地價的基本條款建議期限，由3月底延長至今年底。市場資料指，有關商業用地涉及逾百萬平方呎，由新地及恒地持有，將用作商業發展用途，涉及樓面近千萬平方呎。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm)
 
 ---

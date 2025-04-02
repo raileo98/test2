@@ -1,3 +1,27 @@
+# 緬甸地震增至逾三千人死　軍方宣布暫時停火以便救災
+
+![緬甸大地震增至超過3000人死亡，軍方宣布暫時停火以便救災。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798693_1_20250402225256.jpg&q=50)
+  
+
+緬甸大地震增至超過3000人死亡，4500多人受傷，仍然有350多人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798693-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798693-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798693-20250402.htm)
+
+---
+
 # 特區救援隊救出一名生還者　指揮官：只要有一個機會也不會放棄
 
 ![救援隊指揮官表示，能夠在地震發生6日後找到生還者，救援隊感到非常鼓舞和振奮。（香港消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798678_1_20250402210137.jpg&q=85)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798343-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798343-20250401.htm)
-
----
-
-# 普京簽署春季徵兵令　國防部強調與對烏軍事行動無關
-
-![普京簽署關於春季徵召俄羅斯公民服兵役的法令。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798342_1_20250401004751.jpg&q=90)
-  
-
-俄羅斯總統普京簽署關於春季徵召俄羅斯公民服兵役的法令。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798342-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798342-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798342-20250401.htm)
 
 ---

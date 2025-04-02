@@ -1,3 +1,27 @@
+# 特首辦本年度撥款增920萬元　新設3職位薪金約266萬元
+
+![特首辦指，一直秉持審慎理財、善用資源的公共財政原則，並積極透過內部人手和資源調配、精簡程序和應用科技以提升效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798692_1_20250402225213.jpg&q=80)
+  
+
+特首辦在2025至26年度撥款，較上一年度修訂預算增長7.8%，涉款920萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798692-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798692-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798692-20250402.htm)
+
+---
+
 # 逾4.1萬申請人獲發新生嬰兒獎勵金涉逾8億元　行政費約80萬
 
 ![政府接獲42060宗「新生嬰兒獎勵金」的合資格申請，已向41304名申請人發放獎勵金，涉及8億2600萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798688_1_20250402221657.jpg&q=70)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm)
-
----
-
-# 消防搜索近40小時尋獲於大埔上碗窰失聯的65歲女子
-
-![消防處說，今次行動使用攀山拯救流動應用程式，將制定和分派路線的指示，實時分派搜救小隊，增加行動準確性和效率。（消防提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798511_3_20250401221140.jpg&q=75)
-  
-
-一名年約65歲女子在大埔上碗窰失去聯絡。消防處昨日凌晨接報，聯同民安隊和飛行服務隊進行搜救接近40小時，至今日下午4時，在距離主要山徑200米位置的隱敝密林中發現失蹤人士，送院治理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798511-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798511-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798511-20250401.htm)
 
 ---
