@@ -1,3 +1,27 @@
+# 德勤：內地人工智能發展促使基金重新部署　料支持今年新股市場
+
+![歐振興預計，今年新股市場將繼續保持暢旺，DeepSeek觸發市場對中國企業估值重估後，之前低配內地與香港股票的基金重新部署。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798619_1_20250402145132.jpg&q=90)
+  
+
+會計師行德勤維持今年本港將錄得約80隻新股、集資約1300至1500億元的預測，集資額有望力爭全球三甲。德勤表示，上季已經有118隻新股申請有待審批，當中包括數百億元的大型新股。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798619-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798619-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798619-20250402.htm)
+
+---
+
 # 韓股低收0.6%
 
 ![首爾綜合指數收市報2505點，跌15點，跌幅0.62%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798616_1_20250402144221.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798416-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798416-20250401.htm)
-
----
-
-# 羅開揚由大快活執董調為非執董　子羅輝承獲任為董事會副主席
-
-![羅開揚（左）由公司執行董事調任為非執行董事，羅輝承（右）獲委任為董事會副主席。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798429_1_20250401125811.jpg&q=90)
-  
-
-大快活公布，羅開揚已由公司執行董事調任為非執行董事，但仍留任為董事會主席及提名委員會主席；其兒子羅輝承獲委任為董事會副主席，並辭任行政總裁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798429-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798429-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798429-20250401.htm)
 
 ---

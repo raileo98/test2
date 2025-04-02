@@ -1,3 +1,27 @@
+# 德勤：內地人工智能發展促使基金重新部署　料支持今年新股市場
+
+![歐振興預計，今年新股市場將繼續保持暢旺，DeepSeek觸發市場對中國企業估值重估後，之前低配內地與香港股票的基金重新部署。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798619_1_20250402145132.jpg&q=90)
+  
+
+會計師行德勤維持今年本港將錄得約80隻新股、集資約1300至1500億元的預測，集資額有望力爭全球三甲。德勤表示，上季已經有118隻新股申請有待審批，當中包括數百億元的大型新股。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798619-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798619-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798619-20250402.htm)
+
+---
+
 # 文憑試中文卷一文言文談安史之亂　作文題包括「為不完美添色彩」
 
   
