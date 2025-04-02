@@ -1,3 +1,26 @@
+# 特朗普公布對等關稅　中國稅率34%、歐盟20%、英國10%
+
+  
+
+美國總統特朗普在白宮公布對等關稅措施，向不同國家徵收不同稅率的關稅，其中中國進口產品的關稅為34%、歐盟產品關稅是20%、英國和巴西10%，日本、南韓、印度分別是24%、25%和26%，對越南和柬埔寨產品的關稅分別高達46%和49%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798713-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798713-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798713-20250403.htm)
+
+---
+
 # 特朗普宣布對外國汽車徵25%關稅　稱職位和本土製造將重返美國
 
 ![美國總統特朗普在白宮發表講話，宣布新關稅措施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798711_1_20250403043642.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm)
-
----
-
-# 林定國：制裁是赤裸裸霸權欺凌　對他毫無影響
-
-![林定國指出，客觀而言，實施制裁的理由完全站不住腳。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798419_1_20250401124140.jpg&q=90)
-  
-
-美國國務院以進行跨國打壓及損害香港自治為由，制裁6名中央和香港特區官員，包括律政司司長林定國。林定國回應傳媒查詢表示，有關制裁對他毫無影響，不影響他的工作和生活。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm)
 
 ---

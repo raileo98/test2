@@ -1,3 +1,26 @@
+# 特朗普公布對等關稅　中國稅率34%、歐盟20%、英國10%
+
+  
+
+美國總統特朗普在白宮公布對等關稅措施，向不同國家徵收不同稅率的關稅，其中中國進口產品的關稅為34%、歐盟產品關稅是20%、英國和巴西10%，日本、南韓、印度分別是24%、25%和26%，對越南和柬埔寨產品的關稅分別高達46%和49%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798713-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798713-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798713-20250403.htm)
+
+---
+
 # 美股高收　市場關注特朗普關稅措施細節
 
 ![美股反覆高收，收市後總統特朗普公布新關稅措施細節。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798712_1_20250403044653.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798647-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798647-20250402.htm)
-
----
-
-# 內地提出17項政策措施完善價格調控機制
-
-![國務院辦公廳印發的意見，提出17項政策舉措，涉及完善促進物價保持合理水平的價格調控機制、優化透明可預期的市場價格監管機制等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798645_1_20250402170921.jpg&q=90)
-  
-
-國務院辦公廳印發《關於完善價格治理機制的意見》，提出17項政策舉措，涉及完善促進物價保持合理水平的價格調控機制、優化透明可預期的市場價格監管機制等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798645-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798645-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798645-20250402.htm)
 
 ---
