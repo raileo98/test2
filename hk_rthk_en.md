@@ -1,3 +1,52 @@
+# 'HOS flats give youngsters looking to buy homes hope'
+
+![Winnie Ho says it is essential to have a continuous housing supply. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798574_1_20250402103205.jpg&q=80)
+  
+
+Secretary for Housing Winnie Ho on Wednesday said authorities are rolling out about 50,000 subsidised residential flats in the next five years to make it easier for youngsters to own a home.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798574-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798574-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798574-20250402.htm)
+
+---
+
+# Trump-backed candidate loses Wisconsin court election
+
+![Susan Crawford speaks with a supporter on the campus of University of Wisconsin Madison on Tuesday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798578_3_20250402111452.jpg&q=90)
+![Crawford activists celebrate at her election night headquarters in Madison, Wisconsin. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798578_4_20250402111452.jpg&q=90)
+  
+
+The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenger endorsed by President Donald Trump and billionaire Elon Musk, cementing a liberal majority for at least three more years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798578-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798578-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798578-20250402.htm)
+
+---
+
 # Fo Tan murder suspect arrested in Thailand
 
 ![The 25-year-old man who was wanted by SAR police has been arrested in Pattaya. Photo courtesy of Thailand's Immigration Bureau.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798572_1_20250402103000.jpg&q=90)
@@ -120,7 +169,7 @@ Mass layoffs began at the major US health agencies on Tuesday as the Trump admin
 
 # Volcano erupts in southwestern Iceland
 
-![Molten lava is seen coming out of a fissure on the outskirts of the fishing village Grindavik in southwest Iceland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798551_1_20250402085600.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798551_1_20250402085600.jpg&q=85)
   
 
 A volcano in southwestern Iceland - that has erupted repeatedly for more than a year - again belched lava and smoke into the air on Tuesday, just hours after authorities evacuated the few remaining residents of a nearby fishing village.
@@ -1389,53 +1438,5 @@ A "megaquake" and subsequent tsunami could cause up to 298,000 deaths in Japan a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm)
-
----
-
-# HA unveils smart measures to better monitor patients
-
-![The Hospital Authority is bringing new technology to public hospitals. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798304_1_20250331180722.jpg&q=90)
-  
-
-The Hospital Authority (HA) on Monday announced a series of smart measures in accident and emergency departments and wards to better monitor patients and reduce medical mishaps.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798304-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798304-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798304-20250331.htm)
-
----
-
-# HK set to see Reds, Arsenal, Spurs and Milan in action
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798296_1_20250331174722.jpg&q=80)
-  
-
-Four of the world’s top football teams will be coming to Hong Kong this summer for pre-season friendlies as they gear up for the 2025-26 season, organisers said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm)
 
 ---

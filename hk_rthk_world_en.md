@@ -1,3 +1,28 @@
+# Trump-backed candidate loses Wisconsin court election
+
+![Susan Crawford speaks with a supporter on the campus of University of Wisconsin Madison on Tuesday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798578_3_20250402111452.jpg&q=90)
+![Crawford activists celebrate at her election night headquarters in Madison, Wisconsin. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798578_4_20250402111452.jpg&q=90)
+  
+
+The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenger endorsed by President Donald Trump and billionaire Elon Musk, cementing a liberal majority for at least three more years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798578-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798578-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798578-20250402.htm)
+
+---
+
 # US senator makes record books with 25-hour talk-a-thon
 
 ![Cory Booker takes a more animated turn during his marathon speech in the US Senate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798571_1_20250402102752.jpg&q=90)
@@ -48,7 +73,7 @@ Mass layoffs began at the major US health agencies on Tuesday as the Trump admin
 
 # Volcano erupts in southwestern Iceland
 
-![Molten lava is seen coming out of a fissure on the outskirts of the fishing village Grindavik in southwest Iceland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798551_1_20250402085600.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798551_1_20250402085600.jpg&q=85)
   
 
 A volcano in southwestern Iceland - that has erupted repeatedly for more than a year - again belched lava and smoke into the air on Tuesday, just hours after authorities evacuated the few remaining residents of a nearby fishing village.
@@ -1414,29 +1439,5 @@ Australian Prime Minister Anthony Albanese said on Thursday he would call a gene
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm)
-
----
-
-# Beijing warns of 'no winners' over new Trump tariffs
-
-![BYD cars await loading onto one of the company's roll-on/roll-off export vessels in Suzhou this year. China says US tariffs on foreign-made cars won't help Washington solve its own problems. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797697_1_20250327163138.jpg&q=80)
-  
-
-China warned on Thursday a trade war would have "no winners" after US President Donald Trump announced 25 percent import tariffs on foreign-made cars.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797697-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797697-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797697-20250327.htm)
 
 ---

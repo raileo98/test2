@@ -1,3 +1,27 @@
+# 'HOS flats give youngsters looking to buy homes hope'
+
+![Winnie Ho says it is essential to have a continuous housing supply. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798574_1_20250402103205.jpg&q=80)
+  
+
+Secretary for Housing Winnie Ho on Wednesday said authorities are rolling out about 50,000 subsidised residential flats in the next five years to make it easier for youngsters to own a home.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798574-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798574-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798574-20250402.htm)
+
+---
+
 # Fo Tan murder suspect arrested in Thailand
 
 ![The 25-year-old man who was wanted by SAR police has been arrested in Pattaya. Photo courtesy of Thailand's Immigration Bureau.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798572_1_20250402103000.jpg&q=90)
@@ -1424,35 +1448,5 @@ A Kowloon City district councillor believes the area will not be congested when 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm)
-
----
-
-# Lines, fire and hair: Art Basel 2025 kicks off
-
-![Chen is performing at Art Basel with her partner, dancer Francisco Borges. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_2_20250328104141.jpg&q=90)
-![The "Questioning the Line" art performance piece also explores the entanglement between human and nature. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_6_20250328105506.jpg&q=85)
-![American painter Alec Egan's new works pays homage to the work he lost in the Los Angeles fire and captures the eerie beauty of ash-filled skies. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_3_20250328104141.jpg&q=90)
-![The gallery representing Egan says they hope that audiences will feel "hopefulness" after viewing his work. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_7_20250328112516.jpg&q=80)
-![Shin Min says her "Ew! There is hair in the food!!" exhibition highlights misogyny in Korea. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_4_20250328104141.jpg&q=90)
-![Shin's work also challenges the notion of never saying no to customers. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_8_20250328112516.jpg&q=85)
-![The SAR's largest international art fair brings together more than 240 galleries from around the world this year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797813_5_20250328104141.jpg&q=85)
-  
-
-When Hong Kong artist Movana Chen moved to Lisbon in 2021, she started knitting together maps collected during Covid isolation in an attempt to unravel physical boundaries.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797813-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797813-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797813-20250328.htm)
 
 ---
