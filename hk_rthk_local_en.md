@@ -1,3 +1,27 @@
+# Drivers' pay rises once joining taxi fleet: operator
+
+![The Transport Department has granted conditional licences to five operators to form fleets, but only two of them have piloted a run. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798583_1_20250402114151.jpg&q=85)
+  
+
+The operator of a licensed taxi fleet said drivers’ income had significantly increased since the launch of a new premium cab scheme.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798583-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798583-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798583-20250402.htm)
+
+---
+
 # 'HOS flats give youngsters looking to buy homes hope'
 
 ![Winnie Ho says it is essential to have a continuous housing supply. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798574_1_20250402103205.jpg&q=80)
@@ -1424,29 +1448,5 @@ A patients' rights group says it hopes the government can use AI chatbots in its
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797824-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797824-20250328.htm)
-
----
-
-# 'Kowloon City won't be congested during the Sevens'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797820_1_20250328112333.jpg&q=70)
-  
-
-A Kowloon City district councillor believes the area will not be congested when Hong Kong Rugby Sevens tournament games end every evening.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797820-20250328.htm)
 
 ---

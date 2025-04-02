@@ -1,3 +1,26 @@
+# 蕭澤頤出席歡送禮　相信新管理層帶領下警隊繼續進步
+
+  
+
+警隊昨日為最後一日出任警務處處長的蕭澤頤舉行歡送典禮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798588-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798588-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798588-20250402.htm)
+
+---
+
 # 清明節14間普通科門診提供公眾假期診症服務
 
 ![本周五清明節假期將有14間普通科門診診所，提供公眾假期普通科門診服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798587_1_20250402115756.jpg&q=80)
@@ -1419,29 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798395-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798395-20250401.htm)
-
----
-
-# 李家超：東江水支持香港經濟　確保可持續發展和長期繁榮
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798393_1_20250401111135.jpg&q=90)
-  
-
-行政長官李家超表示，60年前東江水正式供港，60年間為香港提供70%至80%的用水需求。隨著香港對水資源需求增加，東深供水系統已進行過3次擴建和改造，對港供水量提升到每年8億2000萬立方米，增長12倍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm)
 
 ---

@@ -1,6 +1,6 @@
 # Trump-backed candidate loses Wisconsin court election
 
-![Crawford activists celebrate at her election night headquarters in Madison, Wisconsin. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798578_4_20250402111452.jpg&q=90)
+![Susan Crawford acknowledges the mood at her election night headquarters in Madison, Wisconsin, after her triumph. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798589_1_20250402120941.jpg&q=90)
   
 
 The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenger endorsed by President Donald Trump and billionaire Elon Musk, cementing a liberal majority for at least three more years.
@@ -11,14 +11,14 @@ The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenge
 ---
 
 原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798578-20250402.htm>
+<https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm>
 
 © rthk.hk
 
 電子郵件:
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798578-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798578-20250402.htm)
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm)
 
 ---
 

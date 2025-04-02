@@ -1,3 +1,26 @@
+# 蕭澤頤出席歡送禮　相信新管理層帶領下警隊繼續進步
+
+  
+
+警隊昨日為最後一日出任警務處處長的蕭澤頤舉行歡送典禮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798588-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798588-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798588-20250402.htm)
+
+---
+
 # 清明節14間普通科門診提供公眾假期診症服務
 
 ![本周五清明節假期將有14間普通科門診診所，提供公眾假期普通科門診服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798587_1_20250402115756.jpg&q=80)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm)
-
----
-
-# 消防搜索近40小時尋獲於大埔上碗窰失聯的65歲女子
-
-![消防處說，今次行動使用攀山拯救流動應用程式，將制定和分派路線的指示，實時分派搜救小隊，增加行動準確性和效率。（消防提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798511_3_20250401221140.jpg&q=75)
-  
-
-一名年約65歲女子在大埔上碗窰失去聯絡。消防處昨日凌晨接報，聯同民安隊和飛行服務隊進行搜救接近40小時，至今日下午4時，在距離主要山徑200米位置的隱敝密林中發現失蹤人士，送院治理。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798511-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798511-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798511-20250401.htm)
 
 ---
