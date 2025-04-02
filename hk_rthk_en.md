@@ -1,3 +1,51 @@
+# New police chief will lead force well: Regina Ip
+
+![Regina Ip believes new police commissioner Joe Chow will lead the force effectively. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798621_1_20250402145453.jpg&q=80)
+  
+
+Executive Council convenor Regina Ip on Wednesday said she believes new police commissioner Joe Chow will lead the force effectively.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798621-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798621-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798621-20250402.htm)
+
+---
+
+# Chinese companies abroad told to abide by local laws
+
+![The skyscraper that collapsed was a joint project involving an offshoot of China Railway Group. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798620_1_20250402151025.jpg&q=90)
+  
+
+China's embassy in Bangkok called on the country's companies operating abroad to comply with local laws after a Chinese construction firm came under scrutiny over a deadly building collapse in Friday's earthquake.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm)
+
+---
+
 # National security among new police chief's priorities
 
 ![Joe Chow says one of his priorities is to enhance public awareness of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798611_1_20250402141242.jpg&q=80)
@@ -1390,53 +1438,5 @@ OpenAI on Monday said it raised US$40 billion in a new funding round that valued
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm)
-
----
-
-# SAR government hits out as officials sanctioned by US
-
-![The government said the move exposed US barbarity under its hegemony. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798354_1_20250401054205.jpg&q=80)
-  
-
-The SAR government on Tuesday condemned the United States after the US put six mainland and Hong Kong officials on its sanctions list.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798354-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798354-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798354-20250401.htm)
-
----
-
-# Braves' Profar suspended 80 games for doping violation
-
-![Profar agreed to a three-year deal with the Atlanta Braves in January. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798372_1_20250401083652.jpg&q=90)
-  
-
-Major League Baseball has suspended Atlanta Braves slugger Jurickson Profar for 80 games after he tested positive for the performance-enhancing chorionic gonadotropin (hCG), MLB announced.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm)
 
 ---

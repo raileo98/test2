@@ -1,3 +1,27 @@
+# New police chief will lead force well: Regina Ip
+
+![Regina Ip believes new police commissioner Joe Chow will lead the force effectively. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798621_1_20250402145453.jpg&q=80)
+  
+
+Executive Council convenor Regina Ip on Wednesday said she believes new police commissioner Joe Chow will lead the force effectively.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798621-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798621-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798621-20250402.htm)
+
+---
+
 # National security among new police chief's priorities
 
 ![Joe Chow says one of his priorities is to enhance public awareness of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798611_1_20250402141242.jpg&q=80)
@@ -1424,29 +1448,5 @@ The city's top graft-buster, Danny Woo, on Friday warned that authorities will t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm)
-
----
-
-# Public transport enhanced for Rugby Sevens
-
-![Public transport operators are stepping up services during the Hong Kong Sevens. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797838_1_20250328123606.jpg&q=85)
-  
-
-Public transport operators are boosting services to accommodate the large crowds of passengers expected during the Hong Kong Sevens tournament.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm)
 
 ---

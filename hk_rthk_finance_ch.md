@@ -1,3 +1,27 @@
+# 恒指低收4點　科指靠穩　小米再跌逾4%
+
+![恒指午後窄幅上落，最終收市報23202點，跌4點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798635_1_20250402162152.jpg&q=75)
+  
+
+港股早段一度失守23000點，低見22980點，跌逾225點，其後轉升最多近190點，午後窄幅上落，最終收市報23202點，跌4點，全日主板成交額近2166億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798635-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798635-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798635-20250402.htm)
+
+---
+
 # 內地股市收市變動不大
 
 ![上證指數收報3350點，升1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798624_1_20250402151120.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798434-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798434-20250401.htm)
-
----
-
-# 復星國際：投資菜鳥本身是盈利能力非常好項目　續推進輕資產業務
-
-![受累對菜鳥投資產生一次性非現金賬面損失約51億元人民幣，復星國際去年由盈轉虧，但龔平形容項目本身盈利能力非常好。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798433_1_20250401131922.jpg&q=90)
-  
-
-受累對菜鳥投資產生一次性非現金帳面損失約51億元人民幣，復星國際去年由盈轉虧，蝕逾43億元人民幣，前年獲利近14億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798433-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798433-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798433-20250401.htm)
 
 ---

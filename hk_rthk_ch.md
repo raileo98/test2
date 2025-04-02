@@ -1,3 +1,27 @@
+# 恒指低收4點　科指靠穩　小米再跌逾4%
+
+![恒指午後窄幅上落，最終收市報23202點，跌4點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798635_1_20250402162152.jpg&q=75)
+  
+
+港股早段一度失守23000點，低見22980點，跌逾225點，其後轉升最多近190點，午後窄幅上落，最終收市報23202點，跌4點，全日主板成交額近2166億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798635-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798635-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798635-20250402.htm)
+
+---
+
 # 外交部：中方開展聯合演訓　任何外部勢力無權說三道四
 
 ![郭嘉昆說，中方開展聯合演訓，是對賴清德當局倡狂謀「獨」挑釁的堅決懲戒，是對「台獨」分裂勢力蓄意破壞台海和平的嚴重警告。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798631_1_20250402155112.jpg&q=90)
