@@ -1,3 +1,27 @@
+# 渣打將內地今年經濟增長預測由4.5%上調至4.8%
+
+![渣打銀行上調內地今年全年經濟增長預測。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798580_1_20250402111503.jpg&q=90)
+  
+
+渣打銀行上調內地今年全年及每季經濟增長預測，全年經濟增長由原來預計4.5%，上調至4.8%，受惠首季經濟數據向好，加上堅定的政策保證。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798580-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798580-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798580-20250402.htm)
+
+---
+
 # 解放軍東部戰區在東海實施遠端火力實彈射擊演練　取得預期效果
 
 ![解放軍東部戰區陸軍部隊，按照「海峽雷霆-2025A」演練計劃。圖為央視播出昨天演訓的畫面。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798570_1_20250402103244.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798230-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798230-20250331.htm)
-
----
-
-# 一名中國公民於緬甸地震遇難　中方隊伍7小時內救出4名倖存者
-
-![岳馨說中方救援人員定位時需採取監控及敲擊詢問等方式，再開闢綠色通道，對隊員意志力及體能是極大挑戰。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798226_1_20250331124358.jpg&q=85)
-  
-
-緬甸大地震發生已接近三日，最少1700人死亡。新華社報道，一名中國公民遇難。各方力量繼續搜救，中方救援隊於7小時內在重災區曼德勒市先後救出4名倖存者；中方昨日在當地救援力量配合下，亦成功救出2名倖存者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798226-20250331.htm)
 
 ---

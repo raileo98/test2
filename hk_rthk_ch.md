@@ -1,3 +1,27 @@
+# 渣打將內地今年經濟增長預測由4.5%上調至4.8%
+
+![渣打銀行上調內地今年全年經濟增長預測。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798580_1_20250402111503.jpg&q=90)
+  
+
+渣打銀行上調內地今年全年及每季經濟增長預測，全年經濟增長由原來預計4.5%，上調至4.8%，受惠首季經濟數據向好，加上堅定的政策保證。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798580-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798580-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798580-20250402.htm)
+
+---
+
 # 李家超：深信周一鳴定能有力帶領警隊　迎接未來挑戰
 
 ![李家超形容周一鳴表現卓越，具領導才能，又說深信他一定能夠有力帶領警隊，迎接未來挑戰。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798579_1_20250402110853.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798506-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798506-20250401.htm)
-
----
-
-# 越秀地產以11億元人民幣投得杭州住宅地
-
-![越秀地產公布，旗下附屬公司以11億元人民幣投得杭州一幅住宅地皮。公司認為，收購成本合理，有助進一步鞏固公司在杭州的戰略地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798505_1_20250401211314.jpg&q=80)
-  
-
-越秀地產公布，旗下附屬公司通過公開掛牌方式，以11億元人民幣成功競投杭州一幅住宅地皮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm)
 
 ---

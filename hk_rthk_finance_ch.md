@@ -1,3 +1,27 @@
+# 渣打將內地今年經濟增長預測由4.5%上調至4.8%
+
+![渣打銀行上調內地今年全年經濟增長預測。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798580_1_20250402111503.jpg&q=90)
+  
+
+渣打銀行上調內地今年全年及每季經濟增長預測，全年經濟增長由原來預計4.5%，上調至4.8%，受惠首季經濟數據向好，加上堅定的政策保證。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798580-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798580-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798580-20250402.htm)
+
+---
+
 # 植田和男：美國關稅對各國貿易活動有重大影響
 
 ![植田和男表示，美國的關稅措施可能對每個國家貿易活動都產生重大影響。（日本央行圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798577_1_20250402104756.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798402-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798402-20250401.htm)
-
----
-
-# 日本央行任命經濟學家中村康治為央行新理事
-
-![日本央行任命經濟學家中村康治為央行新理事，將負責監督貨幣政策和金融市場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798398_1_20250401103100.jpg&q=75)
-  
-
-日本央行任命經濟學家中村康治為央行新理事，接替4年任期屆滿的加藤毅，中村康治將負責監督貨幣政策和金融市場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798398-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798398-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798398-20250401.htm)
 
 ---
