@@ -1,3 +1,50 @@
+# 政府就規範籃球博彩展開諮詢　諮詢期至下月2日
+
+  
+
+政府就規範籃球博彩活動的建議方案展開諮詢，諮詢期至下月2日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm)
+
+---
+
+# 港大預測本港第2季經濟按年增速加快至2.5%
+
+![港大預測，本港第2季經濟增速，將由首季預估的1.6%，加快至2.5%，或創1年以來高位。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798633_1_20250402161332.jpg&q=90)
+  
+
+港大預測，本港第2季經濟增速，將由首季預估的1.6%，加快至2.5%，或創1年以來高位，受惠通脹溫和，私人消費、出口及投資都預料按季有所改善。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm)
+
+---
+
 # 林健鋒認為周一鳴經驗豐富人緣好　是警務處處長合適人選
 
 ![林健鋒說，認識周一鳴多年，認為他是實幹的人，亦願意聆聽各方意見。（陳樂謙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798630_1_20250402161126.jpg&q=90)
@@ -1393,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm)
-
----
-
-# 吳安儀凱旋回港　盼有更多時間推廣桌球
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798453_1_20250401160211.jpg&q=90)
-  
-
-成功衛冕英國女子公開賽冠軍的本港女子桌球手吳安儀返抵香港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798453-20250401.htm)
-
----
-
-# 美國制裁6名中央和特區官員　中方稱堅決反制美方錯誤行徑
-
-![郭嘉昆重申，香港事務純屬中國內政，敦促美方停止以任何方式插手香港事務和中國內政。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798451_1_20250401154203.jpg&q=90)
-  
-
-美國以損害香港自治為由，制裁6名中央和特區官員。在北京，外交部發言人郭嘉昆表示強烈不滿，堅決反對，並予以強烈譴責，表明將堅決反制美方錯誤行徑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm)
 
 ---

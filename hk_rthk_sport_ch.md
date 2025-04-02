@@ -1,3 +1,26 @@
+# 政府就規範籃球博彩展開諮詢　諮詢期至下月2日
+
+  
+
+政府就規範籃球博彩活動的建議方案展開諮詢，諮詢期至下月2日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm)
+
+---
+
 # 英超聯賽　阿仙奴主場2:1挫富咸　諾定咸森林和狼隊主場亦取勝
 
 ![布卡約沙卡傷癒復出，為阿仙奴攻入一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798543_1_20250402070614.jpg&q=90)
@@ -1432,32 +1455,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796729-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796729-20250321.htm)
-
----
-
-# 歐國聯8強西班牙逼和荷蘭　德國反勝意大利　法國葡萄牙均敗陣
-
-![美連奴93分鐘取得入球，協助西班牙逼和荷蘭。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796708_1_20250321071009.jpg&q=75)
-![德國反勝意大利。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796708_2_20250321071009.jpg&q=85)
-![克羅地亞兩球淨勝法國。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796708_3_20250321071009.jpg&q=90)
-![有基斯坦奴朗拿度壓陣的葡萄牙同樣吃敗仗。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796708_4_20250321071009.jpg&q=90)
-  
-
-歐國聯8強首回合，多支傳統勁旅對碰，西班牙逼和荷蘭2:2，德國反勝意大利2:1，但法國和葡萄牙就分別落敗。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796708-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796708-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796708-20250321.htm)
 
 ---

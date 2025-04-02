@@ -1,3 +1,50 @@
+# 政府就規範籃球博彩展開諮詢　諮詢期至下月2日
+
+  
+
+政府就規範籃球博彩活動的建議方案展開諮詢，諮詢期至下月2日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm)
+
+---
+
+# 港大預測本港第2季經濟按年增速加快至2.5%
+
+![港大預測，本港第2季經濟增速，將由首季預估的1.6%，加快至2.5%，或創1年以來高位。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798633_1_20250402161332.jpg&q=90)
+  
+
+港大預測，本港第2季經濟增速，將由首季預估的1.6%，加快至2.5%，或創1年以來高位，受惠通脹溫和，私人消費、出口及投資都預料按季有所改善。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm)
+
+---
+
 # 恒指低收4點　科指靠穩　小米再跌逾4%
 
 ![恒指午後窄幅上落，最終收市報23202點，跌4點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798635_1_20250402162152.jpg&q=75)

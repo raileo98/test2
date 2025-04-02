@@ -1,3 +1,27 @@
+# Roles of RTHK, information unit don't overlap: govt
+
+![Commerce chief Algernon Yau told a Legislative Council meeting that merging RTHK and the Information Services Department could be "counterproductive".](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798626_1_20250402152610.jpg&q=90)
+  
+
+Commerce chief Algernon Yau on Wednesday stressed that merging the city's public broadcaster and the government's public relations office might not be the most effective way to cut expenditure, saying the two bodies do not overlap in their functions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm)
+
+---
+
 # New police chief will lead force well: Regina Ip
 
 ![Regina Ip believes new police commissioner Joe Chow will lead the force effectively. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798621_1_20250402145453.jpg&q=80)
@@ -1424,29 +1448,5 @@ The Hong Kong Sevens tournament kicked off with a bang at Kai Tak Stadium on Fri
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797870-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797870-20250328.htm)
-
----
-
-# ICAC chief lays down law on calls for invalid votes
-
-![Danny Woo says the ICAC has started using an AI system to improve work efficiency. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797856_2_20250328151239.jpg&q=90)
-  
-
-The city's top graft-buster, Danny Woo, on Friday warned that authorities will take tough action against those who call for invalid votes to be cast during the upcoming election for the city's legislature at the end of the year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797856-20250328.htm)
 
 ---

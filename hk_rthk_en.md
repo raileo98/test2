@@ -1,3 +1,51 @@
+# Roles of RTHK, information unit don't overlap: govt
+
+![Commerce chief Algernon Yau told a Legislative Council meeting that merging RTHK and the Information Services Department could be "counterproductive".](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798626_1_20250402152610.jpg&q=90)
+  
+
+Commerce chief Algernon Yau on Wednesday stressed that merging the city's public broadcaster and the government's public relations office might not be the most effective way to cut expenditure, saying the two bodies do not overlap in their functions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm)
+
+---
+
+# CATL and Sinopec eye 10,000 battery swap stations
+
+![The deal is aimed at easing range anxiety among electric vehicle drivers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798636_1_20250402163804.jpg&q=90)
+  
+
+Chinese electric vehicle battery giant CATL said on Wednesday that it will partner with state-owned oil giant Sinopec to build 10,000 battery swap stations.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798636-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798636-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798636-20250402.htm)
+
+---
+
 # New police chief will lead force well: Regina Ip
 
 ![Regina Ip believes new police commissioner Joe Chow will lead the force effectively. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798621_1_20250402145453.jpg&q=80)
@@ -1390,53 +1438,5 @@ Hong Kong, China snooker player Ng On-yee on Monday defeated World No. 1 Mink Nu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm)
-
----
-
-# Over 320 children killed in Gaza in 10 days, says UN
-
-![A mourner carries the body of a Palestinian child killed in Israeli strikes, at Nasser hospital, in Khan Younis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798373_1_20250401083731.jpg&q=85)
-  
-
-Israel's renewed offensive in Gaza has reportedly left at least 322 children dead and 609 wounded in the Palestinian territory in the past 10 days, UNICEF said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798373-20250401.htm)
-
----
-
-# OpenAI to raise US$40 billion in new funding
-
-![SoftBank is to pump US$10 billion into OpenAI to start, and US$30 billion more by the end of this year pending certain conditions. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798374_1_20250401084730.jpg&q=90)
-  
-
-OpenAI on Monday said it raised US$40 billion in a new funding round that valued the ChatGPT maker at US$300 billion, the biggest capital-raising session ever for a startup.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798374-20250401.htm)
 
 ---

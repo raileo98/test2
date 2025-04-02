@@ -1,3 +1,27 @@
+# CATL and Sinopec eye 10,000 battery swap stations
+
+![The deal is aimed at easing range anxiety among electric vehicle drivers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798636_1_20250402163804.jpg&q=90)
+  
+
+Chinese electric vehicle battery giant CATL said on Wednesday that it will partner with state-owned oil giant Sinopec to build 10,000 battery swap stations.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798636-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798636-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798636-20250402.htm)
+
+---
+
 # Chinese companies abroad told to abide by local laws
 
 ![The skyscraper that collapsed was a joint project involving an offshoot of China Railway Group. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798620_1_20250402151025.jpg&q=90)
@@ -1415,29 +1439,5 @@ Malaysia has agreed to the terms and conditions of an agreement with exploration
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm)
-
----
-
-# 'Stable China-US trade ties benefit global firms'
-
-![Wang Shouwen holds talks with Ramon Laguarta in Beijing. Photo courtesy of Commerce Ministry website](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796422_1_20250319154955.jpg&q=90)
-  
-
-A stable, healthy and sustainable China-US economic and trade relationship is in the fundamental interest of both countries, and also benefits global companies, Vice Commerce Minister Wang Shouwen told PepsiCo Chairman Ramon Laguarta in their meeting in Beijing.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 港大預測本港第2季經濟按年增速加快至2.5%
+
+![港大預測，本港第2季經濟增速，將由首季預估的1.6%，加快至2.5%，或創1年以來高位。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798633_1_20250402161332.jpg&q=90)
+  
+
+港大預測，本港第2季經濟增速，將由首季預估的1.6%，加快至2.5%，或創1年以來高位，受惠通脹溫和，私人消費、出口及投資都預料按季有所改善。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm)
+
+---
+
 # 恒指低收4點　科指靠穩　小米再跌逾4%
 
 ![恒指午後窄幅上落，最終收市報23202點，跌4點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798635_1_20250402162152.jpg&q=75)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798412-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798412-20250401.htm)
-
----
-
-# 復星國際：將堅持加大AI相關領域投入
-
-![徐曉亮指出，集團利用人工智能(AI)協助藥物研發3年，已有一定成果。（公司圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798434_1_20250401132717.jpg&q=90)
-  
-
-復星國際聯席首席執行官徐曉亮指出，集團利用人工智能(AI)協助藥物研發3年，已有一定成果，基於AI設計的藥物亦已進入臨床試驗階段，認為AI能大幅提高藥物研發效率，期望未來能與國家研究機構一同構建AI藥物研發公共平台。此外，復星旅文亦已成立人工智能創新中心，推動AI科技在旅遊度假領域的應用。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798434-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798434-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798434-20250401.htm)
 
 ---
