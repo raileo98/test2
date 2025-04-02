@@ -334,7 +334,7 @@
 
 # 周一鳴認為社會存在軟對抗　無懼制裁不影響與海外合作
 
-![周一鳴指很多人以不同方式「軟對抗」，希望透過媒體、文化藝術項目嘗試煽動其他人。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798606_1_20250402135114.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798606_1_20250402135114.jpg&q=80)
   
 
 新任警務處處長周一鳴表示，《香港國安法》及《維護國家安全條例》實施有如「定海神針」，雖然社會平靜，但暗湧處處，很多人以不同方式「軟對抗」，希望透過媒體、文化藝術項目嘗試煽動其他人。
@@ -478,7 +478,7 @@
 
 # 周一鳴對任命感光榮　將維護國家安全推動智慧警政及鞏固團隊文化
 
-![周一鳴表示，對任命感光榮，將維護國家安全、推動智慧警政及鞏固團隊文化。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798597_1_20250402124454.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798597_1_20250402124454.jpg&q=90)
   
 
 新任警務處處長周一鳴表示，未來工作有三個重點方向，第一是維護國家安全，以及提升全民國家安全的意識；第二是推動智慧警政，善用科技提升行動效率、工作效能以及提供更加優質的服務；第三是鞏固團隊文化，共同價值觀及歸屬感，提供更加到位的支援及機遇發展的機會。
