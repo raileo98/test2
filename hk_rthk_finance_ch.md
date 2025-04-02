@@ -1,3 +1,75 @@
+# 南韓3月通脹率2.1%高於預期
+
+![南韓3月消費物價指數按年上升2.1%，高於市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798545_1_20250402080004.jpg&q=80)
+  
+
+南韓政府數據顯示，3月消費物價指數按年上升2.1%，較2月高0.1個百分點，亦高於市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798545-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798545-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798545-20250402.htm)
+
+---
+
+# 韓股開市後靠穩
+
+![首爾綜合指數較早時報2525點，升3點。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798547_1_20250402080751.jpg&q=90)
+  
+
+南韓股市靠穩。首爾綜合指數較早時報2525點，升3點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798547-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798547-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798547-20250402.htm)
+
+---
+
+# 日股開市後靠穩
+
+![日經指數較早時報35687點，升63點。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798546_1_20250402080644.jpg&q=85)
+  
+
+東京股市靠穩。日經指數較早時報35687點，升63點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798546-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798546-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798546-20250402.htm)
+
+---
+
 # 白宮稱特朗普與團隊一同完善對等關稅措施細節　指各國尋求談判
 
 ![萊維特（圖）說對等關稅將於特朗普宣布後立即生效。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798542_1_20250402065113.jpg&q=90)
@@ -1363,79 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798378-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798378-20250401.htm)
-
----
-
-# 聯儲局官員對減息態度謹慎
-
-![威廉姆斯稱無法預測聯儲局何時可能調整利率。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798371_1_20250401083536.jpg&q=90)
-  
-
-紐約聯邦儲備銀行總裁威廉姆斯表示，貨幣政策處於良好位置，足以應對今年經濟可能出現的情況，但同時承認，通脹有再次升溫的風險，需要獲取更多信息，才能明確關稅對價格壓力的影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm)
-
----
-
-# 西藏多項措施促就業　企業稱校企合作與補貼有助發展
-
-![企業為學生提供陶瓷藝術繪畫及手工拉坯課程。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_1_20250401082246.jpg&q=85)
-![廚具公司受政府補貼進駐拉薩設廠，創造逾百個就業職位。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_2_20250401082246.jpg&q=85)
-![落戶西藏的廚具公司獲政府補貼，研發符合西藏居民需求的產品，例如全自動酥油茶壺等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_3_20250401083605.jpg&q=80)
-  
-
-西藏自治區成立60周年，當地政府近年推出多項措施促進就業，降低貧窮率，包括提供大學生創業補貼、實施就業見習補貼，亦鼓勵企業聘用區内高校畢業生，其中拉薩市去年高校畢業生就業率達95%，連續多年維持於高水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm)
-
----
-
-# 恒大汽車今早9時正起停牌
-
-![中國恒大汽車今早9時正起暫停股份買賣。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798368_1_20250401082229.jpg&q=90)
-  
-
-中國恒大汽車今早9時正起暫停股份買賣，以待刊發2024年度業績。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798368-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798368-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798368-20250401.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 解放軍東部戰區在台灣海峽中部和南部相關海域組織演練
+
+![東部戰區昨日開始，組織陸海空火等兵力，在台島周邊組織艦機多向抵近台島開展聯合演訓。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798548_1_20250402081312.jpg&q=90)
+  
+
+解放軍東部戰區今日在台灣海峽中部、南部相關海域，組織「海峽雷霆-2025A」演練，重點實施查證識別、警告驅離、攔截扣押等科目，檢驗部隊區域管控、聯合封控、精打擊要能力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798548-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798548-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798548-20250402.htm)
+
+---
+
 # 中方轉交中國紅十字會向緬甸所提供150萬元人民幣現匯援助
 
 ![中國向緬甸提供1億元人民幣緊急人道主義地震救災援助。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798527_1_20250402031421.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798197-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798197-20250331.htm)
-
----
-
-# 西藏近年著力健全養老服務　提供上門護理及推出多元興趣班
-
-![中心主任索朗次旦表示，老年人對養老服務需求增加，不僅限於日常起居。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798195_2_20250331092435.jpg&q=85)
-  
-
-今年是西藏自治區成立60周年，隨著中國人口老化問題加劇，西藏自治區政府近年亦著力健全養老服務體系，發展銀髮經濟，當地透過政商民合作，至今建成65所綜合型老年人日間照料中心，為60歲以上長者提供集養護、醫療、教育、娛樂、創業於一身的服務，單日收費100元人民幣。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798195-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798195-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798195-20250331.htm)
 
 ---

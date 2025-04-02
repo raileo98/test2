@@ -1,3 +1,99 @@
+# 南韓3月通脹率2.1%高於預期
+
+![南韓3月消費物價指數按年上升2.1%，高於市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798545_1_20250402080004.jpg&q=80)
+  
+
+南韓政府數據顯示，3月消費物價指數按年上升2.1%，較2月高0.1個百分點，亦高於市場預期。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798545-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798545-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798545-20250402.htm)
+
+---
+
+# 韓股開市後靠穩
+
+![首爾綜合指數較早時報2525點，升3點。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798547_1_20250402080751.jpg&q=90)
+  
+
+南韓股市靠穩。首爾綜合指數較早時報2525點，升3點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798547-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798547-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798547-20250402.htm)
+
+---
+
+# 日股開市後靠穩
+
+![日經指數較早時報35687點，升63點。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798546_1_20250402080644.jpg&q=85)
+  
+
+東京股市靠穩。日經指數較早時報35687點，升63點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798546-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798546-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798546-20250402.htm)
+
+---
+
+# 解放軍東部戰區在台灣海峽中部和南部相關海域組織演練
+
+![東部戰區昨日開始，組織陸海空火等兵力，在台島周邊組織艦機多向抵近台島開展聯合演訓。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798548_1_20250402081312.jpg&q=90)
+  
+
+解放軍東部戰區今日在台灣海峽中部、南部相關海域，組織「海峽雷霆-2025A」演練，重點實施查證識別、警告驅離、攔截扣押等科目，檢驗部隊區域管控、聯合封控、精打擊要能力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798548-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798548-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798548-20250402.htm)
+
+---
+
 # 英超聯賽　阿仙奴主場2:1挫富咸　諾定咸森林和狼隊主場亦取勝
 
 ![布卡約沙卡傷癒復出，為阿仙奴攻入一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798543_1_20250402070614.jpg&q=90)
@@ -1340,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798483-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798483-20250401.htm)
-
----
-
-# 考評局稱文憑試視藝科各試場運作暢順　9成考生使用「報到易」
-
-![考評局表示，約9成考生使用「報到易」應用程式完成自行簽到。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798481_1_20250401181641.jpg&q=90)
-  
-
-文憑試首科筆試、視覺藝術科今日開考。考評局表示，超過3900名考生於全港58個一般試場及超過240個特別試場應考，各試場的整體運作暢順。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798481-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798481-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798481-20250401.htm)
-
----
-
-# 陳茂波：香港百業興旺有賴穩定安全供水系統
-
-![陳茂波表示，東江供水系統不斷擴展和優化，支撐香港經濟蓬勃發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798480_1_20250401174125.jpg&q=90)
-  
-
-財政司司長陳茂波表示，東江供水系統不斷擴展和優化，支撐香港經濟蓬勃發展，即使其間東江流域受到旱情威脅，仍是確保香港的用水充足、優質和安全。今天香港是國際金融、貿易和航運中心，百業興旺，這些都有賴於國家的堅實支持和穩定安全的用水供應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm)
-
----
-
-# 緬甸地震增至逾2700人死亡　中國救援隊伍已救出8名倖存者
-
-![中國救援隊在曼德勒協助救援。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798479_1_20250401173446.jpg&q=90)
-  
-
-緬甸中部大地震發生至今，增至超過2700人死亡，4500多人受傷，超過440人失蹤。新華社報道，截至當地今早8時，中國救援隊伍共搜救出8名倖存者。至於在當地的特區救援隊，早上首次聯同中國救援隊搜救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm)
-
----
-
-# 外交部：伊朗核問題再走到十字路口　美方應早日回歸復談
-
-![郭嘉昆說，美方應展現政治誠意，早日回歸復談，制裁施壓、武力威脅沒有出路。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798478_1_20250401172222.jpg&q=90)
-  
-
-美國總統特朗普早前警告，如果伊朗不與美國就核問題達成協議，美國將轟炸伊朗，並對伊朗產品徵收關稅。在北京，外交部發言人郭嘉昆表示，伊朗核問題全面協議的執行因美方執意退出而受到干擾，美方應展現政治誠意，早日回歸復談，制裁施壓、武力威脅沒有出路。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm)
 
 ---

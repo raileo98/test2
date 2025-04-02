@@ -24,7 +24,7 @@ German Cup holders Bayer Leverkusen suffered a shock 2-1 elimination at Arminia 
 
 # Real Madrid hold Real Sociedad in eight-goal thriller
 
-![Antonio Rudiger, right, were among the scorers for Real Madrid. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798540_2_20250402062922.jpg&q=90)
+![Antonio Rudiger, right, was among the scorers for Real Madrid. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798540_2_20250402062922.jpg&q=90)
   
 
 Real Madrid edged into the Copa del Rey final with a thrilling 4-4 draw against Real Sociedad after extra-time, securing a 5-4 aggregate semi-final victory.
