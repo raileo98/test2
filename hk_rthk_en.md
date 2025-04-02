@@ -1,3 +1,51 @@
+# Barca oust Atlético; set up Clasico Copa del Rey final
+
+![Ferran Torres celebrates scoring the opening goal during the Spanish Copa del Rey semi-final second leg. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798723_1_20250403061233.jpg&q=90)
+  
+
+Barcelona will face rivals Real Madrid in the Copa del Rey final after Ferran Torres secured them a 1-0 win at Atlético Madrid, progressing 5-4 on aggregate from the semi-final tie.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm)
+
+---
+
+# Wall Street rises in another jittery day
+
+![More volatility is expected, with US futures moving decisively lower late Wednesday after Trump announced his tariffs plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798722_1_20250403060921.jpg&q=75)
+  
+
+US stocks whipped through another dizzying day on Wednesday in the final hours before President Donald Trump’s unveiling of tariffs promised as part of his Liberation Day.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798722-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798722-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798722-20250403.htm)
+
+---
+
 # Tesla sales slump as pressure piles on Musk
 
 ![The number of autos delivered globally dropped by 13 percent in the first three months of 2025. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798709_1_20250403033051.jpg&q=90)
@@ -1390,53 +1438,5 @@ A massive fire caused by a gas pipeline leak forced people from their homes and 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm)
-
----
-
-# 'Schools welcome proposed NET scheme changes'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798428_1_20250401125448.jpg&q=90)
-  
-
-A school representative said on Tuesday that proposed changes to the Native-speaking English Teacher (NET) scheme gives headteachers more flexibility.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798428-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798428-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798428-20250401.htm)
-
----
-
-# US sanctions have 'no impact' on Paul Lam
-
-![Justice chief Paul Lam is among six mainland and Hong Kong officials placed on Washington's sanctions list. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798426_1_20250401124951.jpg&q=80)
-  
-
-Secretary for Justice Paul Lam has stressed sanctions imposed by the United States "had no impact on him" and didn't affect his work and life, saying the best way to respond is to "remain calm and collected."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm)
 
 ---

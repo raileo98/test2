@@ -1,3 +1,27 @@
+# Barca oust Atlético; set up Clasico Copa del Rey final
+
+![Ferran Torres celebrates scoring the opening goal during the Spanish Copa del Rey semi-final second leg. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798723_1_20250403061233.jpg&q=90)
+  
+
+Barcelona will face rivals Real Madrid in the Copa del Rey final after Ferran Torres secured them a 1-0 win at Atlético Madrid, progressing 5-4 on aggregate from the semi-final tie.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798723-20250403.htm)
+
+---
+
 # Stuttgart beat Leipzig to reach German Cup final
 
 ![Stuttgart's Maximilian Mittelstädt celebrates after their 3-1 win over RB Leipzig. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798718_1_20250403054223.jpg&q=90)
@@ -1427,29 +1451,5 @@ Former Fifa president Sepp Blatter and France football great Michel Platini will
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm)
-
----
-
-# Donnarumma error puts Germany in Nations League semis
-
-![Germany's Jamal Musiala, right, celebrates his goal with Joshua Kimmich, who provided the assist. Photo: DPA/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797116_1_20250324113927.jpg&q=90)
-  
-
-Italy striker Moise Kean admitted his team "got distracted" after Germany's Jamal Musiala scored an easy goal into an empty net when absent-minded goalkeeper Gianluigi Donnarumma left his post during the Nations League quarter-final.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797116-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797116-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797116-20250324.htm)
 
 ---
