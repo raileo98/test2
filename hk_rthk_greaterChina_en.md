@@ -1,3 +1,27 @@
+# Beijing puts store in EVs for shoring up power grids
+
+![Electric vehicles in Shenzhen will be among those used for storage to meet peak demand on power grids. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798596_1_20250402123635.jpg&q=85)
+  
+
+China plans to launch pilot projects in nine cities that would use the country's growing fleet of electric vehicles as batteries to shore up power supply on the grid during spikes in demand, according to a government announcement on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798596-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798596-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798596-20250402.htm)
+
+---
+
 # US sanctions just 'a piece of waste paper': Beijing
 
 ![The Office for Safeguarding National Security says Washington should stop its bullying tactics as soon as possible. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798470_1_20250401170116.jpg&q=80)
@@ -1415,29 +1439,5 @@ China on Tuesday jailed the former boss of state-owned banking giant Everbright 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796277-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796277-20250318.htm)
-
----
-
-# Wang Yi headed for Tokyo trilateral meeting
-
-![Wang Yi, right, hosts South Korean Foreign Minister Cho Tae-yul in Beijing in May. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796232_1_20250318145011.jpg&q=90)
-  
-
-The foreign ministers of South Korea, China and Japan will hold a meeting in Tokyo on Saturday, Seoul's foreign ministry said on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796232-20250318.htm)
 
 ---

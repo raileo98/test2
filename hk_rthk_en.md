@@ -1,3 +1,27 @@
+# Beijing puts store in EVs for shoring up power grids
+
+![Electric vehicles in Shenzhen will be among those used for storage to meet peak demand on power grids. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798596_1_20250402123635.jpg&q=85)
+  
+
+China plans to launch pilot projects in nine cities that would use the country's growing fleet of electric vehicles as batteries to shore up power supply on the grid during spikes in demand, according to a government announcement on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798596-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798596-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798596-20250402.htm)
+
+---
+
 # Trump-backed candidate loses Wisconsin court election
 
 ![Susan Crawford acknowledges the mood at her election night headquarters in Madison, Wisconsin, after her triumph. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798589_1_20250402120941.jpg&q=90)
@@ -1414,29 +1438,5 @@ US stocks shook off some early gloom about Donald Trump's imminent tariff announ
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm)
-
----
-
-# China condemns 'economic coercion'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798334_1_20250331215247.jpg&q=90)
-  
-
-China on Monday reaffirmed its resolute opposition to moves that infringe upon and undermine other countries' legitimate rights and interests through economic coercion, hegemonic practices or bullying.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm)
 
 ---

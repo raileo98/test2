@@ -1,3 +1,27 @@
+# 郵儲行料增資後核心一級資本充足率將提升1.5個百分點
+
+![鄭國雨表示，通過財政部和戰略股東配股後，預計核心一級資本充足率將提升1.5個百分點。（網上記者會截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798595_1_20250402123603.jpg&q=90)
+  
+
+4家國有大行計劃向中國財政部等機構發行A股集資，當中，郵儲銀行計劃向財政部、中國移動集團及中國船舶集團發A股集資1300億元人民幣，每股發行價6.32元，較公告前收市價溢價近22%，是4間中最高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798595-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798595-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798595-20250402.htm)
+
+---
+
 # 恒指23000點失而復得　半日升14點
 
 ![恒指中午收市報23221點，升14點，主板成交額逾1302億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798590_2_20250402121710.jpg&q=10)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798410-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798410-20250401.htm)
-
----
-
-# 5隊的士車隊未獲正式車隊牌照　運輸署：積極協助各車隊籌備工作
-
-![運輸署於2024年7月底向5間獲選的的士車隊營辦商，發出的士車隊牌照的「有條件暫准通知」。（運輸署社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798409_1_20250401121852.jpg&q=90)
-  
-
-早前獲政府批出的5隊的士車隊，現時未獲發正式車隊牌照，全部只獲「有條件暫准通知」。現正試營運的包括「樂行」和「星群的士」兩支車隊。運輸署回覆查詢表示，署方一直積極協助各車隊的籌備工作。試行的安排可讓市民率先體驗新品牌的服務，亦有助車隊收集營運經驗和用家回饋。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm)
 
 ---

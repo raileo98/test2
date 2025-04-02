@@ -1,3 +1,50 @@
+# 郵儲行料增資後核心一級資本充足率將提升1.5個百分點
+
+![鄭國雨表示，通過財政部和戰略股東配股後，預計核心一級資本充足率將提升1.5個百分點。（網上記者會截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798595_1_20250402123603.jpg&q=90)
+  
+
+4家國有大行計劃向中國財政部等機構發行A股集資，當中，郵儲銀行計劃向財政部、中國移動集團及中國船舶集團發A股集資1300億元人民幣，每股發行價6.32元，較公告前收市價溢價近22%，是4間中最高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798595-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798595-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798595-20250402.htm)
+
+---
+
+# 隧道費檢討料年內完成　陳美寶稱會考慮四大原則
+
+  
+
+運輸及物流局局長陳美寶表示，運輸署正進行隧道費檢討工作，預計今年內完成，並諮詢立法會交通事務委員會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798594-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798594-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798594-20250402.htm)
+
+---
+
 # 文憑試中文科開考　有考生認為閱讀卷不算難、文言文容易理解
 
   
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm)
-
----
-
-# 雷軍回應電動車事故：小米會持續配合調查　不會迴避
-
-![雷軍回應SU7電動車交通事故，表示小米不會迴避，將持續配合警方調查悼。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798518_1_20250401231640.jpg&q=90)
-  
-
-小米集團董事長雷軍回應SU7電動車交通事故，對3位年輕女孩不幸離世表示最深切哀悼，亦向其家人致以誠摯慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm)
-
----
-
-# 美國2月建築開支按月升0.7%多過預期
-
-![美國2月建築支出按月上升0.7%，升幅高過市場預期的0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798515_1_20250401224222.jpg&q=80)
-  
-
-美國商務部公布，美國2月建築支出按月上升0.7%，升幅高過市場預期的0.3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm)
 
 ---
