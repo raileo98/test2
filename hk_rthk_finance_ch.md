@@ -1,3 +1,27 @@
+# 美元匯價下跌　市場關注新關稅措施或拖累經濟
+
+![特朗普公布對等關稅措施，市場憂慮觸發貿易戰損害經濟，不利美元匯價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798721_1_20250403060849.jpg&q=75)
+  
+
+美元匯價下跌。美國總統特朗普公布對等關稅措施，市場憂慮觸發貿易戰損害經濟，不利美元匯價。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798721-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798721-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798721-20250403.htm)
+
+---
+
 # 美股3大指數期貨下跌
 
 ![貿易戰升溫的憂慮拖累美股3大指數期貨在電子交易時段下跌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798720_1_20250403055239.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm)
-
----
-
-# 越秀地產以11億元人民幣投得杭州住宅地
-
-![越秀地產公布，旗下附屬公司以11億元人民幣投得杭州一幅住宅地皮。公司認為，收購成本合理，有助進一步鞏固公司在杭州的戰略地位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798505_1_20250401211314.jpg&q=80)
-  
-
-越秀地產公布，旗下附屬公司通過公開掛牌方式，以11億元人民幣成功競投杭州一幅住宅地皮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm)
 
 ---

@@ -1,3 +1,27 @@
+# Wall Street rises in another jittery day
+
+![More volatility is expected, with US futures moving decisively lower late Wednesday after Trump announced his tariffs plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798722_1_20250403060921.jpg&q=75)
+  
+
+US stocks whipped through another dizzying day on Wednesday in the final hours before President Donald Trump’s unveiling of tariffs promised as part of his Liberation Day.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798722-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798722-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798722-20250403.htm)
+
+---
+
 # Hong Kong stocks close lower
 
 ![The Hang Seng Index finished down 0.02 percent at 23,202. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798640_1_20250402164851.jpg&q=60)
@@ -1413,29 +1437,5 @@ Hong Kong stocks on Thursday edged down, after the US Federal Reserve kept inter
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796541-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796541-20250320.htm)
-
----
-
-# US stocks rise, Fed flags greater economic uncertainty
-
-![The Dow Jones Industrial Average finished up 0.9 percent at 41,964. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796513_1_20250320055039.jpg&q=90)
-  
-
-Wall Street stocks rose on Wednesday after the Federal Reserve kept interest rates unchanged but pointed to increased economic uncertainty, while Treasury bond yields tumbled.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796513-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796513-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796513-20250320.htm)
 
 ---

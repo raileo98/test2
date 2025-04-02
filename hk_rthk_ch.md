@@ -1,3 +1,27 @@
+# 美元匯價下跌　市場關注新關稅措施或拖累經濟
+
+![特朗普公布對等關稅措施，市場憂慮觸發貿易戰損害經濟，不利美元匯價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798721_1_20250403060849.jpg&q=75)
+  
+
+美元匯價下跌。美國總統特朗普公布對等關稅措施，市場憂慮觸發貿易戰損害經濟，不利美元匯價。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798721-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798721-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798721-20250403.htm)
+
+---
+
 # 美股3大指數期貨下跌
 
 ![貿易戰升溫的憂慮拖累美股3大指數期貨在電子交易時段下跌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798720_1_20250403055239.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798651-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798651-20250402.htm)
-
----
-
-# 尹錫悅彈劾案宣判在即　中美提醒公民避免參與集會
-
-![尹錫悅彈劾案即將宣判，支持者和反對人士分別在首爾集會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798652_1_20250402175045.jpg&q=90)
-  
-
-南韓總統尹錫悅彈劾案周五宣判，警方提高戒備，表示單在首爾部署約1萬4千名警員，應對可能出現的大規模集會。中國和美國都提醒在當地的公民，避免參與集會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798652-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798652-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798652-20250402.htm)
 
 ---
