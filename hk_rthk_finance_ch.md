@@ -1,3 +1,27 @@
+# 廖岷：中方重視對歐財金合作　冀透過對話磋商妥善處理摩擦分歧
+
+![廖岷與歐盟委員會官員在比利時布魯塞爾，共同主持第十六次中歐財金對話。（財政部圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798581_1_20250402113318.jpg&q=85)
+  
+
+財政部副部長廖岷，與歐盟委員會官員在比利時布魯塞爾，共同主持第十六次中歐財金對話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798581-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798581-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798581-20250402.htm)
+
+---
+
 # 渣打將內地今年經濟增長預測由4.5%上調至4.8%
 
 ![渣打銀行上調內地今年全年經濟增長預測。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798580_1_20250402111503.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm)
-
----
-
-# 港股曾升逾270點
-
-![恒指高開近百點後，最多升逾270點，升至23392點，較早時報23301點，升182點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798402_1_20250401104051.jpg&q=45)
-  
-
-港股在4月首個交易日上升，恒指高開近百點後，最多升逾270點，升至23392點，較早時報23301點，升182點，升0.79%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798402-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798402-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798402-20250401.htm)
 
 ---
