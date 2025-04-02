@@ -1,3 +1,49 @@
+# 周一鳴：視乎情況決定是否批准公眾遊行集會
+
+  
+
+新任警務處處長周一鳴會見傳媒，被問到前處長蕭澤頤非常關注在反修例事件被捕的年輕人，未來會如何跟進，會否加快速度處理案件。周一鳴回應說承先啟後是重點，歷任警務處處長做了很多工作，播下很多種子，蕭澤頤特別花了很多時間和心思在青少年工作，這是警隊其中一個大方向，不會有太大變動。他強調警方會依法處理反修例案件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798608-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798608-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798608-20250402.htm)
+
+---
+
+# 消息︰政府擬擴大禁煙範圍　部分排隊輪候地方禁煙
+
+  
+
+消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，全數「十招」都會推出，不同措施會陸續執行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798609-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798609-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798609-20250402.htm)
+
+---
+
 # 周一鳴認為社會存在軟對抗　無懼制裁不影響與海外合作
 
 ![周一鳴指很多人以不同方式「軟對抗」，希望透過媒體、文化藝術項目嘗試煽動其他人。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798606_1_20250402135114.jpg&q=80)

@@ -1,3 +1,49 @@
+# 周一鳴：視乎情況決定是否批准公眾遊行集會
+
+  
+
+新任警務處處長周一鳴會見傳媒，被問到前處長蕭澤頤非常關注在反修例事件被捕的年輕人，未來會如何跟進，會否加快速度處理案件。周一鳴回應說承先啟後是重點，歷任警務處處長做了很多工作，播下很多種子，蕭澤頤特別花了很多時間和心思在青少年工作，這是警隊其中一個大方向，不會有太大變動。他強調警方會依法處理反修例案件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798608-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798608-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798608-20250402.htm)
+
+---
+
+# 消息︰政府擬擴大禁煙範圍　部分排隊輪候地方禁煙
+
+  
+
+消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，全數「十招」都會推出，不同措施會陸續執行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798609-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798609-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798609-20250402.htm)
+
+---
+
 # 周一鳴認為社會存在軟對抗　無懼制裁不影響與海外合作
 
 ![周一鳴指很多人以不同方式「軟對抗」，希望透過媒體、文化藝術項目嘗試煽動其他人。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798606_1_20250402135114.jpg&q=80)
@@ -1394,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798420-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798420-20250401.htm)
-
----
-
-# 林定國：制裁是赤裸裸霸權欺凌　對他毫無影響
-
-![林定國指出，客觀而言，實施制裁的理由完全站不住腳。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798419_1_20250401124140.jpg&q=90)
-  
-
-美國國務院以進行跨國打壓及損害香港自治為由，制裁6名中央和香港特區官員，包括律政司司長林定國。林定國回應傳媒查詢表示，有關制裁對他毫無影響，不影響他的工作和生活。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm)
-
----
-
-# 李家超︰致力將創新科技應用於水務管理　推動設施數字化運作
-
-![李家超指於去年成立數字水務辦公室，推動水務設施的數字化運作。（廖漢榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798418_1_20250401124209.jpg&q=90)
-  
-
-行政長官李家超表示，如要確保水資源的可持續供應，需要以創新方式投資未來，當局致力於將創新科技應用於水務管理，並於去年成立數字水務辦公室，推動水務設施的數字化運作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm)
 
 ---
