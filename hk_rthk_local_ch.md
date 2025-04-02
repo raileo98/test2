@@ -1,3 +1,26 @@
+# 衞生署報告：學童以電子屏幕產品娛樂有上升趨勢
+
+  
+
+衞生署公布《學生健康服務2023至24學年周年健康報告》。今次是新冠疫情後，首次全面恢復為所有中小學生提供周年健康檢查，共有約25萬7000名小學生，以及17萬3000名中學生接受服務，出席率佔原本報名人數大約七成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm)
+
+---
+
 # 政府就規範籃球博彩展開諮詢　諮詢期至下月2日
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm)
-
----
-
-# 梁振英籲企業多作慈善公益工作　做到兼濟天下
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798454_1_20250401161213.jpg&q=80)
-  
-
-全國政協副主席梁振英出席一個有關企業社會責任頒獎禮致辭時說，國務院總理李強上月初宣讀政府工作報告時，就香港部分首次提出，支援港澳地區深化國際合作交往，但其後不少港人將有關講話較狹窄地演繹為香港如何作為「超級聯繫人」、怎樣做好金融及商貿等經濟活動。他認為，當中不僅包含經貿活動，亦涵蓋文化、體育等國際交往合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 衞生署報告：學童以電子屏幕產品娛樂有上升趨勢
+
+  
+
+衞生署公布《學生健康服務2023至24學年周年健康報告》。今次是新冠疫情後，首次全面恢復為所有中小學生提供周年健康檢查，共有約25萬7000名小學生，以及17萬3000名中學生接受服務，出席率佔原本報名人數大約七成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm)
+
+---
+
 # 中國政府援助緬甸第二批物資明天啟運
 
   
