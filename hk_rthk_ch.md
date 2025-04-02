@@ -1,3 +1,27 @@
+# 緬甸軍政府宣布暫時停火　敏昂萊將往曼谷與南亞國家討論災情
+
+![無國界醫生表示，重災區曼德勒有大約500幢建築物徹底倒塌，800幢部分受損。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798699_1_20250403004113.jpg&q=80)
+  
+
+緬甸中部大地震增至超過3000人死亡，4500多人受傷，仍有351人失蹤，軍政府宣布暫時停火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798699-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798699-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798699-20250403.htm)
+
+---
+
 # 中國救援隊伍在緬甸救出第九名倖存者　特區救援隊參與聯合救援
 
 ![中國救援隊伍救出一名被困近125小時的52歲緬甸男性。（消防處FB圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798698_1_20250403002255.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798628-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798628-20250402.htm)
-
----
-
-# 商務部：原產於歐盟進口白蘭地反傾銷調查延長至7月5日
-
-![商務部公布，將原產於歐盟的進口白蘭地反傾銷案的調查期限，進一步延長至今年7月5日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798627_1_20250402153253.jpg&q=75)
-  
-
-在北京，商務部公布，將原產於歐盟的進口白蘭地反傾銷案的調查期限，進一步延長至今年7月5日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798627-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798627-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798627-20250402.htm)
 
 ---

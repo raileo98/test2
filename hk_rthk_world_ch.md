@@ -1,3 +1,27 @@
+# 緬甸軍政府宣布暫時停火　敏昂萊將往曼谷與南亞國家討論災情
+
+![無國界醫生表示，重災區曼德勒有大約500幢建築物徹底倒塌，800幢部分受損。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798699_1_20250403004113.jpg&q=80)
+  
+
+緬甸中部大地震增至超過3000人死亡，4500多人受傷，仍有351人失蹤，軍政府宣布暫時停火。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798699-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798699-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798699-20250403.htm)
+
+---
+
 # 瑪麗娜勒龐上訴案明夏裁決　馬克龍籲尊重法院獨立作出的判決
 
 ![被定罪後，瑪麗娜勒龐批評判決出於政治動機。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798697_1_20250402235011.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm)
-
----
-
-# 美國制裁林定國蕭澤頤等　特區政府強烈譴責斥顯露霸權主義下野蠻
-
-![美國制裁林定國蕭澤頤等　特區政府強烈譴責斥顯露霸權主義下野蠻](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798347_2_20250401134800.jpg&q=90)
-  
-
-特區政府強烈譴責美國制裁六名中央及香港特區官員，指制裁再次顯露美國霸權主義下的野蠻，特區官員對美國所謂制裁嗤之以鼻，會繼續堅定不移維護國家安全，特區政府全力保障各人的合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm)
 
 ---
