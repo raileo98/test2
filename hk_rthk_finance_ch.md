@@ -22,6 +22,29 @@
 
 ---
 
+# 夏寶龍晤滙豐主席杜嘉祺　冀集團向國際社會講好中國故事
+
+  
+
+在北京，中央港澳辦、國務院港澳辦主任夏寶龍下午會見滙豐集團主席杜嘉祺，指希望滙豐集團在中國更好發展，更積極助力香港鞏固提升國際金融中心地位，繼續發揮自身優勢做好中英關係的重要橋樑紐帶，向國際社會講好「中國故事」「香港故事」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm)
+
+---
+
 # 美國3月ADP私人市場新增職位15.5萬個　多過預期
 
 ![ADP報告指，美國3月私人市場新增職位15.5萬個，多過市場預期的11.5萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798680_1_20250402204947.jpg&q=90)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798457-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798457-20250401.htm)
-
----
-
-# 滬指高收近0.4%　深證成指偏軟
-
-![上證綜合指數報3348點，升12點，升幅0.38%。深證成份指數報10503點，跌不足1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798447_1_20250401151207.jpg&q=90)
-  
-
-滬深股市收市個別發展，醫藥醫療相關股份上升，人形機械人和貴金屬板塊下跌。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798447-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798447-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798447-20250401.htm)
 
 ---
