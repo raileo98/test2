@@ -1,3 +1,51 @@
+# 意總理稱美國關稅錯誤　澳洲總理指非朋友行為　加拿大將反制
+
+![阿爾巴內塞說，美國徵收關稅並不令人意外，但完全沒有道理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798727_1_20250403071846.jpg&q=90)
+  
+
+意大利總理梅洛尼說，美國新公布的關稅是錯誤，可能引發貿易戰，將盡力與美國達成協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm)
+
+---
+
+# 英超利物浦主場1:0小勝愛華頓　曼城主場2:0擊敗李斯特城
+
+![迪亞高祖達打破兩個半月來的入球荒，協助紅軍取勝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798726_1_20250403070933.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，利物浦主場1:0小勝愛華頓。57分鐘，紅軍的迪亞高祖達接應路易斯迪亞斯傳送，突破攔截射入，打破兩個半月來的入球荒，亦成為球隊的贏波英雄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798726-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798726-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798726-20250403.htm)
+
+---
+
 # 歐洲主要股市低收
 
 ![法蘭克福DAX指數報22390點，跌149點，跌幅0.66%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798714_1_20250403045640.jpg&q=90)
@@ -118,7 +166,7 @@
 
 ---
 
-# 美股3大指數期貨下跌
+# 美股3大股指期貨下跌
 
 ![貿易戰升溫的憂慮拖累美股3大指數期貨在電子交易時段下跌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798720_1_20250403055239.jpg&q=90)
   
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798644-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798644-20250402.htm)
-
----
-
-# 何永賢：必須持續供應居屋　成為年輕人置業希望
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798648_2_20250402194405.jpg&q=90)
-  
-
-房屋局局長何永賢接受本台節目《盤點政策》訪問。她表示，居屋認購超額30多倍至60倍不等，反映置業需求很大，認為必須持續供應居屋，成為年輕人的置業希望。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798648-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798648-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798648-20250402.htm)
-
----
-
-# 湯修齊歡迎政府加強控煙決心　冀明年檢討包括禁「火車頭」
-
-![湯修齊表示，歡迎政府加強控煙的決心，相信措施執行後，有助降低本港吸煙率及防止年青人成為吸煙人士。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798657_1_20250402181936.jpg&q=80)
-  
-
-消息指，政府最快本月底向立法會提交控煙修訂條例草案，包括擴大禁煙範圍，排隊輪候公共交通工具的地方例如巴士站，以及排隊進入指定場所例如體育館等，亦禁止吸煙。吸煙與健康委員會主席湯修齊表示，控煙十招全數推出，歡迎政府加強控煙的決心，相信措施執行後，有助降低本港吸煙率及防止年青人成為吸煙人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798657-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798657-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798657-20250402.htm)
 
 ---

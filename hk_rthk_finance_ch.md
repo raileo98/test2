@@ -70,6 +70,30 @@
 
 ---
 
+# 特朗普簽署行政命令　取消中國內地和香港的小額包裹豁免關稅政策
+
+![特朗普公布新關稅政策，並即場簽署行政命令。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798725_1_20250403062020.jpg&q=90)
+  
+
+美國總統特朗普簽署行政命令，取消對來自中國內地和香港的小額包裹豁免關稅政策，5月2日起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798725-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798725-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798725-20250403.htm)
+
+---
+
 # 美元匯價下跌　市場關注新關稅措施或拖累經濟
 
 ![特朗普公布對等關稅措施，市場憂慮觸發貿易戰損害經濟，不利美元匯價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798721_1_20250403060849.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm)
-
----
-
-# 雷軍回應電動車事故：小米會持續配合調查　不會迴避
-
-![雷軍回應SU7電動車交通事故，表示小米不會迴避，將持續配合警方調查悼。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798518_1_20250401231640.jpg&q=90)
-  
-
-小米集團董事長雷軍回應SU7電動車交通事故，對3位年輕女孩不幸離世表示最深切哀悼，亦向其家人致以誠摯慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm)
 
 ---

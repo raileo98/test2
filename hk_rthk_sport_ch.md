@@ -1,3 +1,27 @@
+# 英超利物浦主場1:0小勝愛華頓　曼城主場2:0擊敗李斯特城
+
+![迪亞高祖達打破兩個半月來的入球荒，協助紅軍取勝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798726_1_20250403070933.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，利物浦主場1:0小勝愛華頓。57分鐘，紅軍的迪亞高祖達接應路易斯迪亞斯傳送，突破攔截射入，打破兩個半月來的入球荒，亦成為球隊的贏波英雄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798726-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798726-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798726-20250403.htm)
+
+---
+
 # 羅淑佩拜會國務院港澳辦和國家體育總局
 
 ![羅淑佩拜會國務院港澳辦和國家體育總局](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798682_1_20250402212217.jpg&q=90)
@@ -1432,29 +1456,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796893-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796893-20250322.htm)
-
----
-
-# 英格蘭世盃外圍賽2:0挫阿爾巴尼亞　杜曹首次領軍旗開得勝
-
-![路易斯史基利首次入選國家腳就取得入球，幫英格蘭先開紀錄。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796883_1_20250322070457.jpg&q=90)
-  
-
-世界盃歐洲區外圍賽，英格蘭在新帥杜曹處子領軍下旗開得勝，在K組2:0輕取阿爾巴尼亞。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796883-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796883-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796883-20250322.htm)
 
 ---

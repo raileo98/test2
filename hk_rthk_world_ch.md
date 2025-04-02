@@ -1,3 +1,27 @@
+# 意總理稱美國關稅錯誤　澳洲總理指非朋友行為　加拿大將反制
+
+![阿爾巴內塞說，美國徵收關稅並不令人意外，但完全沒有道理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798727_1_20250403071846.jpg&q=90)
+  
+
+意大利總理梅洛尼說，美國新公布的關稅是錯誤，可能引發貿易戰，將盡力與美國達成協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm)
+
+---
+
 # 特朗普簽署行政命令　取消中國內地和香港的小額包裹豁免關稅政策
 
 ![特朗普公布新關稅政策，並即場簽署行政命令。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798725_1_20250403062020.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798435-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798435-20250401.htm)
-
----
-
-# 惡劣天氣在美國導致至少6死　加拿大安大略省逾39萬戶停電
-
-![加拿大安大略省在惡劣天氣下有樹木的樹枝折斷。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798422_1_20250401131603.jpg&q=75)
-  
-
-美國風暴天氣持續，導致至少6人死亡，超過40萬人處於斷電狀態，數千萬人受惡劣天氣威脅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798422-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798422-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798422-20250401.htm)
 
 ---
