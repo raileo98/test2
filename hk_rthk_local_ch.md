@@ -1,3 +1,52 @@
+# 周一鳴升任警務處處長　任內解決2019年理大衝突事件
+
+![2019年初，周一鳴擔任九龍西總區副指揮官，負責指揮安全小組進入理大校園處理危險品及搜證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798569_1_20250402101102.jpg&q=90)
+![蕭澤頤於最後一次結業會操致辭，表示加入警隊為他帶來無限滿足感，與同袍並肩作戰、甘苦與共，此生無憾。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798569_2_20250402101102.jpg&q=90)
+  
+
+新任警務處處長周一鳴於1995年加入警隊，由督察做起，大部分時間擔任分區至總部層面的刑事調查及情報蒐集工作，曾外借到法國的國際刑警秘書處。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798569-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798569-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798569-20250402.htm)
+
+---
+
+# 國務院任命周一鳴為警務處處長　免去蕭澤頤職務
+
+![國務院任命周一鳴為警務處處長。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798568_1_20250402100525.jpg&q=90)
+  
+
+國務院任命周一鳴為新任警務處處長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm)
+
+---
+
 # 文憑試中文科開考　業界的士義載逾百考生
 
   
@@ -23,6 +72,8 @@
 
 # 緬甸曼德勒天氣炎熱有餘震　特區救援隊消毒營地防疫病
 
+![4名醫生及護士隨特區救援隊抵達曼德勒後，每日為救援隊成員做健康檢查。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798562_1_20250402095915.jpg&q=90)
+![保安局指出，當地出現嚴重蚊患，醫管局隨團醫生特別留意預防登革熱及瘧疾問題。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798562_2_20250402095955.jpg&q=55)
   
 
 特區救援隊正在緬甸第二大城市曼德勒救援。保安局表示，當地有餘震，救援隊基地亦感到震動。而由於天氣炎熱，早上更高達42度，救援隊需要定時消毒營地及臨時洗手間，以防瘟疫。
@@ -46,6 +97,7 @@
 
 # 甯漢豪：北都發展將有更多便利市場措施　積極探討「按實補價」
 
+![甯漢豪強調北都發展不能單靠政府力量，也要市場力量參與。（文匯報片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798558_1_20250402095837.jpg&q=90)
   
 
 發展局局長甯漢豪表示，要有破格思維提速北部都會區發展，將有更多措施出台便利市場參與。政府正積極探討「按實補價」概念，例如企業落戶北都只想做某類商業活動，但地契的商業定義寫得好闊，政府可否按企業實在的意願訂定地契及評估地價，令大家速成其事，不會與企業意向商業活動的估價標準相距好遠。
@@ -93,7 +145,7 @@
 
 # 文憑試首個核心科目中文科開考　有考生稱較擔心卷一表現
 
-![考生今年要繼續使用電子點名系統「報到易」自行簽到。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798552_1_20250402093748.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798552_1_20250402093748.jpg&q=90)
   
 
 文憑試首個核心科目中文科今日開考。有考生表示緊張，但認為最重要是盡力而為。
@@ -1390,53 +1442,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm)
-
----
-
-# 外交部駐港公署強烈譴責美國制裁中央和特區官員　將堅決反制
-
-![發言人指，中方必將採取有力措施堅決反制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798350_1_20250401041931.jpg&q=85)
-  
-
-外交部駐港公署強烈譴責並堅決反對美國國務院制裁6名中央和香港特區政府官員，指美方所謂制裁再次暴露破壞香港繁榮穩定、遏制中國發展的險惡用心，中方必將採取有力措施堅決反制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm)
-
----
-
-# 美國制裁林定國蕭澤頤等　特區政府強烈譴責斥顯露霸權主義下野蠻
-
-![美國制裁林定國蕭澤頤等　特區政府強烈譴責斥顯露霸權主義下野蠻](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798347_2_20250401134800.jpg&q=90)
-  
-
-特區政府強烈譴責美國制裁六名中央及香港特區官員，指制裁再次顯露美國霸權主義下的野蠻，特區官員對美國所謂制裁嗤之以鼻，會繼續堅定不移維護國家安全，特區政府全力保障各人的合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm)
 
 ---

@@ -1,5 +1,55 @@
+# 尹錫悅彈劾案周五宣判　南韓代總統籲政界人士勿刺激民眾暴力示威
+
+![韓悳洙呼籲政界人士避免刺激民眾進行非法暴力示威。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798564_1_20250402094935.jpg&q=90)
+  
+
+南韓總統尹錫悅彈劾案星期五上午宣判，代行總統職權的總理韓悳洙呼籲，政界人士要謹言慎行，避免刺激民眾進行非法暴力示威。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798564-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798564-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798564-20250402.htm)
+
+---
+
+# 緬甸紅十字會主席：救援面臨災情評估和物流協調挑戰
+
+![災民排隊領取食物等救災物資。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798566_1_20250402095157.jpg&q=80)
+  
+
+緬甸大地震的搜救工作持續進行，地震已造成2700多人死亡、4500多人受傷，另有400多人失蹤。救援人員昨天上午從首都內比都一座建築救出一名被困約91小時的老人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798566-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798566-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798566-20250402.htm)
+
+---
+
 # 緬甸曼德勒天氣炎熱有餘震　特區救援隊消毒營地防疫病
 
+![4名醫生及護士隨特區救援隊抵達曼德勒後，每日為救援隊成員做健康檢查。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798562_1_20250402095915.jpg&q=90)
+![保安局指出，當地出現嚴重蚊患，醫管局隨團醫生特別留意預防登革熱及瘧疾問題。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798562_2_20250402095955.jpg&q=55)
   
 
 特區救援隊正在緬甸第二大城市曼德勒救援。保安局表示，當地有餘震，救援隊基地亦感到震動。而由於天氣炎熱，早上更高達42度，救援隊需要定時消毒營地及臨時洗手間，以防瘟疫。
@@ -1387,54 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm)
-
----
-
-# 緬甸地震造成3名中國公民遇難　另14人受傷
-
-![在緬甸，搜救人員繼續搜救被困人士。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798310_1_20250331184926.jpg&q=90)
-  
-
-緬甸7級以上地震救援黃金72小時過去，救援隊繼續搜救被困人士。中方救援隊先後救出6名倖存者，中方首批物資亦已運抵仰光。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm)
-
----
-
-# 緬甸地震全國哀悼7日　泰國曼谷市長稱關鍵拯救時間過去仍會搜救
-
-![在緬甸曼德勒，救援人員繼續在倒塌建築物的瓦礫中搜索。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798293_1_20250331173359.jpg&q=90)
-![泰國總理佩通坦到倒塌的建築物現場視察。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798293_2_20250331173359.jpg&q=85)
-  
-
-緬甸7級以上地震救援黃金72小時過去，救援隊繼續爭分奪秒搜救被困人士。中方救援隊先後救出6名倖存者，中方首批物資亦已運抵仰光。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm)
 
 ---

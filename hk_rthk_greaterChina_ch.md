@@ -1,3 +1,27 @@
+# 國務院任命周一鳴為警務處處長　免去蕭澤頤職務
+
+![國務院任命周一鳴為警務處處長。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798568_1_20250402100525.jpg&q=90)
+  
+
+國務院任命周一鳴為新任警務處處長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm)
+
+---
+
 # 訪西藏旅客按年升15%　香港拉薩直航開通後增港旅客
 
 ![有本港導遊說，今年2月香港至拉薩直航機開通後，到西藏旅遊港人增加，圖為著名景點布達拉宮。（葉耀坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798200-20250331.htm)
-
----
-
-# 中國救援隊再於曼德勒廢墟救出被埋者　獲救女子生命體徵良好
-
-![中國救援隊與公羊救援隊合作救出一名被困超過60小時的幼童。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798199_1_20250331092959.jpg&q=90)
-  
-
-中國救援力量在緬甸地震災區一再救出幾名被困人員。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm)
 
 ---

@@ -1,3 +1,124 @@
+# 周一鳴升任警務處處長　任內解決2019年理大衝突事件
+
+![2019年初，周一鳴擔任九龍西總區副指揮官，負責指揮安全小組進入理大校園處理危險品及搜證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798569_1_20250402101102.jpg&q=90)
+![蕭澤頤於最後一次結業會操致辭，表示加入警隊為他帶來無限滿足感，與同袍並肩作戰、甘苦與共，此生無憾。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798569_2_20250402101102.jpg&q=90)
+  
+
+新任警務處處長周一鳴於1995年加入警隊，由督察做起，大部分時間擔任分區至總部層面的刑事調查及情報蒐集工作，曾外借到法國的國際刑警秘書處。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798569-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798569-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798569-20250402.htm)
+
+---
+
+# 國務院任命周一鳴為警務處處長　免去蕭澤頤職務
+
+![國務院任命周一鳴為警務處處長。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798568_1_20250402100525.jpg&q=90)
+  
+
+國務院任命周一鳴為新任警務處處長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm)
+
+---
+
+# 尹錫悅彈劾案周五宣判　南韓代總統籲政界人士勿刺激民眾暴力示威
+
+![韓悳洙呼籲政界人士避免刺激民眾進行非法暴力示威。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798564_1_20250402094935.jpg&q=90)
+  
+
+南韓總統尹錫悅彈劾案星期五上午宣判，代行總統職權的總理韓悳洙呼籲，政界人士要謹言慎行，避免刺激民眾進行非法暴力示威。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798564-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798564-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798564-20250402.htm)
+
+---
+
+# 恒指一度失守23000點　小米跌逾3%
+
+![恒指一度失守23000點，曾跌逾220點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798567_1_20250402095606.jpg&q=65)
+  
+
+港股開市後跌幅擴大，恒指一度跌穿23000點，曾跌逾220點，較早時報23073點，跌133點，跌幅0.57%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798567-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798567-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798567-20250402.htm)
+
+---
+
+# 緬甸紅十字會主席：救援面臨災情評估和物流協調挑戰
+
+![災民排隊領取食物等救災物資。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798566_1_20250402095157.jpg&q=80)
+  
+
+緬甸大地震的搜救工作持續進行，地震已造成2700多人死亡、4500多人受傷，另有400多人失蹤。救援人員昨天上午從首都內比都一座建築救出一名被困約91小時的老人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798566-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798566-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798566-20250402.htm)
+
+---
+
 # 文憑試中文科開考　業界的士義載逾百考生
 
   
@@ -23,6 +144,8 @@
 
 # 緬甸曼德勒天氣炎熱有餘震　特區救援隊消毒營地防疫病
 
+![4名醫生及護士隨特區救援隊抵達曼德勒後，每日為救援隊成員做健康檢查。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798562_1_20250402095915.jpg&q=90)
+![保安局指出，當地出現嚴重蚊患，醫管局隨團醫生特別留意預防登革熱及瘧疾問題。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798562_2_20250402095955.jpg&q=55)
   
 
 特區救援隊正在緬甸第二大城市曼德勒救援。保安局表示，當地有餘震，救援隊基地亦感到震動。而由於天氣炎熱，早上更高達42度，救援隊需要定時消毒營地及臨時洗手間，以防瘟疫。
@@ -118,6 +241,7 @@
 
 # 甯漢豪：北都發展將有更多便利市場措施　積極探討「按實補價」
 
+![甯漢豪強調北都發展不能單靠政府力量，也要市場力量參與。（文匯報片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798558_1_20250402095837.jpg&q=90)
   
 
 發展局局長甯漢豪表示，要有破格思維提速北部都會區發展，將有更多措施出台便利市場參與。政府正積極探討「按實補價」概念，例如企業落戶北都只想做某類商業活動，但地契的商業定義寫得好闊，政府可否按企業實在的意願訂定地契及評估地價，令大家速成其事，不會與企業意向商業活動的估價標準相距好遠。
@@ -237,7 +361,7 @@
 
 # 文憑試首個核心科目中文科開考　有考生稱較擔心卷一表現
 
-![考生今年要繼續使用電子點名系統「報到易」自行簽到。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798552_1_20250402093748.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798552_1_20250402093748.jpg&q=90)
   
 
 文憑試首個核心科目中文科今日開考。有考生表示緊張，但認為最重要是盡力而為。
@@ -1312,125 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm)
-
----
-
-# 習近平與印度總統就兩國建交75周年互致賀電
-
-![習近平表示，中印雙方應加強各領域交流合作，推動中印關係沿著健康穩定軌道向前發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798499_1_20250401191702.jpg&q=90)
-  
-
-國家主席習近平與印度總統穆爾穆互致賀電，慶祝兩國建交75周年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm)
-
----
-
-# 《華郵》指美國擬向進口商品徵約20%關稅　歐盟表明將反擊
-
-![《華盛頓郵報》引述白宮消息報道，特朗普政府計劃向大部分進口商品徵收約20%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798498_1_20250401191654.jpg&q=85)
-  
-
-《華盛頓郵報》引述美國白宮消息報道，特朗普政府計劃向大部分進口商品徵收約20%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm)
-
----
-
-# 滙控：有信心有形股本回報率可達標
-
-![杜嘉褀指，集團定下有形股本回報率(RoTE)在今年起的3年約15%，有信心可以達標。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798497_1_20250401191612.jpg&q=90)
-  
-
-滙控舉行股東非正式會議，有小股東關注交通銀行向財政部等配售A股，滙控對交行持股被攤薄至16.06%如何影響投資回報。滙控主席杜嘉祺指出，雙方20年來一直是的重要戰略合作夥伴，未來會繼續與交行密切合作，集團正研究當中的技術細節，但強調未來會繼續持股。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798497-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798497-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798497-20250401.htm)
-
----
-
-# 港澳辦再轉載文章引述政商界冀長和配合審查重塑良好企業形象
-
-![港澳辦網站再次轉載文章，引述指國家市場監督管理總局對長和出售巴拿馬運河港口等資產的審查，是維護市場公平的必要舉措。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798496_1_20250401194227.jpg&q=80)
-  
-
-港澳辦網站再次轉載《大公報》文章，文中引述多名立法會議員指出，國家市場監督管理總局對長和出售巴拿馬運河港口等資產的審查，是維護市場公平的必要舉措，又指香港政商界希望長和配合好今次反壟斷審查，重塑良好企業的形象，贏得公眾信任。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798496-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798496-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798496-20250401.htm)
-
----
-
-# 夏寶龍會見港協暨奧委會會長霍震霆一行　冀繼續高舉愛國愛港旗幟
-
-![在北京，中央港澳辦、國務院港澳辦主任夏寶龍（右）會見港協暨奧委會會長霍震霆（左）等人。（港協暨奧委會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798495_1_20250401192053.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見港協暨奧委會會長霍震霆等人，指港協在發展和推廣體育運動，促進香港與內地以及世界各國各地區體育交流合作等方面，發揮了重要作用。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm)
 
 ---

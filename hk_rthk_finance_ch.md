@@ -1,3 +1,27 @@
+# 恒指一度失守23000點　小米跌逾3%
+
+![恒指一度失守23000點，曾跌逾220點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798567_1_20250402095606.jpg&q=65)
+  
+
+港股開市後跌幅擴大，恒指一度跌穿23000點，曾跌逾220點，較早時報23073點，跌133點，跌幅0.57%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798567-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798567-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798567-20250402.htm)
+
+---
+
 # 內地股市初段變動不大
 
 ![內地股市初段變動不大，上證指數較早時報3348點，升不足1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798561_1_20250402093517.jpg&q=85)
@@ -48,6 +72,7 @@
 
 # 甯漢豪：北都發展將有更多便利市場措施　積極探討「按實補價」
 
+![甯漢豪強調北都發展不能單靠政府力量，也要市場力量參與。（文匯報片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798558_1_20250402095837.jpg&q=90)
   
 
 發展局局長甯漢豪表示，要有破格思維提速北部都會區發展，將有更多措施出台便利市場參與。政府正積極探討「按實補價」概念，例如企業落戶北都只想做某類商業活動，但地契的商業定義寫得好闊，政府可否按企業實在的意願訂定地契及評估地價，令大家速成其事，不會與企業意向商業活動的估價標準相距好遠。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm)
-
----
-
-# 財新中國3月製造業PMI升至51.2　創4個月新高
-
-![財新中國3月製造業採購經理指數升至51.2，創4個月新高，連續6個月處於擴張水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798394_1_20250401095905.jpg&q=65)
-  
-
-財新中國3月製造業採購經理指數(PMI)升至51.2，高於2月的50.8，創4個月新高，連續6個月處於50以上的擴張水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798394-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798394-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798394-20250401.htm)
 
 ---
