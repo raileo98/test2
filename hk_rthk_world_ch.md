@@ -1,3 +1,27 @@
+# 瑪麗娜勒龐上訴案明夏裁決　馬克龍籲尊重法院獨立作出的判決
+
+![被定罪後，瑪麗娜勒龐批評判決出於政治動機。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798697_1_20250402235011.jpg&q=90)
+  
+
+被裁定挪用公款罪成、處以監禁和罰款、5年內不得參選公職的法國極右國民聯盟領袖瑪麗娜勒龐，向法院提出上訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798697-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798697-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798697-20250403.htm)
+
+---
+
 # 日本大隅半島東部近海發生6級地震
 
 ![日本大隅半島東部近海發生6級地震](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798696_1_20250402234732.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm)
-
----
-
-# 意大利Tesla展廳火警17輛車被毀　馬斯克斥恐怖主義行為
-
-![火警導致展廳內17輛汽車被燒毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798345_1_20250401015100.jpg&q=75)
-  
-
-意大利首都羅馬市郊一間Tesla汽車展廳發生火警，至少17輛電動車被燒毀，警方正調查是否與無政府主義者的抗議活動有關。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798345-20250401.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 瑪麗娜勒龐上訴案明夏裁決　馬克龍籲尊重法院獨立作出的判決
+
+![被定罪後，瑪麗娜勒龐批評判決出於政治動機。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798697_1_20250402235011.jpg&q=90)
+  
+
+被裁定挪用公款罪成、處以監禁和罰款、5年內不得參選公職的法國極右國民聯盟領袖瑪麗娜勒龐，向法院提出上訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798697-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798697-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798697-20250403.htm)
+
+---
+
 # 日本大隅半島東部近海發生6級地震
 
 ![日本大隅半島東部近海發生6級地震](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798696_1_20250402234732.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798624-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798624-20250402.htm)
-
----
-
-# 據報中石化與寧德時代今年將建設最少500座換電站
-
-![中石化與寧德時代簽署產業與資本合作框架協議，今年將共同建設不少於500座換電站，未來則致力於建設1萬座換電站。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798623_1_20250402151712.jpg&q=90)
-  
-
-新華社報道指，中石化與寧德時代簽署產業與資本合作框架協議，今年將共同建設不少於500座換電站，未來則致力於建設1萬座換電站。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798623-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798623-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798623-20250402.htm)
 
 ---
