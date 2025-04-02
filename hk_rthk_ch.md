@@ -1,3 +1,26 @@
+# 團結香港基金認為以片區發展生態旅遊項目具連貫性
+
+  
+
+發展局邀請市場分別就前南丫島石礦場用地、南大嶼生態康樂走廊，以及尖鼻咀及白泥的生態旅遊發展項目，提交意向書，為期3個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm)
+
+---
+
 # 解放軍東部戰區宣布圓滿完成一連兩天聯合演訓
 
 ![解放軍東部戰區宣布圓滿完成一連兩天聯合演訓，山東艦航母編隊參與第二日演練。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798668_1_20250402192112.jpg&q=90)
