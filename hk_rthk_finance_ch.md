@@ -1,3 +1,27 @@
+# 恒指23000點失而復得　半日升14點
+
+![恒指中午收市報23221點，升14點，主板成交額逾1302億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798590_2_20250402121710.jpg&q=10)
+  
+
+港股半日靠穩收市，恒指今早一度失守23000點，低見22980點，跌逾225點，其後自低位反彈，最多升近190點，中午收市報23221點，升14點，主板成交額逾1302億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798590-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798590-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798590-20250402.htm)
+
+---
+
 # 滬股半日升逾0.2%
 
 ![上證指數半日收報3356點，升7點，升幅0.24%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798582_1_20250402113836.jpg&q=75)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm)
-
----
-
-# 房協兩個資助項目今日起接受申請　有市民認為定價合理
-
-![房協兩個資助出售房屋項目觀塘「峻然」及「聚然」今日起至本月14日接受合資格人士申請。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798406_1_20250401113509.jpg&q=80)
-  
-
-房協資助出售房屋項目觀塘「峻然」及粉嶺「聚然」共1604個單位，今日起至本月14日接受合資格人士申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm)
 
 ---

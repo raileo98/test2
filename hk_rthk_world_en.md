@@ -3,7 +3,7 @@
 ![Susan Crawford acknowledges the mood at her election night headquarters in Madison, Wisconsin, after her triumph. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798589_1_20250402120941.jpg&q=90)
   
 
-The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenger endorsed by President Donald Trump and billionaire Elon Musk, cementing a liberal majority for at least three more years.
+The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenger endorsed by President Donald Trump and billionaire Elon Musk, touting her victory as a win against powerful interests and cementing a liberal majority for at least three more years.
 
   
 

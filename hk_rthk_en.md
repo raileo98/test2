@@ -1,3 +1,51 @@
+# Trump-backed candidate loses Wisconsin court election
+
+![Susan Crawford acknowledges the mood at her election night headquarters in Madison, Wisconsin, after her triumph. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798589_1_20250402120941.jpg&q=90)
+  
+
+The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenger endorsed by President Donald Trump and billionaire Elon Musk, touting her victory as a win against powerful interests and cementing a liberal majority for at least three more years.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm)
+
+---
+
+# Drivers' pay rises once joining taxi fleet: operator
+
+![The Transport Department has granted conditional licences to five operators to form fleets, but only two of them have piloted a run. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798583_1_20250402114151.jpg&q=85)
+  
+
+The operator of a licensed taxi fleet said drivers’ income had significantly increased since the launch of a new premium cab scheme.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798583-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798583-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798583-20250402.htm)
+
+---
+
 # Curry drops 52 points in Warriors win over Grizzlies
 
 ![Steph Curry drained 12 three-pointers in the Warriors' victory over Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798584_1_20250402114710.jpg&q=90)
@@ -44,30 +92,6 @@ Secretary for Housing Winnie Ho on Wednesday said authorities are rolling out ab
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798574-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798574-20250402.htm)
-
----
-
-# Trump-backed candidate loses Wisconsin court election
-
-![Crawford activists celebrate at her election night headquarters in Madison, Wisconsin. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798578_4_20250402111452.jpg&q=90)
-  
-
-The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenger endorsed by President Donald Trump and billionaire Elon Musk, cementing a liberal majority for at least three more years.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798578-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798578-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798578-20250402.htm)
 
 ---
 
@@ -1414,29 +1438,5 @@ China on Monday reaffirmed its resolute opposition to moves that infringe upon a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798334-20250331.htm)
-
----
-
-# Kremlin says Putin 'remains open' to speaking to Trump
-
-![US President Donald Trump (Left) earlier criticised Russian President Vladimir Putin for the lack of progress on a ceasefire deal. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798328_1_20250331211156.jpg&q=90)
-  
-
-The Kremlin on Monday said that President Vladimir Putin was still "open" to speaking to Donald Trump after the US president said he was "very angry" with the Russian leader over little progress on a ceasefire in Ukraine.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm)
 
 ---

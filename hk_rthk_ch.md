@@ -1,5 +1,99 @@
+# 文憑試中文科開考　有考生認為閱讀卷不算難、文言文容易理解
+
+  
+
+文憑試首個核心科目中文科今日開考。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798592-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798592-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798592-20250402.htm)
+
+---
+
+# 機場舉辦海洋生態保育展　謝展寰：本港海洋生物多樣性豐富
+
+  
+
+環境及生態局局長謝展寰、運輸及物流局局長陳美寶出席在機場舉行的海洋生態保育及生物多樣性展覽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798593-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798593-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798593-20250402.htm)
+
+---
+
+# 港鐵清明節期間將加密東鐵綫部分時段班次　高鐵香港段加強服務
+
+  
+
+為方便市民於清明節掃墓，港鐵於本星期五至星期日，加密東鐵綫部分時段的列車班次，亦會加強港鐵巴士K52A服務，方便往來屯馬綫屯門站和曾咀靈灰安置所的掃墓市民。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798591-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798591-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798591-20250402.htm)
+
+---
+
+# 恒指23000點失而復得　半日升14點
+
+![恒指中午收市報23221點，升14點，主板成交額逾1302億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798590_2_20250402121710.jpg&q=10)
+  
+
+港股半日靠穩收市，恒指今早一度失守23000點，低見22980點，跌逾225點，其後自低位反彈，最多升近190點，中午收市報23221點，升14點，主板成交額逾1302億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798590-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798590-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798590-20250402.htm)
+
+---
+
 # 蕭澤頤出席歡送禮　相信新管理層帶領下警隊繼續進步
 
+![蕭澤頤離開警總時，與在場道別的同僚握手。（警方社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798588_1_20250402122825.jpg&q=90)
   
 
 警隊昨日為最後一日出任警務處處長的蕭澤頤舉行歡送典禮。
@@ -215,7 +309,7 @@
 
 # 有市民成年後即輪候公屋　何永賢冀矯正觀念
 
-![何永賢指本港過往曾有一段長時間沒有居屋，以致居屋的認購額超標30多倍至60倍不等，反映置業需求很大。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798576_1_20250402104736.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798576_1_20250402104736.jpg&q=80)
   
 
 房屋局局長何永賢在本台電視節目《盤點政策》表示，接任局長兩年半以來，面對的最主要問題是房屋供應不足，本港過往曾有一段長時間沒有居屋，以致居屋的認購額超標30多倍至60倍不等，反映置業需求很大。對於有市民在18歲便輪候公屋，她認為要找機會理順或矯正這個觀念，重申居屋很重要，而且必須要持續供應。
@@ -1341,101 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm)
-
----
-
-# 王毅指美方如果續加關稅施壓　中方必將堅決反制
-
-![王毅回應美國對華加徵關稅，指中國從來不接受強權霸權，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798516_1_20250401224644.jpg&q=90)
-  
-
-正在俄羅斯訪問的中共中央政治局委員、外交部長王毅，回應美國對華加徵關稅，他說中國從來不接受強權霸權，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798516-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798516-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798516-20250401.htm)
-
----
-
-# 美國3月製造業PMI終值勝預期　ISM製造業指數遜預期
-
-![標普全球公布，美國3月製造業PMI終值為50.2，高過市場預期的49.9；美國供應管理協會（ISM）3月製造業指數跌至49，低過預期的49.5。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798514_1_20250401221159.jpg&q=90)
-  
-
-標普全球公布，美國3月製造業採購經理指數（PMI）終值為50.2，低過2月的52.7。但高過初值的49.8，以及高過市場預期的49.9，連續3個月處於50以上的擴張水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798514-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798514-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798514-20250401.htm)
-
----
-
-# 粵港澳大灣區專責小組首次會議　張國鈞稱用好大灣區獨特優勢
-
-![張國鈞主持新一屆粵港澳大灣區專責小組首次會議。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798513_1_20250401220009.jpg&q=90)
-  
-
-律政司副司長張國鈞今日主持新一屆粵港澳大灣區專責小組首次會議，強調「創新」對促進三地機制對接、規則銜接和人才連接尤其重要，能更充分地支持香港融入國家發展大局，提升大灣區的創新能力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm)
-
----
-
-# 美股初段下跌
-
-![道瓊斯指數較早時報41776點，跌225點，跌幅0.54%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798512_1_20250401213700.jpg&q=90)
-  
-
-美股在開市初段下跌。市場等待美國總統特朗普就關稅細節作明確表態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm)
 
 ---

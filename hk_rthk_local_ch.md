@@ -1,5 +1,75 @@
+# 文憑試中文科開考　有考生認為閱讀卷不算難、文言文容易理解
+
+  
+
+文憑試首個核心科目中文科今日開考。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798592-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798592-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798592-20250402.htm)
+
+---
+
+# 機場舉辦海洋生態保育展　謝展寰：本港海洋生物多樣性豐富
+
+  
+
+環境及生態局局長謝展寰、運輸及物流局局長陳美寶出席在機場舉行的海洋生態保育及生物多樣性展覽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798593-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798593-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798593-20250402.htm)
+
+---
+
+# 港鐵清明節期間將加密東鐵綫部分時段班次　高鐵香港段加強服務
+
+  
+
+為方便市民於清明節掃墓，港鐵於本星期五至星期日，加密東鐵綫部分時段的列車班次，亦會加強港鐵巴士K52A服務，方便往來屯馬綫屯門站和曾咀靈灰安置所的掃墓市民。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798591-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798591-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798591-20250402.htm)
+
+---
+
 # 蕭澤頤出席歡送禮　相信新管理層帶領下警隊繼續進步
 
+![蕭澤頤離開警總時，與在場道別的同僚握手。（警方社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798588_1_20250402122825.jpg&q=90)
   
 
 警隊昨日為最後一日出任警務處處長的蕭澤頤舉行歡送典禮。
@@ -95,7 +165,7 @@
 
 # 有市民成年後即輪候公屋　何永賢冀矯正觀念
 
-![何永賢指本港過往曾有一段長時間沒有居屋，以致居屋的認購額超標30多倍至60倍不等，反映置業需求很大。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798576_1_20250402104736.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798576_1_20250402104736.jpg&q=80)
   
 
 房屋局局長何永賢在本台電視節目《盤點政策》表示，接任局長兩年半以來，面對的最主要問題是房屋供應不足，本港過往曾有一段長時間沒有居屋，以致居屋的認購額超標30多倍至60倍不等，反映置業需求很大。對於有市民在18歲便輪候公屋，她認為要找機會理順或矯正這個觀念，重申居屋很重要，而且必須要持續供應。
@@ -1369,78 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm)
-
----
-
-# 林卓廷披露游乃強受查案　律政司終極上訴得直
-
-![律政司提出終極上訴，終審法院今日頒下判詞，以大比數裁定律政司上訴得直，恢復林卓廷罪成判決。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798401_1_20250401111220.jpg&q=80)
-  
-
-立法會前議員林卓廷向公眾披露，廉署在「元朗7.21事件」後，調查時任元朗警區助理指揮官游乃強涉嫌「公職人員行為失當」，林卓廷被控違反《防止賄賂條例》中，有關不當披露受查人身份的條文，原審裁定罪成後上訴得直，撤銷定罪。律政司提出終極上訴，終審法院今日頒下判詞，以大比數裁定律政司上訴得直，恢復林卓廷罪成判決，及監禁4個月的判刑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798401-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798401-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798401-20250401.htm)
-
----
-
-# 啟德發展區兩段新共融通道開放予公眾使用
-
-![啟德海濱花園近土瓜灣避風塘的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_1_20250401102511.jpg&q=90)
-![承豐道公園的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_2_20250401111307.jpg&q=80)
-  
-
-發展局發言人表示，啟德發展區兩段新的共融通道分別位於承豐道公園及啟德海濱花園近土瓜灣避風塘，已開放予公眾使用，各長約1公里，市民可沿共融通道欣賞海濱景色。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm)
-
----
-
-# 佐敦文英街院舍失蹤男子已尋回沒受傷
-
-![失蹤男子昨日下午在廣東道及佐敦道交界一公園被尋回，沒有受傷，案件沒有可疑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798395_1_20250401111400.jpg&q=90)
-  
-
-一名日前失蹤的70歲男子已被尋回。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798395-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798395-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798395-20250401.htm)
 
 ---
