@@ -1,3 +1,27 @@
+# 美股3大股指期貨跌幅加大　市場憂慮貿易戰升溫
+
+![美股3大指數期貨跌幅加大。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798728_1_20250403072856.jpg&q=90)
+  
+
+美股3大指數期貨跌幅加大。美國總統特朗普在美股收市後公布對等關稅措施細節，包括向所有進口到美國的商品徵收10%基準關稅，部份貿易伙伴被徵收的稅率更高。市場預計有關貿易伙伴將採取反制措施，憂慮觸發貿易戰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798728-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798728-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798728-20250403.htm)
+
+---
+
 # 歐洲主要股市低收
 
 ![法蘭克福DAX指數報22390點，跌149點，跌幅0.66%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798714_1_20250403045640.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm)
-
----
-
-# 美國2月JOLTs職位空缺跌至756.8萬個少過預期
-
-![美國勞工部2月JOLTs調查顯示，截至2月底，職位空缺按月減少19.4萬個，降至756.8萬個，少過市場預期的761萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798517_1_20250401224945.jpg&q=90)
-  
-
-美國勞工部公布的職位空缺和勞動力流動調查（JOLTs）顯示，截至2月底，職位空缺按月減少19.4萬個，降至756.8萬個，少過市場預期的761萬個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm)
 
 ---

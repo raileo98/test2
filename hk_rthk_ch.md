@@ -1,3 +1,27 @@
+# 美股3大股指期貨跌幅加大　市場憂慮貿易戰升溫
+
+![美股3大指數期貨跌幅加大。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798728_1_20250403072856.jpg&q=90)
+  
+
+美股3大指數期貨跌幅加大。美國總統特朗普在美股收市後公布對等關稅措施細節，包括向所有進口到美國的商品徵收10%基準關稅，部份貿易伙伴被徵收的稅率更高。市場預計有關貿易伙伴將採取反制措施，憂慮觸發貿易戰。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798728-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798728-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798728-20250403.htm)
+
+---
+
 # 意總理稱美國關稅錯誤　澳洲總理指非朋友行為　加拿大將反制
 
 ![阿爾巴內塞說，美國徵收關稅並不令人意外，但完全沒有道理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798727_1_20250403071846.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm)
-
----
-
-# 人民幣兌美元收市創近1個月低位
-
-![人民幣兌美元收市創近1個月低位，報7.2719兌1美元，較上日收市跌32點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798644_1_20250402170805.jpg&q=85)
-  
-
-在岸人民幣兌美元收市創近1個月低位，報7.2719兌1美元，較上日收市跌32點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798644-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798644-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798644-20250402.htm)
 
 ---
