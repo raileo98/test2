@@ -1,3 +1,26 @@
+# 政府就生態旅遊項目邀意向書　團結香港基金認為片區發展具連貫性
+
+  
+
+發展局邀請市場分別就前南丫島石礦場用地、南大嶼生態康樂走廊，以及尖鼻咀及白泥的生態旅遊發展項目，提交意向書，為期3個月。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm)
+
+---
+
 # 陳國基到緬甸駐港總領事館簽弔唁冊　稱盡快安排將物資運抵災區
 
 ![陳國基到緬甸駐港總領事館簽弔唁冊，又與緬甸駐港總領事交流，對遇難者表示沉痛哀悼。（陳國基社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798665_1_20250402190642.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798473-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798473-20250401.htm)
-
----
-
-# 香港迪士尼今年將償還四成貸款　羅淑佩稱樂園自資增建項目是好事
-
-![香港迪士尼樂園已開始償還由特區政府及華特迪士尼提供的貸款，至今已償還超過六成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798493_1_20250401185342.jpg&q=85)
-  
-
-立法會一個委員會討論香港迪士尼樂園度假區最新進展報告。民建聯立法會議員陳勇指出，香港迪士尼樂園已轉虧為盈，但仍有四成貸款未償還予特區政府及華特迪士尼，關注何時完成還款，又能否將部分盈利回撥予政府。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm)
 
 ---
