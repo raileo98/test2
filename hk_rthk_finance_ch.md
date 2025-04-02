@@ -1,3 +1,27 @@
+# 滬股半日升逾0.2%
+
+![上證指數半日收報3356點，升7點，升幅0.24%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798582_1_20250402113836.jpg&q=75)
+  
+
+內地股市反覆靠穩，汽車產業鏈、人形機器人概念股上升；軍工及電力股向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798582-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798582-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798582-20250402.htm)
+
+---
+
 # 廖岷：中方重視對歐財金合作　冀透過對話磋商妥善處理摩擦分歧
 
 ![廖岷與歐盟委員會官員在比利時布魯塞爾，共同主持第十六次中歐財金對話。（財政部圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798581_1_20250402113318.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm)
-
----
-
-# 國家移民管理局料清明假期全國口岸日均出入境逾2百萬人次
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798405_1_20250401111050.jpg&q=90)
-  
-
-國家移民管理局預計，今年清明節假期全國口岸日均出入境將達210萬人次，較去年同期增長約21%。北京首都、上海浦東及廣州白雲等大型國際機場口岸，出入境客流小幅增長。毗鄰港澳陸路口岸旅客流量快速增長，返鄉祭祖的港澳台居民、海外僑胞將明顯增多。其中，港珠澳大橋日均出入境預計將達到超過12萬人次，深圳羅湖、福田、深圳灣、蓮塘及高鐵西九龍站口岸，預計會有大約10萬至近25萬人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm)
 
 ---

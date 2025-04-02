@@ -1,6 +1,5 @@
 # Trump-backed candidate loses Wisconsin court election
 
-![Susan Crawford speaks with a supporter on the campus of University of Wisconsin Madison on Tuesday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798578_3_20250402111452.jpg&q=90)
 ![Crawford activists celebrate at her election night headquarters in Madison, Wisconsin. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798578_4_20250402111452.jpg&q=90)
   
 
@@ -25,7 +24,7 @@ The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenge
 
 # US senator makes record books with 25-hour talk-a-thon
 
-![Cory Booker takes a more animated turn during his marathon speech in the US Senate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798571_1_20250402102752.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798571_1_20250402102752.jpg&q=90)
   
 
 A Democratic US lawmaker shattered a record for the longest speech in Senate history, staying on his feet for more than 25 hours to deliver a fiery protest against President Donald Trump's "unconstitutional" actions.

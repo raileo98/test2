@@ -51,7 +51,7 @@ A 25-year-old Hong Kong man wanted by the police for his alleged involvement in 
 ![Joe Chow takes over as new police chief from his retiring predecessor Raymond Siu. Photo courtesy of the Hong Kong Police Force](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798573_1_20250402103051.jpg&q=90)
   
 
-Beijing has named Joe Chow as the new commissioner of police, replacing Raymond Siu.
+Beijing has named Joe Chow as the new Commissioner of Police, replacing Raymond Siu.
 
   
 

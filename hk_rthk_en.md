@@ -1,3 +1,28 @@
+# Curry drops 52 points in Warriors win over Grizzlies
+
+![Steph Curry drained 12 three-pointers in the Warriors' victory over Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798584_1_20250402114710.jpg&q=90)
+![Giannis Antetokounmpo's 37 points helped end a four-game losing skid for the Bucks. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798584_2_20250402114710.jpg&q=90)
+  
+
+Stephen Curry scored 52 points and Draymond Green added a triple-double as the Golden State Warriors clinched a crucial 134-125 victory over the Memphis Grizzlies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm)
+
+---
+
 # 'HOS flats give youngsters looking to buy homes hope'
 
 ![Winnie Ho says it is essential to have a continuous housing supply. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798574_1_20250402103205.jpg&q=80)
@@ -24,7 +49,6 @@ Secretary for Housing Winnie Ho on Wednesday said authorities are rolling out ab
 
 # Trump-backed candidate loses Wisconsin court election
 
-![Susan Crawford speaks with a supporter on the campus of University of Wisconsin Madison on Tuesday. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798578_3_20250402111452.jpg&q=90)
 ![Crawford activists celebrate at her election night headquarters in Madison, Wisconsin. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798578_4_20250402111452.jpg&q=90)
   
 
@@ -76,7 +100,7 @@ A 25-year-old Hong Kong man wanted by the police for his alleged involvement in 
 ![Joe Chow takes over as new police chief from his retiring predecessor Raymond Siu. Photo courtesy of the Hong Kong Police Force](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798573_1_20250402103051.jpg&q=90)
   
 
-Beijing has named Joe Chow as the new commissioner of police, replacing Raymond Siu.
+Beijing has named Joe Chow as the new Commissioner of Police, replacing Raymond Siu.
 
   
 
@@ -97,7 +121,7 @@ Beijing has named Joe Chow as the new commissioner of police, replacing Raymond 
 
 # US senator makes record books with 25-hour talk-a-thon
 
-![Cory Booker takes a more animated turn during his marathon speech in the US Senate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798571_1_20250402102752.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798571_1_20250402102752.jpg&q=90)
   
 
 A Democratic US lawmaker shattered a record for the longest speech in Senate history, staying on his feet for more than 25 hours to deliver a fiery protest against President Donald Trump's "unconstitutional" actions.
@@ -1414,29 +1438,5 @@ The Kremlin on Monday said that President Vladimir Putin was still "open" to spe
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798328-20250331.htm)
-
----
-
-# Tokyo updates toll for next potential 'megaquake'
-
-![The Fukushima nuclear disaster was one of three 2011 chain of events that changed the way that Tokyo traditionally regarded the 'megaquake' scenario. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798306_1_20250331182035.jpg&q=90)
-  
-
-A "megaquake" and subsequent tsunami could cause up to 298,000 deaths in Japan and damage costing up to US$2 trillion, the government said on Monday in a new estimate.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798306-20250331.htm)
 
 ---

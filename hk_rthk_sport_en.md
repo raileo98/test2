@@ -1,3 +1,28 @@
+# Curry drops 52 points in Warriors win over Grizzlies
+
+![Steph Curry drained 12 three-pointers in the Warriors' victory over Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798584_1_20250402114710.jpg&q=90)
+![Giannis Antetokounmpo's 37 points helped end a four-game losing skid for the Bucks. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798584_2_20250402114710.jpg&q=90)
+  
+
+Stephen Curry scored 52 points and Draymond Green added a triple-double as the Golden State Warriors clinched a crucial 134-125 victory over the Memphis Grizzlies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm)
+
+---
+
 # Bielefeld shock holders Leverkusen in German Cup
 
 ![Bielefeld players celebrate winning their German Cup semi-final match against Bayern Leverkusen. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798544_1_20250402073801.jpg&q=90)
@@ -1425,30 +1450,5 @@ NBA Eastern Conference leader Cleveland snapped a four-game losing streak with a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm)
-
----
-
-# France, Spain through to Nations League semis on pens
-
-![Mike Maignan was the hero for France in the penalty shoot-out against Croatia. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797081_1_20250324074010.jpg&q=90)
-![Mikel Oiarzabal opened the scoring for Spain in their second leg clash against the Netherlands. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797081_2_20250324074010.jpg&q=90)
-  
-
-Goalkeeper Mike Maignan saved twice in the shoot-out as France beat Croatia 5-4 on penalties after their Uefa Nations League quarter-final tie had ended 2-2 on aggregate, sealing a place in the last four in June.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797081-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797081-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797081-20250324.htm)
 
 ---

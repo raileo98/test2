@@ -1,6 +1,54 @@
+# 清明節14間普通科門診提供公眾假期診症服務
+
+![本周五清明節假期將有14間普通科門診診所，提供公眾假期普通科門診服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798587_1_20250402115756.jpg&q=80)
+  
+
+醫管局表示，本周五清明節假期將有14間普通科門診診所提供公眾假期普通科門診服務。求診人士可透過電話預約系統或流動應用程式「HA Go」內的「預約普通科門診」功能，預約診症時間。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798587-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798587-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798587-20250402.htm)
+
+---
+
+# 葉劉淑儀稱周一鳴有豐富警務經驗　有信心可領導警隊
+
+![葉劉淑儀有信心周一鳴能秉持「忠誠勇毅」的精神，領導警隊。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798586_1_20250402115720.jpg&q=80)
+  
+
+行政會議召集人、新民黨主席葉劉淑儀回應周一鳴獲任命為警務處處長，表示雖然與對方並不相熟，但過往曾在行會觀察過對方表現，相信憑著他豐富的警務經驗，過去一直與上任警務處處長蕭澤頤合作得很好，有信心周一鳴能秉持「忠誠勇毅」的精神，領導警隊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798586-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798586-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798586-20250402.htm)
+
+---
+
 # 李家超：深信周一鳴定能有力帶領警隊　迎接未來挑戰
 
-![李家超形容周一鳴表現卓越，具領導才能，又說深信他一定能夠有力帶領警隊，迎接未來挑戰。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798579_1_20250402110853.jpg&q=90)
+![周一鳴（左）在行政長官李家超（右）監誓下宣誓就職。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798579_2_20250402115048.jpg&q=90)
   
 
 行政長官李家超公布，依照《基本法》有關規定，中央政府根據行政長官的提名及建議，任命周一鳴為警務處處長，同時免去蕭澤頤的警務處處長職務。
@@ -1395,53 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm)
-
----
-
-# 文憑試視藝科開考　考生憂「報到易」再故障提早到場
-
-![文憑試視覺藝術科今日開考，考生攜帶畫具到考場。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798392_1_20250401111103.jpg&q=85)
-  
-
-文憑試首科筆試、視覺藝術科今日開考，有近4千人報考。在觀塘一個試場，有考生提早1小時到場，因擔心有突發情況，認為「早到好過遲到」。亦有家長擔心女兒要花時間找路及協助攜帶畫具，所以接送女兒到考場，希望她放鬆心情，盡力考好文憑試。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798392-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798392-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798392-20250401.htm)
-
----
-
-# 港股高開近百點
-
-![恒指競價時段報23217點，升97點，升幅0.42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798384_1_20250401092319.jpg&q=80)
-  
-
-港股高開，恒指競價時段報23217點，升97點，升幅0.42%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm)
 
 ---
