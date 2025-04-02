@@ -1,3 +1,27 @@
+# 丹麥首相：格陵蘭屬非賣品　北約秘書長稱丹麥美國應維護北極穩定
+
+![弗雷澤里克森到訪格陵蘭首府努克。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798705_1_20250403024116.jpg&q=85)
+  
+
+丹麥首相弗雷澤里克森到訪丹麥自治領地格陵蘭，強調格陵蘭是非賣品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798705-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798705-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798705-20250403.htm)
+
+---
+
 # 俄軍一架圖-22M3轟炸機墜毀　一名飛行員喪生
 
 ![俄軍一架圖-22M3轟炸機墜毀　一名飛行員喪生](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798704_1_20250403022236.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm)
-
----
-
-# 港大預測本港第2季經濟按年增速加快至2.5%
-
-![港大預測，本港第2季經濟增速，將由首季預估的1.6%，加快至2.5%，或創1年以來高位。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798633_1_20250402161332.jpg&q=90)
-  
-
-港大預測，本港第2季經濟增速，將由首季預估的1.6%，加快至2.5%，或創1年以來高位，受惠通脹溫和，私人消費、出口及投資都預料按季有所改善。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm)
 
 ---

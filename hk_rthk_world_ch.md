@@ -1,3 +1,27 @@
+# 丹麥首相：格陵蘭屬非賣品　北約秘書長稱丹麥美國應維護北極穩定
+
+![弗雷澤里克森到訪格陵蘭首府努克。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798705_1_20250403024116.jpg&q=85)
+  
+
+丹麥首相弗雷澤里克森到訪丹麥自治領地格陵蘭，強調格陵蘭是非賣品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798705-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798705-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798705-20250403.htm)
+
+---
+
 # 俄軍一架圖-22M3轟炸機墜毀　一名飛行員喪生
 
 ![俄軍一架圖-22M3轟炸機墜毀　一名飛行員喪生](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798704_1_20250403022236.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm)
-
----
-
-# 聯儲局官員對減息態度謹慎
-
-![威廉姆斯稱無法預測聯儲局何時可能調整利率。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798371_1_20250401083536.jpg&q=90)
-  
-
-紐約聯邦儲備銀行總裁威廉姆斯表示，貨幣政策處於良好位置，足以應對今年經濟可能出現的情況，但同時承認，通脹有再次升溫的風險，需要獲取更多信息，才能明確關稅對價格壓力的影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm)
 
 ---
