@@ -1,3 +1,49 @@
+# 網上流傳假冒財政司司長推介投資平台影片　當局促提防並已報警
+
+  
+
+政府提醒市民，切勿誤信網上流傳一段疑似用人工智能合成、假冒財政司司長推介所謂「政府投資平台」的短片。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798629-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798629-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798629-20250402.htm)
+
+---
+
+# 后海灣黑臉琵鷺按年跌逾1成　觀鳥會憂放棄來港度冬
+
+  
+
+香港觀鳥會統籌的「全球黑臉琵鷺同步普查」公布今年結果，今年黑臉琵鷺全球數量首度突破7千隻，錄得7081隻，較去年微升93隻，按年增幅1.3%。而后海灣包括香港及深圳的數量則按年下跌逾一成，錄得328隻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798628-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798628-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798628-20250402.htm)
+
+---
+
 # 商務部：原產於歐盟進口白蘭地反傾銷調查延長至7月5日
 
 ![商務部公布，將原產於歐盟的進口白蘭地反傾銷案的調查期限，進一步延長至今年7月5日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798627_1_20250402153253.jpg&q=75)
