@@ -1,3 +1,50 @@
+# 有老師認為文憑試中文科兩份卷難度適中
+
+  
+
+文憑試首個核心科目中文科今日開考，近4萬9千人報考。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm)
+
+---
+
+# 3月送交註冊住宅樓宇買賣合約按月升近70%
+
+![土地註冊處公布，3月住宅樓宇買賣合約佔5367份，按月升67.7%，按年升35.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798632_1_20250402155550.jpg&q=85)
+  
+
+土地註冊處公布，3月送交註冊的所有種類樓宇買賣合約共6661份，按月升54.7%，按年升32.9%，買賣合約總值456億元，按月升61.4%，按年升22.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798632-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798632-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798632-20250402.htm)
+
+---
+
 # 衞生署報告：學童以電子屏幕產品娛樂有上升趨勢
 
   

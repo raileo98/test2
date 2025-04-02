@@ -1,3 +1,27 @@
+# 3月送交註冊住宅樓宇買賣合約按月升近70%
+
+![土地註冊處公布，3月住宅樓宇買賣合約佔5367份，按月升67.7%，按年升35.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798632_1_20250402155550.jpg&q=85)
+  
+
+土地註冊處公布，3月送交註冊的所有種類樓宇買賣合約共6661份，按月升54.7%，按年升32.9%，買賣合約總值456億元，按月升61.4%，按年升22.1%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798632-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798632-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798632-20250402.htm)
+
+---
+
 # 港大預測本港第2季經濟按年增速加快至2.5%
 
 ![港大預測，本港第2季經濟增速，將由首季預估的1.6%，加快至2.5%，或創1年以來高位。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798633_1_20250402161332.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798438-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798438-20250401.htm)
-
----
-
-# 港交所計劃今年優化ETP業務　降低參與者營運負擔
-
-![港交所今年計劃優化交易所買賣產品業務，降低主要參與者的營運負擔，提高市場效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798412_1_20250401115826.jpg&q=90)
-  
-
-港交所計劃今年優化交易所買賣產品(ETP)業務，包括將ETP的實物申購及贖回機制數碼化及自動化，使用數碼平台取代部分人手和紙本作業，降低主要ETP參與者的營運負擔，提高ETP市場效率。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798412-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798412-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798412-20250401.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 有老師認為文憑試中文科兩份卷難度適中
+
+  
+
+文憑試首個核心科目中文科今日開考，近4萬9千人報考。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm)
+
+---
+
 # 衞生署報告：學童以電子屏幕產品娛樂有上升趨勢
 
   
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798459-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798459-20250401.htm)
-
----
-
-# 駐港國安公署嚴厲譴責　稱美國制裁是一張廢紙
-
-![駐港國安公署嚴厲譴責美方行為，並嚴正警告任何外部勢力妄圖干涉香港維護國家安全必定碰壁。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798456_1_20250401164543.jpg&q=80)
-  
-
-美國以損害香港自治為由，制裁6名中央和特區官員。駐港國安公署嚴厲譴責美方行為，並嚴正警告任何外部勢力妄圖干涉香港維護國家安全必定碰壁，美方應趁早收起狂妄肆意囂張的霸凌做法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm)
 
 ---
