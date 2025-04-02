@@ -1,3 +1,28 @@
+# Liverpool beat Everton as title looms; City cruise
+
+![Diogo Jota scored the only goal of the match in Liverpool's win over Everton. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_1_20250403053524.jpg&q=90)
+![Jack Grealish's first league goal since December 2023 helped seal the victory for City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_2_20250403053524.jpg&q=85)
+  
+
+Liverpool moved closer to the Premier League title with a 1-0 win in the Merseyside derby against Everton, while Manchester City beat Leicester 2-0 to bolster their bid to reach the Champions League.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798717-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798717-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798717-20250403.htm)
+
+---
+
 # Curry drops 52 points in Warriors win over Grizzlies
 
 ![Steph Curry drained 12 three-pointers in the Warriors' victory over Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798584_1_20250402114710.jpg&q=90)
@@ -1426,29 +1451,5 @@ Russian 17-year-old Mirra Andreeva, coming off back-to-back WTA 1000 wins in Dub
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797104-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797104-20250324.htm)
-
----
-
-# Cavs snap four-game losing skid, sink Jazz in Utah
-
-![The victory snapped the Cavs' longest losing streak of the season at four games. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797085_1_20250324080912.jpg&q=85)
-  
-
-NBA Eastern Conference leader Cleveland snapped a four-game losing streak with a balanced scoring performance in a 120-91 victory at Utah.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797085-20250324.htm)
 
 ---
