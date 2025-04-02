@@ -24,7 +24,7 @@ The psychological well-being of Hong Kong's secondary school pupils improved sli
 
 # Roles of RTHK, information unit don't overlap: govt
 
-![Commerce chief Algernon Yau told a Legislative Council meeting that merging RTHK and the Information Services Department could be "counterproductive".](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798626_1_20250402152610.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798626_1_20250402152610.jpg&q=90)
   
 
 Commerce chief Algernon Yau on Wednesday stressed that merging the city's public broadcaster and the government's public relations office might not be the most effective way to cut expenditure, saying the two bodies do not overlap in their functions.

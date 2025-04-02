@@ -1,3 +1,27 @@
+# 中方：菲律賓與其他國家開展防務安全合作不應損害第三方利益
+
+![郭嘉昆說，關於菲律賓與美國的軍事安全合作，中方已經多次闡明立場。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798647_1_20250402172643.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆回應美國國務院宣布，已批准向菲律賓出售F-16戰機時表示，關於菲律賓與美國的軍事安全合作，中方已經多次闡明立場，菲律賓同其他國家開展的任何防務安全合作都不應該針對第三方或損害第三方的利益，更不能威脅地區的和平與安全，加劇地區緊張。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798647-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798647-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798647-20250402.htm)
+
+---
+
 # 內地提出17項政策措施完善價格調控機制
 
 ![國務院辦公廳印發的意見，提出17項政策舉措，涉及完善促進物價保持合理水平的價格調控機制、優化透明可預期的市場價格監管機制等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798645_1_20250402170921.jpg&q=90)
