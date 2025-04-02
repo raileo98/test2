@@ -1,3 +1,26 @@
+# 林健鋒認為周一鳴經驗豐富人緣好　是警務處處長合適人選
+
+  
+
+國務院任命周一鳴為警務處處長。行政會議成員、立法會議員林健鋒相信，周一鳴是合適人選。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798630-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798630-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798630-20250402.htm)
+
+---
+
 # 網上流傳假冒財政司司長推介投資平台影片　當局促提防並已報警
 
   
@@ -453,7 +476,7 @@
 
 # 陳美寶：的士車隊以不同方法羅致司機　運輸署將監察運作表現
 
-![陳美寶希望車隊正式運作時，可加速業界積極招聘有質素和有活力的司機加盟，更好服務市民。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798604_1_20250402134431.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798604_1_20250402134431.jpg&q=90)
   
 
 運輸及物流局局長陳美寶出席一項活動後主動回應的士車隊問題。她表示，當局最近推動一系列的士改革措施，有5個車隊成立，按運輸署計劃，車隊需要在今年7月底或之前正式運作。她說知道車隊以不同方法羅致和聘用司機，希望車隊正式運作時，可加速業界積極招聘有質素和有活力的司機加盟，更好服務市民。
