@@ -1,3 +1,27 @@
+# 警方搗破毒窟、武器庫及偵破懷疑非法集結案　拘多名三合會人士
+
+![警方將被捕人士帶上警車。（警方圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798708_1_20250403032644.jpg&q=75)
+  
+
+警方昨日在旺角及深水埗搗破一個毒窟、一個武器庫及偵破一宗懷疑非法集結案，拘捕多名三合會人士，懷疑屬同一幫派，檢獲市值約55000元毒品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798708-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798708-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798708-20250403.htm)
+
+---
+
 # 歐洲理事會主席稱須堅定但明智地應對特朗普關稅政策
 
 ![科斯塔警告，歐盟和美國之間的貿易戰將影響每個人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798706_1_20250403025134.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm)
-
----
-
-# 中國政府援助緬甸第二批物資明天啟運
-
-![中國政府首批援助物資日前運抵緬甸仰光國際機場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798641_1_20250402170035.jpg&q=90)
-  
-
-央視新聞報道，從國家國際發展合作署了解，中國政府對緬甸援助的第二批抗震救災物資計劃明天上午啟運。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm)
 
 ---

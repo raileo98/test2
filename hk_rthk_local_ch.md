@@ -1,3 +1,27 @@
+# 警方搗破毒窟、武器庫及偵破懷疑非法集結案　拘多名三合會人士
+
+![警方將被捕人士帶上警車。（警方圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798708_1_20250403032644.jpg&q=75)
+  
+
+警方昨日在旺角及深水埗搗破一個毒窟、一個武器庫及偵破一宗懷疑非法集結案，拘捕多名三合會人士，懷疑屬同一幫派，檢獲市值約55000元毒品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798708-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798708-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798708-20250403.htm)
+
+---
+
 # 中國救援隊伍在緬甸救出第九名倖存者　特區救援隊參與聯合救援
 
 ![中國救援隊伍救出一名被困近125小時的52歲緬甸男性。（消防處FB圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798698_1_20250403002255.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm)
-
----
-
-# 文憑試首個核心科目中文科開考　有考生稱較擔心卷一表現
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798552_1_20250402093748.jpg&q=90)
-  
-
-文憑試首個核心科目中文科今日開考。有考生表示緊張，但認為最重要是盡力而為。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798552-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798552-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798552-20250402.htm)
 
 ---
