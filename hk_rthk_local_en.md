@@ -1,6 +1,6 @@
 # Drivers' pay rises once joining taxi fleet: operator
 
-![The Transport Department has granted conditional licences to five operators to form fleets, but only two of them have piloted a run. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798583_1_20250402114151.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798583_1_20250402114151.jpg&q=85)
   
 
 The operator of a licensed taxi fleet said drivers’ income had significantly increased since the launch of a new premium cab scheme.

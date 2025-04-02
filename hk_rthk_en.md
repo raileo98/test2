@@ -1,3 +1,27 @@
+# Actor Val Kilmer loses bout with pnemonia
+
+![Val Kilmer played the part of Jim Morrison in the 1991 film 'The Doors.' Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798601_1_20250402125919.jpg&q=90)
+  
+
+American actor Val Kilmer, who was first propelled to fame with "Top Gun" and went on to starring roles as Batman and Jim Morrison, has died at age 65, the New York Times reported.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm)
+
+---
+
 # Sydney beachfront homes take battering from waves
 
 ![Bondi beach in Sydney was hit by a 5.5-metre wave. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798598_1_20250402124618.jpg&q=90)
@@ -72,7 +96,7 @@ The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenge
 
 # Drivers' pay rises once joining taxi fleet: operator
 
-![The Transport Department has granted conditional licences to five operators to form fleets, but only two of them have piloted a run. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798583_1_20250402114151.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798583_1_20250402114151.jpg&q=85)
   
 
 The operator of a licensed taxi fleet said drivers’ income had significantly increased since the launch of a new premium cab scheme.
@@ -1414,29 +1438,5 @@ The Giro d'Italia, Tour de France and Vuelta a Espana will all involve 23 teams 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798362-20250401.htm)
-
----
-
-# McIlroy smashes into PGA Tour's US$100 million club
-
-![McIlroy in action in the first round of the Houston Open golf tournament. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798360_1_20250401063902.jpg&q=90)
-  
-
-Rory McIlroy has joined Tiger Woods in surpassing US$100 million in career earnings on the PGA Tour, becoming just the second player to do so.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798360-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798360-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798360-20250401.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 德勤：香港首季新股集資額升約2.9倍至182億元　全球排第四
+
+![德勤指，今年首季本港新股集資額182億元，按年急升2.87倍，全球排名第4位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798600_1_20250402125809.jpg&q=85)
+  
+
+會計師行德勤報告指，今年首季本港新股市場合計錄得15隻新股上市，集資182億元，分別按年增長25%和2.87倍，以集資額計全球排名第4位，排在美國納斯達克交易所、紐約證券交易所、東京證券交易所。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798600-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798600-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798600-20250402.htm)
+
+---
+
 # 郵儲行預計今年息差仍面臨下行壓力
 
 ![劉建軍稱郵儲行今年將加大對農業生產經營、生活消費、假日、文旅等產業信貸投放。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798599_1_20250402124629.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798521-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798521-20250402.htm)
-
----
-
-# 普京稱俄中關係保持高水平發展　王毅指兩國為動蕩世界的穩定力量
-
-![普京（右二）在莫斯科會見王毅（左二）。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798520_1_20250402004746.jpg&q=90)
-  
-
-俄羅斯總統普京在首都莫斯科，會見中共中央政治局委員、外長王毅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm)
 
 ---

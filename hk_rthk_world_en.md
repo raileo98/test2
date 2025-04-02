@@ -1,3 +1,27 @@
+# Actor Val Kilmer loses bout with pnemonia
+
+![Val Kilmer played the part of Jim Morrison in the 1991 film 'The Doors.' Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798601_1_20250402125919.jpg&q=90)
+  
+
+American actor Val Kilmer, who was first propelled to fame with "Top Gun" and went on to starring roles as Batman and Jim Morrison, has died at age 65, the New York Times reported.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm)
+
+---
+
 # Sydney beachfront homes take battering from waves
 
 ![Bondi beach in Sydney was hit by a 5.5-metre wave. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798598_1_20250402124618.jpg&q=90)
@@ -1414,29 +1438,5 @@ Arctic sea ice had its weakest winter buildup since record-keeping began 47 year
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797792-20250328.htm)
-
----
-
-# Australian PM calls general election for May 3
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797791_1_20250328083609.jpg&q=90)
-  
-
-Australia will hold a general election on May 3, Prime Minister Anthony Albanese said on Friday, locking in a showdown over climate action, nuclear power and a runaway housing market.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm)
 
 ---
