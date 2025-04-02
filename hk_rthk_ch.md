@@ -1,5 +1,29 @@
+# 夏寶龍晤滙豐主席杜嘉祺　冀集團向國際社會講好中國故事
+
+  
+
+在北京，中央港澳辦、國務院港澳辦主任夏寶龍下午會見滙豐集團主席杜嘉祺，指希望滙豐集團在中國更好發展，更積極助力香港鞏固提升國際金融中心地位，繼續發揮自身優勢做好中英關係的重要橋樑紐帶，向國際社會講好「中國故事」「香港故事」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm)
+
+---
+
 # 羅淑佩拜會國務院港澳辦和國家體育總局
 
+![羅淑佩拜會國務院港澳辦和國家體育總局](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798682_1_20250402212217.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩展開北京行程，拜會國務院港澳辦和國家體育總局。
@@ -23,6 +47,7 @@
 
 # 約4.8萬人應考文憑試中文科　考評局指各試場運作暢順
 
+![考評局表示，各試場學校整體運作暢順，考試順利按時完成。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798681_1_20250402212515.jpg&q=85)
   
 
 文憑試首個核心科目中文科今日開考，大約4萬8千名考生在超過430個一般試場和超過540個特別試場應考，考評局表示，各試場學校整體運作暢順，考試順利按時完成。
@@ -1367,7 +1392,7 @@
 
 # 丘應樺：港台與新聞處職能上無重疊　合併或會帶來反效果
 
-![丘應樺表示，港台作為公共廣播機構，與新聞處主責政府公共關係，各司其職，職能上並無重疊。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798610_1_20250402141912.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798610_1_20250402141912.jpg&q=90)
   
 
 商務及經濟發展局局長丘應樺表示，香港電台與政府新聞處雖然同為政府部門，但港台作為公共廣播機構，與新聞處主責政府公共關係，各司其職，職能上並無重疊。

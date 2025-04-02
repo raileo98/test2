@@ -1,3 +1,27 @@
+# 羅淑佩拜會國務院港澳辦和國家體育總局
+
+![羅淑佩拜會國務院港澳辦和國家體育總局](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798682_1_20250402212217.jpg&q=90)
+  
+
+文化體育及旅遊局局長羅淑佩展開北京行程，拜會國務院港澳辦和國家體育總局。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm)
+
+---
+
 # 政府就規範籃球博彩展開諮詢　諮詢期至下月2日
 
 ![政府建議參考規管足球博彩的做法，透過修訂《博彩稅條例》，訂立籃球博彩活動的規管框架。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798637_1_20250402170130.jpg&q=85)
@@ -1432,29 +1456,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796883-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796883-20250322.htm)
-
----
-
-# 世盃外圍賽國足作客0:1不敵沙特
-
-![林良銘上半場被紅牌罰，國足最終飲恨。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796729_1_20250321095251.jpg&q=90)
-  
-
-世界盃外圍賽亞洲區18強賽C組賽事，林良銘上半場被紅牌罰下，10人作戰的國足作客0:1不敵沙特阿拉伯。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796729-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796729-20250321.htm](https://news.rthk.hk/rthk/ch/component/k2/1796729-20250321.htm)
 
 ---
