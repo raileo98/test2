@@ -1,3 +1,27 @@
+# 白宮：馬斯克完成政府效率部工作後將離開公職
+
+![馬斯克與特朗普關係密切。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798702_1_20250403014233.jpg&q=90)
+  
+
+美國白宮表示，富商馬斯克在完成政府效率部的工作後，將會離開公職。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798702-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798702-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798702-20250403.htm)
+
+---
+
 # 特朗普稍後公布關稅措施　德國意大利強調要避免貿易戰
 
 ![梅洛尼強調，有必要避免貿易戰，但不排除在必要時採取措施保護產業。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798701_1_20250403013021.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798631-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798631-20250402.htm)
-
----
-
-# 林健鋒認為周一鳴經驗豐富人緣好　是警務處處長合適人選
-
-![林健鋒說，認識周一鳴多年，認為他是實幹的人，亦願意聆聽各方意見。（陳樂謙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798630_1_20250402161126.jpg&q=90)
-  
-
-國務院任命周一鳴為警務處處長。行政會議成員、立法會議員林健鋒相信，周一鳴是合適人選。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798630-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798630-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798630-20250402.htm)
 
 ---

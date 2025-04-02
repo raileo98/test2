@@ -1,3 +1,27 @@
+# 白宮：馬斯克完成政府效率部工作後將離開公職
+
+![馬斯克與特朗普關係密切。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798702_1_20250403014233.jpg&q=90)
+  
+
+美國白宮表示，富商馬斯克在完成政府效率部的工作後，將會離開公職。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798702-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798702-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798702-20250403.htm)
+
+---
+
 # 特朗普稍後公布關稅措施　德國意大利強調要避免貿易戰
 
 ![梅洛尼強調，有必要避免貿易戰，但不排除在必要時採取措施保護產業。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798701_1_20250403013021.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798351-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798351-20250401.htm)
-
----
-
-# 外交部駐港公署強烈譴責美國制裁中央和特區官員　將堅決反制
-
-![發言人指，中方必將採取有力措施堅決反制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798350_1_20250401041931.jpg&q=85)
-  
-
-外交部駐港公署強烈譴責並堅決反對美國國務院制裁6名中央和香港特區政府官員，指美方所謂制裁再次暴露破壞香港繁榮穩定、遏制中國發展的險惡用心，中方必將採取有力措施堅決反制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm)
 
 ---
