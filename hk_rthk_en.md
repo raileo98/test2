@@ -1,3 +1,27 @@
+# Stuttgart beat Leipzig to reach German Cup final
+
+![Stuttgart's Maximilian Mittelstädt celebrates after their 3-1 win over RB Leipzig. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798718_1_20250403054223.jpg&q=90)
+  
+
+Stuttgart set up a German Cup final clash with third-division Arminia Bielefeld after a 3-1 win over RB Leipzig.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798718-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798718-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798718-20250403.htm)
+
+---
+
 # Liverpool beat Everton as title looms; City cruise
 
 ![Diogo Jota scored the only goal of the match in Liverpool's win over Everton. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_1_20250403053524.jpg&q=90)
@@ -1415,29 +1439,5 @@ The People's Liberation Army (PLA) Eastern Theater Command on Tuesday started to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm)
-
----
-
-# Stocks market maker plans to expand in Central
-
-![Jane Street is said to be in talks with Hongkong Land to take over two more floors in Central. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798414_1_20250401120606.jpg&q=85)
-  
-
-Jane Street, one of the world's largest quant trading firms and market makers, is planning a sharp increase in Hong Kong office space, two people familiar with the matter said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798414-20250401.htm)
 
 ---
