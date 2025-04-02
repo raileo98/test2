@@ -1,3 +1,27 @@
+# 俄軍一架圖-22M3轟炸機墜毀　一名飛行員喪生
+
+![俄軍一架圖-22M3轟炸機墜毀　一名飛行員喪生](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798704_1_20250403022236.jpg&q=90)
+  
+
+俄羅斯軍方一架圖-22M3轟炸機在中部墜毀，一名飛行員喪生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798704-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798704-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798704-20250403.htm)
+
+---
+
 # 以色列宣布擴大加沙軍事行動　迫使哈馬斯釋放人質
 
 ![以軍在加沙南部巡邏。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798703_1_20250403021527.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm)
-
----
-
-# 恒指低收4點　科指靠穩　小米再跌逾4%
-
-![恒指午後窄幅上落，最終收市報23202點，跌4點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798635_1_20250402162152.jpg&q=75)
-  
-
-港股早段一度失守23000點，恒生指數低見22980點，跌逾225點，其後轉升最多近190點，午後窄幅上落，最終收市報23202點，跌4點，全日主板成交額近2166億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798635-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798635-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798635-20250402.htm)
 
 ---

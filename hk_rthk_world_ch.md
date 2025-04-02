@@ -1,3 +1,27 @@
+# 俄軍一架圖-22M3轟炸機墜毀　一名飛行員喪生
+
+![俄軍一架圖-22M3轟炸機墜毀　一名飛行員喪生](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798704_1_20250403022236.jpg&q=90)
+  
+
+俄羅斯軍方一架圖-22M3轟炸機在中部墜毀，一名飛行員喪生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798704-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798704-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798704-20250403.htm)
+
+---
+
 # 以色列宣布擴大加沙軍事行動　迫使哈馬斯釋放人質
 
 ![以軍在加沙南部巡邏。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798703_1_20250403021527.jpg&q=75)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798371-20250401.htm)
-
----
-
-# 格奧爾基耶娃：美國推動全面關稅短期內不太可能引發經濟衰退
-
-![格奧爾基耶娃稱美國推動全面關稅正造成巨大不確定並打擊信心，但短期內不致引發經濟衰退。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798361_1_20250401070655.jpg&q=90)
-  
-
-國際貨幣基金組織總裁格奧爾基耶娃表示，美國總統特朗普推動全面關稅，正造成巨大不確定性並打擊信心，但短期內不太可能引發經濟衰退，又認為美國今年通脹回落進程可能放緩，但不足以改變聯儲局明年令通脹重返2%的目標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm)
 
 ---
