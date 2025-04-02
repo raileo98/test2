@@ -1,3 +1,49 @@
+# 陳國基到緬甸駐港總領事館簽弔唁冊　稱盡快安排將物資運抵災區
+
+  
+
+緬甸上周發生大地震。政務司司長陳國基下午到緬甸駐港總領事館簽弔唁冊，又與緬甸駐港總領事交流，對遇難者表示沉痛哀悼，並向遇難者家屬和受災民眾致以深切慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm)
+
+---
+
+# 劉國勳倡設指定吸煙區打擊「火車頭」　吳傑莊冀當局考慮旅客看法
+
+  
+
+消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，包括建議擴大禁煙區、排隊輪候公共交通工具時禁煙等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798664-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798664-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798664-20250402.htm)
+
+---
+
 # 外交部呼籲緬甸各方確保救援人員安全
 
 ![郭嘉昆表示，中方救援隊伍和物資都安全。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798663_1_20250402185129.jpg&q=90)
@@ -353,6 +399,7 @@
 
 # 郵儲銀行：配股定價兼顧新舊股東利益　料短期造成一定攤薄
 
+![郵儲銀行副行長杜春野說，考慮到A股股價明顯高於H股，透過A股溢價發行，是對兩地投資者的充分呵護，強調定價兼顧了新舊股東利益。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798649_1_20250402185517.jpg&q=90)
   
 
 郵儲銀行計劃向財政部、中國移動集團及中國船舶集團，發行A股集資1300億元人民幣，是銀行歷來最大的融資項目；每股發行價6.32元，較公告前收市價溢價近22%。

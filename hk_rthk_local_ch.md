@@ -1,3 +1,49 @@
+# 陳國基到緬甸駐港總領事館簽弔唁冊　稱盡快安排將物資運抵災區
+
+  
+
+緬甸上周發生大地震。政務司司長陳國基下午到緬甸駐港總領事館簽弔唁冊，又與緬甸駐港總領事交流，對遇難者表示沉痛哀悼，並向遇難者家屬和受災民眾致以深切慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm)
+
+---
+
+# 劉國勳倡設指定吸煙區打擊「火車頭」　吳傑莊冀當局考慮旅客看法
+
+  
+
+消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，包括建議擴大禁煙區、排隊輪候公共交通工具時禁煙等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798664-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798664-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798664-20250402.htm)
+
+---
+
 # 打造新旅遊及康樂「片區」　發展局就三個項目邀請市場交意向書
 
   
@@ -1383,54 +1429,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm)
-
----
-
-# 文憑試筆試開考首日九成考生用「報到易」　考評局指運作暢順
-
-![文憑試首科筆試、視覺藝術科今日開考。（游樹榮攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798492_1_20250401185315.jpg&q=90)
-  
-
-文憑試首科筆試、視覺藝術科今日開考。有考生表示緊張，亦有家長陪同子女到試場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798492-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798492-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798492-20250401.htm)
-
----
-
-# 紀念東江水供港60載　「舞動水滴展」今日起亮相添馬公園
-
-![展覽首階段裝置包括一個高18.8米的水滴裝置和百多個不倒翁小水滴。（發展局社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798491_1_20250401181954.jpg&q=90)
-![「舞動水滴展」今日開始於添馬公園展出，現已接受網上預約，費用全免。(發展局社交網站)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798491_2_20250401182528.jpg&q=75)
-  
-
-由國際著名藝術家馬興文特別為慶祝東江水供港60周年而創作的大型藝術展覽「舞動水滴展」，今日開始於添馬公園展出，現已接受網上預約，費用全免。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798491-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798491-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798491-20250401.htm)
 
 ---

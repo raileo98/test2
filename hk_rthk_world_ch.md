@@ -1,3 +1,26 @@
+# 陳國基到緬甸駐港總領事館簽弔唁冊　稱盡快安排將物資運抵災區
+
+  
+
+緬甸上周發生大地震。政務司司長陳國基下午到緬甸駐港總領事館簽弔唁冊，又與緬甸駐港總領事交流，對遇難者表示沉痛哀悼，並向遇難者家屬和受災民眾致以深切慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm)
+
+---
+
 # 外交部呼籲緬甸各方確保救援人員安全
 
 ![郭嘉昆表示，中方救援隊伍和物資都安全。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798663_1_20250402185129.jpg&q=90)
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798339-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798339-20250401.htm)
-
----
-
-# 中日韓據報同意合作對沖美國關稅　中方希望進口日韓晶片產品
-
-![中日韓經貿部長會議日前在首爾舉行。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798338_1_20250331232647.jpg&q=90)
-  
-
-中日韓經貿部長會議日前在首爾舉行，央視旗下社交平台玉淵譚天報道，中日韓同意透過合作和維護多邊貿易機制，以確定性來對沖美國加徵對等關稅等行徑為全球貿易帶來的不確定性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm)
 
 ---
