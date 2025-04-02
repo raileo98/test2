@@ -1,3 +1,75 @@
+# 歐洲主要股市低收
+
+![法蘭克福DAX指數報22390點，跌149點，跌幅0.66%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798714_1_20250403045640.jpg&q=90)
+  
+
+歐洲主要股市下跌，受醫療保健類股份下跌拖累。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798714-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798714-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798714-20250403.htm)
+
+---
+
+# 紐約期金高收逾0.6%
+
+![美國總統特朗普公布最新關稅計劃前，繼續有資金流入黃金避險。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798715_1_20250403050200.jpg&q=90)
+  
+
+外圍金價創新高。美國總統特朗普公布最新關稅計劃前，繼續有資金流入黃金避險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798715-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798715-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798715-20250403.htm)
+
+---
+
+# 港股美國預託證券較本港收市普遍下跌
+
+![阿里巴巴美國預託證券較本港收市跌近3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798724_1_20250403061712.jpg&q=90)
+  
+
+阿里巴巴美國預託證券折合126.27港元，較本港收市跌近3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798724-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798724-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798724-20250403.htm)
+
+---
+
 # 特朗普簽署行政命令　取消中國內地和香港的小額包裹豁免關稅政策
 
 ![特朗普公布新關稅政策，並即場簽署行政命令。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798725_1_20250403062020.jpg&q=90)
@@ -51,7 +123,7 @@
 ![貿易戰升溫的憂慮拖累美股3大指數期貨在電子交易時段下跌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798720_1_20250403055239.jpg&q=90)
   
 
-美國總統特朗普在美股收市後公布對等關稅措施細節，包括向所有進口到美國的商品徵收10%基準關稅，部份貿易伙伴被徵收的稅率更高。市場預計有關貿易伙伴將採取反制措施。貿易戰升溫的憂慮拖累美股3大指數期貨在電子交易時段下跌。
+美國總統特朗普在美股收市後公布對等關稅措施細節，包括向所有進口到美國的商品徵收10%基準關稅，部份貿易伙伴被徵收的稅率更高。市場預計有關貿易伙伴將採取反制措施。貿易戰升溫的憂慮拖累美股3大指數期貨下跌。
 
   
 
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798657-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798657-20250402.htm)
-
----
-
-# 曾國衞：立法會功能界別選舉以點票機點票　可減省投票後工作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798656_1_20250402183819.jpg&q=90)
-  
-
-立法會換屆選舉將於今年12月7日舉行，當局提出修訂部分選舉法例，參考選委會界別分組選舉及立法會選委會界別選舉中使用點票機的做法和經驗後，當局建議賦權選管會在功能界別選舉，也可以使用點票機進行點票。而與相關點票程序的法例亦須作出相應調整，如毋須在點票前以人手方式將選票按界別分類等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798656-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798656-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798656-20250402.htm)
-
----
-
-# 李家超晤訪港江西省省長　商討加強贛港合作
-
-![李家超（右）在禮賓府與江西省省長葉建春（左）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798655_1_20250402181156.jpg&q=90)
-  
-
-​行政長官李家超在禮賓府與率團訪港的江西省省長葉建春會面，就加強贛港合作交流意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798655-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798655-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798655-20250402.htm)
-
----
-
-# 火炭謀殺案重組案情　疑犯以道具刀斬向代表受害人的假人
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798654_1_20250402181124.jpg&q=60)
-  
-
-火炭上月發生謀殺案，一名52歲男子被人用刀襲擊，傷重不治，警方下午押解疑犯在案發現場重組案情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798654-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798654-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798654-20250402.htm)
 
 ---

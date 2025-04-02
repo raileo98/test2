@@ -1,3 +1,75 @@
+# 歐洲主要股市低收
+
+![法蘭克福DAX指數報22390點，跌149點，跌幅0.66%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798714_1_20250403045640.jpg&q=90)
+  
+
+歐洲主要股市下跌，受醫療保健類股份下跌拖累。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798714-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798714-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798714-20250403.htm)
+
+---
+
+# 紐約期金高收逾0.6%
+
+![美國總統特朗普公布最新關稅計劃前，繼續有資金流入黃金避險。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798715_1_20250403050200.jpg&q=90)
+  
+
+外圍金價創新高。美國總統特朗普公布最新關稅計劃前，繼續有資金流入黃金避險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798715-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798715-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798715-20250403.htm)
+
+---
+
+# 港股美國預託證券較本港收市普遍下跌
+
+![阿里巴巴美國預託證券較本港收市跌近3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798724_1_20250403061712.jpg&q=90)
+  
+
+阿里巴巴美國預託證券折合126.27港元，較本港收市跌近3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798724-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798724-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798724-20250403.htm)
+
+---
+
 # 美元匯價下跌　市場關注新關稅措施或拖累經濟
 
 ![特朗普公布對等關稅措施，市場憂慮觸發貿易戰損害經濟，不利美元匯價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798721_1_20250403060849.jpg&q=75)
@@ -27,7 +99,7 @@
 ![貿易戰升溫的憂慮拖累美股3大指數期貨在電子交易時段下跌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798720_1_20250403055239.jpg&q=90)
   
 
-美國總統特朗普在美股收市後公布對等關稅措施細節，包括向所有進口到美國的商品徵收10%基準關稅，部份貿易伙伴被徵收的稅率更高。市場預計有關貿易伙伴將採取反制措施。貿易戰升溫的憂慮拖累美股3大指數期貨在電子交易時段下跌。
+美國總統特朗普在美股收市後公布對等關稅措施細節，包括向所有進口到美國的商品徵收10%基準關稅，部份貿易伙伴被徵收的稅率更高。市場預計有關貿易伙伴將採取反制措施。貿易戰升溫的憂慮拖累美股3大指數期貨下跌。
 
   
 
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798518-20250401.htm)
-
----
-
-# 美國2月建築開支按月升0.7%多過預期
-
-![美國2月建築支出按月上升0.7%，升幅高過市場預期的0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798515_1_20250401224222.jpg&q=80)
-  
-
-美國商務部公布，美國2月建築支出按月上升0.7%，升幅高過市場預期的0.3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798515-20250401.htm)
-
----
-
-# 美國3月製造業PMI終值勝預期　ISM製造業指數遜預期
-
-![標普全球公布，美國3月製造業PMI終值為50.2，高過市場預期的49.9；美國供應管理協會（ISM）3月製造業指數跌至49，低過預期的49.5。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798514_1_20250401221159.jpg&q=90)
-  
-
-標普全球公布，美國3月製造業採購經理指數（PMI）終值為50.2，低過2月的52.7。但高過初值的49.8，以及高過市場預期的49.9，連續3個月處於50以上的擴張水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798514-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798514-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798514-20250401.htm)
-
----
-
-# 美股初段下跌
-
-![道瓊斯指數較早時報41776點，跌225點，跌幅0.54%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798512_1_20250401213700.jpg&q=90)
-  
-
-美股在開市初段下跌。市場等待美國總統特朗普就關稅細節作明確表態。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798512-20250401.htm)
 
 ---
