@@ -1,4 +1,48 @@
-# 外交部呼籲緬甸各方確保救援人員安全
+# 國台辦主任宋濤：「台獨」分子惡行必遭懲處
+
+![中共中央台辦、國務院台辦主任宋濤會見國民黨副主席夏立言，指任何謀「獨」挑釁必定失敗，「台獨」分子惡行必遭懲處。（中國台灣網）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798666_1_20250402191022.jpg&q=90)
+  
+
+中共中央台辦、國務院台辦主任宋濤在江蘇徐州，會見國民黨副主席夏立言，指出兩岸同胞是家人、不是敵人，任何謀「獨」挑釁必定失敗，「台獨」分子惡行必遭懲處。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798666-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798666-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798666-20250402.htm)
+
+---
+
+# 石泰峰調任中組部部長　李干杰改任統戰部部長
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798667-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798667-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798667-20250402.htm)
+
+---
+
+# 中方呼籲緬甸各方確保救援人員安全
 
 ![郭嘉昆表示，中方救援隊伍和物資都安全。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798663_1_20250402185129.jpg&q=90)
   
@@ -19,6 +63,27 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm)
+
+---
+
+# 火炭謀殺案刀手潛逃泰國落網　警方商討移送潛逃內地被捕2人
+
+![警方表示，正與內地商討潛逃內地後被捕2名人士的移送安排。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798660_1_20250402190421.jpg&q=90)
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm)
 
 ---
 
@@ -1367,77 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm)
-
----
-
-# 李家超稱東江水供港承載家國深情　構築未雨綢繆長遠謀劃
-
-![李家超出席東江水供港六十周年紀念典禮暨「舞動水滴展」。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798318_2_20250331201314.jpg&q=85)
-  
-
-行政長官李家超表示，國家的東江水，是香港的生命之源。東江水佔全香港的食水用量，達到七成至八成，支撐香港經濟持續發展，滋養香港市民安居樂業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798318-20250331.htm)
-
----
-
-# 港澳辦再次轉載報道引述政商界支持市監局依法審查長和交易
-
-![港澳辦引述報道指，各界希望有關買賣決策要考慮到對香港和國家的影響。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798317_1_20250331200534.jpg&q=75)
-  
-
-港澳辦網站再次轉載《大公報》文章，指長和計劃出售巴拿馬運河兩端港口資產，事件持續引發熱議。文章引述多名香港政商界人士指出，鑒於當前中美貿易戰的複雜背景，不少大型交易可能會觸及國家利益，認為長和作為一間扎根香港的大企業，各界希望有關買賣決策要考慮到對香港和國家的影響。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm)
-
----
-
-# 緬甸地震造成3名中國公民遇難　另14人受傷
-
-![在緬甸，搜救人員繼續搜救被困人士。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798310_1_20250331184926.jpg&q=90)
-  
-
-緬甸7級以上地震救援黃金72小時過去，救援隊繼續搜救被困人士。中方救援隊先後救出6名倖存者，中方首批物資亦已運抵仰光。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm)
 
 ---
