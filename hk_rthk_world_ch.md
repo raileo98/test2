@@ -1,3 +1,27 @@
+# 特朗普稍後公布關稅措施　德國意大利強調要避免貿易戰
+
+![梅洛尼強調，有必要避免貿易戰，但不排除在必要時採取措施保護產業。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798701_1_20250403013021.jpg&q=90)
+  
+
+美國總統特朗普稍後在白宮公布對等關稅措施，他在社交平台形容這一日是美國解放日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798701-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798701-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798701-20250403.htm)
+
+---
+
 # 克宮：俄國總統特別代表或本周訪問華盛頓
 
 ![佩斯科夫說，關於俄美元首可能會面的日期和地點，目前未有具體細節。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798700_1_20250403011501.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm)
-
----
-
-# 瑪麗娜勒龐批評判決帶有政治動機　目的是阻止她參選總統
-
-![瑪麗娜勒龐接受電視台訪問時，強調自己無辜，批評判決帶有政治動機。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798349_1_20250401040835.jpg&q=85)
-  
-
-法國極右國民聯盟領袖瑪麗娜勒龐，被法院裁定挪用歐洲議會公款罪名成立，判監4年，其中兩年緩刑，5年內不得參選公職，意味她無法參加2027年總統選舉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798349-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798349-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798349-20250401.htm)
 
 ---
