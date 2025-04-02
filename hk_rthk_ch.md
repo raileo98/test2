@@ -1,3 +1,26 @@
+# 發展局邀請市場就三個島嶼及海岸旅遊項目提交意向書
+
+  
+
+發展局今日邀請市場在3個月內分別就前南丫島石礦場用地、南大嶼生態康樂走廊、以及尖鼻咀及白泥的生態旅遊發展項目提交意向書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798662-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798662-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798662-20250402.htm)
+
+---
+
 # 周一鳴：重點工作包括維護國家安全　很多人以不同方式「軟對抗」
 
   
@@ -234,7 +257,7 @@
 
 # 火炭謀殺案泰國落網疑犯被押往案發現場重組案情
 
-![疑犯被黑布蒙頭，戴上白手套，被帶到火炭麗禾里行人路。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798654_1_20250402181124.jpg&q=60)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798654_1_20250402181124.jpg&q=60)
   
 
 火炭上月發生謀殺案，一名52歲男子被人用刀襲擊，傷重不治，警方下午押解疑犯在案發現場重組案情。
