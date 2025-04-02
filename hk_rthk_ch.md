@@ -1,3 +1,27 @@
+# 歐洲理事會主席稱須堅定但明智地應對特朗普關稅政策
+
+![科斯塔警告，歐盟和美國之間的貿易戰將影響每個人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798706_1_20250403025134.jpg&q=90)
+  
+
+歐洲理事會主席科斯塔表示，歐盟必須堅定但明智地應對美國總統特朗普在關稅問題上犯下的重大錯誤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798706-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798706-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798706-20250403.htm)
+
+---
+
 # 丹麥首相：格陵蘭屬非賣品　北約秘書長稱丹麥美國應維護北極穩定
 
 ![弗雷澤里克森到訪格陵蘭首府努克。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798705_1_20250403024116.jpg&q=85)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm)
-
----
-
-# 規範籃球博彩諮詢展開　不得接受香港球隊參與及香港賽事投注
-
-![政府建議參考規管足球博彩的做法，透過修訂《博彩稅條例》，訂立籃球博彩活動的規管框架。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798637_1_20250402170130.jpg&q=85)
-  
-
-政府就規範籃球博彩活動的建議方案展開諮詢，諮詢期至下月2日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm)
 
 ---

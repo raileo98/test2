@@ -1,3 +1,27 @@
+# 歐洲理事會主席稱須堅定但明智地應對特朗普關稅政策
+
+![科斯塔警告，歐盟和美國之間的貿易戰將影響每個人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798706_1_20250403025134.jpg&q=90)
+  
+
+歐洲理事會主席科斯塔表示，歐盟必須堅定但明智地應對美國總統特朗普在關稅問題上犯下的重大錯誤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798706-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798706-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798706-20250403.htm)
+
+---
+
 # 丹麥首相：格陵蘭屬非賣品　北約秘書長稱丹麥美國應維護北極穩定
 
 ![弗雷澤里克森到訪格陵蘭首府努克。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798705_1_20250403024116.jpg&q=85)
@@ -1412,30 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798390-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798390-20250401.htm)
-
----
-
-# 特區救援隊於緬甸地震災區通宵搜救
-
-![搜救行動通宵進行，早上仍然持續。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798379_1_20250401092513.jpg&q=90)
-![特區救援隊自昨日抵達緬甸曼德勒後，立即展開搜救。（保安局Facebook）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798379_2_20250401092513.jpg&q=85)
-  
-
-特區救援隊自昨日抵達緬甸曼德勒後，立即展開搜救，與其他隊伍協調後，前往多個區域進行現場評估和快速搜索，並在Chan Aye thar san及Mahar Aung Myay 兩個災區進行救援。救援隊再於昨晚派出11人小隊，在曼德勒皇宮附近的一棟建築物使用技術搜索工具和爆破工具協助搜救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798379-20250401.htm)
 
 ---
