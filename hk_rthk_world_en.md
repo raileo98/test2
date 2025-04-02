@@ -1,3 +1,27 @@
+# Chinese companies abroad told to abide by local laws
+
+![The skyscraper that collapsed was a joint project involving an offshoot of China Railway Group. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798620_1_20250402151025.jpg&q=90)
+  
+
+China's embassy in Bangkok called on the country's companies operating abroad to comply with local laws after a Chinese construction firm came under scrutiny over a deadly building collapse in Friday's earthquake.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm)
+
+---
+
 # Seoul braces for clashes over Yoon ruling
 
 ![Police officers get ready for a potential showdown on Friday between pro and anti-Yoon supporters near the entrance of the Constitutional Court in Seoul. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798612_1_20250402141524.jpg&q=80)
@@ -1414,29 +1438,5 @@ Top US diplomat Marco Rubio bluntly warned Venezuela against attacking its oil-r
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm)
-
----
-
-# Trump pulls UN envoy nomination amid Congress fears
-
-![Donald Trump with US Representative Elise Stefanik last year. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797812_1_20250328104043.jpg&q=90)
-  
-
-US President Donald Trump withdrew right-wing firebrand Elise Stefanik as his nominee for US ambassador to the United Nations as Republicans fear for their narrow majority in Congress.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797812-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797812-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797812-20250328.htm)
 
 ---

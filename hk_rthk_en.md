@@ -1,3 +1,27 @@
+# National security among new police chief's priorities
+
+![Joe Chow says one of his priorities is to enhance public awareness of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798611_1_20250402141242.jpg&q=80)
+  
+
+Newly appointed Commissioner of Police Joe Chow has vowed to prioritise safeguarding national security, modernising law enforcement and consolidating team culture in the force.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm)
+
+---
+
 # Seoul braces for clashes over Yoon ruling
 
 ![Police officers get ready for a potential showdown on Friday between pro and anti-Yoon supporters near the entrance of the Constitutional Court in Seoul. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798612_1_20250402141524.jpg&q=80)
@@ -1414,29 +1438,5 @@ Major League Baseball has suspended Atlanta Braves slugger Jurickson Profar for 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798372-20250401.htm)
-
----
-
-# Trump will 'be kind' over further tariffs this week
-
-![US President Donald Trump speaks to reporters aboard Air Force One. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798346_1_20250401021518.jpg&q=90)
-  
-
-US President Donald Trump said Monday he would be "very kind" to trading partners when he unveils further tariffs this week, risking global turmoil to address what he says are unfair trade imbalances.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798346-20250401.htm)
 
 ---

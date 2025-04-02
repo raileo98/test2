@@ -1,3 +1,27 @@
+# Chinese companies abroad told to abide by local laws
+
+![The skyscraper that collapsed was a joint project involving an offshoot of China Railway Group. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798620_1_20250402151025.jpg&q=90)
+  
+
+China's embassy in Bangkok called on the country's companies operating abroad to comply with local laws after a Chinese construction firm came under scrutiny over a deadly building collapse in Friday's earthquake.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm)
+
+---
+
 # Beijing puts store in EVs for shoring up power grids
 
 ![Electric vehicles in Shenzhen will be among those used for storage to meet peak demand on power grids. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798596_1_20250402123635.jpg&q=85)
@@ -1415,29 +1439,5 @@ A stable, healthy and sustainable China-US economic and trade relationship is in
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796422-20250319.htm)
-
----
-
-# Ex-Everbright boss sentenced to 15 years for bribes
-
-![Li Xiaopeng, pictured in 2018, is sentenced to 15 years for accepting bribes worth more than 60 million yuan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796277_1_20250318181930.jpg&q=90)
-  
-
-China on Tuesday jailed the former boss of state-owned banking giant Everbright Group for bribery, state media said, the latest official to fall foul of President Xi Jinping's decade-long corruption crackdown.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796277-20250318.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796277-20250318.htm](https://news.rthk.hk/rthk/en/component/k2/1796277-20250318.htm)
 
 ---

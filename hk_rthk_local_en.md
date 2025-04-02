@@ -1,3 +1,27 @@
+# National security among new police chief's priorities
+
+![Joe Chow says one of his priorities is to enhance public awareness of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798611_1_20250402141242.jpg&q=80)
+  
+
+Newly appointed Commissioner of Police Joe Chow has vowed to prioritise safeguarding national security, modernising law enforcement and consolidating team culture in the force.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm)
+
+---
+
 # Drivers' pay rises once joining taxi fleet: operator
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798583_1_20250402114151.jpg&q=85)
@@ -1424,29 +1448,5 @@ Public transport operators are boosting services to accommodate the large crowds
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797838-20250328.htm)
-
----
-
-# 'Use AI chatbots in triage system to avoid mistakes'
-
-![A patients' rights group has proposed the use of AI chatbots in triage system at public hospitals to help patients gain a better understanding of their conditions. File Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797824_1_20250328114303.jpg&q=90)
-  
-
-A patients' rights group says it hopes the government can use AI chatbots in its triage system at public hospitals to help patients gain a better understanding of their conditions and symptoms.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797824-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797824-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797824-20250328.htm)
 
 ---
