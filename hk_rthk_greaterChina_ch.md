@@ -1,3 +1,27 @@
+# 商務部：原產於歐盟進口白蘭地反傾銷調查延長至7月5日
+
+![商務部公布，將原產於歐盟的進口白蘭地反傾銷案的調查期限，進一步延長至今年7月5日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798627_1_20250402153253.jpg&q=75)
+  
+
+在北京，商務部公布，將原產於歐盟的進口白蘭地反傾銷案的調查期限，進一步延長至今年7月5日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798627-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798627-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798627-20250402.htm)
+
+---
+
 # 夏寶龍會見羅淑佩等訪京特區官員
 
 ![在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見正進行訪京行程的文化體育及旅遊局局長羅淑佩。（國務院港澳事務辦公室）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798625_1_20250402152615.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798266-20250331.htm)
-
----
-
-# 《求是》雜誌發表文章　習近平稱朝著建成科技強國目標奮勇前進
-
-![習近平在將出版的《求是》雜誌發表重要文章。（資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798257_1_20250331152942.jpg&q=90)
-  
-
-中共中央總書記、國家主席、中央軍委主席習近平在將出版的《求是》雜誌發表重要文章。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798257-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798257-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798257-20250331.htm)
 
 ---
