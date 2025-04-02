@@ -1,5 +1,99 @@
-# 鄧炳強感謝國家及特區救援隊救出生還者
+# 救援隊指揮官稱能夠發現生還者感到非常鼓舞
 
+  
+
+正在緬甸地震災區協助搜救工作的特區救援隊，今日成功救出一名生還者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm)
+
+---
+
+# 發展局估計生態旅遊發展項目成本數十億元以上　花6至7年完成
+
+  
+
+發展局今日起邀請市場在3個月內分別就前南丫島石礦場用地、南大嶼生態康樂走廊、與及尖鼻咀及白泥的生態旅遊發展項目提交意向書，目標最快明年下半年就項目招標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm)
+
+---
+
+# 29歲女子洗澡後一氧化碳中毒　 機電署指熱水爐排氣管嚴重鏽蝕
+
+![機電署調查發現涉事熱水爐排氣管道出現嚴重鏽蝕，相信是導致意外發生的原因。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798676_1_20250402202946.jpg&q=60)
+  
+
+醫管局通報一宗一氧化碳中毒個案，一名29歲女子，前日在家洗澡後失去知覺，其家人隨即報警。她被送往仁濟醫院，再轉送東區尤德夫人那打素醫院接受治療，已經出院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm)
+
+---
+
+# 港澳辦網站再轉載文章促長和盡快回頭改變錯誤決定
+
+  
+
+港澳辦網站再度轉發《大公報》文章，指出長和的港口交易涉及國家安全和利益，國家市場監督管理總局依法審查合情合理合法，身為香港的重要企業，長和必須尊重國家利益，應當承擔最基本的責任義務，必須盡快回頭，改變錯誤決定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm)
+
+---
+
+# 鄧炳強感謝國家及特區救援隊救出生還者　稱開心感動又驕傲
+
+![特區救援隊於曼德勒65街一間酒店的瓦礫中救出生還者。（鄧炳強社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798674_1_20250402202915.jpg&q=85)
   
 
 保安局局長鄧炳強表示，剛剛收到特區救援隊帶來好消息，於曼德勒65街一間酒店的瓦礫中救出生還者。
@@ -1342,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798506-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798506-20250401.htm)
-
----
-
-# 回應美國制裁官員　警方指會繼續堅定不移維護國家及香港安全
-
-![警方回應，維護國家安全是警務人員的責任和榮譽。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798503_1_20250401205153.jpg&q=40)
-  
-
-美國國務院以進行跨國打壓及損害香港自治為由，制裁六名中央和香港特區官員，其中包括警務處處長蕭澤頤。警方回應，維護國家安全是警務人員的責任和榮譽。美國政府企圖用政治施壓手段嚴重干預警隊的執法工作，變相鼓吹違法行為。警隊會繼續做好本份，無畏無懼，堅定不移維護國家及香港安全，嚴正執法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798503-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798503-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798503-20250401.htm)
-
----
-
-# 特區救援隊：災區非常惡劣兩次緊急撤離部署　冀盡早救出被困人士
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798501_1_20250401192854.jpg&q=70)
-  
-
-特區救援隊繼續在緬甸曼特勒災區搜救。正在當地的特區救援隊指揮官趙汝珏接受本台訪問時表示，當地大規模樓宇倒塌、道路裂開，情況非常惡劣。特區救援隊抵達曼特勒災區基地後，與國家救援隊舉行會議，之後出發參與搜救，特區救援隊至今出動27次，到26個地點搜救。他說，抵達曼特勒後，曾面對3次餘震，救援隊在其中兩次餘震發生時要作緊急撤離部署。雖然暫未尋獲生還者，但會繼續根據求助報告搜救，希望盡早救出被困人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm)
-
----
-
-# 鄧炳強連線緬甸　希望特區救援隊救人之餘確保自身安全
-
-![鄧炳強表示，今日與消防處處長楊恩健及入境處處長郭俊峯一同連線緬甸。（鄧炳強社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798500_1_20250401193443.jpg&q=90)
-  
-
-特區救援隊正在緬甸災區救援，保安局局長鄧炳強表示，今日與消防處處長楊恩健及入境處處長郭俊峯一同連線緬甸，知道災區氣溫相當炎熱，市內通訊中斷，人員要在惡劣環境條件下長時間進行搜救。他希望救援隊在救人之餘，亦要確保自身安全與健康，又說會提供最大支持，亦祈願當地災民盡快重建家園。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm)
-
----
-
-# 港澳辦再轉載文章引述政商界冀長和配合審查重塑良好企業形象
-
-![港澳辦網站再次轉載文章，引述指國家市場監督管理總局對長和出售巴拿馬運河港口等資產的審查，是維護市場公平的必要舉措。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798496_1_20250401194227.jpg&q=80)
-  
-
-港澳辦網站再次轉載《大公報》文章，文中引述多名立法會議員指出，國家市場監督管理總局對長和出售巴拿馬運河港口等資產的審查，是維護市場公平的必要舉措，又指香港政商界希望長和配合好今次反壟斷審查，重塑良好企業的形象，贏得公眾信任。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798496-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798496-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798496-20250401.htm)
 
 ---

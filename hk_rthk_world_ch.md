@@ -1,3 +1,27 @@
+# 鄧炳強感謝國家及特區救援隊救出生還者　稱開心感動又驕傲
+
+![特區救援隊於曼德勒65街一間酒店的瓦礫中救出生還者。（鄧炳強社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798674_1_20250402202915.jpg&q=85)
+  
+
+保安局局長鄧炳強表示，剛剛收到特區救援隊帶來好消息，於曼德勒65街一間酒店的瓦礫中救出生還者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm)
+
+---
+
 # 緬甸地震｜特區與國家救援隊救出一名被困逾120小時男子
 
 ![中國救援隊聯同特區救援隊於緬甸救出一名被困逾120小時男子。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798673_1_20250402201044.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798341-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798341-20250401.htm)
-
----
-
-# 英國首相府稱冷靜應對關稅問題　不排除採取報復措施
-
-![發言人強調，英國將採取冷靜務實態度應對關稅問題。圖為英國首相施紀賢離開首相府。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798340_1_20250401003425.jpg&q=75)
-  
-
-英國首相府發言人表示，英國預計會受到美國加徵關稅的影響，不排除採取報復措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798340-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798340-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798340-20250401.htm)
 
 ---

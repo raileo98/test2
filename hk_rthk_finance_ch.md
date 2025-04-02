@@ -1,3 +1,27 @@
+# 美國3月ADP私人市場新增職位15.5萬個　多過預期
+
+![ADP報告指，美國3月私人市場新增職位15.5萬個，多過市場預期的11.5萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798680_1_20250402204947.jpg&q=90)
+  
+
+人力資源服務公司ADP報告指，美國3月私人市場新增職位15.5萬個，多過市場預期的11.5萬個，亦多過2月向上修訂後的8.4萬個。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798680-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798680-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798680-20250402.htm)
+
+---
+
 # 人民幣兌美元收市創近1個月低位
 
 ![人民幣兌美元收市創近1個月低位，報7.2719兌1美元，較上日收市跌32點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798644_1_20250402170805.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm)
-
----
-
-# 金價創新高　美國關稅計劃引發通脹擔憂
-
-![現貨金高見每盎司3148.88美元，創新高，較早時報3132.39美元，升幅0.3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798442_1_20250401145159.jpg&q=90)
-  
-
-金價創紀錄新高，市場憂慮美國總統特朗普的對等關稅計劃，可能助長通脹壓力並阻礙經濟增長，刺激避險需求。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798442-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798442-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798442-20250401.htm)
 
 ---

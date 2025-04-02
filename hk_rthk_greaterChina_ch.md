@@ -1,3 +1,50 @@
+# 港澳辦網站再轉載文章促長和盡快回頭改變錯誤決定
+
+  
+
+港澳辦網站再度轉發《大公報》文章，指出長和的港口交易涉及國家安全和利益，國家市場監督管理總局依法審查合情合理合法，身為香港的重要企業，長和必須尊重國家利益，應當承擔最基本的責任義務，必須盡快回頭，改變錯誤決定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm)
+
+---
+
+# 鄧炳強感謝國家及特區救援隊救出生還者　稱開心感動又驕傲
+
+![特區救援隊於曼德勒65街一間酒店的瓦礫中救出生還者。（鄧炳強社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798674_1_20250402202915.jpg&q=85)
+  
+
+保安局局長鄧炳強表示，剛剛收到特區救援隊帶來好消息，於曼德勒65街一間酒店的瓦礫中救出生還者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm)
+
+---
+
 # 解放軍東部戰區宣布圓滿完成一連兩天聯合演訓
 
 ![解放軍東部戰區宣布圓滿完成一連兩天聯合演訓，山東艦航母編隊參與第二日演練。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798668_1_20250402192112.jpg&q=90)
@@ -1390,54 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm)
-
----
-
-# 羅淑佩明晚往北京訪問　將拜會港澳辦與相關部委
-
-![羅淑佩將拜會國務院港澳辦、國家文化和旅遊部、國家體育總局及國家電影局等。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798322_1_20250331205348.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩明日晚上啓程前往北京訪問，她將拜會國務院港澳事務辦公室、國家文化和旅遊部、國家體育總局及國家電影局，亦會與其他文博機構的相關官員會面。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798322-20250331.htm)
-
----
-
-# 國家水利部稱國家心繫香港同胞　廣東省冀與香港共建世界級灣區
-
-![李國英說，將全面加強與特區政府水利合作，持續完善大灣區水安全保障體系。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798320_2_20250331215050.jpg&q=80)
-![王偉中說，扎實做好水質保護，堅決守護好東江水。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798320_1_20250331215050.jpg&q=85)
-  
-
-東江水供港六十周年紀念典禮暨「舞動水滴展」開幕禮在政府總部舉行。國家水利部部長李國英致辭說，60年來，中央始終心繫香港同胞，始終高度重視對港供水工作，在政策、資金、規劃等方面給予大力支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm)
 
 ---

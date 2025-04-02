@@ -1,5 +1,123 @@
-# 鄧炳強感謝國家及特區救援隊救出生還者
+# 美國3月ADP私人市場新增職位15.5萬個　多過預期
 
+![ADP報告指，美國3月私人市場新增職位15.5萬個，多過市場預期的11.5萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798680_1_20250402204947.jpg&q=90)
+  
+
+人力資源服務公司ADP報告指，美國3月私人市場新增職位15.5萬個，多過市場預期的11.5萬個，亦多過2月向上修訂後的8.4萬個。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798680-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798680-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798680-20250402.htm)
+
+---
+
+# 救援隊指揮官稱能夠發現生還者感到非常鼓舞
+
+  
+
+正在緬甸地震災區協助搜救工作的特區救援隊，今日成功救出一名生還者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm)
+
+---
+
+# 發展局估計生態旅遊發展項目成本數十億元以上　花6至7年完成
+
+  
+
+發展局今日起邀請市場在3個月內分別就前南丫島石礦場用地、南大嶼生態康樂走廊、與及尖鼻咀及白泥的生態旅遊發展項目提交意向書，目標最快明年下半年就項目招標。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm)
+
+---
+
+# 29歲女子洗澡後一氧化碳中毒　 機電署指熱水爐排氣管嚴重鏽蝕
+
+![機電署調查發現涉事熱水爐排氣管道出現嚴重鏽蝕，相信是導致意外發生的原因。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798676_1_20250402202946.jpg&q=60)
+  
+
+醫管局通報一宗一氧化碳中毒個案，一名29歲女子，前日在家洗澡後失去知覺，其家人隨即報警。她被送往仁濟醫院，再轉送東區尤德夫人那打素醫院接受治療，已經出院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm)
+
+---
+
+# 港澳辦網站再轉載文章促長和盡快回頭改變錯誤決定
+
+  
+
+港澳辦網站再度轉發《大公報》文章，指出長和的港口交易涉及國家安全和利益，國家市場監督管理總局依法審查合情合理合法，身為香港的重要企業，長和必須尊重國家利益，應當承擔最基本的責任義務，必須盡快回頭，改變錯誤決定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm)
+
+---
+
+# 鄧炳強感謝國家及特區救援隊救出生還者　稱開心感動又驕傲
+
+![特區救援隊於曼德勒65街一間酒店的瓦礫中救出生還者。（鄧炳強社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798674_1_20250402202915.jpg&q=85)
   
 
 保安局局長鄧炳強表示，剛剛收到特區救援隊帶來好消息，於曼德勒65街一間酒店的瓦礫中救出生還者。
