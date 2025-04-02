@@ -1,3 +1,24 @@
+# 周一鳴對任命感光榮　將維護國家安全推動智慧警政及鞏固團隊文化
+
+![周一鳴表示，對任命感光榮，將維護國家安全、推動智慧警政及鞏固團隊文化。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798597_1_20250402124454.jpg&q=90)
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798597-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798597-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798597-20250402.htm)
+
+---
+
 # 郵儲行料增資後核心一級資本充足率將提升1.5個百分點
 
 ![鄭國雨表示，通過財政部和戰略股東配股後，預計核心一級資本充足率將提升1.5個百分點。（網上記者會截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798595_1_20250402123603.jpg&q=90)
@@ -1412,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm)
-
----
-
-# 美國2月JOLTs職位空缺跌至756.8萬個少過預期
-
-![美國勞工部2月JOLTs調查顯示，截至2月底，職位空缺按月減少19.4萬個，降至756.8萬個，少過市場預期的761萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798517_1_20250401224945.jpg&q=90)
-  
-
-美國勞工部公布的職位空缺和勞動力流動調查（JOLTs）顯示，截至2月底，職位空缺按月減少19.4萬個，降至756.8萬個，少過市場預期的761萬個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798517-20250401.htm)
 
 ---

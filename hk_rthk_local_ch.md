@@ -1,3 +1,24 @@
+# 周一鳴對任命感光榮　將維護國家安全推動智慧警政及鞏固團隊文化
+
+![周一鳴表示，對任命感光榮，將維護國家安全、推動智慧警政及鞏固團隊文化。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798597_1_20250402124454.jpg&q=90)
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798597-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798597-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798597-20250402.htm)
+
+---
+
 # 隧道費檢討料年內完成　陳美寶稱會考慮四大原則
 
   
@@ -1416,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm)
-
----
-
-# 房協兩個資助項目今日起接受申請　有市民認為定價合理
-
-![房協兩個資助出售房屋項目觀塘「峻然」及「聚然」今日起至本月14日接受合資格人士申請。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798406_1_20250401113509.jpg&q=80)
-  
-
-房協資助出售房屋項目觀塘「峻然」及粉嶺「聚然」共1604個單位，今日起至本月14日接受合資格人士申請。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798406-20250401.htm)
 
 ---

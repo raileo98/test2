@@ -97,7 +97,7 @@ Stephen Curry scored 52 points and Draymond Green added a triple-double as the G
 
 # 'HOS flats give youngsters looking to buy homes hope'
 
-![Winnie Ho says it is essential to have a continuous housing supply. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798574_1_20250402103205.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798574_1_20250402103205.jpg&q=80)
   
 
 Secretary for Housing Winnie Ho on Wednesday said authorities are rolling out about 50,000 subsidised residential flats in the next five years to make it easier for youngsters to own a home.
