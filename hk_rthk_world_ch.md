@@ -1,3 +1,27 @@
+# 克宮：俄國總統特別代表或本周訪問華盛頓
+
+![佩斯科夫說，關於俄美元首可能會面的日期和地點，目前未有具體細節。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798700_1_20250403011501.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，俄羅斯總統普京的特別代表、俄羅斯直接投資基金總裁德米特里耶夫可能在本周訪問華盛頓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798700-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798700-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798700-20250403.htm)
+
+---
+
 # 緬甸軍政府宣布暫時停火　敏昂萊將往曼谷與南亞國家討論災情
 
 ![無國界醫生表示，重災區曼德勒有大約500幢建築物徹底倒塌，800幢部分受損。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798699_1_20250403004113.jpg&q=80)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798349-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798349-20250401.htm)
-
----
-
-# 特朗普周三公布對等關稅政策　白宮稱對美不公國家應預料成為目標
-
-![萊維特說，關稅將扭轉幾十年來一直剝削美國的不公平貿易行為。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798348_1_20250401032921.jpg&q=75)
-  
-
-美國白宮表示，總統特朗普將於星期三在白宮玫瑰園的活動上，宣布對等關稅政策。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798348-20250401.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 克宮：俄國總統特別代表或本周訪問華盛頓
+
+![佩斯科夫說，關於俄美元首可能會面的日期和地點，目前未有具體細節。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798700_1_20250403011501.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，俄羅斯總統普京的特別代表、俄羅斯直接投資基金總裁德米特里耶夫可能在本周訪問華盛頓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798700-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798700-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798700-20250403.htm)
+
+---
+
 # 緬甸軍政府宣布暫時停火　敏昂萊將往曼谷與南亞國家討論災情
 
 ![無國界醫生表示，重災區曼德勒有大約500幢建築物徹底倒塌，800幢部分受損。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798699_1_20250403004113.jpg&q=80)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798629-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798629-20250402.htm)
-
----
-
-# 后海灣黑臉琵鷺按年跌逾一成　觀鳥會憂放棄來港度冬
-
-![今年黑臉琵鷺全球數量首度突破7千隻，錄得7081隻，較去年微升93隻，按年增幅1.3%。（香港觀鳥會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798628_1_20250402160852.jpg&q=90)
-  
-
-香港觀鳥會統籌的「全球黑臉琵鷺同步普查」公布今年結果，今年黑臉琵鷺全球數量首度突破7千隻，錄得7081隻，較去年微升93隻，按年增幅1.3%。而后海灣包括香港及深圳的數量則按年下跌逾一成，錄得328隻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798628-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798628-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798628-20250402.htm)
 
 ---
