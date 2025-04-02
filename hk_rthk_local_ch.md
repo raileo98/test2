@@ -1,3 +1,120 @@
+# 文憑試中文科開考　業界的士義載逾百考生
+
+  
+
+文憑試首個核心科目中文科開考。香港的士小巴商總會今日發起義載活動，為文憑試考生提供免費的士接送服務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798563-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798563-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798563-20250402.htm)
+
+---
+
+# 緬甸曼德勒天氣炎熱有餘震　特區救援隊消毒營地防疫病
+
+  
+
+特區救援隊正在緬甸第二大城市曼德勒救援。保安局表示，當地有餘震，救援隊基地亦感到震動。而由於天氣炎熱，早上更高達42度，救援隊需要定時消毒營地及臨時洗手間，以防瘟疫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm)
+
+---
+
+# 甯漢豪：北都發展將有更多便利市場措施　積極探討「按實補價」
+
+  
+
+發展局局長甯漢豪表示，要有破格思維提速北部都會區發展，將有更多措施出台便利市場參與。政府正積極探討「按實補價」概念，例如企業落戶北都只想做某類商業活動，但地契的商業定義寫得好闊，政府可否按企業實在的意願訂定地契及評估地價，令大家速成其事，不會與企業意向商業活動的估價標準相距好遠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm)
+
+---
+
+# 火炭謀殺案　25歲被通緝疑犯於泰國芭堤雅落網
+
+![泰國傳媒引述當地移民局表示，警方在春武里府一間出租屋內，拘捕該名譯名為Truong的通緝犯，相信他在香港犯案後逃往當地。（泰國移民局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798555_1_20250402093832.jpg&q=90)
+  
+
+火炭麗禾里上月中發生的謀殺案，被通緝的一名25歲疑犯，在泰國芭堤雅落網，他將會被驅逐出境，遞解回港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm)
+
+---
+
+# 文憑試首個核心科目中文科開考　有考生稱較擔心卷一表現
+
+![考生今年要繼續使用電子點名系統「報到易」自行簽到。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798552_1_20250402093748.jpg&q=90)
+  
+
+文憑試首個核心科目中文科今日開考。有考生表示緊張，但認為最重要是盡力而為。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798552-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798552-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798552-20250402.htm)
+
+---
+
 # 訪西藏旅客按年升15%　香港拉薩直航開通後增港旅客
 
 ![有本港導遊說，今年2月香港至拉薩直航機開通後，到西藏旅遊港人增加，圖為著名景點布達拉宮。（葉耀坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
@@ -1321,125 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798347-20250401.htm)
-
----
-
-# 元朗1月謀殺及傷人案　警方再拘4人至今共20人被捕
-
-![警方前日在油麻地再拘捕4人，至今共20人被捕。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798344_1_20250401013627.jpg&q=60)
-  
-
-元朗1月發生的謀殺及傷人案，警方前日在油麻地再拘捕4人，至今共20人被捕。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798344-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798344-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798344-20250401.htm)
-
----
-
-# 特區救援隊緬甸展開工作　透過無人機或根據居民資訊搜尋生還者
-
-![消防處派出兩支隊伍去到最近瓦礫的位置嘗試搜救。（消防處社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798337_1_20250331230318.jpg&q=90)
-  
-
-正在緬甸的特區救援隊，展開救援工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm)
-
----
-
-# 吳安儀衛冕英國女子公開賽冠軍　贏得職業桌球生涯第22項錦標
-
-![吳安儀勇奪生涯第22冠。（桌球總會FB圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798336_1_20250331230125.jpg&q=90)
-  
-
-本港女子桌球手吳安儀成功衛冕英國女子公開賽冠軍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798336-20250331.htm)
-
----
-
-# 支援大灣區醫管局病人先導計劃延展至明年三月底
-
-![醫衞局指，2023年5月至今年2月底，累計5100名合資格病人已參加先導計劃。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798326_1_20250331210147.jpg&q=80)
-  
-
-醫務衞生局公布，將延展「支援粵港澳大灣區醫院管理局病人先導計劃」一年，至明年3月31日，以便利合資格的醫管局病人可選擇於粵港澳大灣區指定協作醫療機構接受資助診症服務，自2023年5月至今年2月底，累計5100名合資格病人已參加先導計劃，當中逾六成為65歲或以上長者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798326-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798326-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798326-20250331.htm)
-
----
-
-# 嘉禾黃埔戲院租約期滿下月10日起結束營業
-
-![嘉禾黃埔戲院租約期滿下月10日起結束營業](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798325_1_20250331220030.jpg&q=90)
-  
-
-嘉禾院線表示，由於租約期滿，嘉禾黃埔戲院將於下月10日起結束營業，衷心感謝大家多年來的支持。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm)
 
 ---

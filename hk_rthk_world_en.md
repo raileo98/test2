@@ -1,3 +1,51 @@
+# Mass layoffs at major US health agencies
+
+![US Health Secretary Robert F Kennedy Jr said "Americans are getting sicker every year". File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798553_1_20250402090430.jpg&q=90)
+  
+
+Mass layoffs began at the major US health agencies on Tuesday as the Trump administration embarks on a sweeping and scientifically-contested restructuring that will cut 10,000 jobs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm)
+
+---
+
+# Volcano erupts in southwestern Iceland
+
+![Molten lava is seen coming out of a fissure on the outskirts of the fishing village Grindavik in southwest Iceland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798551_1_20250402085600.jpg&q=85)
+  
+
+A volcano in southwestern Iceland - that has erupted repeatedly for more than a year - again belched lava and smoke into the air on Tuesday, just hours after authorities evacuated the few remaining residents of a nearby fishing village.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm)
+
+---
+
 # Trump 'perfecting' tariffs with hours to go
 
 ![White House Press Secretary Karoline Leavitt told a briefing that the tariffs would take effect "immediately" after the announcement. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798530_1_20250402033307.jpg&q=90)
@@ -1390,53 +1438,5 @@ Britain's Civil Aviation Authority said it plans to set incentives for London's 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm)
-
----
-
-# S Korea braces for tariffs hit on auto sector
-
-![Kia cars await shipment to overseas markets in Pyeongtaek, South Korea. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797671_1_20250327140201.jpg&q=90)
-  
-
-South Korea's auto sector is expected to face "considerable difficulties" when US import tariffs on cars announced by President Donald Trump take effect and the government plans an emergency response by April, the industry minister said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797671-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797671-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797671-20250327.htm)
-
----
-
-# Thais give green light to draft law for casinos
-
-![Protesters rally near Government House in Bangkok against the casino-entertainment complex bill. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797665_1_20250327133509.jpg&q=90)
-  
-
-Thailand's cabinet on Thursday approved a draft law for casinos and entertainment complexes, as the government looks to attract more tourists and build a major gaming industry.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797665-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797665-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797665-20250327.htm)
 
 ---

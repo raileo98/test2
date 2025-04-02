@@ -1,3 +1,170 @@
+# 內地股市初段變動不大
+
+![內地股市初段變動不大，上證指數較早時報3348點，升不足1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798561_1_20250402093517.jpg&q=85)
+  
+
+內地股市初段變動不大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798561-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798561-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798561-20250402.htm)
+
+---
+
+# 人行逆回購2299億元人民幣
+
+![人行進行2299億元人民幣7日期逆回購操作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798559_1_20250402092706.jpg&q=75)
+  
+
+人民銀行公開市場今日進行2299億元人民幣7日期逆回購操作，中標量與投標量相同，利率維持在1.5厘，對沖今日到期量後，單日淨回籠2255億元，連續兩日淨回籠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798559-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798559-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798559-20250402.htm)
+
+---
+
+# 甯漢豪：北都發展將有更多便利市場措施　積極探討「按實補價」
+
+  
+
+發展局局長甯漢豪表示，要有破格思維提速北部都會區發展，將有更多措施出台便利市場參與。政府正積極探討「按實補價」概念，例如企業落戶北都只想做某類商業活動，但地契的商業定義寫得好闊，政府可否按企業實在的意願訂定地契及評估地價，令大家速成其事，不會與企業意向商業活動的估價標準相距好遠。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm)
+
+---
+
+# 恒指競價時段跌39點
+
+![恒生指數競價時段報23167點，跌39點，跌幅0.17%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798557_1_20250402092248.jpg&q=65)
+  
+
+港股輕微低開，恒生指數競價時段報23167點，跌39點，跌幅0.17%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798557-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798557-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798557-20250402.htm)
+
+---
+
+# 人民幣兌美元中間價逼近7.18水平　創逾兩個月新低
+
+![人民幣中間價報7.1793兌1美元，較昨日中間價跌18點子，創逾兩個月最低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798556_1_20250402091807.jpg&q=75)
+  
+
+人民幣中間價報7.1793兌1美元，較昨日中間價跌18點子，創1月20日以來最低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798556-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798556-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798556-20250402.htm)
+
+---
+
+# 台股開市後偏軟
+
+![台灣加權指數較早時報21266點，跌13點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798554_1_20250402090554.jpg&q=90)
+  
+
+台灣股市偏軟。加權指數較早時報21266點，跌13點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798554-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798554-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798554-20250402.htm)
+
+---
+
+# 訪西藏旅客按年升15%　香港拉薩直航開通後增港旅客
+
+![有本港導遊說，今年2月香港至拉薩直航機開通後，到西藏旅遊港人增加，圖為著名景點布達拉宮。（葉耀坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
+  
+
+西藏去年累計接待超過6300萬遊客人次，按年增加15%，創下歷史新高，旅遊相關產業佔當地生產總值約三成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm)
+
+---
+
 # 南韓3月通脹率2.1%高於預期
 
 ![南韓3月消費物價指數按年上升2.1%，高於市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798545_1_20250402080004.jpg&q=80)
@@ -1267,173 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798394-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798394-20250401.htm)
-
----
-
-# 內地3月百城二手住宅均價按月跌近0.6%　按年跌逾7%
-
-![內地3月百城二手住宅均價每平方米13988元人民幣，按月跌幅擴大至0.59%，按年跌7.29%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798388_1_20250401094754.jpg&q=65)
-  
-
-中國房地產研究機構中指研究院報告顯示，3月百城二手住宅均價每平方米13988元人民幣，按月跌幅擴大至0.59%，按年跌7.29%；新建住宅均價每平方米16740元，按月升0.17%，按年升2.63%，受惠優質改善項目入市所帶動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798388-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798388-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798388-20250401.htm)
-
----
-
-# 滬深股市初段靠穩
-
-![內地股市初段靠穩，上證指數較早時報3344點，升9點，升幅0.27%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798387_1_20250401093555.jpg&q=90)
-  
-
-內地股市初段靠穩，上證指數較早時報3344點，升9點，升幅0.27%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798387-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798387-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798387-20250401.htm)
-
----
-
-# 人行逆回購操作649億元人民幣　單日轉為淨回籠3130億元
-
-![人行公開市場開展649億元人民幣7天期逆回購操作，單日轉為淨回籠3130億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798385_1_20250401092650.jpg&q=90)
-  
-
-人民銀行公開市場開展649億元人民幣7天期逆回購操作，中標量與投標量相同，利率維持1.5厘。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798385-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798385-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798385-20250401.htm)
-
----
-
-# 港股高開近百點
-
-![恒指競價時段報23217點，升97點，升幅0.42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798384_1_20250401092319.jpg&q=80)
-  
-
-港股高開，恒指競價時段報23217點，升97點，升幅0.42%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm)
-
----
-
-# 鍾麗玲：以顧客資料助建立AI言語模型需徵得同意
-
-![鍾麗玲提醒機構輸入顧客資料受到私隱條例規管，如涉及改變用途目的，需要取得客戶同意。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798383_1_20250401092917.jpg&q=90)
-  
-
-個人資料私隱專員公署公布指引，協助機構制定使用生成式AI的內部政策。私隱專員鍾麗玲表示，不少企業以生成式AI提高產品質素，用作起草文件或製作短片，而生成式AI特別是言語模型，需要很大量數據及文字。她提醒有關機構輸入顧客資料，是受私隱條例規管，如果涉及改變用途目的，需要取得客戶同意。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm)
-
----
-
-# 人民幣兌美元中間價微升
-
-![人民幣中間價報7.1775兌1美元，較上日中間價升7點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798380_1_20250401091715.jpg&q=70)
-  
-
-人民幣中間價報7.1775兌1美元，較上日中間價升7點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798380-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798380-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798380-20250401.htm)
-
----
-
-# 台股開市後升逾1%
-
-![台灣加權指數較早時報20972點，升276點，升幅1.34%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798378_1_20250401090727.jpg&q=90)
-  
-
-台灣股市上升。加權指數較早時報20972點，升276點，升幅1.34%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798378-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798378-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798378-20250401.htm)
 
 ---

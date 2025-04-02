@@ -1,3 +1,50 @@
+# 緬甸曼德勒天氣炎熱有餘震　特區救援隊消毒營地防疫病
+
+  
+
+特區救援隊正在緬甸第二大城市曼德勒救援。保安局表示，當地有餘震，救援隊基地亦感到震動。而由於天氣炎熱，早上更高達42度，救援隊需要定時消毒營地及臨時洗手間，以防瘟疫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm)
+
+---
+
+# 《環看天下》：瑪麗娜勒龐5年不得選公職　分析料選總統機會渺茫
+
+![瑪麗娜勒龐被裁定挪用歐洲議會公款罪成，判處四年監禁，當中兩年緩期執行。她亦被禁止5年內參選任何公職。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798560_1_20250402093509.jpg&q=90)
+  
+
+法國極右領袖瑪麗娜勒龐連同她所屬政黨「國民聯盟」的多名成員，被法院裁定挪用歐洲議會公款罪成。瑪麗娜勒龐被判監4年，當中有兩年緩刑執行，5年內不得參選公職。瑪麗娜勒龐批評法庭的判決帶有政治動機，表明會上訴。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798560-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798560-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798560-20250402.htm)
+
+---
+
 # 北韓譴責美日加速推動武器裝備聯合生產
 
 ![北韓強烈譴責美日推動武器裝備聯合生產，指是加劇地區不穩定的新因素。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798550_1_20250402084915.jpg&q=90)
@@ -1389,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798293-20250331.htm)
-
----
-
-# 利物浦熱刺及阿仙奴分別公開操練　讓球迷與球員接觸
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798292_1_20250331202455.jpg&q=85)
-  
-
-四支歐洲勁旅，包括三支英超球隊利物浦、阿仙奴及熱刺，加上意甲球會AC米蘭，將於今年7月來港，在啟德體育園主場館進行兩場表演賽，分別會由利物浦與歐聯勁敵AC米蘭於7月26日對壘，以及由阿仙奴及熱刺兩支同巿隊伍，於7月31日作賽。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798292-20250331.htm)
-
----
-
-# 外交部：將發揚中緬情誼　與緬方共克時艱共渡難關
-
-![地震後，緬甸曼德勒有多幢建築物損毀嚴重。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798268_1_20250331161732.jpg&q=80)
-  
-
-緬甸地震，至今在當地造成至少1700人死亡。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm)
 
 ---

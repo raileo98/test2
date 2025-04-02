@@ -1,3 +1,51 @@
+# Mass layoffs at major US health agencies
+
+![US Health Secretary Robert F Kennedy Jr said "Americans are getting sicker every year". File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798553_1_20250402090430.jpg&q=90)
+  
+
+Mass layoffs began at the major US health agencies on Tuesday as the Trump administration embarks on a sweeping and scientifically-contested restructuring that will cut 10,000 jobs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm)
+
+---
+
+# Volcano erupts in southwestern Iceland
+
+![Molten lava is seen coming out of a fissure on the outskirts of the fishing village Grindavik in southwest Iceland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798551_1_20250402085600.jpg&q=85)
+  
+
+A volcano in southwestern Iceland - that has erupted repeatedly for more than a year - again belched lava and smoke into the air on Tuesday, just hours after authorities evacuated the few remaining residents of a nearby fishing village.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm)
+
+---
+
 # Bielefeld shock holders Leverkusen in German Cup
 
 ![Bielefeld players celebrate winning their German Cup semi-final match against Bayern Leverkusen. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798544_1_20250402073801.jpg&q=90)
@@ -22,7 +70,7 @@ German Cup holders Bayer Leverkusen suffered a shock 2-1 elimination at Arminia 
 
 ---
 
-# Wall Street tumbles on uncertainty over Liberation Day
+# Wall Street braces for 'Liberation Day'
 
 ![All the nervousness in the market helped push the price of gold to records - it briefly topped US$3,175 per ounce. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798541_1_20250402064055.jpg&q=85)
   
@@ -1389,53 +1437,5 @@ Myanmar's ruling junta declared a week of national mourning on Monday for the co
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm)
-
----
-
-# Hygiene black spot list shrinks after clean-up
-
-![Warner Cheuk expressed gratitude for efforts to improve hygiene conditions. Photo courtesy of Information Services Department.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798281_1_20250331170515.jpg&q=90)
-  
-
-Hong Kong has become a lot cleaner in recent times with scores of rear lanes tidied up, dog mess issues resolved and waste dumping brought to an end in various locations, the government said on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798281-20250331.htm)
-
----
-
-# No extension in registering subdivided homes: govt
-
-![The government is hoping to introduce a bill on regulating compact homes in the latter half of 2025. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798272_1_20250331163658.jpg&q=80)
-  
-
-Officials have brushed off concerns that landlords might be hesitant about getting their dwellings declared as basic housing units under the planned new regulatory regime for subdivided flats, saying they would not consider extending a registration period.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798272-20250331.htm)
 
 ---
