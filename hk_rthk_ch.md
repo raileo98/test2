@@ -1,3 +1,26 @@
+# 中國政府援助緬甸第二批物資明天啟運
+
+  
+
+央視新聞報道，從國家國際發展合作署了解，中國政府對緬甸援助的第二批抗震救災物資計劃明天上午啟運。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm)
+
+---
+
 # 政府就規範籃球博彩展開諮詢　諮詢期至下月2日
 
   
@@ -311,8 +334,6 @@
 
 # 文憑試中文卷一文言文談安史之亂　作文題包括「為不完美添色彩」
 
-![文言文就談及安史之亂和後人評價。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798618_1_20250402161610.jpg&q=90)
-![命題寫作題目三揀一，包括「藏在泥土中的寶物」。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798618_2_20250402161610.jpg&q=90)
   
 
 文憑試首個核心科目中文科今日開考，共有4萬8千人報考。

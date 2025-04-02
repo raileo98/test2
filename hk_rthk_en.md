@@ -1,3 +1,27 @@
+# Hong Kong stocks close lower
+
+![The Hang Seng Index finished down 0.02 percent at 23,202. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798640_1_20250402164851.jpg&q=60)
+  
+
+Hong Kong stocks ended lower on Wednesday, with the benchmark Hang Seng Index down 0.02 percent at 23,202.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798640-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798640-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798640-20250402.htm)
+
+---
+
 # Roles of RTHK, information unit don't overlap: govt
 
 ![Commerce chief Algernon Yau told a Legislative Council meeting that merging RTHK and the Information Services Department could be "counterproductive".](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798626_1_20250402152610.jpg&q=90)
@@ -1414,29 +1438,5 @@ Harvard University has become the latest target in the Trump administration’s 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm)
-
----
-
-# HK snooker star Ng defends British Open crown
-
-![The victory solidified Ng's hold on second position in the world rankings. Photo courtesy of World Snooker Tour](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798376_1_20250401085554.jpg&q=90)
-  
-
-Hong Kong, China snooker player Ng On-yee on Monday defeated World No. 1 Mink Nutcharut of Thailand to defend her title at the British Open in Walsall, England.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798376-20250401.htm)
 
 ---

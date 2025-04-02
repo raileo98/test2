@@ -1,3 +1,26 @@
+# 中國政府援助緬甸第二批物資明天啟運
+
+  
+
+央視新聞報道，從國家國際發展合作署了解，中國政府對緬甸援助的第二批抗震救災物資計劃明天上午啟運。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm)
+
+---
+
 # 緬甸內比都一名被困5日男子成功獲救
 
 ![地震救援工作持續。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798622_1_20250402150225.jpg&q=90)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798331-20250331.htm)
-
----
-
-# 克宮：莫斯科正繼續與華盛頓合作　普京仍願意與特朗普接觸
-
-![佩斯科夫表示，普京仍願意與特朗普接觸。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798323_1_20250331203714.jpg&q=90)
-  
-
-俄羅斯克里姆林宮發言人佩斯科夫表示，莫斯科正繼續與華盛頓合作，總統普京仍願意與美國總統特朗普接觸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm)
 
 ---
