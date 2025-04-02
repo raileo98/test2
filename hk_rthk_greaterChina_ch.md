@@ -1,3 +1,27 @@
+# 韓正晤滙豐集席杜嘉祺　冀集團為促進中英關係發展作貢獻
+
+![韓正與英國滙豐集團主席杜嘉祺會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798690_1_20250402223133.jpg&q=90)
+  
+
+國家副主席韓正在北京會見英國滙豐集團主席杜嘉祺。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm)
+
+---
+
 # 夏寶龍晤滙豐主席杜嘉祺　冀集團向國際社會講好中國故事
 
 ![中央港澳辦、國務院港澳辦主任夏寶龍（右）下午會見滙豐集團主席杜嘉祺（左），希望滙豐集團在中國更好發展。（中央港澳辦）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798684_1_20250402222247.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm)
-
----
-
-# 中日韓據報同意合作對沖美國關稅　中方希望進口日韓晶片產品
-
-![中日韓經貿部長會議日前在首爾舉行。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798338_1_20250331232647.jpg&q=90)
-  
-
-中日韓經貿部長會議日前在首爾舉行，央視旗下社交平台玉淵譚天報道，中日韓同意透過合作和維護多邊貿易機制，以確定性來對沖美國加徵對等關稅等行徑為全球貿易帶來的不確定性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798338-20250401.htm)
 
 ---

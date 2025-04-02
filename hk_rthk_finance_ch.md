@@ -1,3 +1,27 @@
+# 美國2月工廠訂單按月升0.6%勝預期
+
+![美國2月工廠訂單按月增加0.6%，增幅高過預期的0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798689_1_20250402221539.jpg&q=85)
+  
+
+美國商務部公布，美國2月工廠訂單按月增加0.6%，增幅高過預期的0.5%。扣除運輸的工廠訂單按月增長0.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798689-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798689-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798689-20250402.htm)
+
+---
+
 # 美股初段下跌
 
 ![道瓊斯指數較早時報41762點，跌227點，跌幅0.54%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798687_1_20250402213713.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm)
-
----
-
-# 恒指高收87點　結束兩日跌勢　小米挫逾5%
-
-![恒生指數最多曾升近340點，高見23456點，其後升幅收窄，收市報23206點，升87點，升幅近0.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798457_1_20250401161816.jpg&q=90)
-  
-
-港股結束兩日跌勢，恒生指數最多曾升近340點，高見23456點，其後升幅收窄，收市報23206點，升87點，升幅近0.4%，全日主板成交額2502億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798457-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798457-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798457-20250401.htm)
 
 ---

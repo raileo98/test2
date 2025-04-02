@@ -1,3 +1,51 @@
+# 美國2月工廠訂單按月升0.6%勝預期
+
+![美國2月工廠訂單按月增加0.6%，增幅高過預期的0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798689_1_20250402221539.jpg&q=85)
+  
+
+美國商務部公布，美國2月工廠訂單按月增加0.6%，增幅高過預期的0.5%。扣除運輸的工廠訂單按月增長0.4%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798689-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798689-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798689-20250402.htm)
+
+---
+
+# 韓正晤滙豐集席杜嘉祺　冀集團為促進中英關係發展作貢獻
+
+![韓正與英國滙豐集團主席杜嘉祺會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798690_1_20250402223133.jpg&q=90)
+  
+
+國家副主席韓正在北京會見英國滙豐集團主席杜嘉祺。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm)
+
+---
+
 # 逾4.1萬申請人獲發新生嬰兒獎勵金涉逾8億元　行政費約80萬
 
 ![政府接獲42060宗「新生嬰兒獎勵金」的合資格申請，已向41304名申請人發放獎勵金，涉及8億2600萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798688_1_20250402221657.jpg&q=70)
