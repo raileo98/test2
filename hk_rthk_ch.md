@@ -1,3 +1,74 @@
+# 文憑試中文卷一文言文談安史之亂　作文題包括「為不完美添色彩」
+
+  
+
+文憑試首個核心科目中文科今日開考，共有4萬8千人報考。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798618-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798618-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798618-20250402.htm)
+
+---
+
+# 緬甸地震增至2800多人死亡4000多人受傷
+
+![地震災民排隊領取救災物資。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798617_1_20250402144435.jpg&q=90)
+  
+
+緬甸國家管理委員會公布，緬甸大地震已致2886人死亡、4639人受傷，另有373人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798617-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798617-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798617-20250402.htm)
+
+---
+
+# 韓股低收0.6%
+
+![首爾綜合指數收市報2505點，跌15點，跌幅0.62%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798616_1_20250402144221.jpg&q=85)
+  
+
+南韓股市反覆向下，首爾綜合指數收市報2505點，跌15點，跌幅0.62%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798616-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798616-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798616-20250402.htm)
+
+---
+
 # 山東艦航母編隊參與台島以東海空域演練
 
   

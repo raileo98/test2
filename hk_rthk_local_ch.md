@@ -1,3 +1,26 @@
+# 文憑試中文卷一文言文談安史之亂　作文題包括「為不完美添色彩」
+
+  
+
+文憑試首個核心科目中文科今日開考，共有4萬8千人報考。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798618-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798618-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798618-20250402.htm)
+
+---
+
 # 丘應樺：港台與新聞處職能上無重疊　合併或會帶來反效果
 
 ![丘應樺表示，港台作為公共廣播機構，與新聞處主責政府公共關係，各司其職，職能上並無重疊。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798610_1_20250402141912.jpg&q=90)
@@ -1418,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798444-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798444-20250401.htm)
-
----
-
-# 當局辦「1+」新藥註冊講座　逾70業界代表出席
-
-![衞生署昨日舉行首場「1+」新藥註冊申請簡介講座，向業界及持份者介紹「1+」機制下的藥劑製品註冊要求。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798424_1_20250401124632.jpg&q=80)
-  
-
-​衞生署昨日舉行首場「1+」新藥註冊申請簡介講座，向業界及持份者介紹「1+」機制下的藥劑製品註冊要求，以及今年稍後推出的各項諮詢服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798424-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798424-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798424-20250401.htm)
 
 ---
