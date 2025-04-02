@@ -1,3 +1,27 @@
+# Mental health of HK children worse than before Covid
+
+![Dr Chuang Shuk-kwan says the figures are self-reported, so they could either underestimate or overestimate the scale of the problem. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798639_1_20250402164845.jpg&q=90)
+  
+
+The psychological well-being of Hong Kong's secondary school pupils improved slightly in the last academic year but was still worse than before the pandemic, the Department of Health said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798639-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798639-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798639-20250402.htm)
+
+---
+
 # Roles of RTHK, information unit don't overlap: govt
 
 ![Commerce chief Algernon Yau told a Legislative Council meeting that merging RTHK and the Information Services Department could be "counterproductive".](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798626_1_20250402152610.jpg&q=90)
@@ -24,7 +48,7 @@ Commerce chief Algernon Yau on Wednesday stressed that merging the city's public
 
 # New police chief will lead force well: Regina Ip
 
-![Regina Ip believes new police commissioner Joe Chow will lead the force effectively. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798621_1_20250402145453.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798621_1_20250402145453.jpg&q=80)
   
 
 Executive Council convenor Regina Ip on Wednesday said she believes new police commissioner Joe Chow will lead the force effectively.
@@ -1421,32 +1445,5 @@ There is relief for MTR passengers after the fare adjustment formula – which t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797892-20250328.htm)
-
----
-
-# Hong Kong Rugby Sevens premieres at Kai Tak
-
-![More people are expected to be at the stadium later as about 130,000 tickets were sold. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_1_20250328154507.jpg&q=85)
-![Organisers say rugby fans will find it easy to travel to the stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_2_20250328154507.jpg&q=75)
-![Britain plays France at the Kai Tak Stadium. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_3_20250328153434.jpg&q=90)
-![Applause and cheers filled the stadium, and many rugby fans said they liked what they saw. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797870_4_20250328153434.jpg&q=85)
-  
-
-The Hong Kong Sevens tournament kicked off with a bang at Kai Tak Stadium on Friday, as the Canadian and Japanese women's squads faced off.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797870-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797870-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797870-20250328.htm)
 
 ---

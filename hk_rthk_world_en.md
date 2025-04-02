@@ -1,3 +1,27 @@
+# Manila warned over peace threat from any F-16 deal
+
+![US Air Force F-16 fighter jets at Basa Air Base in Pampanga, Philippines, last April for a joint exercise. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798634_1_20250402161526.jpg&q=85)
+  
+
+China on Wednesday warned the Philippines against threatening "regional peace" after the United States said it had approved the possible sale of US$5.58 billion in F-16 fighter jets to Manila.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm)
+
+---
+
 # Chinese companies abroad told to abide by local laws
 
 ![The skyscraper that collapsed was a joint project involving an offshoot of China Railway Group. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798620_1_20250402151025.jpg&q=90)
@@ -72,7 +96,7 @@ Rescuers on Wednesday pulled a man alive from the rubble five days after Myanmar
 
 # Actor Val Kilmer loses bout with pnemonia
 
-![Val Kilmer played the part of Jim Morrison in the 1991 film 'The Doors.' Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798601_1_20250402125919.jpg&q=90)
+![Val Kilmer played the part of Jim Morrison in the 1991 film 'The Doors.' Photo: Carolco Pictures/Collection ChristopheL via AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798601_1_20250402125919.jpg&q=90)
   
 
 American actor Val Kilmer, who was first propelled to fame with "Top Gun" and went on to starring roles as Batman and Jim Morrison, has died at age 65, the New York Times reported.
@@ -1414,29 +1438,5 @@ US Secretary of State Marco Rubio warned on Thursday it was premature to expect 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797827-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797827-20250328.htm)
-
----
-
-# Rubio warns Venezuela against Guyana attacks
-
-![Guyanese President Mohamed Irfaan Ali, left, with Marco Rubio in Georgetown, Guyana. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797818_1_20250328105815.jpg&q=90)
-  
-
-Top US diplomat Marco Rubio bluntly warned Venezuela against attacking its oil-rich neighbour Guyana, brandishing the power of the US military to protect the small South American nation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797818-20250328.htm)
 
 ---

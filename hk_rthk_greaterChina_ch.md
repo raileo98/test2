@@ -1,5 +1,30 @@
+# 內地提出17項政策措施完善價格調控機制
+
+![國務院辦公廳印發的意見，提出17項政策舉措，涉及完善促進物價保持合理水平的價格調控機制、優化透明可預期的市場價格監管機制等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798645_1_20250402170921.jpg&q=90)
+  
+
+國務院辦公廳印發《關於完善價格治理機制的意見》，提出17項政策舉措，涉及完善促進物價保持合理水平的價格調控機制、優化透明可預期的市場價格監管機制等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798645-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798645-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798645-20250402.htm)
+
+---
+
 # 中國政府援助緬甸第二批物資明天啟運
 
+![中國政府首批援助物資日前運抵緬甸仰光國際機場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798641_1_20250402170035.jpg&q=90)
   
 
 央視新聞報道，從國家國際發展合作署了解，中國政府對緬甸援助的第二批抗震救災物資計劃明天上午啟運。
@@ -143,10 +168,10 @@
 
 # 郵儲行預計今年息差仍面臨下行壓力
 
-![劉建軍稱郵儲行今年將加大對農業生產經營、生活消費、假日、文旅等產業信貸投放。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798599_1_20250402124629.jpg&q=90)
+![劉建軍稱，郵儲行今年將加大對農業生產經營、生活消費、假日、文旅等產業信貸投放。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798599_1_20250402124629.jpg&q=90)
   
 
-郵儲銀行行長劉建軍表示，會積極應對低利率環境挑戰，但考慮到貸款市場報價利率下行，以及按揭貸款存量利率調整，預計今年息差仍面臨下行壓力。他說，會推動信貸業務多元化發展，今年將加大對農業生產經營、生活消費、假日、文旅等產業信貸投放，又會原則上拒絕高價、高息存款，將通過擴大客群，做大自營存款。
+郵儲銀行行長劉建軍表示，會積極應對低利率環境的挑戰，但考慮到貸款市場報價利率下行，以及按揭貸款存量利率調整，預計今年息差仍面臨下行壓力。他說，會推動信貸業務多元化發展，今年將加大對農業生產經營、生活消費、假日、文旅等產業的信貸投放，又會原則上拒絕高價、高息存款，將通過擴大客群，做大自營存款。
 
   
 
@@ -1414,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798298-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798298-20250331.htm)
-
----
-
-# 外交部重申美日軍事安全合作不得針對第三國
-
-![郭嘉昆表示，美日軍事安全合作不得針對第三國，不得危害地區和平發展。(外交部網站)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798275_1_20250331165936.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，美日軍事安全合作不得針對第三國，不得危害地區和平發展。美方以所謂「中國威脅」為藉口，挑動意識形態對立，鼓動分裂對抗，甚至煽動個別國家充當美國維護霸權的「炮灰」，地區國家應提高警惕，嚴加防範。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798275-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798275-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798275-20250331.htm)
 
 ---

@@ -1,3 +1,51 @@
+# Manila warned over peace threat from any F-16 deal
+
+![US Air Force F-16 fighter jets at Basa Air Base in Pampanga, Philippines, last April for a joint exercise. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798634_1_20250402161526.jpg&q=85)
+  
+
+China on Wednesday warned the Philippines against threatening "regional peace" after the United States said it had approved the possible sale of US$5.58 billion in F-16 fighter jets to Manila.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm)
+
+---
+
+# Mental health of HK children worse than before Covid
+
+![Dr Chuang Shuk-kwan says the figures are self-reported, so they could either underestimate or overestimate the scale of the problem. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798639_1_20250402164845.jpg&q=90)
+  
+
+The psychological well-being of Hong Kong's secondary school pupils improved slightly in the last academic year but was still worse than before the pandemic, the Department of Health said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798639-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798639-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798639-20250402.htm)
+
+---
+
 # Hong Kong stocks close lower
 
 ![The Hang Seng Index finished down 0.02 percent at 23,202. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798640_1_20250402164851.jpg&q=60)
@@ -72,7 +120,7 @@ Chinese electric vehicle battery giant CATL said on Wednesday that it will partn
 
 # New police chief will lead force well: Regina Ip
 
-![Regina Ip believes new police commissioner Joe Chow will lead the force effectively. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798621_1_20250402145453.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798621_1_20250402145453.jpg&q=80)
   
 
 Executive Council convenor Regina Ip on Wednesday said she believes new police commissioner Joe Chow will lead the force effectively.
@@ -192,7 +240,7 @@ Rescuers on Wednesday pulled a man alive from the rubble five days after Myanmar
 
 # Actor Val Kilmer loses bout with pnemonia
 
-![Val Kilmer played the part of Jim Morrison in the 1991 film 'The Doors.' Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798601_1_20250402125919.jpg&q=90)
+![Val Kilmer played the part of Jim Morrison in the 1991 film 'The Doors.' Photo: Carolco Pictures/Collection ChristopheL via AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798601_1_20250402125919.jpg&q=90)
   
 
 American actor Val Kilmer, who was first propelled to fame with "Top Gun" and went on to starring roles as Batman and Jim Morrison, has died at age 65, the New York Times reported.
@@ -1390,53 +1438,5 @@ Myanmar will mark a minute of silence on Tuesday in tribute to victims of the co
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm)
-
----
-
-# Nasa's astronauts speak after unexpected stay in space
-
-![Nasa astronauts, from left - Nick Hague, Suni Williams and Butch Wilmore - speak out for the first time since their return to Earth. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798377_1_20250401090640.jpg&q=90)
-  
-
-Nasa astronauts Butch Wilmore and Suni Williams said on Monday that they hold themselves partly responsible for what went wrong on their extended stay in space and would fly on Boeing's Starliner again.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798377-20250401.htm)
-
----
-
-# Trump task force to review Harvard's funding
-
-![Harvard University in Cambridge, Massachusetts. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798375_1_20250401085409.jpg&q=65)
-  
-
-Harvard University has become the latest target in the Trump administration’s approach to fight campus anti-semitism, with the announcement of a new “comprehensive review” that could jeopardise billions of dollars for the Ivy League college.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798375-20250401.htm)
 
 ---

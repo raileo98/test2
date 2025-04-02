@@ -1,3 +1,27 @@
+# Manila warned over peace threat from any F-16 deal
+
+![US Air Force F-16 fighter jets at Basa Air Base in Pampanga, Philippines, last April for a joint exercise. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798634_1_20250402161526.jpg&q=85)
+  
+
+China on Wednesday warned the Philippines against threatening "regional peace" after the United States said it had approved the possible sale of US$5.58 billion in F-16 fighter jets to Manila.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm)
+
+---
+
 # CATL and Sinopec eye 10,000 battery swap stations
 
 ![The deal is aimed at easing range anxiety among electric vehicle drivers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798636_1_20250402163804.jpg&q=90)
@@ -1415,29 +1439,5 @@ Chile said on Wednesday it was reviewing an agreement for the construction of a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm)
-
----
-
-# Malaysia agrees terms for resumption of MH370 search
-
-![Very little of the doomed Malaysian Airlines plane has ever been found. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796487_1_20250319224244.jpg&q=90)
-  
-
-Malaysia has agreed to the terms and conditions of an agreement with exploration firm Ocean Infinity to resume the search for the wreckage of the missing Malaysia Airlines flight MH370, its transport minister said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796487-20250319.htm)
 
 ---
