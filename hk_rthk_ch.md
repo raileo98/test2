@@ -1,3 +1,27 @@
+# 美媒：國安團隊透過Signal群組協調對外政策　涉敏感資訊
+
+![報道說，華爾茲的團隊定期透過Signal建立群組，協調烏克蘭、中國、加沙、中東政策、非洲及歐洲等議題的官方工作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798710_1_20250403034408.jpg&q=90)
+  
+
+美國政治新聞網站Politico引述消息人士報道，白宮國家安全顧問華爾茲的團隊定期透過聊天軟件Signal建立群組，協調涉及烏克蘭、中國、加沙、中東政策、非洲及歐洲等議題的官方工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798710-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798710-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798710-20250403.htm)
+
+---
+
 # 警方搗破毒窟、武器庫及偵破懷疑非法集結案　拘多名三合會人士
 
 ![警方將被捕人士帶上警車。（警方圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798708_1_20250403032644.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798632-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798632-20250402.htm)
-
----
-
-# 衞生署報告：學童以電子屏幕產品娛樂有上升趨勢
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798642_1_20250402170200.jpg&q=90)
-  
-
-衞生署公布《學生健康服務2023至24學年周年健康報告》。今次是新冠疫情後，首次全面恢復為所有中小學生提供周年健康檢查，共有約25萬7000名小學生，以及17萬3000名中學生接受服務，出席率佔原本報名人數大約七成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm)
 
 ---

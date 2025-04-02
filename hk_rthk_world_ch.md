@@ -1,3 +1,27 @@
+# 美媒：國安團隊透過Signal群組協調對外政策　涉敏感資訊
+
+![報道說，華爾茲的團隊定期透過Signal建立群組，協調烏克蘭、中國、加沙、中東政策、非洲及歐洲等議題的官方工作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798710_1_20250403034408.jpg&q=90)
+  
+
+美國政治新聞網站Politico引述消息人士報道，白宮國家安全顧問華爾茲的團隊定期透過聊天軟件Signal建立群組，協調涉及烏克蘭、中國、加沙、中東政策、非洲及歐洲等議題的官方工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798710-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798710-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798710-20250403.htm)
+
+---
+
 # 歐洲理事會主席稱須堅定但明智地應對特朗普關稅政策
 
 ![科斯塔警告，歐盟和美國之間的貿易戰將影響每個人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798706_1_20250403025134.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm)
-
----
-
-# 尹錫悅彈劾案4月4日宣判
-
-![尹錫悅彈劾案4月4日宣判。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798390_1_20250401100632.jpg&q=90)
-  
-
-南韓憲法法院宣布，將於4月4日上午對尹錫悅彈劾案開庭宣判，裁決結果將決定尹錫悅總統職務去留。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798390-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798390-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798390-20250401.htm)
 
 ---
