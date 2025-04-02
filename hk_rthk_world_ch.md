@@ -1,3 +1,27 @@
+# 特朗普宣布對外國汽車徵25%關稅　稱職位和本土製造將重返美國
+
+![美國總統特朗普在白宮發表講話，宣布新關稅措施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798711_1_20250403043642.jpg&q=90)
+  
+
+美國總統特朗普在白宮發表講話，宣布新關稅措施，包括從當地星期四起向所有外國汽車徵收25%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798711-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798711-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798711-20250403.htm)
+
+---
+
 # 美媒：國安團隊透過Signal群組協調對外政策　涉敏感資訊
 
 ![報道說，華爾茲的團隊定期透過Signal建立群組，協調烏克蘭、中國、加沙、中東政策、非洲及歐洲等議題的官方工作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798710_1_20250403034408.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798419-20250401.htm)
-
----
-
-# 中國駐美使館：中方敦促美方停止誣衊抹黑香港民主法治
-
-![發言人說，中方敦促美方停止干涉中國內政，停止誣衊抹黑香港民主法治。（中國駐美使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798403_1_20250401104720.jpg&q=90)
-  
-
-中國駐美使館發言人表示，美方所謂「香港政策法報告」延續抹黑香港民主法治、人權自由狀況的陳詞濫調，並對中國中央政府駐港機構和香港特區政府官員妄施所謂「制裁」，粗暴干涉中國內政和香港事務，嚴重違反國際法和國際關係基本準則，中方對此強烈譴責、堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm)
 
 ---
