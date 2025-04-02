@@ -1,3 +1,27 @@
+# 建造業議會推計劃記錄前線人員安全表現　約270個項目承諾參加
+
+![「前線人員安全表現紀錄計劃」經過超過一年諮詢，將推出統一標準，記錄建造業前線人員安全表現。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798685_1_20250402213805.jpg&q=60)
+  
+
+建造業議會推出「前線人員安全表現紀錄計劃」，計劃經過超過一年諮詢，將推出統一標準，記錄建造業前線人員安全表現。建造業議會主席何安誠表示，計劃至今有大約270個項目承諾會參加，會設3.5小時進修課程，每項課程也會針對特定項目，並會於平日晚上或星期日上課，確保課程有足夠學額。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798685-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798685-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798685-20250402.htm)
+
+---
+
 # 羅淑佩拜會國務院港澳辦和國家體育總局
 
 ![羅淑佩拜會國務院港澳辦和國家體育總局](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798682_1_20250402212217.jpg&q=90)
@@ -527,7 +551,7 @@
 
 ---
 
-# 火炭謀殺案泰國落網疑犯被押往案發現場重組案情
+# 火炭謀殺案重組案情　疑犯以道具刀斬向代表受害人的假人
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798654_1_20250402181124.jpg&q=60)
   
@@ -623,7 +647,7 @@
 
 ---
 
-# 政府就規範籃球博彩展開諮詢　諮詢期至下月2日
+# 規範籃球博彩諮詢展開　不得接受香港球隊參與及香港賽事投注
 
 ![政府建議參考規管足球博彩的做法，透過修訂《博彩稅條例》，訂立籃球博彩活動的規管框架。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798637_1_20250402170130.jpg&q=85)
   
@@ -719,7 +743,7 @@
 
 ---
 
-# 后海灣黑臉琵鷺按年跌逾1成　觀鳥會憂放棄來港度冬
+# 后海灣黑臉琵鷺按年跌逾一成　觀鳥會憂放棄來港度冬
 
 ![今年黑臉琵鷺全球數量首度突破7千隻，錄得7081隻，較去年微升93隻，按年增幅1.3%。（香港觀鳥會）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798628_1_20250402160852.jpg&q=90)
   
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798509-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798509-20250401.htm)
-
----
-
-# 特區政府與水利部簽署涉水事務合作協議
-
-![李家超和水利部部長李國英（後排左）在禮賓府會面，共同見證水利部與特區政府簽署《涉水事務管理與合作的安排》。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798508_1_20250401215640.jpg&q=85)
-  
-
-行政長官李家超和水利部部長李國英在禮賓府會面，共同見證水利部與特區政府簽署《涉水事務管理與合作的安排》。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm)
 
 ---

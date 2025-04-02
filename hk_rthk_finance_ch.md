@@ -1,3 +1,27 @@
+# 美股初段下跌
+
+![道瓊斯指數較早時報41762點，跌227點，跌幅0.54%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798687_1_20250402213713.jpg&q=90)
+  
+
+美股在開市初段下跌，市場靜待美國對等關稅細節公布。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798687-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798687-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798687-20250402.htm)
+
+---
+
 # 美國3月ADP私人市場新增職位15.5萬個　多過預期
 
 ![ADP報告指，美國3月私人市場新增職位15.5萬個，多過市場預期的11.5萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798680_1_20250402204947.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798447-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798447-20250401.htm)
-
----
-
-# 泰國政府預期地震只對經濟造成短期影響
-
-![泰國副財政部長表示，上星期在泰國造成破壞的強烈地震，或只對經濟造成短期影響，預計今年經濟增長仍將達到3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798446_1_20250401150404.jpg&q=80)
-  
-
-泰國副財政部長Julapun Amornvivat表示，上星期在泰國造成破壞的強烈地震，或只對經濟造成短期影響，預計今年經濟增長仍將達到3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm)
 
 ---
