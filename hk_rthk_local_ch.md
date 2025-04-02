@@ -1,3 +1,26 @@
+# 多名議員支持規範籃球博彩　打擊非法賭博
+
+  
+
+政府就規範籃球博彩活動的建議方案展開一個月諮詢，諮詢期至下月2日。政府建議參考規管足球博彩的做法，透過修例訂立規管框架，向馬會發出牌照，並制定相關牌照條件。政府建議條件包括不得接受本港球隊賽事投注等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798672-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798672-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798672-20250402.htm)
+
+---
+
 # 團結香港基金認為以片區發展生態旅遊項目具連貫性
 
   
@@ -216,7 +239,7 @@
 
 # 何永賢：必須持續供應居屋　成為年輕人置業希望
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798648_1_20250402181632.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798648_2_20250402194405.jpg&q=90)
   
 
 房屋局局長何永賢接受本台節目《盤點政策》訪問。她表示，居屋認購超額30多倍至60倍不等，反映置業需求很大，認為必須持續供應居屋，成為年輕人的置業希望。
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm)
-
----
-
-# 李家超：目標令香港成為國際基建中心服務國家
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798473_1_20250401184018.jpg&q=90)
-  
-
-行政長官李家超出席國際水務領袖高峰論壇。他表示，東江水供港60年，孕育香港的經濟奇蹟，香港將會投資未來，目標成為國際基建中心服務國家。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798473-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798473-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798473-20250401.htm)
 
 ---
