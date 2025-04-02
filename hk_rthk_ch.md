@@ -1,3 +1,27 @@
+# 逾4.1萬申請人獲發新生嬰兒獎勵金涉逾8億元　行政費約80萬
+
+![政府接獲42060宗「新生嬰兒獎勵金」的合資格申請，已向41304名申請人發放獎勵金，涉及8億2600萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798688_1_20250402221657.jpg&q=70)
+  
+
+政府表示，截至上月中，共接獲42060宗「新生嬰兒獎勵金」的合資格申請，並已向41304名申請人發放獎勵金，涉及8億2600萬元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798688-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798688-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798688-20250402.htm)
+
+---
+
 # 美股初段下跌
 
 ![道瓊斯指數較早時報41762點，跌227點，跌幅0.54%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798687_1_20250402213713.jpg&q=90)
@@ -48,6 +72,7 @@
 
 # 夏寶龍晤滙豐主席杜嘉祺　冀集團向國際社會講好中國故事
 
+![中央港澳辦、國務院港澳辦主任夏寶龍（右）下午會見滙豐集團主席杜嘉祺（左），希望滙豐集團在中國更好發展。（中央港澳辦）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798684_1_20250402222247.jpg&q=90)
   
 
 在北京，中央港澳辦、國務院港澳辦主任夏寶龍下午會見滙豐集團主席杜嘉祺，指希望滙豐集團在中國更好發展，更積極助力香港鞏固提升國際金融中心地位，繼續發揮自身優勢做好中英關係的重要橋樑紐帶，向國際社會講好「中國故事」「香港故事」。

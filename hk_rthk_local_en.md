@@ -1,3 +1,27 @@
+# Govt seeks interest in ecotourism projects
+
+![The government wants to develop Pak Nai into an ecotourism destination. Photo: Development Bureau](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798669_1_20250402192137.jpg&q=80)
+  
+
+The Development Bureau announced on Wednesday that it is inviting expressions of interest for three major ecotourism projects in outlying islands and coastal areas.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798669-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798669-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798669-20250402.htm)
+
+---
+
 # HKMAO reposts another article on Hutchison deal
 
 ![CK Hutchison has announced plans to sell its ports, including assets along the Panama Canal. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798683_1_20250402211035.jpg&q=80)
@@ -1421,29 +1445,5 @@ A controversial ports deal between CK Hutchison and a consortium led by US inves
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm)
-
----
-
-# Hong Kong victorious on opening day of Rugby Sevens
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797928_1_20250328205342.jpg&q=90)
-  
-
-There were winning starts for the Hong Kong, China men's and women's squads on Friday as the Rugby Sevens got underway to much fanfare at the Kai Tak Sports Park.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm)
 
 ---
