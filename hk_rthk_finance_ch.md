@@ -1,3 +1,27 @@
+# 港股下午初段變動不大
+
+![港股下午初段變動不大，恒生指數較早時報23204點，跌2點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798602_1_20250402130159.jpg&q=15)
+  
+
+港股下午初段變動不大，恒生指數較早時報23204點，跌2點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798602-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798602-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798602-20250402.htm)
+
+---
+
 # 德勤：香港首季新股集資額升約2.9倍至182億元　全球排第四
 
 ![德勤指，今年首季本港新股集資額182億元，按年急升2.87倍，全球排名第4位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798600_1_20250402125809.jpg&q=85)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm)
-
----
-
-# 港股半日升244點　醫藥及本地地產股造好
-
-![恒生指數最多升近340點，中午報23363點，升244點，升幅約1.1%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798415_1_20250401120905.jpg&q=75)
-  
-
-港股在4月首個交易日反彈，恒生指數最多升近340點，中午報23363點，升244點，升幅約1.1%，半日主板成交額逾1264億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798415-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798415-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798415-20250401.htm)
 
 ---
