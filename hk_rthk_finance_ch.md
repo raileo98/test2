@@ -1,3 +1,27 @@
+# 郵儲行預計今年息差仍面臨下行壓力
+
+![劉建軍稱郵儲行今年將加大對農業生產經營、生活消費、假日、文旅等產業信貸投放。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798599_1_20250402124629.jpg&q=90)
+  
+
+郵儲銀行行長劉建軍表示，會積極應對低利率環境挑戰，但考慮到貸款市場報價利率下行，以及按揭貸款存量利率調整，預計今年息差仍面臨下行壓力。他說，會推動信貸業務多元化發展，今年將加大對農業生產經營、生活消費、假日、文旅等產業信貸投放，又會原則上拒絕高價、高息存款，將通過擴大客群，做大自營存款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798599-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798599-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798599-20250402.htm)
+
+---
+
 # 郵儲行料增資後核心一級資本充足率將提升1.5個百分點
 
 ![鄭國雨表示，通過財政部和戰略股東配股後，預計核心一級資本充足率將提升1.5個百分點。（網上記者會截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798595_1_20250402123603.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798411-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798411-20250401.htm)
-
----
-
-# 內地股市半日靠穩
-
-![上證指數半日報3355點，升19點，升幅0.59%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798410_1_20250401113635.jpg&q=90)
-  
-
-滬深股市半日靠穩，醫藥、CRO概念股造好，銀行、貴金屬股回調。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798410-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798410-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798410-20250401.htm)
 
 ---

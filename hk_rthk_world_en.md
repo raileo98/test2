@@ -1,3 +1,27 @@
+# Sydney beachfront homes take battering from waves
+
+![Bondi beach in Sydney was hit by a 5.5-metre wave. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798598_1_20250402124618.jpg&q=90)
+  
+
+Sydney beachfront properties were flooded and coastal infrastructure damaged after a large swell combined with a king tide to batter the Australian shore, officials said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm)
+
+---
+
 # Trump-backed candidate loses Wisconsin court election
 
 ![Susan Crawford acknowledges the mood at her election night headquarters in Madison, Wisconsin, after her triumph. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798589_1_20250402120941.jpg&q=90)
@@ -1414,29 +1438,5 @@ Australia will hold a general election on May 3, Prime Minister Anthony Albanese
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797791-20250328.htm)
-
----
-
-# Australian PM says general election is 'imminent'
-
-![Anthony Albanese, second right, leads party support for Treasurer Jim Chalmers after his fourth federal budget speech in Parliament House, Canberra. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797706_1_20250327172305.jpg&q=90)
-  
-
-Australian Prime Minister Anthony Albanese said on Thursday he would call a general election "imminently," with local media reporting the poll would be held on May 3.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797706-20250327.htm)
 
 ---

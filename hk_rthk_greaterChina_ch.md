@@ -1,3 +1,27 @@
+# 郵儲行預計今年息差仍面臨下行壓力
+
+![劉建軍稱郵儲行今年將加大對農業生產經營、生活消費、假日、文旅等產業信貸投放。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798599_1_20250402124629.jpg&q=90)
+  
+
+郵儲銀行行長劉建軍表示，會積極應對低利率環境挑戰，但考慮到貸款市場報價利率下行，以及按揭貸款存量利率調整，預計今年息差仍面臨下行壓力。他說，會推動信貸業務多元化發展，今年將加大對農業生產經營、生活消費、假日、文旅等產業信貸投放，又會原則上拒絕高價、高息存款，將通過擴大客群，做大自營存款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798599-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798599-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798599-20250402.htm)
+
+---
+
 # 廖岷：中方重視對歐財金合作　冀透過對話磋商妥善處理摩擦分歧
 
 ![廖岷與歐盟委員會官員在比利時布魯塞爾，共同主持第十六次中歐財金對話。（財政部圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798581_1_20250402113318.jpg&q=85)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm)
-
----
-
-# 西藏愈來愈多老年人日間照料中心為長者服務
-
-![老年人日間照料中心設有多種興趣班。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798231_1_20250331130322.jpg&q=85)
-  
-
-今年是西藏自治區成立60周年，記者到西藏採訪，了解當地民生及社會發展情況。中國人口老齡化問題日益加劇，西藏自治區政府近年著力健全養老服務體系，發展銀髮經濟，當地愈來愈多老年人日間照料中心建成，為長者提供集養護、醫療、教育、娛樂、創業於一身的服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798231-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798231-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798231-20250331.htm)
 
 ---

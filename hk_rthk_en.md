@@ -1,3 +1,27 @@
+# Sydney beachfront homes take battering from waves
+
+![Bondi beach in Sydney was hit by a 5.5-metre wave. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798598_1_20250402124618.jpg&q=90)
+  
+
+Sydney beachfront properties were flooded and coastal infrastructure damaged after a large swell combined with a king tide to batter the Australian shore, officials said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm)
+
+---
+
 # Beijing puts store in EVs for shoring up power grids
 
 ![Electric vehicles in Shenzhen will be among those used for storage to meet peak demand on power grids. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798596_1_20250402123635.jpg&q=85)
@@ -1414,29 +1438,5 @@ Rory McIlroy has joined Tiger Woods in surpassing US$100 million in career earni
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798360-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798360-20250401.htm)
-
----
-
-# US stocks recover from sell-off ahead of Trump tariffs
-
-![On Wall Street, the S&P 500 bounced into positive territory from a six-month low. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798357_1_20250401060041.jpg&q=90)
-  
-
-US stocks shook off some early gloom about Donald Trump's imminent tariff announcement to close mixed on Monday, with the S&P 500 bouncing into positive territory from a six-month low.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798357-20250401.htm)
 
 ---

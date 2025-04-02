@@ -1,3 +1,27 @@
+# 郵儲行預計今年息差仍面臨下行壓力
+
+![劉建軍稱郵儲行今年將加大對農業生產經營、生活消費、假日、文旅等產業信貸投放。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798599_1_20250402124629.jpg&q=90)
+  
+
+郵儲銀行行長劉建軍表示，會積極應對低利率環境挑戰，但考慮到貸款市場報價利率下行，以及按揭貸款存量利率調整，預計今年息差仍面臨下行壓力。他說，會推動信貸業務多元化發展，今年將加大對農業生產經營、生活消費、假日、文旅等產業信貸投放，又會原則上拒絕高價、高息存款，將通過擴大客群，做大自營存款。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798599-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798599-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798599-20250402.htm)
+
+---
+
 # 周一鳴對任命感光榮　將維護國家安全推動智慧警政及鞏固團隊文化
 
 ![周一鳴表示，對任命感光榮，將維護國家安全、推動智慧警政及鞏固團隊文化。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798597_1_20250402124454.jpg&q=90)
@@ -45,6 +69,7 @@
 
 # 隧道費檢討料年內完成　陳美寶稱會考慮四大原則
 
+![陳美寶表示，運輸署正進行隧道費檢討工作，預計今年內完成，並諮詢立法會交通事務委員會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798594_1_20250402124606.jpg&q=90)
   
 
 運輸及物流局局長陳美寶表示，運輸署正進行隧道費檢討工作，預計今年內完成，並諮詢立法會交通事務委員會。
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm)
-
----
-
-# 美股由跌轉升　道指曾跌逾480點
-
-![道瓊斯指數早段曾跌逾480點，較早時報42091點，升89點，升幅0.21%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798519_1_20250401232218.jpg&q=90)
-  
-
-美股3大指數初段下跌，其後轉升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm)
 
 ---
