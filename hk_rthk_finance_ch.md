@@ -1,3 +1,26 @@
+# 郵儲銀行：配股定價兼顧新舊股東利益　料短期造成一定攤薄
+
+  
+
+郵儲銀行計劃向財政部、中國移動集團及中國船舶集團，發行A股集資1300億元人民幣，是銀行歷來最大的融資項目；每股發行價6.32元，較公告前收市價溢價近22%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798649-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798649-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798649-20250402.htm)
+
+---
+
 # 3月送交註冊住宅樓宇買賣合約按月升近70%
 
 ![土地註冊處公布，3月住宅樓宇買賣合約佔5367份，按月升67.7%，按年升35.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798632_1_20250402155550.jpg&q=85)
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798440-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798440-20250401.htm)
-
----
-
-# 台股高收近3%　結束4日跌勢
-
-![台灣加權指數收市報21280點，升584點，升幅2.82%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798438_1_20250401142935.jpg&q=90)
-  
-
-台灣股市反彈近3%，結束連續4個交易日的跌勢。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798438-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798438-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798438-20250401.htm)
 
 ---

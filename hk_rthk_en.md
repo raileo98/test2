@@ -1,3 +1,27 @@
+# Warning shots fired at Chinese Red Cross convoy
+
+![A Chinese Red Cross team looks for survivors among the ruins of a residential building in Mandalay on Sunday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798650_1_20250402174414.jpg&q=80)
+  
+
+China strongly urges all parties in Myanmar to ensure the safety of earthquake relief workers and supplies from China and other countries, a Foreign Ministry spokesman said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm)
+
+---
+
 # Manila warned over peace threat from any F-16 deal
 
 ![US Air Force F-16 fighter jets at Basa Air Base in Pampanga, Philippines, last April for a joint exercise. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798634_1_20250402161526.jpg&q=85)
@@ -24,7 +48,7 @@ China on Wednesday warned the Philippines against threatening "regional peace" a
 
 # Mental health of HK children worse than before Covid
 
-![Dr Chuang Shuk-kwan says the figures are self-reported, so they could either underestimate or overestimate the scale of the problem. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798639_1_20250402164845.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798639_1_20250402164845.jpg&q=90)
   
 
 The psychological well-being of Hong Kong's secondary school pupils improved slightly in the last academic year but was still worse than before the pandemic, the Department of Health said on Wednesday.
@@ -1414,29 +1438,5 @@ A peace agreement on ending the conflict in Ukraine should be fair, binding and 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798386-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798386-20250401.htm)
-
----
-
-# Myanmar to mark minute of silence for quake victims
-
-![An aerial view shows flattened buildings in the Mandalay region, Myanmar. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798381_1_20250401091723.jpg&q=80)
-  
-
-Myanmar will mark a minute of silence on Tuesday in tribute to victims of the country's devastating earthquake that has killed more than 2,000 people, as hopes dim of finding more survivors in the rubble of ruined buildings.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798381-20250401.htm)
 
 ---

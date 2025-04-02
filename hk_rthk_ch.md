@@ -1,3 +1,26 @@
+# 郵儲銀行：配股定價兼顧新舊股東利益　料短期造成一定攤薄
+
+  
+
+郵儲銀行計劃向財政部、中國移動集團及中國船舶集團，發行A股集資1300億元人民幣，是銀行歷來最大的融資項目；每股發行價6.32元，較公告前收市價溢價近22%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798649-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798649-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798649-20250402.htm)
+
+---
+
 # 中方：菲律賓與其他國家開展防務安全合作不應損害第三方利益
 
 ![郭嘉昆說，關於菲律賓與美國的軍事安全合作，中方已經多次闡明立場。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798647_1_20250402172643.jpg&q=90)

@@ -1,6 +1,6 @@
 # Mental health of HK children worse than before Covid
 
-![Dr Chuang Shuk-kwan says the figures are self-reported, so they could either underestimate or overestimate the scale of the problem. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798639_1_20250402164845.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798639_1_20250402164845.jpg&q=90)
   
 
 The psychological well-being of Hong Kong's secondary school pupils improved slightly in the last academic year but was still worse than before the pandemic, the Department of Health said on Wednesday.

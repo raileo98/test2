@@ -1,3 +1,27 @@
+# Warning shots fired at Chinese Red Cross convoy
+
+![A Chinese Red Cross team looks for survivors among the ruins of a residential building in Mandalay on Sunday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798650_1_20250402174414.jpg&q=80)
+  
+
+China strongly urges all parties in Myanmar to ensure the safety of earthquake relief workers and supplies from China and other countries, a Foreign Ministry spokesman said on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm)
+
+---
+
 # Manila warned over peace threat from any F-16 deal
 
 ![US Air Force F-16 fighter jets at Basa Air Base in Pampanga, Philippines, last April for a joint exercise. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798634_1_20250402161526.jpg&q=85)
@@ -1415,29 +1439,5 @@ Hongkongers who are travelling and living in mainland China can now apply for a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796562-20250320.htm)
-
----
-
-# Chile reviews Chinese observatory plans
-
-![Chile is home to the world's darkest skies and numerous other observatories. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796533_1_20250320084807.jpg&q=90)
-  
-
-Chile said on Wednesday it was reviewing an agreement for the construction of a Chinese astronomical observatory on its soil, a project that has drawn criticism from Washington as it jostles with Beijing for influence in Latin America.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796533-20250320.htm)
 
 ---
