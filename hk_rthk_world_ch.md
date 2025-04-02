@@ -1,3 +1,27 @@
+# 北韓譴責美日加速推動武器裝備聯合生產
+
+![北韓強烈譴責美日推動武器裝備聯合生產，指是加劇地區不穩定的新因素。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798550_1_20250402084915.jpg&q=90)
+  
+
+北韓強烈譴責美國和日本加速推動武器裝備聯合生產，指這是加劇地區不穩定的新因素，並強調北韓將繼續儲備強大的威懾力量。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798550-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798550-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798550-20250402.htm)
+
+---
+
 # 白宮稱特朗普與團隊一同完善對等關稅措施細節　指各國尋求談判
 
 ![萊維特（圖）說對等關稅將於特朗普宣布後立即生效。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798542_1_20250402065113.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798268-20250331.htm)
-
----
-
-# 特區救援隊展開於曼德勒兩個受災區域搜救
-
-![抵達緬甸曼德勒的特區救援隊，正於其中兩個受災區域進行搜救行動。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798271_1_20250331180952.jpg&q=80)
-  
-
-保安局表示，抵達緬甸曼德勒的特區救援隊，帶上專業裝備及搜救犬，正於其中兩個受災區域進行搜救行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798271-20250331.htm)
 
 ---

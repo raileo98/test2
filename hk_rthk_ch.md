@@ -1,3 +1,51 @@
+# 訪西藏旅客按年升15%　香港拉薩直航開通後增港旅客
+
+![有本港導遊說，今年2月香港至拉薩直航機開通後，到西藏旅遊港人增加，圖為著名景點布達拉宮。（葉耀坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
+  
+
+西藏去年累計接待超過6300萬遊客人次，按年增加15%，創下歷史新高，旅遊相關產業佔當地生產總值約三成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm)
+
+---
+
+# 北韓譴責美日加速推動武器裝備聯合生產
+
+![北韓強烈譴責美日推動武器裝備聯合生產，指是加劇地區不穩定的新因素。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798550_1_20250402084915.jpg&q=90)
+  
+
+北韓強烈譴責美國和日本加速推動武器裝備聯合生產，指這是加劇地區不穩定的新因素，並強調北韓將繼續儲備強大的威懾力量。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798550-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798550-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798550-20250402.htm)
+
+---
+
 # 南韓3月通脹率2.1%高於預期
 
 ![南韓3月消費物價指數按年上升2.1%，高於市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798545_1_20250402080004.jpg&q=80)
@@ -1388,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798484-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798484-20250401.htm)
-
----
-
-# 吉利3月總銷量按年增長約54%
-
-![吉利汽車3月總銷量逾23.2萬部汽車，按年增長約54%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798482_1_20250401173458.jpg&q=90)
-  
-
-吉利汽車公布，集團3月總銷量逾23.2萬部汽車，按年增長約54%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798482-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798482-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798482-20250401.htm)
-
----
-
-# 中俄外長會面　拉夫羅夫稱將為下月俄中元首峰會做好準備
-
-![拉夫羅夫指出，王毅訪問俄羅斯的主要目的，是為今年5月舉行的俄中元首峰會做好準備。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798483_1_20250401173549.jpg&q=90)
-  
-
-中俄外長在俄羅斯首都莫斯科會面。俄羅斯外長拉夫羅夫發言時提到，中共中央政治局委員、外長王毅今次正式訪問的主要目的，是為今年5月在莫斯科舉行的俄中元首峰會做好準備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798483-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798483-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798483-20250401.htm)
 
 ---

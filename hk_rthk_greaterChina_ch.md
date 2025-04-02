@@ -1,3 +1,27 @@
+# 訪西藏旅客按年升15%　香港拉薩直航開通後增港旅客
+
+![有本港導遊說，今年2月香港至拉薩直航機開通後，到西藏旅遊港人增加，圖為著名景點布達拉宮。（葉耀坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
+  
+
+西藏去年累計接待超過6300萬遊客人次，按年增加15%，創下歷史新高，旅遊相關產業佔當地生產總值約三成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm)
+
+---
+
 # 解放軍東部戰區在台灣海峽中部和南部相關海域組織演練
 
 ![東部戰區昨日開始，組織陸海空火等兵力，在台島周邊組織艦機多向抵近台島開展聯合演訓。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798548_1_20250402081312.jpg&q=90)
@@ -1414,30 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798199-20250331.htm)
-
----
-
-# 美國針對TikTok激發網民加入小紅書　反助中外民眾交流
-
-![俞波以簡單的英語旁白，配以生動有趣的動作及道具拍片教人煮中國菜式，一夜爆紅。（載自小紅書）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798197_2_20250331095153.jpg&q=90)
-![被形容為「TikTok難民」的外國人士，轉用中國社交平台「小紅書」。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798197_1_20250331095153.jpg&q=80)
-  
-
-美國前總統拜登任內要求短片分享平台TikTok的美國業務，要脫離中國母公司字節跳動，否則禁用；到總統特朗普上任，將有關行政命令暫緩至4月初。當時衍生出被形容為「TikTok難民」的外國人士，轉用中國社交平台「小紅書」。不少內地網民趁機拍攝及上載英語短片，吸引海外用戶注意。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798197-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798197-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798197-20250331.htm)
 
 ---

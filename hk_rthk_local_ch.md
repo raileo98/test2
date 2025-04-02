@@ -1,3 +1,27 @@
+# 訪西藏旅客按年升15%　香港拉薩直航開通後增港旅客
+
+![有本港導遊說，今年2月香港至拉薩直航機開通後，到西藏旅遊港人增加，圖為著名景點布達拉宮。（葉耀坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
+  
+
+西藏去年累計接待超過6300萬遊客人次，按年增加15%，創下歷史新高，旅遊相關產業佔當地生產總值約三成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm)
+
+---
+
 # 粵港澳大灣區專責小組首次會議　張國鈞稱用好大灣區獨特優勢
 
 ![張國鈞主持新一屆粵港澳大灣區專責小組首次會議。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798513_1_20250401220009.jpg&q=90)
@@ -1417,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798325-20250331.htm)
-
----
-
-# 中央港澳辦與社科院簽訂協議做好一國兩制理論和實踐研究
-
-![協議旨在深入落實中央有關部署要求，全面準確、堅定不移貫徹「一國兩制」方針。（港澳辦微信）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798324_1_20250331215335.jpg&q=90)
-  
-
-中央港澳辦與中國社科院在北京簽署戰略合作框架協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798324-20250331.htm)
 
 ---
