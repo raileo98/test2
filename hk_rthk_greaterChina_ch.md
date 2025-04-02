@@ -1,3 +1,26 @@
+# 山東艦航母編隊參與台島以東海空域演練
+
+  
+
+解放軍公布，山東艦航母編隊參與台島以東海空域演練。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798615-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798615-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798615-20250402.htm)
+
+---
+
 # 往來航班增加　疫情後港人到西藏旅遊有上升趨勢
 
 ![上月28日，人們在拉薩市宗角祿康公園內載歌載舞，慶祝西藏百萬農奴解放66周年。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798605_1_20250402134731.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm)
-
----
-
-# 星展香港：四大行增加核心一級資本屬支持經濟政策跟進措施
-
-![周洪禮認為，今次注資可配合往後穩定樓市、促進內需消費、支持高新科技產業等政策。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798234_1_20250331125341.jpg&q=85)
-  
-
-中國銀行、建設銀行、交通銀行及郵儲銀行，星期日發通告，計劃向財政部等機構發行A股集資，總規模不超過5200億元人民幣，用於增加核心一級資本，更好服務實體經濟。四家銀行A股發行價，較上星期五收市溢價約9%至近22%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm)
 
 ---

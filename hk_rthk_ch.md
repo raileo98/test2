@@ -1,3 +1,74 @@
+# 山東艦航母編隊參與台島以東海空域演練
+
+  
+
+解放軍公布，山東艦航母編隊參與台島以東海空域演練。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798615-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798615-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798615-20250402.htm)
+
+---
+
+# 日股高收近0.3%　連升兩日
+
+![日經平均指數收市報35725點，升101點，升幅0.28%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798614_1_20250402143742.jpg&q=90)
+  
+
+日本股市反覆高收，連升兩日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798614-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798614-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798614-20250402.htm)
+
+---
+
+# 台股收市靠穩　本周3日市累跌1.4%
+
+![台灣加權指數收市報21298點，升18點，升幅0.08%。本周3日市累計下跌1.4%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798613_1_20250402143437.jpg&q=90)
+  
+
+台灣股市靠穩，加權指數收市報21298點，升18點，升幅0.08%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798613-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798613-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798613-20250402.htm)
+
+---
+
 # 丘應樺：港台與新聞處職能上無重疊　合併或會帶來反效果
 
 ![丘應樺表示，港台作為公共廣播機構，與新聞處主責政府公共關係，各司其職，職能上並無重疊。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798610_1_20250402141912.jpg&q=90)
