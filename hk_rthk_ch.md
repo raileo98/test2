@@ -1,8 +1,33 @@
-# 特朗普公布對等關稅　中國稅率34%、歐盟20%、英國10%
+# 期油在美國新關稅措施公布前上升
+
+![特朗普公布新關稅措施前，紐約5月期油收市報每桶71.71美元，升51美仙，升幅0.72%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798716_1_20250403051421.jpg&q=85)
+  
+
+原油期貨在美國總統特朗普公布新關稅措施前收市，價格上升。
 
   
 
-美國總統特朗普在白宮公布對等關稅措施，向不同國家徵收不同稅率的關稅，其中中國進口產品的關稅為34%、歐盟產品關稅是20%、英國和巴西10%，日本、南韓、印度分別是24%、25%和26%，對越南和柬埔寨產品的關稅分別高達46%和49%。
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798716-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798716-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798716-20250403.htm)
+
+---
+
+# 特朗普公布對等關稅　中國稅率34%、歐盟20%、英國10%
+
+![特朗普在白宮宣布對等關稅措施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798713_1_20250403050831.jpg&q=90)
+  
+
+美國總統特朗普在白宮簽署關於對等關稅的行政命令，宣布對貿易夥伴設立10%的最低基準關稅，並會對某些貿易夥伴徵收更高關稅，其中中國進口產品的關稅為34%、歐盟產品關稅是20%、英國和巴西10%，日本、南韓、印度分別是24%、25%和26%，對越南和柬埔寨產品的關稅分別高達46%和49%。
 
   
 
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798649-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798649-20250402.htm)
-
----
-
-# 中方：菲律賓與其他國家開展防務安全合作不應損害第三方利益
-
-![郭嘉昆說，關於菲律賓與美國的軍事安全合作，中方已經多次闡明立場。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798647_1_20250402172643.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆回應美國國務院宣布，已批准向菲律賓出售F-16戰機時表示，關於菲律賓與美國的軍事安全合作，中方已經多次闡明立場，菲律賓同其他國家開展的任何防務安全合作都不應該針對第三方或損害第三方的利益，更不能威脅地區的和平與安全，加劇地區緊張。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798647-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798647-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798647-20250402.htm)
 
 ---

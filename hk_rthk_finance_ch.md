@@ -1,3 +1,51 @@
+# 期油在美國新關稅措施公布前上升
+
+![特朗普公布新關稅措施前，紐約5月期油收市報每桶71.71美元，升51美仙，升幅0.72%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798716_1_20250403051421.jpg&q=85)
+  
+
+原油期貨在美國總統特朗普公布新關稅措施前收市，價格上升。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798716-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798716-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798716-20250403.htm)
+
+---
+
+# 特朗普公布對等關稅　中國稅率34%、歐盟20%、英國10%
+
+![特朗普在白宮宣布對等關稅措施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798713_1_20250403050831.jpg&q=90)
+  
+
+美國總統特朗普在白宮簽署關於對等關稅的行政命令，宣布對貿易夥伴設立10%的最低基準關稅，並會對某些貿易夥伴徵收更高關稅，其中中國進口產品的關稅為34%、歐盟產品關稅是20%、英國和巴西10%，日本、南韓、印度分別是24%、25%和26%，對越南和柬埔寨產品的關稅分別高達46%和49%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798713-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798713-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798713-20250403.htm)
+
+---
+
 # 美股高收　市場關注特朗普關稅措施細節
 
 ![美股反覆高收，收市後總統特朗普公布新關稅措施細節。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798712_1_20250403044653.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm)
-
----
-
-# 滙控：有信心有形股本回報率可達標
-
-![杜嘉褀指，集團定下有形股本回報率(RoTE)在今年起的3年約15%，有信心可以達標。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798497_1_20250401191612.jpg&q=90)
-  
-
-滙控舉行股東非正式會議，有小股東關注交通銀行向財政部等配售A股，滙控對交行持股被攤薄至16.06%如何影響投資回報。滙控主席杜嘉祺指出，雙方20年來一直是的重要戰略合作夥伴，未來會繼續與交行密切合作，集團正研究當中的技術細節，但強調未來會繼續持股。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798497-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798497-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798497-20250401.htm)
-
----
-
-# 香港迪士尼今年將償還四成貸款　羅淑佩稱樂園自資增建項目是好事
-
-![香港迪士尼樂園已開始償還由特區政府及華特迪士尼提供的貸款，至今已償還超過六成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798493_1_20250401185342.jpg&q=85)
-  
-
-立法會一個委員會討論香港迪士尼樂園度假區最新進展報告。民建聯立法會議員陳勇指出，香港迪士尼樂園已轉虧為盈，但仍有四成貸款未償還予特區政府及華特迪士尼，關注何時完成還款，又能否將部分盈利回撥予政府。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798493-20250401.htm)
 
 ---
