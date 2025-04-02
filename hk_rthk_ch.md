@@ -1,6 +1,30 @@
+# 解放軍東部戰區在東海實施遠端火力實彈射擊演練　取得預期效果
+
+  
+
+解放軍東部戰區陸軍部隊，按照「海峽雷霆-2025A」演練計劃，在東海相關海域實施遠程火力實彈射擊演練，對重要港口、能源設施等類比目標進行精確打擊，戰區新聞發言人施毅陸軍表示，演練取得預期效果。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798570-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798570-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798570-20250402.htm)
+
+---
+
 # 周一鳴升任警務處處長　任內解決2019年理大衝突事件
 
 ![2019年初，周一鳴擔任九龍西總區副指揮官，負責指揮安全小組進入理大校園處理危險品及搜證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798569_1_20250402101102.jpg&q=90)
+![周一鳴（中）擔任警務處副處長期間，曾親自率領「犁庭掃穴」反罪惡行動。（香港警察社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798569_3_20250402101710.jpg&q=85)
 ![蕭澤頤於最後一次結業會操致辭，表示加入警隊為他帶來無限滿足感，與同袍並肩作戰、甘苦與共，此生無憾。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798569_2_20250402101102.jpg&q=90)
   
 
@@ -244,7 +268,7 @@
 ![甯漢豪強調北都發展不能單靠政府力量，也要市場力量參與。（文匯報片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798558_1_20250402095837.jpg&q=90)
   
 
-發展局局長甯漢豪表示，要有破格思維提速北部都會區發展，將有更多措施出台便利市場參與。政府正積極探討「按實補價」概念，例如企業落戶北都只想做某類商業活動，但地契的商業定義寫得好闊，政府可否按企業實在的意願訂定地契及評估地價，令大家速成其事，不會與企業意向商業活動的估價標準相距好遠。
+發展局局長甯漢豪表示，要有破格思維提速北部都會區發展，將有更多措施出台便利市場參與。政府正積極探討「按實補價」概念，例如企業落戶北都只想做某類商業活動，但地契的商業定義寫得好闊，政府可否按企業實在的意願訂定地契及評估地價，令大家促成其事，不會與企業意向商業活動的估價標準相距好遠。
 
   
 
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm)
-
----
-
-# 鄧炳強連線緬甸　希望特區救援隊救人之餘確保自身安全
-
-![鄧炳強表示，今日與消防處處長楊恩健及入境處處長郭俊峯一同連線緬甸。（鄧炳強社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798500_1_20250401193443.jpg&q=90)
-  
-
-特區救援隊正在緬甸災區救援，保安局局長鄧炳強表示，今日與消防處處長楊恩健及入境處處長郭俊峯一同連線緬甸，知道災區氣溫相當炎熱，市內通訊中斷，人員要在惡劣環境條件下長時間進行搜救。他希望救援隊在救人之餘，亦要確保自身安全與健康，又說會提供最大支持，亦祈願當地災民盡快重建家園。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm)
 
 ---

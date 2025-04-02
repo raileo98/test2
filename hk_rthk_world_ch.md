@@ -95,6 +95,30 @@
 
 ---
 
+# 火炭謀殺案　25歲被通緝疑犯於泰國芭堤雅落網
+
+![泰國傳媒引述當地移民局表示，警方在春武里府一間出租屋內，拘捕該名譯名為Truong的通緝犯，相信他在香港犯案後逃往當地。（泰國移民局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798555_1_20250402093832.jpg&q=90)
+  
+
+火炭麗禾里上月中發生的謀殺案，被通緝的一名25歲疑犯，在泰國芭堤雅落網，他將會被驅逐出境，遞解回港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm)
+
+---
+
 # 北韓譴責美日加速推動武器裝備聯合生產
 
 ![北韓強烈譴責美日推動武器裝備聯合生產，指是加劇地區不穩定的新因素。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798550_1_20250402084915.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798317-20250331.htm)
-
----
-
-# 緬甸地震增至2056人死亡　近4千人受傷
-
-![緬甸地震增至2056人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798316_1_20250331192640.jpg&q=75)
-  
-
-緬甸地震增至2056人死亡，近4千人受傷，270人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798316-20250331.htm)
 
 ---

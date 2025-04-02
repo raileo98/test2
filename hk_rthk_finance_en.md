@@ -1,3 +1,27 @@
+# Hong Kong stocks open marginally down
+
+![The Hang Seng Index opened down 0.17 percent at 23,167. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798565_1_20250402094929.jpg&q=90)
+  
+
+The Hang Seng Index lost 39.53 points, or 0.17 percent, to open at 23,167 points on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798565-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798565-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798565-20250402.htm)
+
+---
+
 # Wall Street braces for 'Liberation Day'
 
 ![All the nervousness in the market helped push the price of gold to records - it briefly topped US$3,175 per ounce. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798541_1_20250402064055.jpg&q=85)
@@ -1413,29 +1437,5 @@ Tech giant Tencent on Wednesday reported a stronger than expected fourth-quarter
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796452-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796452-20250319.htm)
-
----
-
-# Stocks end up as winning streak continues
-
-![Stocks end up as winning streak continues](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796461_1_20250319182952.jpg&q=80)
-  
-
-Equity markets were mixed and gold hit another record high on Wednesday as trade war worries cast a shadow and geopolitical concerns returned to the fore.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm](https://news.rthk.hk/rthk/en/component/k2/1796461-20250319.htm)
 
 ---

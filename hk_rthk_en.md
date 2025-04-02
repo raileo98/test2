@@ -1,3 +1,27 @@
+# Hong Kong stocks open marginally down
+
+![The Hang Seng Index opened down 0.17 percent at 23,167. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798565_1_20250402094929.jpg&q=90)
+  
+
+The Hang Seng Index lost 39.53 points, or 0.17 percent, to open at 23,167 points on Wednesday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798565-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798565-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798565-20250402.htm)
+
+---
+
 # Mass layoffs at major US health agencies
 
 ![US Health Secretary Robert F Kennedy Jr said "Americans are getting sicker every year". File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798553_1_20250402090430.jpg&q=90)
@@ -1413,29 +1437,5 @@ A French court on Monday banned far-right leader Marine Le Pen from running for 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798290-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798290-20250331.htm)
-
----
-
-# Myanmar marks quake with week of mourning
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798284_1_20250331171253.jpg&q=75)
-  
-
-Myanmar's ruling junta declared a week of national mourning on Monday for the country's devastating earthquake, which has killed more than 1,700 people, as hopes faded of finding more survivors in the rubble of ruined buildings.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798284-20250331.htm)
 
 ---
