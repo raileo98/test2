@@ -1,4 +1,28 @@
-# 發展局邀請市場就三個島嶼及海岸旅遊項目提交意向書
+# 外交部呼籲緬甸各方確保救援人員安全
+
+![郭嘉昆表示，中方救援隊伍和物資都安全。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798663_1_20250402185129.jpg&q=90)
+  
+
+路透社報道，中國紅十字會救援車隊昨晚在緬甸衝突區域行駛時，懷疑沒有聽從緬甸軍隊指示停車，緬甸軍隊向天開槍3次示警。在北京，外交部發言人郭嘉昆表示，救援隊伍和物資都安全，呼籲緬甸各方確保救援人員安全，以及救災交通路線暢通。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm)
+
+---
+
+# 打造新旅遊及康樂「片區」　發展局就三個項目邀請市場交意向書
 
   
 

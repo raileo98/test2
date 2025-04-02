@@ -1,3 +1,27 @@
+# 外交部呼籲緬甸各方確保救援人員安全
+
+![郭嘉昆表示，中方救援隊伍和物資都安全。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798663_1_20250402185129.jpg&q=90)
+  
+
+路透社報道，中國紅十字會救援車隊昨晚在緬甸衝突區域行駛時，懷疑沒有聽從緬甸軍隊指示停車，緬甸軍隊向天開槍3次示警。在北京，外交部發言人郭嘉昆表示，救援隊伍和物資都安全，呼籲緬甸各方確保救援人員安全，以及救災交通路線暢通。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm)
+
+---
+
 # 中方：菲律賓與其他國家開展防務安全合作不應損害第三方利益
 
 ![郭嘉昆說，關於菲律賓與美國的軍事安全合作，中方已經多次闡明立場。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798647_1_20250402172643.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798310-20250331.htm)
-
----
-
-# 陳美寶：港深西部鐵路一地兩檢口岸設於深圳灣或前海仍待商討
-
-![陳美寶表示，連接洪水橋至前海的「港深西部鐵路」將探用「一地兩檢」。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798307_1_20250331190646.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶表示，連接洪水橋至前海的「港深西部鐵路」將探用「一地兩檢」，至於口岸設在深圳灣還是前海，仍有待與深圳商討。她透露已就乘客量作初步評估，估計2038年本地及跨境客量介乎29萬至35萬人次，到2046年估計有38萬至46萬人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798307-20250331.htm)
 
 ---
