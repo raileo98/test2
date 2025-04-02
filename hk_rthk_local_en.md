@@ -1,3 +1,51 @@
+# Fo Tan murder suspect arrested in Thailand
+
+![The 25-year-old man who was wanted by SAR police has been arrested in Pattaya. Photo courtesy of Thailand's Immigration Bureau.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798572_1_20250402103000.jpg&q=90)
+  
+
+A 25-year-old Hong Kong man wanted by the police for his alleged involvement in a murder in Fo Tan last month has been arrested in Pattaya, Thailand.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798572-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798572-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798572-20250402.htm)
+
+---
+
+# Joe Chow appointed as new police commissioner
+
+![Joe Chow takes over as new police chief from his retiring predecessor Raymond Siu. Photo courtesy of the Hong Kong Police Force](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798573_1_20250402103051.jpg&q=90)
+  
+
+Beijing has named Joe Chow as the new commissioner of police, replacing Raymond Siu.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm)
+
+---
+
 # 'Disneyland expansion needs careful planning'
 
 ![Rosanna Law says any plans to use public money to expand Hong Kong Disneyland should be carefully considered. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798510_1_20250401213045.jpg&q=85)
@@ -1406,53 +1454,5 @@ When Hong Kong artist Movana Chen moved to Lisbon in 2021, she started knitting 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797813-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797813-20250328.htm)
-
----
-
-# Government strongly condemns UK report on HK
-
-![The SAR government urged the UK to "respect international law" and "immediately stop interfering in Hong Kong matters." File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797769_1_20250328093204.jpg&q=90)
-  
-
-The government on Thursday said it strongly disapproved of and must resolutely refute the untruthful remarks, slanders and smears against various aspects of the SAR in the UK's six-monthly report on Hong Kong.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797769-20250328.htm)
-
----
-
-# Work under way to boost night-time services: HA
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797727_2_20250327205242.jpg&q=90)
-  
-
-The Hospital Authority (HA) has stressed that decisions on how and where to beef up public healthcare services will "depend on the actual situation", amid calls to offer more general outpatient services at night.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797727-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797727-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797727-20250327.htm)
 
 ---

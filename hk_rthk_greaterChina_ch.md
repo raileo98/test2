@@ -1,5 +1,6 @@
 # 解放軍東部戰區在東海實施遠端火力實彈射擊演練　取得預期效果
 
+![解放軍東部戰區陸軍部隊，按照「海峽雷霆-2025A」演練計劃。圖為央視播出昨天演訓的畫面。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798570_1_20250402103244.jpg&q=90)
   
 
 解放軍東部戰區陸軍部隊，按照「海峽雷霆-2025A」演練計劃，在東海相關海域實施遠程火力實彈射擊演練，對重要港口、能源設施等類比目標進行精確打擊，戰區新聞發言人施毅陸軍表示，演練取得預期效果。
@@ -23,7 +24,7 @@
 
 # 國務院任命周一鳴為警務處處長　免去蕭澤頤職務
 
-![國務院任命周一鳴為警務處處長。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798568_1_20250402100525.jpg&q=90)
+![國務院任命周一鳴為警務處處長。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798568_2_20250402104843.jpg&q=90)
   
 
 國務院任命周一鳴為新任警務處處長。

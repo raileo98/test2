@@ -1,3 +1,27 @@
+# US senator makes record books with 25-hour talk-a-thon
+
+![Cory Booker takes a more animated turn during his marathon speech in the US Senate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798571_1_20250402102752.jpg&q=90)
+  
+
+A Democratic US lawmaker shattered a record for the longest speech in Senate history, staying on his feet for more than 25 hours to deliver a fiery protest against President Donald Trump's "unconstitutional" actions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm)
+
+---
+
 # Mass layoffs at major US health agencies
 
 ![US Health Secretary Robert F Kennedy Jr said "Americans are getting sicker every year". File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798553_1_20250402090430.jpg&q=90)
@@ -1414,29 +1438,5 @@ China warned on Thursday a trade war would have "no winners" after US President 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797697-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797697-20250327.htm)
-
----
-
-# Heathrow set for incentives to upgrade after closure
-
-![A sign is put up at King's Cross railway station in London after a fire at  an electrical substation wiped out power to Heathrow last Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797682_1_20250327153912.jpg&q=90)
-  
-
-Britain's Civil Aviation Authority said it plans to set incentives for London's Heathrow to invest in its operations and provide high-quality service as part of the regulator's periodic review, days after a closure at the airport rocked airlines.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm](https://news.rthk.hk/rthk/en/component/k2/1797682-20250327.htm)
 
 ---

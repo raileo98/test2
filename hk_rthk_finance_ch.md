@@ -1,3 +1,51 @@
+# 植田和男：美國關稅對各國貿易活動有重大影響
+
+![植田和男表示，美國的關稅措施可能對每個國家貿易活動都產生重大影響。（日本央行圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798577_1_20250402104756.jpg&q=90)
+  
+
+日本央行總裁植田和男表示，美國的關稅措施可能對每個國家貿易活動都產生重大影響，具體視乎美國關稅而定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798577-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798577-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798577-20250402.htm)
+
+---
+
+# 日股半日升15點
+
+![日經指數反覆微升，半日收報35639點，升15點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798575_1_20250402103335.jpg&q=85)
+  
+
+日股反覆微升，日經指數最多跌近200點，半日收報35639點，升15點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798575-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798575-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798575-20250402.htm)
+
+---
+
 # 恒指一度失守23000點　小米跌逾3%
 
 ![恒指一度失守23000點，曾跌逾220點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798567_1_20250402095606.jpg&q=65)
@@ -1386,54 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798398-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798398-20250401.htm)
-
----
-
-# 日股半日升逾200點
-
-![日經指數半日報35825點，升208點，升幅0.58%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798400_1_20250401103308.jpg&q=90)
-  
-
-東京股市半日升逾200點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798400-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798400-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798400-20250401.htm)
-
----
-
-# 啟德發展區兩段新共融通道開放予公眾使用
-
-![啟德海濱花園近土瓜灣避風塘的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_1_20250401102511.jpg&q=90)
-![承豐道公園的一段共融通道。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798396_2_20250401111307.jpg&q=80)
-  
-
-發展局發言人表示，啟德發展區兩段新的共融通道分別位於承豐道公園及啟德海濱花園近土瓜灣避風塘，已開放予公眾使用，各長約1公里，市民可沿共融通道欣賞海濱景色。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798396-20250401.htm)
 
 ---

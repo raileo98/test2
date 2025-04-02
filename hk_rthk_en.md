@@ -1,3 +1,75 @@
+# Fo Tan murder suspect arrested in Thailand
+
+![The 25-year-old man who was wanted by SAR police has been arrested in Pattaya. Photo courtesy of Thailand's Immigration Bureau.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798572_1_20250402103000.jpg&q=90)
+  
+
+A 25-year-old Hong Kong man wanted by the police for his alleged involvement in a murder in Fo Tan last month has been arrested in Pattaya, Thailand.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798572-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798572-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798572-20250402.htm)
+
+---
+
+# Joe Chow appointed as new police commissioner
+
+![Joe Chow takes over as new police chief from his retiring predecessor Raymond Siu. Photo courtesy of the Hong Kong Police Force](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798573_1_20250402103051.jpg&q=90)
+  
+
+Beijing has named Joe Chow as the new commissioner of police, replacing Raymond Siu.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm)
+
+---
+
+# US senator makes record books with 25-hour talk-a-thon
+
+![Cory Booker takes a more animated turn during his marathon speech in the US Senate. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798571_1_20250402102752.jpg&q=90)
+  
+
+A Democratic US lawmaker shattered a record for the longest speech in Senate history, staying on his feet for more than 25 hours to deliver a fiery protest against President Donald Trump's "unconstitutional" actions.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm)
+
+---
+
 # Hong Kong stocks open marginally down
 
 ![The Hang Seng Index opened down 0.17 percent at 23,167. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798565_1_20250402094929.jpg&q=90)
@@ -1365,77 +1437,5 @@ Four of the world’s top football teams will be coming to Hong Kong this summer
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798296-20250331.htm)
-
----
-
-# Retail sales slip again in February
-
-![Hong Kong's retail sales dropped by 13 percent year on year in February, partly due to high pre-festival spending from the Lunar New Year holiday falling in the same month last year. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798288_1_20250331172638.jpg&q=90)
-  
-
-Hong Kong's retail sales suffered a notable decline last month, dropping by 13 percent year on year partially due to the different timing of the Lunar New Year holiday, according to official figures.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798288-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798288-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798288-20250331.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 1.3 percent at 23,119. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798291_1_20250331172815.jpg&q=55)
-  
-
-Hong Kong stocks ended lower on Monday, with the benchmark Hang Seng Index down 1.3 percent at 23,119.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798291-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798291-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798291-20250331.htm)
-
----
-
-# Le Pen hit with immediate court ban on public office
-
-![Marine Le Pen arrives in court for the verdict. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798290_1_20250331172739.jpg&q=85)
-  
-
-A French court on Monday banned far-right leader Marine Le Pen from running for office after her conviction over a fake jobs scheme, specifying that the sanction should come into force with immediate effect even if an appeal is lodged.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798290-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798290-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798290-20250331.htm)
 
 ---

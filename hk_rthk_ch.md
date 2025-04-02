@@ -1,5 +1,78 @@
+# 植田和男：美國關稅對各國貿易活動有重大影響
+
+![植田和男表示，美國的關稅措施可能對每個國家貿易活動都產生重大影響。（日本央行圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798577_1_20250402104756.jpg&q=90)
+  
+
+日本央行總裁植田和男表示，美國的關稅措施可能對每個國家貿易活動都產生重大影響，具體視乎美國關稅而定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798577-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798577-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798577-20250402.htm)
+
+---
+
+# 日股半日升15點
+
+![日經指數反覆微升，半日收報35639點，升15點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798575_1_20250402103335.jpg&q=85)
+  
+
+日股反覆微升，日經指數最多跌近200點，半日收報35639點，升15點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798575-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798575-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798575-20250402.htm)
+
+---
+
+# 有市民成年後即輪候公屋　何永賢冀矯正觀念
+
+![何永賢指本港過往曾有一段長時間沒有居屋，以致居屋的認購額超標30多倍至60倍不等，反映置業需求很大。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798576_1_20250402104736.jpg&q=80)
+  
+
+房屋局局長何永賢在本台電視節目《盤點政策》表示，接任局長兩年半以來，面對的最主要問題是房屋供應不足，本港過往曾有一段長時間沒有居屋，以致居屋的認購額超標30多倍至60倍不等，反映置業需求很大。對於有市民在18歲便輪候公屋，她認為要找機會理順或矯正這個觀念，重申居屋很重要，而且必須要持續供應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798576-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798576-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798576-20250402.htm)
+
+---
+
 # 解放軍東部戰區在東海實施遠端火力實彈射擊演練　取得預期效果
 
+![解放軍東部戰區陸軍部隊，按照「海峽雷霆-2025A」演練計劃。圖為央視播出昨天演訓的畫面。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798570_1_20250402103244.jpg&q=90)
   
 
 解放軍東部戰區陸軍部隊，按照「海峽雷霆-2025A」演練計劃，在東海相關海域實施遠程火力實彈射擊演練，對重要港口、能源設施等類比目標進行精確打擊，戰區新聞發言人施毅陸軍表示，演練取得預期效果。
@@ -49,7 +122,7 @@
 
 # 國務院任命周一鳴為警務處處長　免去蕭澤頤職務
 
-![國務院任命周一鳴為警務處處長。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798568_1_20250402100525.jpg&q=90)
+![國務院任命周一鳴為警務處處長。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798568_2_20250402104843.jpg&q=90)
   
 
 國務院任命周一鳴為新任警務處處長。
@@ -145,6 +218,7 @@
 
 # 文憑試中文科開考　業界的士義載逾百考生
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798563_1_20250402103432.jpg&q=65)
   
 
 文憑試首個核心科目中文科開考。香港的士小巴商總會今日發起義載活動，為文憑試考生提供免費的士接送服務。
@@ -1364,77 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm)
-
----
-
-# 回應美國制裁官員　警方指會繼續堅定不移維護國家及香港安全
-
-![警方回應，維護國家安全是警務人員的責任和榮譽。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798503_1_20250401205153.jpg&q=40)
-  
-
-美國國務院以進行跨國打壓及損害香港自治為由，制裁六名中央和香港特區官員，其中包括警務處處長蕭澤頤。警方回應，維護國家安全是警務人員的責任和榮譽。美國政府企圖用政治施壓手段嚴重干預警隊的執法工作，變相鼓吹違法行為。警隊會繼續做好本份，無畏無懼，堅定不移維護國家及香港安全，嚴正執法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798503-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798503-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798503-20250401.htm)
-
----
-
-# 比亞迪首季新能源汽車銷量按年升近60%
-
-![比亞迪3月新能源汽車銷量按年升近25%，首季升近60%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798502_1_20250401193701.jpg&q=90)
-  
-
-比亞迪公布，3月新能源汽車銷量逾37.7萬輛，按年升近25%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm)
-
----
-
-# 特區救援隊：災區非常惡劣兩次緊急撤離部署　冀盡早救出被困人士
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798501_1_20250401192854.jpg&q=70)
-  
-
-特區救援隊繼續在緬甸曼特勒災區搜救。正在當地的特區救援隊指揮官趙汝珏接受本台訪問時表示，當地大規模樓宇倒塌、道路裂開，情況非常惡劣。特區救援隊抵達曼特勒災區基地後，與國家救援隊舉行會議，之後出發參與搜救，特區救援隊至今出動27次，到26個地點搜救。他說，抵達曼特勒後，曾面對3次餘震，救援隊在其中兩次餘震發生時要作緊急撤離部署。雖然暫未尋獲生還者，但會繼續根據求助報告搜救，希望盡早救出被困人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm)
 
 ---
