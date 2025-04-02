@@ -1,3 +1,27 @@
+# 美股高收　市場關注特朗普關稅措施細節
+
+![美股反覆高收，收市後總統特朗普公布新關稅措施細節。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798712_1_20250403044653.jpg&q=90)
+  
+
+紐約股市先跌後升，走勢反覆。美股收市後，總統特朗普公布新關稅措施細節。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798712-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798712-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798712-20250403.htm)
+
+---
+
 # 特朗普宣布對外國汽車徵25%關稅　稱職位和本土製造將重返美國
 
 ![美國總統特朗普在白宮發表講話，宣布新關稅措施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798711_1_20250403043642.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798645-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798645-20250402.htm)
-
----
-
-# 有老師認為文憑試中文科兩份卷難度適中
-
-![有考生表示，卷一試卷並非太難，文言文篇章容易理解。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798643_1_20250402170426.jpg&q=80)
-  
-
-文憑試首個核心科目中文科今日開考，近4萬9千人報考。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm)
 
 ---
