@@ -1,5 +1,53 @@
+# 鄧炳強感謝國家及特區救援隊救出生還者
+
+  
+
+保安局局長鄧炳強表示，剛剛收到特區救援隊帶來好消息，於曼德勒65街一間酒店的瓦礫中救出生還者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm)
+
+---
+
+# 緬甸地震｜特區與國家救援隊救出一名被困逾120小時男子
+
+![中國救援隊聯同特區救援隊於緬甸救出一名被困逾120小時男子。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798673_1_20250402201044.jpg&q=90)
+  
+
+中國救援隊聯同特區救援隊，在緬甸曼德勒救出一名被困超過120小時的男子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm)
+
+---
+
 # 多名議員支持規範籃球博彩　打擊非法賭博
 
+![政府建議參考規管足球博彩的做法，透過修例訂立規管框架，向馬會發出籃球博彩牌照，並制定相關牌照條件。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798672_1_20250402200703.jpg&q=90)
   
 
 政府就規範籃球博彩活動的建議方案展開一個月諮詢，諮詢期至下月2日。政府建議參考規管足球博彩的做法，透過修例訂立規管框架，向馬會發出牌照，並制定相關牌照條件。政府建議條件包括不得接受本港球隊賽事投注等。
@@ -23,6 +71,7 @@
 
 # 團結香港基金認為以片區發展生態旅遊項目具連貫性
 
+![未來白泥模擬圖。（北部都會區）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798671_1_20250402200619.jpg&q=80)
   
 
 發展局邀請市場分別就前南丫島石礦場用地、南大嶼生態康樂走廊，以及尖鼻咀及白泥的生態旅遊發展項目，提交意向書，為期3個月。
@@ -94,7 +143,11 @@
 
 # 石泰峰調任中組部部長　李干杰改任統戰部部長
 
+![石泰峰出任中組部部長（左）、李干杰則轉任統戰部部長。（新華社資圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798667_1_20250402200824.jpg&q=90)
   
+
+中共中央組織部及中共中央統戰部的部長對調職務，統戰部原部長石泰峰調任中組部部長，中組部原部長李干杰改任中央統戰部部長。兩人都是政治局委員、中央書記處書記，同屬副國級領導人。
+
   
 
 
@@ -259,7 +312,7 @@
 
 # 火炭謀殺案刀手潛逃泰國落網　警方商討移送潛逃內地被捕2人
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798660_1_20250402190421.jpg&q=90)
+![警方表示，正與內地商討潛逃內地後被捕2名人士的移送安排。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798660_1_20250402190421.jpg&q=90)
   
 
 火炭上月發生謀殺案，一名52歲男子被人用刀襲擊，傷重不治。警方已拘捕兩名懷疑策劃今次事件的主謀，以及3名懷疑協助兇徒潛逃的人士，昨日再拘捕一度潛逃泰國的25歲刀手。

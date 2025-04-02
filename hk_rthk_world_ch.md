@@ -1,3 +1,27 @@
+# 緬甸地震｜特區與國家救援隊救出一名被困逾120小時男子
+
+![中國救援隊聯同特區救援隊於緬甸救出一名被困逾120小時男子。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798673_1_20250402201044.jpg&q=90)
+  
+
+中國救援隊聯同特區救援隊，在緬甸曼德勒救出一名被困超過120小時的男子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm)
+
+---
+
 # 陳國基到緬甸駐港總領事館簽弔唁冊　稱盡快安排將物資運抵災區
 
 ![陳國基到緬甸駐港總領事館簽弔唁冊，又與緬甸駐港總領事交流，對遇難者表示沉痛哀悼。（陳國基社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798665_1_20250402190642.jpg&q=90)
@@ -48,7 +72,7 @@
 
 # 火炭謀殺案刀手潛逃泰國落網　警方商討移送潛逃內地被捕2人
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798660_1_20250402190421.jpg&q=90)
+![警方表示，正與內地商討潛逃內地後被捕2名人士的移送安排。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798660_1_20250402190421.jpg&q=90)
   
 
 火炭上月發生謀殺案，一名52歲男子被人用刀襲擊，傷重不治。警方已拘捕兩名懷疑策劃今次事件的主謀，以及3名懷疑協助兇徒潛逃的人士，昨日再拘捕一度潛逃泰國的25歲刀手。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798340-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798340-20250401.htm)
-
----
-
-# 瑪麗娜勒龐挪用歐洲議會資金罪成禁選公職　或無緣2027選總統
-
-![瑪麗娜勒龐星期一到庭聽取裁決結果。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798339_1_20250401002257.jpg&q=90)
-  
-
-法國極右領袖瑪麗娜勒龐及她所屬政黨國民聯盟的多名成員，被法院裁定挪用歐洲議會公款罪名成立，瑪麗娜勒龐被判監4年，其中兩年緩刑，5年內不得參選公職，罰款10萬歐元，瑪麗娜勒龐的律師表明會上訴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798339-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798339-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798339-20250401.htm)
 
 ---

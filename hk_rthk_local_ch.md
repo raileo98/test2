@@ -1,5 +1,53 @@
+# 鄧炳強感謝國家及特區救援隊救出生還者
+
+  
+
+保安局局長鄧炳強表示，剛剛收到特區救援隊帶來好消息，於曼德勒65街一間酒店的瓦礫中救出生還者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm)
+
+---
+
+# 緬甸地震｜特區與國家救援隊救出一名被困逾120小時男子
+
+![中國救援隊聯同特區救援隊於緬甸救出一名被困逾120小時男子。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798673_1_20250402201044.jpg&q=90)
+  
+
+中國救援隊聯同特區救援隊，在緬甸曼德勒救出一名被困超過120小時的男子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm)
+
+---
+
 # 多名議員支持規範籃球博彩　打擊非法賭博
 
+![政府建議參考規管足球博彩的做法，透過修例訂立規管框架，向馬會發出籃球博彩牌照，並制定相關牌照條件。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798672_1_20250402200703.jpg&q=90)
   
 
 政府就規範籃球博彩活動的建議方案展開一個月諮詢，諮詢期至下月2日。政府建議參考規管足球博彩的做法，透過修例訂立規管框架，向馬會發出牌照，並制定相關牌照條件。政府建議條件包括不得接受本港球隊賽事投注等。
@@ -23,6 +71,7 @@
 
 # 團結香港基金認為以片區發展生態旅遊項目具連貫性
 
+![未來白泥模擬圖。（北部都會區）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798671_1_20250402200619.jpg&q=80)
   
 
 發展局邀請市場分別就前南丫島石礦場用地、南大嶼生態康樂走廊，以及尖鼻咀及白泥的生態旅遊發展項目，提交意向書，為期3個月。
@@ -167,7 +216,7 @@
 
 # 火炭謀殺案刀手潛逃泰國落網　警方商討移送潛逃內地被捕2人
 
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798660_1_20250402190421.jpg&q=90)
+![警方表示，正與內地商討潛逃內地後被捕2名人士的移送安排。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798660_1_20250402190421.jpg&q=90)
   
 
 火炭上月發生謀殺案，一名52歲男子被人用刀襲擊，傷重不治。警方已拘捕兩名懷疑策劃今次事件的主謀，以及3名懷疑協助兇徒潛逃的人士，昨日再拘捕一度潛逃泰國的25歲刀手。
@@ -1389,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798496-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798496-20250401.htm)
-
----
-
-# 夏寶龍會見港協暨奧委會會長霍震霆一行　冀繼續高舉愛國愛港旗幟
-
-![在北京，中央港澳辦、國務院港澳辦主任夏寶龍（右）會見港協暨奧委會會長霍震霆（左）等人。（港協暨奧委會提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798495_1_20250401192053.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見港協暨奧委會會長霍震霆等人，指港協在發展和推廣體育運動，促進香港與內地以及世界各國各地區體育交流合作等方面，發揮了重要作用。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm)
-
----
-
-# 特區政府強烈譴責和反對美國《香港政策法》報告
-
-![特區政府就美國發表所謂2025年《香港政策法》報告中對香港特區各方面情況的失實言論和污衊抹黑，表示強烈譴責和反對。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798494_1_20250401185407.jpg&q=90)
-  
-
-特區政府就美國發表所謂2025年《香港政策法》報告中對香港特區各方面情況的失實言論和污衊抹黑，表示強烈譴責和反對，當中內容明顯是為保護美國獨大的政治目的而編製，再次顯露美國霸權主義下的野蠻，為打壓其他地方的發展權利和安全利益而堆砌故事穿鑿附會，是明顯為服務美國自身政治利益而創作的製成品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm)
 
 ---
