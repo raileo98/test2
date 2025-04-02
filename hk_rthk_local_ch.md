@@ -1,5 +1,29 @@
+# 周一鳴認為社會存在軟對抗　無懼制裁不影響與海外合作
+
+  
+
+新任警務處處長周一鳴表示，《香港國安法》及《維護國家安全條例》實施有如「定海神針」，雖然社會平靜，但暗湧處處，很多人以不同方式「軟對抗」，希望透過媒體、文化藝術項目嘗試煽動其他人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798606-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798606-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798606-20250402.htm)
+
+---
+
 # 陳美寶：的士車隊以不同方法羅致司機　運輸署將監察運作表現
 
+![陳美寶希望車隊正式運作時，可加速業界積極招聘有質素和有活力的司機加盟，更好服務市民。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798604_1_20250402134431.jpg&q=90)
   
 
 運輸及物流局局長陳美寶出席一項活動後主動回應的士車隊問題。她表示，當局最近推動一系列的士改革措施，有5個車隊成立，按運輸署計劃，車隊需要在今年7月底或之前正式運作。她說知道車隊以不同方法羅致和聘用司機，希望車隊正式運作時，可加速業界積極招聘有質素和有活力的司機加盟，更好服務市民。
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798418-20250401.htm)
-
----
-
-# 5隊的士車隊未獲正式車隊牌照　運輸署：積極協助各車隊籌備工作
-
-![運輸署於2024年7月底向5間獲選的的士車隊營辦商，發出的士車隊牌照的「有條件暫准通知」。（運輸署社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798409_1_20250401121852.jpg&q=90)
-  
-
-早前獲政府批出的5隊的士車隊，現時未獲發正式車隊牌照，全部只獲「有條件暫准通知」。現正試營運的包括「樂行」和「星群的士」兩支車隊。運輸署回覆查詢表示，署方一直積極協助各車隊的籌備工作。試行的安排可讓市民率先體驗新品牌的服務，亦有助車隊收集營運經驗和用家回饋。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm)
 
 ---
