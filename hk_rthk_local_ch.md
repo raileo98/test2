@@ -1,3 +1,27 @@
+# 中國救援隊伍在緬甸救出第九名倖存者　特區救援隊參與聯合救援
+
+![中國救援隊伍救出一名被困近125小時的52歲緬甸男性。（消防處FB圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798698_1_20250403002255.jpg&q=90)
+  
+
+中國救援隊伍在緬甸地震災區救出第九名倖存者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm)
+
+---
+
 # 政府完成黃大仙竹園聯合村聯合行動　相關用地日後發展公營房屋
 
 ![發展局表示，在照顧受發展影響住戶的同時，亦須確保發展計劃按時完成，無法再延長遷出寬限期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798695_1_20250402230234.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798552-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798552-20250402.htm)
-
----
-
-# 訪西藏旅客按年升15%　香港拉薩直航開通後增港旅客
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
-  
-
-西藏去年累計接待超過6300萬遊客人次，按年增加15%，創下歷史新高，旅遊相關產業佔當地生產總值約三成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm)
 
 ---

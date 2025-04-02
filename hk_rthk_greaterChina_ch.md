@@ -1,3 +1,27 @@
+# 中國救援隊伍在緬甸救出第九名倖存者　特區救援隊參與聯合救援
+
+![中國救援隊伍救出一名被困近125小時的52歲緬甸男性。（消防處FB圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798698_1_20250403002255.jpg&q=90)
+  
+
+中國救援隊伍在緬甸地震災區救出第九名倖存者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm)
+
+---
+
 # 韓正晤滙豐集席杜嘉祺　冀集團為促進中英關係發展作貢獻
 
 ![韓正與英國滙豐集團主席杜嘉祺會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798690_1_20250402223133.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798369-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798369-20250401.htm)
-
----
-
-# 外交部駐港公署強烈譴責美國制裁中央和特區官員　將堅決反制
-
-![發言人指，中方必將採取有力措施堅決反制。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798350_1_20250401041931.jpg&q=85)
-  
-
-外交部駐港公署強烈譴責並堅決反對美國國務院制裁6名中央和香港特區政府官員，指美方所謂制裁再次暴露破壞香港繁榮穩定、遏制中國發展的險惡用心，中方必將採取有力措施堅決反制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798350-20250401.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 中國救援隊伍在緬甸救出第九名倖存者　特區救援隊參與聯合救援
+
+![中國救援隊伍救出一名被困近125小時的52歲緬甸男性。（消防處FB圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798698_1_20250403002255.jpg&q=90)
+  
+
+中國救援隊伍在緬甸地震災區救出第九名倖存者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm)
+
+---
+
 # 瑪麗娜勒龐上訴案明夏裁決　馬克龍籲尊重法院獨立作出的判決
 
 ![被定罪後，瑪麗娜勒龐批評判決出於政治動機。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798697_1_20250402235011.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798627-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798627-20250402.htm)
-
----
-
-# 內地股市收市變動不大
-
-![上證指數收報3350點，升1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798624_1_20250402151120.jpg&q=90)
-  
-
-滬深股市收市變動不大，兩市成交不足1萬億元人民幣。汽車產業鏈、人形機器人概念股上升，但電力股、軍工股向下。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798624-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798624-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798624-20250402.htm)
 
 ---
