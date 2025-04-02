@@ -1,3 +1,51 @@
+# Tesla sales slump as pressure piles on Musk
+
+![The number of autos delivered globally dropped by 13 percent in the first three months of 2025. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798709_1_20250403033051.jpg&q=90)
+  
+
+Tesla's worldwide sales tumbled in the first quarter, figures showed on Wednesday, piling further pressure on CEO Elon Musk who faces a growing backlash for his role overseeing US federal spending cuts under President Donald Trump.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm)
+
+---
+
+# Myanmar junta declares quake ceasefire
+
+![The military government said it would observe a ceasefire from Wednesday until April 22 to make quake relief efforts easier. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798707_1_20250403032440.jpg&q=50)
+  
+
+Myanmar's junta announced a temporary ceasefire on Wednesday as the death toll from a devastating earthquake rose and desperate survivors pleaded for more help amid frantic scenes of aid distribution.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm)
+
+---
+
 # Trump unveils sweeping global tariffs
 
 ![Donald Trump – who held up a chart with a list of levies – has said  the US "has been looted, pillaged, raped and plundered by nations near and far, both friend and foe alike". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798719_1_20250403055136.jpg&q=90)
@@ -1387,55 +1435,5 @@ The earthquake in Myanmar was felt in China's Yunnan and Sichuan provinces and c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm)
-
----
-
-# Quake-hit Myanmar junta appeals for international aid
-
-![An earthquake survivor is carried to a hospital in Naypyidaw, Myanmar. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_2_20250328170355.jpg&q=85)
-![Myanmar's military chief Min Aung Hlaing arrives at the main hospital in Naypyidaw that was hit by the temblors. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797891_4_20250328173219.jpg&q=90)
-  
-
-Myanmar's ruling junta made a rare request for international humanitarian aid and declared a state of emergency across six regions after a powerful quake hit the country on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797891-20250328.htm)
-
----
-
-# Myanmar hospital 'a mass casualty area' after tremors
-
-![Healthcare workers treat a earthquake survivor on a bed in the compound of the hospital in Naypyidaw. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797887_1_20250328165127.jpg&q=85)
-![A road in Naypyidaw is left virtually unpassable in the wake of the earthquake. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797887_2_20250328165127.jpg&q=80)
-  
-
-A major hospital in the Myanmar capital Naypyidaw is a "mass casualty area" after the country was rocked by a huge earthquake, an official at the facility said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm)
 
 ---

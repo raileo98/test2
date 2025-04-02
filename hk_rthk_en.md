@@ -1,3 +1,51 @@
+# Tesla sales slump as pressure piles on Musk
+
+![The number of autos delivered globally dropped by 13 percent in the first three months of 2025. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798709_1_20250403033051.jpg&q=90)
+  
+
+Tesla's worldwide sales tumbled in the first quarter, figures showed on Wednesday, piling further pressure on CEO Elon Musk who faces a growing backlash for his role overseeing US federal spending cuts under President Donald Trump.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798709-20250403.htm)
+
+---
+
+# Myanmar junta declares quake ceasefire
+
+![The military government said it would observe a ceasefire from Wednesday until April 22 to make quake relief efforts easier. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798707_1_20250403032440.jpg&q=50)
+  
+
+Myanmar's junta announced a temporary ceasefire on Wednesday as the death toll from a devastating earthquake rose and desperate survivors pleaded for more help amid frantic scenes of aid distribution.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798707-20250403.htm)
+
+---
+
 # Trump unveils sweeping global tariffs
 
 ![Donald Trump – who held up a chart with a list of levies – has said  the US "has been looted, pillaged, raped and plundered by nations near and far, both friend and foe alike". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798719_1_20250403055136.jpg&q=90)
@@ -1390,54 +1438,5 @@ Secretary for Justice Paul Lam has stressed sanctions imposed by the United Stat
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798426-20250401.htm)
-
----
-
-# Celtics, Thunder keep NBA winning streaks alive
-
-![Al Horford led the way for Boston with 26 points against Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798427_1_20250401125147.jpg&q=90)
-![Isaiah Joe came up big off the bench in the Thunder's win over the Bulls. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798427_2_20250401125400.jpg&q=90)
-  
-
-Veteran Al Horford turned back the clock to help the NBA champion Boston Celtics notch a ninth straight victory and nab a franchise first with a 117-103 win over the Grizzlies in Memphis.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798427-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798427-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798427-20250401.htm)
-
----
-
-# Top court overturns ex-lawmaker's acquittal
-
-![In a 3-2 ruling, the Court of Final Appeal overturns former lawmaker Lam Cheuk-ting's acquittal. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798417_1_20250401121740.jpg&q=80)
-  
-
-Hong Kong's top court has overturned the acquittal of a former lawmaker for revealing that a police officer who was on duty during clashes in Yuen Long amid the 2019 protests was facing an anti-graft probe.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798417-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798417-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798417-20250401.htm)
 
 ---
