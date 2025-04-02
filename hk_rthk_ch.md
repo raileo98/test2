@@ -1,3 +1,24 @@
+# 李家超：深信周一鳴定能有力帶領警隊　迎接未來挑戰
+
+![李家超形容周一鳴表現卓越，具領導才能，又說深信他一定能夠有力帶領警隊，迎接未來挑戰。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798579_1_20250402110853.jpg&q=90)
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798579-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798579-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798579-20250402.htm)
+
+---
+
 # 植田和男：美國關稅對各國貿易活動有重大影響
 
 ![植田和男表示，美國的關稅措施可能對每個國家貿易活動都產生重大影響。（日本央行圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798577_1_20250402104756.jpg&q=90)
@@ -75,7 +96,7 @@
 ![解放軍東部戰區陸軍部隊，按照「海峽雷霆-2025A」演練計劃。圖為央視播出昨天演訓的畫面。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798570_1_20250402103244.jpg&q=90)
   
 
-解放軍東部戰區陸軍部隊，按照「海峽雷霆-2025A」演練計劃，在東海相關海域實施遠程火力實彈射擊演練，對重要港口、能源設施等類比目標進行精確打擊，戰區新聞發言人施毅陸軍表示，演練取得預期效果。
+解放軍東部戰區陸軍部隊，按照「海峽雷霆-2025A」演練計劃，在東海相關海域實施遠程火力實彈射擊演練，對重要港口、能源設施等模擬目標進行精確打擊，戰區新聞發言人施毅陸軍表示，演練取得預期效果。
 
   
 
@@ -483,7 +504,7 @@
 
 # 訪西藏旅客按年升15%　香港拉薩直航開通後增港旅客
 
-![有本港導遊說，今年2月香港至拉薩直航機開通後，到西藏旅遊港人增加，圖為著名景點布達拉宮。（葉耀坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
   
 
 西藏去年累計接待超過6300萬遊客人次，按年增加15%，創下歷史新高，旅遊相關產業佔當地生產總值約三成。
@@ -1414,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm)
-
----
-
-# 緬甸地震　63歲女子被困91小時後獲救
-
-![俄羅斯救援人員協助搜索地震災區。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798504_1_20250401200751.jpg&q=85)
-  
-
-緬甸中部大地震，首都內比都一名63歲女子被困91小時後獲救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm)
 
 ---

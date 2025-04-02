@@ -1,3 +1,24 @@
+# 李家超：深信周一鳴定能有力帶領警隊　迎接未來挑戰
+
+![李家超形容周一鳴表現卓越，具領導才能，又說深信他一定能夠有力帶領警隊，迎接未來挑戰。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798579_1_20250402110853.jpg&q=90)
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798579-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798579-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798579-20250402.htm)
+
+---
+
 # 有市民成年後即輪候公屋　何永賢冀矯正觀念
 
 ![何永賢指本港過往曾有一段長時間沒有居屋，以致居屋的認購額超標30多倍至60倍不等，反映置業需求很大。（節目截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798576_1_20250402104736.jpg&q=80)
@@ -195,7 +216,7 @@
 
 # 訪西藏旅客按年升15%　香港拉薩直航開通後增港旅客
 
-![有本港導遊說，今年2月香港至拉薩直航機開通後，到西藏旅遊港人增加，圖為著名景點布達拉宮。（葉耀坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
   
 
 西藏去年累計接待超過6300萬遊客人次，按年增加15%，創下歷史新高，旅遊相關產業佔當地生產總值約三成。
@@ -1419,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798384-20250401.htm)
-
----
-
-# 鍾麗玲：以顧客資料助建立AI言語模型需徵得同意
-
-![鍾麗玲提醒機構輸入顧客資料受到私隱條例規管，如涉及改變用途目的，需要取得客戶同意。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798383_1_20250401092917.jpg&q=90)
-  
-
-個人資料私隱專員公署公布指引，協助機構制定使用生成式AI的內部政策。私隱專員鍾麗玲表示，不少企業以生成式AI提高產品質素，用作起草文件或製作短片，而生成式AI特別是言語模型，需要很大量數據及文字。她提醒有關機構輸入顧客資料，是受私隱條例規管，如果涉及改變用途目的，需要取得客戶同意。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798383-20250401.htm)
 
 ---

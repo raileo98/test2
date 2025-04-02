@@ -216,7 +216,7 @@
 
 # 訪西藏旅客按年升15%　香港拉薩直航開通後增港旅客
 
-![有本港導遊說，今年2月香港至拉薩直航機開通後，到西藏旅遊港人增加，圖為著名景點布達拉宮。（葉耀坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
   
 
 西藏去年累計接待超過6300萬遊客人次，按年增加15%，創下歷史新高，旅遊相關產業佔當地生產總值約三成。
