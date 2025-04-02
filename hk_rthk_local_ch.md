@@ -1,3 +1,123 @@
+# 何永賢：必須持續供應居屋　成為年輕人置業希望
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798648_1_20250402181632.jpg&q=85)
+  
+
+房屋局局長何永賢接受本台節目《盤點政策》訪問。她表示，居屋認購超額30多倍至60倍不等，反映置業需求很大，認為必須持續供應居屋，成為年輕人的置業希望。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798648-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798648-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798648-20250402.htm)
+
+---
+
+# 湯修齊歡迎政府加強控煙決心　冀明年檢討包括禁「火車頭」
+
+![湯修齊表示，歡迎政府加強控煙的決心，相信措施執行後，有助降低本港吸煙率及防止年青人成為吸煙人士。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798657_1_20250402181936.jpg&q=80)
+  
+
+消息指，政府最快本月底向立法會提交控煙修訂條例草案，包括擴大禁煙範圍，排隊輪候公共交通工具的地方例如巴士站，以及排隊進入指定場所例如體育館等，亦禁止吸煙。吸煙與健康委員會主席湯修齊表示，控煙十招全數推出，歡迎政府加強控煙的決心，相信措施執行後，有助降低本港吸煙率及防止年青人成為吸煙人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798657-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798657-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798657-20250402.htm)
+
+---
+
+# 曾國衞：立法會功能界別選舉以點票機點票　可減省投票後工作
+
+![曾國衞表示，經與選管會研究後，建議整合功能界別選舉的選票結算表。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798656_1_20250402181903.jpg&q=90)
+  
+
+立法會換屆選舉將於今年12月7日舉行，當局提出修訂部分選舉法例，參考選委會界別分組選舉及立法會選委會界別選舉中使用點票機的做法和經驗後，當局建議賦權選管會在功能界別選舉，也可以使用點票機進行點票。而與相關點票程序的法例亦須作出相應調整，如毋須在點票前以人手方式將選票按界別分類等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798656-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798656-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798656-20250402.htm)
+
+---
+
+# 李家超晤訪港江西省省長　商討加強贛港合作
+
+![李家超（右）在禮賓府與江西省省長葉建春（左）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798655_1_20250402181156.jpg&q=90)
+  
+
+​行政長官李家超在禮賓府與率團訪港的江西省省長葉建春會面，就加強贛港合作交流意見。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798655-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798655-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798655-20250402.htm)
+
+---
+
+# 火炭謀殺案泰國落網疑犯被押往案發現場重組案情
+
+![疑犯被黑布蒙頭，戴上白手套，被帶到火炭麗禾里行人路。（施華駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798654_1_20250402181124.jpg&q=60)
+  
+
+火炭上月發生謀殺案，一名52歲男子被人用刀襲擊，傷重不治，警方下午押解疑犯在案發現場重組案情。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798654-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798654-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798654-20250402.htm)
+
+---
+
 # 分析料本港整體經濟下半年有較大起色　美國關稅影響不算太嚴重
 
 ![謝家曦表示，本地需求仍有隠憂，整體經濟可能要到下半年才有較大起色。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798651_1_20250402174448.jpg&q=85)
@@ -48,7 +168,7 @@
 
 # 衞生署報告：學童以電子屏幕產品娛樂有上升趨勢
 
-![張竹君表示，問卷內容與過去幾年相若，由學童自行填寫答案，得出結果趨勢相近，但數字不一定完全反映真實情況。（陳曉筠攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798642_1_20250402170200.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798642_1_20250402170200.jpg&q=90)
   
 
 衞生署公布《學生健康服務2023至24學年周年健康報告》。今次是新冠疫情後，首次全面恢復為所有中小學生提供周年健康檢查，共有約25萬7000名小學生，以及17萬3000名中學生接受服務，出席率佔原本報名人數大約七成。
@@ -216,6 +336,7 @@
 
 # 文憑試中文卷一文言文談安史之亂　作文題包括「為不完美添色彩」
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798618_1_20250402181159.jpg&q=90)
   
 
 文憑試首個核心科目中文科今日開考，共有4萬8千人報考。
@@ -1318,126 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm)
-
----
-
-# 港澳辦：美國制裁暴露霸權霸道　黔驢技窮歇斯底里
-
-![發言人表示，美國所謂報告的鼓噪和制裁的恫嚇，絲毫動搖不了中央政府和香港特區政府維護國家安全和香港法治的決心意志。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798477_1_20250401174045.jpg&q=80)
-  
-
-國務院港澳辦表示，強烈反對、嚴厲譴責美國國務院發表所謂「香港政策法報告」，抹黑詆毀香港國安法治並對中央政府和香港特區政府有關官員實施所謂制裁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm)
-
----
-
-# 高山道社區客廳開幕　料每年服務8萬人次
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798474_1_20250401171326.jpg&q=90)
-  
-
-位於高山道的社區客廳今日起開放，為期3年，為九龍城區劏房戶提供服務，開放時間為每日早上11時至晚上10時。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798474-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798474-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798474-20250401.htm)
-
----
-
-# 特區救援隊與國家隊展開首次緬甸地震聯合搜救
-
-![特區救援隊今早與中國救援隊在一受災區域進行首次聯合行動。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_1_20250401171159.jpg&q=80)
-![特區救援隊繼續在緬甸曼德勒災區搜救。（消防處片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_3_20250401184459.jpg&q=90)
-  
-
-特區救援隊繼續在緬甸曼德勒災區搜救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm)
-
----
-
-# 中聯辦斥美國亂港遏華用心險惡　注定徒勞無功
-
-![中聯辦表示，國家安全是香港長期繁榮穩定的基石，堅定不移依法維護國家安全，是對香港法治、民主、人權和自由的最根本保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798468_1_20250401171248.jpg&q=85)
-  
-
-中聯辦強烈譴責美國國務院對中央駐港機構和香港特區政府有關官員進行所謂「制裁」，及發表惡意抹黑香港民主法治的「2025年香港政策法報告」。中聯辦指出，美國再次以卑劣手段粗暴干涉中國內政和香港事務，粗暴踐踏國際法原則和國際關係基本準則，充分暴露其亂港遏華的險惡用心，但注定徒勞無功。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm)
-
----
-
-# 麥美娟稱區議員交代接觸市民數字做法史無前例
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798461_1_20250401171113.jpg&q=90)
-  
-
-本屆區議員工作報告昨日起在各區民政事務處供市民查閱。民政及青年事務局局長麥美娟出席活動時被問到報告為何不放上網、市民亦不能用手機拍攝；她回應，各區民政處有提供報告複印服務，亦按政府一般提供影印文件服務的收費。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798461-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798461-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798461-20250401.htm)
 
 ---

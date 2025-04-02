@@ -1,9 +1,33 @@
+# Tibet tourist numbers soar to all-time high
+
+![The Potala Palace in Lhasa is a top tourist attraction. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798638_1_20250402164919.jpg&q=85)
+  
+
+Visitor numbers to the Tibet region reached 63 million last year, its highest ever.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798638-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798638-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798638-20250402.htm)
+
+---
+
 # Teen held over mass killings plan outside mosques
 
 ![The 17-year-old is alleged to have targeted five mosques in Singapore as part of his plan to kill at least 100 Muslims. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798653_1_20250402175858.jpg&q=75)
   
 
-A Singaporean teenager allegedly planning to kill dozens of Muslims outside several mosques has been detained, the city-state's Internal Security Department said on Wednesday.
+A Singaporean teenager allegedly planning to kill dozens of Muslims outside several mosques has been detained, the city-state's Internal Security Department (ISD) said on Wednesday.
 
   
 
@@ -1414,29 +1438,5 @@ South Korea’s Constitutional Court said it will rule on whether to formally di
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798397-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798397-20250401.htm)
-
----
-
-# Hong Kong stocks rise ahead of Trump tariffs
-
-![US President Donald Trump will announces his new tariff regime on Wednesday. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798391_1_20250401101418.jpg&q=65)
-  
-
-The Hang Seng Index gained 97.53 points, or 0.42 percent, to open at 23,217.11 points on Tuesday, as the market prepares for more news about US tariffs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798391-20250401.htm)
 
 ---
