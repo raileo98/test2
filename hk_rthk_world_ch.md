@@ -1,3 +1,27 @@
+# 以色列宣布擴大加沙軍事行動　迫使哈馬斯釋放人質
+
+![以軍在加沙南部巡邏。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798703_1_20250403021527.jpg&q=75)
+  
+
+以色列宣布擴大在加沙的軍事行動，迫使巴勒斯坦武裝組織哈馬斯釋放人質。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798703-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798703-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798703-20250403.htm)
+
+---
+
 # 白宮：馬斯克完成政府效率部工作後將離開公職
 
 ![馬斯克與特朗普關係密切。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798702_1_20250403014233.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798361-20250401.htm)
-
----
-
-# 曼谷倒塌大樓有鋼材樣本不符合標準　曼谷解除地震災區公告
-
-![當局出動大型機械清理瓦礫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798351_1_20250401045552.jpg&q=85)
-  
-
-緬甸中部大地震在泰國造成的死亡人數增至最少20人，救援人員繼續在曼谷翟道翟興建中審計局辦公大樓倒塌現場，搜索仍然失蹤的70多名建築工人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798351-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798351-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798351-20250401.htm)
 
 ---
