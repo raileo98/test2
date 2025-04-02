@@ -1,3 +1,27 @@
+# 解放軍東部戰區宣布圓滿完成一連兩天聯合演訓
+
+![解放軍東部戰區宣布圓滿完成一連兩天聯合演訓，山東艦航母編隊參與第二日演練。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798668_1_20250402192112.jpg&q=90)
+  
+
+解放軍東部戰區晚上宣布圓滿完成一連兩天聯合演訓。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798668-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798668-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798668-20250402.htm)
+
+---
+
 # 國台辦主任宋濤：「台獨」分子惡行必遭懲處
 
 ![中共中央台辦、國務院台辦主任宋濤會見國民黨副主席夏立言，指任何謀「獨」挑釁必定失敗，「台獨」分子惡行必遭懲處。（中國台灣網）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798666_1_20250402191022.jpg&q=90)
@@ -70,6 +94,9 @@
 
 ![警方表示，正與內地商討潛逃內地後被捕2名人士的移送安排。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798660_1_20250402190421.jpg&q=90)
   
+
+火炭上月發生謀殺案，一名52歲男子被人用刀襲擊，傷重不治。警方已拘捕兩名懷疑策劃今次事件的主謀，以及3名懷疑協助兇徒潛逃的人士，昨日再拘捕一度潛逃泰國的25歲刀手。
+
   
 
 
@@ -351,7 +378,7 @@
 
 ---
 
-# 解放軍東部戰區在東海實施遠端火力實彈射擊演練　取得預期效果
+# 解放軍東部戰區在東海實施遠程火力實彈射擊演練　取得預期效果
 
 ![解放軍東部戰區陸軍部隊，按照「海峽雷霆-2025A」演練計劃，在東海相關海域實施遠程火力實彈射擊演練。圖為央視播出昨天演訓的畫面。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798570_1_20250402103244.jpg&q=90)
   
@@ -1408,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798320-20250331.htm)
-
----
-
-# 克宮料普京未來幾日內與到訪的王毅會面
-
-![佩斯科夫表示，預計普京將在未來幾日內與王毅會面。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798319_1_20250331201559.jpg&q=90)
-  
-
-中共中央政治局委員、外交部長王毅應俄羅斯外長拉夫羅夫邀請，今日至後日對俄羅斯進行正式訪問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm)
 
 ---
