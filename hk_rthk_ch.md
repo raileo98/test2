@@ -1,3 +1,27 @@
+# 特朗普簽署行政命令　取消中國內地和香港的小額包裹豁免關稅政策
+
+![特朗普公布新關稅政策，並即場簽署行政命令。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798725_1_20250403062020.jpg&q=90)
+  
+
+美國總統特朗普簽署行政命令，取消對來自中國內地和香港的小額包裹豁免關稅政策，5月2日起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798725-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798725-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798725-20250403.htm)
+
+---
+
 # 美元匯價下跌　市場關注新關稅措施或拖累經濟
 
 ![特朗普公布對等關稅措施，市場憂慮觸發貿易戰損害經濟，不利美元匯價。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798721_1_20250403060849.jpg&q=75)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798654-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798654-20250402.htm)
-
----
-
-# 分析料本港整體經濟下半年有較大起色　美國關稅影響不算太嚴重
-
-![謝家曦表示，本地需求仍有隠憂，整體經濟可能要到下半年才有較大起色。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798651_1_20250402174448.jpg&q=85)
-  
-
-港大經濟及商業策略研究所亞太經濟合作研究項目預測，本港首季經濟按年增長1.6%，第2季經濟增速將加快至2.5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798651-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798651-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798651-20250402.htm)
 
 ---
