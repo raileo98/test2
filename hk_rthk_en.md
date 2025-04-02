@@ -1,3 +1,27 @@
+# Trump unveils sweeping global tariffs
+
+![Donald Trump – who held up a chart with a list of levies – has said  the US "has been looted, pillaged, raped and plundered by nations near and far, both friend and foe alike". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798719_1_20250403055136.jpg&q=90)
+  
+
+US President Donald Trump on Wednesday unveiled a raft of punishing tariffs targeting countries around the world including some of its closest trading partners, in a move that risks sparking a ruinous trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm)
+
+---
+
 # Stuttgart beat Leipzig to reach German Cup final
 
 ![Stuttgart's Maximilian Mittelstädt celebrates after their 3-1 win over RB Leipzig. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798718_1_20250403054223.jpg&q=90)
@@ -25,7 +49,7 @@ Stuttgart set up a German Cup final clash with third-division Arminia Bielefeld 
 # Liverpool beat Everton as title looms; City cruise
 
 ![Diogo Jota scored the only goal of the match in Liverpool's win over Everton. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_1_20250403053524.jpg&q=90)
-![Jack Grealish's first league goal since December 2023 helped seal the victory for City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_2_20250403053524.jpg&q=85)
+![Jack Grealish scored his first league goal since December 2023 in the victory for City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_2_20250403053524.jpg&q=85)
   
 
 Liverpool moved closer to the Premier League title with a 1-0 win in the Merseyside derby against Everton, while Manchester City beat Leicester 2-0 to bolster their bid to reach the Champions League.
@@ -1415,29 +1439,5 @@ Hong Kong's top court has overturned the acquittal of a former lawmaker for reve
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798417-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798417-20250401.htm)
-
----
-
-# PLA conducts military exercises around Taiwan
-
-![The Taiwan Affairs Office says the drills target separatist activities advocating "Taiwan independence" and are not directed at the broader population of Taiwan. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798421_1_20250401123058.jpg&q=90)
-  
-
-The People's Liberation Army (PLA) Eastern Theater Command on Tuesday started to conduct joint exercises around Taiwan Island.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798421-20250401.htm)
 
 ---

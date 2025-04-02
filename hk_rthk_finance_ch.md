@@ -1,3 +1,27 @@
+# 美股3大指數期貨下跌
+
+![貿易戰升溫的憂慮拖累美股3大指數期貨在電子交易時段下跌。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798720_1_20250403055239.jpg&q=90)
+  
+
+美國總統特朗普在美股收市後公布對等關稅措施細節，包括向所有進口到美國的商品徵收10%基準關稅，部份貿易伙伴被徵收的稅率更高。市場預計有關貿易伙伴將採取反制措施。貿易戰升溫的憂慮拖累美股3大指數期貨在電子交易時段下跌。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798720-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798720-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798720-20250403.htm)
+
+---
+
 # 期油在美國新關稅措施公布前上升
 
 ![特朗普公布新關稅措施前，紐約5月期油收市報每桶71.71美元，升51美仙，升幅0.72%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798716_1_20250403051421.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798505-20250401.htm)
-
----
-
-# 比亞迪首季新能源汽車銷量按年升近60%
-
-![比亞迪3月新能源汽車銷量按年升近25%，首季升近60%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798502_1_20250401193701.jpg&q=90)
-  
-
-比亞迪公布，3月新能源汽車銷量逾37.7萬輛，按年升近25%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798502-20250401.htm)
 
 ---

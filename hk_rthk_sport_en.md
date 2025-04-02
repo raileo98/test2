@@ -25,7 +25,7 @@ Stuttgart set up a German Cup final clash with third-division Arminia Bielefeld 
 # Liverpool beat Everton as title looms; City cruise
 
 ![Diogo Jota scored the only goal of the match in Liverpool's win over Everton. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_1_20250403053524.jpg&q=90)
-![Jack Grealish's first league goal since December 2023 helped seal the victory for City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_2_20250403053524.jpg&q=85)
+![Jack Grealish scored his first league goal since December 2023 in the victory for City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798717_2_20250403053524.jpg&q=85)
   
 
 Liverpool moved closer to the Premier League title with a 1-0 win in the Merseyside derby against Everton, while Manchester City beat Leicester 2-0 to bolster their bid to reach the Champions League.

@@ -1,3 +1,27 @@
+# Trump unveils sweeping global tariffs
+
+![Donald Trump – who held up a chart with a list of levies – has said  the US "has been looted, pillaged, raped and plundered by nations near and far, both friend and foe alike". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798719_1_20250403055136.jpg&q=90)
+  
+
+US President Donald Trump on Wednesday unveiled a raft of punishing tariffs targeting countries around the world including some of its closest trading partners, in a move that risks sparking a ruinous trade war.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798719-20250403.htm)
+
+---
+
 # Israel to seize 'large areas' of Gaza
 
 ![Israel carries out deadly air strikes in southern and central Gaza. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798686_1_20250402213633.jpg&q=90)
@@ -1413,30 +1437,5 @@ A major hospital in the Myanmar capital Naypyidaw is a "mass casualty area" afte
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797887-20250328.htm)
-
----
-
-# Thai PM declares state of emergency in Bangkok
-
-![People take refuge in the streets in Bangkok after feeling the powerful 7.7- magnitude earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797877_1_20250328163912.jpg&q=50)
-![Siam BTS metro station in Bangkok is shuttered in wake of the earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797877_2_20250328163912.jpg&q=60)
-  
-
-Thai authorities have declared a state of emergency in Bangkok, Prime Minister Paetongtarn Shinawatra said on Friday after the city was hit by a major earthquake centred in Myanmar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm)
 
 ---
