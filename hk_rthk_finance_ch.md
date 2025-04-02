@@ -1,3 +1,27 @@
+# 美國上周原油及蒸餾油庫存出乎預期增加
+
+![美國能源信息署公布，美國上星期原油庫存增加616.5萬桶，出乎市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798691_1_20250402224746.jpg&q=85)
+  
+
+美國能源信息署(EIA)公布，美國上星期原油庫存出乎預期增加616.5萬桶，市場原先預計減少211.6萬桶。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798691-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798691-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798691-20250402.htm)
+
+---
+
 # 美國2月工廠訂單按月升0.6%勝預期
 
 ![美國2月工廠訂單按月增加0.6%，增幅高過預期的0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798689_1_20250402221539.jpg&q=85)
@@ -19,6 +43,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798689-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798689-20250402.htm)
+
+---
+
+# 韓正晤滙豐集席杜嘉祺　冀集團為促進中英關係發展作貢獻
+
+![韓正與英國滙豐集團主席杜嘉祺會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798690_1_20250402223133.jpg&q=90)
+  
+
+國家副主席韓正在北京會見英國滙豐集團主席杜嘉祺。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm)
 
 ---
 
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798465-20250401.htm)
-
----
-
-# 歐元區3月製造業PMI連升3個月　產出兩年來首次擴張
-
-![歐元區3月製造業PMI終值升至48.6，連升3個月。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798462_1_20250401164722.jpg&q=90)
-  
-
-標普全球與漢堡商業銀行（HCOB）聯合公布，歐元區3月製造業採購經理指數（PMI）終值為48.6，連升3個月，但低於初值的48.7，而2月終值為47.6。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798462-20250401.htm)
-
----
-
-# 國家金融監管總局：鼓勵金融機構加強科技領域金融支持
-
-![國家金融監管總局、科技部等聯合發文，鼓勵金融機構加強對國家重大科技任務，和科技型中小企的金融支持。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798460_1_20250401163404.jpg&q=80)
-  
-
-國家金融監管總局、科技部等聯合發文，鼓勵金融機構加強對國家重大科技任務，和科技型中小企的金融支持，做好國家科技重大項目、國家戰略科技力量，和國家級科技創新平台基地的金融服務，並要求一視同仁服務民營、外商投資的科技型企業和研發中心。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798460-20250401.htm)
 
 ---

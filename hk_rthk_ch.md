@@ -1,3 +1,27 @@
+# 美國上周原油及蒸餾油庫存出乎預期增加
+
+![美國能源信息署公布，美國上星期原油庫存增加616.5萬桶，出乎市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798691_1_20250402224746.jpg&q=85)
+  
+
+美國能源信息署(EIA)公布，美國上星期原油庫存出乎預期增加616.5萬桶，市場原先預計減少211.6萬桶。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798691-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798691-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798691-20250402.htm)
+
+---
+
 # 美國2月工廠訂單按月升0.6%勝預期
 
 ![美國2月工廠訂單按月增加0.6%，增幅高過預期的0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798689_1_20250402221539.jpg&q=85)
