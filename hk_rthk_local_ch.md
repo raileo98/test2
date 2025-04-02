@@ -1,3 +1,117 @@
+# 周一鳴：重點工作包括維護國家安全　很多人以不同方式「軟對抗」
+
+  
+
+國務院任命周一鳴為新任警務處處長，接替退休的蕭澤頤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798661-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798661-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798661-20250402.htm)
+
+---
+
+# 周一鳴接任警務處處長　維護國家安全屬重點工作方向
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798646_1_20250402183815.jpg&q=90)
+  
+
+國務院根據行政長官李家超的提名及建議，任命原本擔任警務處副處長的周一鳴，出任警務處處長，接替退休的蕭澤頤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm)
+
+---
+
+# 火炭謀殺案刀手潛逃泰國落網　警方商討移送潛逃內地被捕2人
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm)
+
+---
+
+# 文憑試中文科開考　有教師稱部分寫作題目要求考生發揮想像力
+
+  
+
+文憑試首個核心科目中文科今日開考。其中作文題目三揀一，題目包括「藏在泥土中的寶物」及「為不完美添色彩」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm)
+
+---
+
+# 消息稱控煙「十招」將全數推出　部分排隊輪候地方禁煙
+
+![消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，全數「十招」都會推出並陸續執行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798658_1_20250402184118.jpg&q=90)
+  
+
+消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，全數「十招」都會推出並陸續執行，包括提出進一步擴大禁煙範圍、部分排隊輪候地方禁煙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm)
+
+---
+
 # 何永賢：必須持續供應居屋　成為年輕人置業希望
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798648_1_20250402181632.jpg&q=85)
@@ -48,7 +162,7 @@
 
 # 曾國衞：立法會功能界別選舉以點票機點票　可減省投票後工作
 
-![曾國衞表示，經與選管會研究後，建議整合功能界別選舉的選票結算表。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798656_1_20250402181903.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798656_1_20250402183819.jpg&q=90)
   
 
 立法會換屆選舉將於今年12月7日舉行，當局提出修訂部分選舉法例，參考選委會界別分組選舉及立法會選委會界別選舉中使用點票機的做法和經驗後，當局建議賦權選管會在功能界別選舉，也可以使用點票機進行點票。而與相關點票程序的法例亦須作出相應調整，如毋須在點票前以人手方式將選票按界別分類等。
@@ -1319,125 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798490-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798490-20250401.htm)
-
----
-
-# 區志光稱對制裁無所畏懼　必定恪盡職守
-
-![區志光回應，不會被制裁恫嚇，會繼續堅定履行維護國家安全的光榮任務。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798489_1_20250401181811.jpg&q=90)
-  
-
-美國國務院以進行跨國打壓及損害香港自治為由，制裁六名中央和香港特區官員，其中包括特區維護國家安全委員會秘書長區志光。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798489-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798489-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798489-20250401.htm)
-
----
-
-# 警方打鼓嶺村屋搗種植場　檢逾600棵懷疑大麻
-
-![行動中檢獲的毒品市值約530萬元，拘捕一男一女。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798488_1_20250401181744.jpg&q=85)
-  
-
-警方在打鼓嶺一間村屋檢獲669棵、重約21公斤的懷疑大麻植物、約5公斤大麻花收成品及大量用作栽植大麻植物的工具和裝備，行動中檢獲的毒品市值約530萬元，拘捕一男一女。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798488-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798488-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798488-20250401.htm)
-
----
-
-# 慶祝20周年　香港迪士尼捐20萬張門票予社會有需要人士
-
-![香港迪士尼樂園為慶祝20周年，將捐出20萬張樂園門票予社區有需要人士。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798487_1_20250401192127.jpg&q=90)
-  
-
-香港迪士尼樂園為慶祝20周年，將捐出20萬張樂園門票予社區有需要人士，較過去每年平均捐出門票增加一倍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798487-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798487-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798487-20250401.htm)
-
----
-
-# 考評局稱文憑試視藝科各試場運作暢順　9成考生使用「報到易」
-
-![考評局表示，約9成考生使用「報到易」應用程式完成自行簽到。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798481_1_20250401181641.jpg&q=90)
-  
-
-文憑試首科筆試、視覺藝術科今日開考。考評局表示，超過3900名考生於全港58個一般試場及超過240個特別試場應考，各試場的整體運作暢順。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798481-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798481-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798481-20250401.htm)
-
----
-
-# 陳茂波：香港百業興旺有賴穩定安全供水系統
-
-![陳茂波表示，東江供水系統不斷擴展和優化，支撐香港經濟蓬勃發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798480_1_20250401174125.jpg&q=90)
-  
-
-財政司司長陳茂波表示，東江供水系統不斷擴展和優化，支撐香港經濟蓬勃發展，即使其間東江流域受到旱情威脅，仍是確保香港的用水充足、優質和安全。今天香港是國際金融、貿易和航運中心，百業興旺，這些都有賴於國家的堅實支持和穩定安全的用水供應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm)
 
 ---

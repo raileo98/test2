@@ -384,7 +384,7 @@
 
 # 普京指俄中應續發加強戰略協作信號　王毅稱兩國合作不受外部干擾
 
-![普京說俄中應持續向世界發出加強戰略協作的有力信號；王毅表示中俄政治互信不斷加深。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
   
 
 俄羅斯總統普京在首都莫斯科，會見到訪的中共中央政治局委員、外交部長王毅。

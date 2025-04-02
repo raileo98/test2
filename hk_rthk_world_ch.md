@@ -1,3 +1,23 @@
+# 火炭謀殺案刀手潛逃泰國落網　警方商討移送潛逃內地被捕2人
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm)
+
+---
+
 # 尹錫悅彈劾案宣判在即　中美提醒公民避免參與集會
 
 ![尹錫悅彈劾案即將宣判，支持者和反對人士分別在首爾集會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798652_1_20250402175045.jpg&q=90)
@@ -409,7 +429,7 @@
 
 # 普京指俄中應續發加強戰略協作信號　王毅稱兩國合作不受外部干擾
 
-![普京說俄中應持續向世界發出加強戰略協作的有力信號；王毅表示中俄政治互信不斷加深。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
   
 
 俄羅斯總統普京在首都莫斯科，會見到訪的中共中央政治局委員、外交部長王毅。
@@ -1413,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798337-20250331.htm)
-
----
-
-# 瑪麗娜勒龐被裁定挪用歐盟公款罪成　禁止競逐公職5年
-
-![瑪麗娜勒龐被裁定挪用歐盟公款罪成。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798333_1_20250331215051.jpg&q=85)
-  
-
-法國極右翼「國民聯盟」領袖瑪麗娜勒龐被法國檢方指控挪用歐盟公共資金，巴黎法院判處她罪名成立，禁止她競逐公職5年，即時生效。除非瑪麗娜勒龐成功上訴，否則將無法參加2027年的總統選舉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798333-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798333-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798333-20250331.htm)
 
 ---

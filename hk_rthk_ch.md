@@ -1,3 +1,141 @@
+# 周一鳴：重點工作包括維護國家安全　很多人以不同方式「軟對抗」
+
+  
+
+國務院任命周一鳴為新任警務處處長，接替退休的蕭澤頤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798661-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798661-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798661-20250402.htm)
+
+---
+
+# 周一鳴接任警務處處長　維護國家安全屬重點工作方向
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798646_1_20250402183815.jpg&q=90)
+  
+
+國務院根據行政長官李家超的提名及建議，任命原本擔任警務處副處長的周一鳴，出任警務處處長，接替退休的蕭澤頤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm)
+
+---
+
+# 火炭謀殺案刀手潛逃泰國落網　警方商討移送潛逃內地被捕2人
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm)
+
+---
+
+# 文憑試中文科開考　有教師稱部分寫作題目要求考生發揮想像力
+
+  
+
+文憑試首個核心科目中文科今日開考。其中作文題目三揀一，題目包括「藏在泥土中的寶物」及「為不完美添色彩」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm)
+
+---
+
+# 消息稱控煙「十招」將全數推出　部分排隊輪候地方禁煙
+
+![消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，全數「十招」都會推出並陸續執行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798658_1_20250402184118.jpg&q=90)
+  
+
+消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，全數「十招」都會推出並陸續執行，包括提出進一步擴大禁煙範圍、部分排隊輪候地方禁煙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm)
+
+---
+
+# 人民幣兌美元收市創近1個月低位
+
+![人民幣兌美元收市創近1個月低位，報7.2719兌1美元，較上日收市跌32點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798644_1_20250402170805.jpg&q=85)
+  
+
+在岸人民幣兌美元收市創近1個月低位，報7.2719兌1美元，較上日收市跌32點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798644-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798644-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798644-20250402.htm)
+
+---
+
 # 何永賢：必須持續供應居屋　成為年輕人置業希望
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798648_1_20250402181632.jpg&q=85)
@@ -48,7 +186,7 @@
 
 # 曾國衞：立法會功能界別選舉以點票機點票　可減省投票後工作
 
-![曾國衞表示，經與選管會研究後，建議整合功能界別選舉的選票結算表。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798656_1_20250402181903.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798656_1_20250402183819.jpg&q=90)
   
 
 立法會換屆選舉將於今年12月7日舉行，當局提出修訂部分選舉法例，參考選委會界別分組選舉及立法會選委會界別選舉中使用點票機的做法和經驗後，當局建議賦權選管會在功能界別選舉，也可以使用點票機進行點票。而與相關點票程序的法例亦須作出相應調整，如毋須在點票前以人手方式將選票按界別分類等。
@@ -386,7 +524,7 @@
 ![恒指午後窄幅上落，最終收市報23202點，跌4點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798635_1_20250402162152.jpg&q=75)
   
 
-港股早段一度失守23000點，低見22980點，跌逾225點，其後轉升最多近190點，午後窄幅上落，最終收市報23202點，跌4點，全日主板成交額近2166億元。
+港股早段一度失守23000點，恒生指數低見22980點，跌逾225點，其後轉升最多近190點，午後窄幅上落，最終收市報23202點，跌4點，全日主板成交額近2166億元。
 
   
 
@@ -2306,7 +2444,7 @@
 
 # 普京指俄中應續發加強戰略協作信號　王毅稱兩國合作不受外部干擾
 
-![普京說俄中應持續向世界發出加強戰略協作的有力信號；王毅表示中俄政治互信不斷加深。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
   
 
 俄羅斯總統普京在首都莫斯科，會見到訪的中共中央政治局委員、外交部長王毅。

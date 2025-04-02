@@ -1,3 +1,27 @@
+# 人民幣兌美元收市創近1個月低位
+
+![人民幣兌美元收市創近1個月低位，報7.2719兌1美元，較上日收市跌32點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798644_1_20250402170805.jpg&q=85)
+  
+
+在岸人民幣兌美元收市創近1個月低位，報7.2719兌1美元，較上日收市跌32點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798644-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798644-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798644-20250402.htm)
+
+---
+
 # 分析料本港整體經濟下半年有較大起色　美國關稅影響不算太嚴重
 
 ![謝家曦表示，本地需求仍有隠憂，整體經濟可能要到下半年才有較大起色。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798651_1_20250402174448.jpg&q=85)
@@ -98,7 +122,7 @@
 ![恒指午後窄幅上落，最終收市報23202點，跌4點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798635_1_20250402162152.jpg&q=75)
   
 
-港股早段一度失守23000點，低見22980點，跌逾225點，其後轉升最多近190點，午後窄幅上落，最終收市報23202點，跌4點，全日主板成交額近2166億元。
+港股早段一度失守23000點，恒生指數低見22980點，跌逾225點，其後轉升最多近190點，午後窄幅上落，最終收市報23202點，跌4點，全日主板成交額近2166億元。
 
   
 
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798442-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798442-20250401.htm)
-
----
-
-# 韓股重上2500點關口　高收近2%
-
-![首爾綜合指數收市報2521點，升40點，升幅1.62%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798441_1_20250401144533.jpg&q=90)
-  
-
-南韓股市結束連續3日跌勢，反彈近2%收市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798441-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798441-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798441-20250401.htm)
 
 ---
