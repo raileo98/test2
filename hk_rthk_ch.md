@@ -1,3 +1,98 @@
+# 內地股市收市變動不大
+
+![上證指數收報3350點，升1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798624_1_20250402151120.jpg&q=90)
+  
+
+滬深股市收市變動不大，兩市成交不足1萬億元人民幣。汽車產業鏈、人形機器人概念股上升，但電力股、軍工股向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798624-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798624-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798624-20250402.htm)
+
+---
+
+# 據報中石化與寧德時代今年將建設最少500座換電站
+
+![中石化與寧德時代簽署產業與資本合作框架協議，今年將共同建設不少於500座換電站，未來則致力於建設1萬座換電站。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798623_1_20250402151712.jpg&q=90)
+  
+
+新華社報道指，中石化與寧德時代簽署產業與資本合作框架協議，今年將共同建設不少於500座換電站，未來則致力於建設1萬座換電站。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798623-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798623-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798623-20250402.htm)
+
+---
+
+# 夏寶龍會見羅淑佩等訪京特區官員
+
+  
+
+在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見正進行訪京行程的文化體育及旅遊局局長羅淑佩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm)
+
+---
+
+# 緬甸內比都一名被困5日男子成功獲救
+
+![地震救援工作持續。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798622_1_20250402150225.jpg&q=90)
+  
+
+緬甸地震救援工作持續，國家管理委員會說，內比都一名被困5日的男子成功獲救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798622-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798622-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798622-20250402.htm)
+
+---
+
 # 德勤：內地人工智能發展促使基金重新部署　料支持今年新股市場
 
 ![歐振興預計，今年新股市場將繼續保持暢旺，DeepSeek觸發市場對中國企業估值重估後，之前低配內地與香港股票的基金重新部署。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798619_1_20250402145132.jpg&q=90)
@@ -95,6 +190,7 @@
 
 # 山東艦航母編隊參與台島以東海空域演練
 
+![央視新聞公布更多演練的畫面。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798615_2_20250402151351.jpg&q=90)
   
 
 解放軍公布，山東艦航母編隊參與台島以東海空域演練。

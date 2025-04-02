@@ -1,3 +1,27 @@
+# 緬甸內比都一名被困5日男子成功獲救
+
+![地震救援工作持續。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798622_1_20250402150225.jpg&q=90)
+  
+
+緬甸地震救援工作持續，國家管理委員會說，內比都一名被困5日的男子成功獲救。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798622-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798622-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798622-20250402.htm)
+
+---
+
 # 緬甸地震增至2800多人死亡4000多人受傷
 
 ![地震災民排隊領取救災物資。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798617_1_20250402144435.jpg&q=90)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798323-20250331.htm)
-
----
-
-# 克宮料普京未來幾日內與到訪的王毅會面
-
-![佩斯科夫表示，預計普京將在未來幾日內與王毅會面。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798319_1_20250331201559.jpg&q=90)
-  
-
-中共中央政治局委員、外交部長王毅應俄羅斯外長拉夫羅夫邀請，今日至後日對俄羅斯進行正式訪問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798319-20250331.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 內地股市收市變動不大
+
+![上證指數收報3350點，升1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798624_1_20250402151120.jpg&q=90)
+  
+
+滬深股市收市變動不大，兩市成交不足1萬億元人民幣。汽車產業鏈、人形機器人概念股上升，但電力股、軍工股向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798624-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798624-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798624-20250402.htm)
+
+---
+
+# 據報中石化與寧德時代今年將建設最少500座換電站
+
+![中石化與寧德時代簽署產業與資本合作框架協議，今年將共同建設不少於500座換電站，未來則致力於建設1萬座換電站。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798623_1_20250402151712.jpg&q=90)
+  
+
+新華社報道指，中石化與寧德時代簽署產業與資本合作框架協議，今年將共同建設不少於500座換電站，未來則致力於建設1萬座換電站。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798623-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798623-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798623-20250402.htm)
+
+---
+
 # 德勤：內地人工智能發展促使基金重新部署　料支持今年新股市場
 
 ![歐振興預計，今年新股市場將繼續保持暢旺，DeepSeek觸發市場對中國企業估值重估後，之前低配內地與香港股票的基金重新部署。（羅煒皓攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798619_1_20250402145132.jpg&q=90)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798433-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798433-20250401.htm)
-
----
-
-# 恒指下午初段升近0.8%
-
-![恒指較早時報23294點，升175點，升幅0.76%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798430_1_20250401130537.jpg&q=80)
-  
-
-港股下午初段升近0.8%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798430-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798430-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798430-20250401.htm)
-
----
-
-# 分析關注內地政策刺激能否延續至今季　否則政策要加碼
-
-![沈建光表示，關注政策刺激能否延續至第2季，形成持久作用，否則政策需要加碼。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798416_1_20250401121456.jpg&q=85)
-  
-
-內地官方及財新數據都顯示，3月製造業活動擴張步伐加快。官方製造業採購經理指數(PMI)升至50.5，創1年新高；財新中國製造業PMI亦升至51.2，是4個月以來最高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798416-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798416-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798416-20250401.htm)
 
 ---

@@ -191,7 +191,7 @@ Stephen Curry scored 52 points and Draymond Green added a triple-double as the G
 
 ---
 
-# 'HOS flats give youngsters looking to buy homes hope'
+# 'Subsidised homes give hope to youngsters'
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798574_1_20250402103205.jpg&q=80)
   

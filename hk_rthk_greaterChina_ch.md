@@ -1,5 +1,29 @@
+# 夏寶龍會見羅淑佩等訪京特區官員
+
+  
+
+在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見正進行訪京行程的文化體育及旅遊局局長羅淑佩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm)
+
+---
+
 # 山東艦航母編隊參與台島以東海空域演練
 
+![央視新聞公布更多演練的畫面。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798615_2_20250402151351.jpg&q=90)
   
 
 解放軍公布，山東艦航母編隊參與台島以東海空域演練。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798257-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798257-20250331.htm)
-
----
-
-# 特區救援隊抵達曼德勒　將與國家隊分工展開搜救
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798239_1_20250331135742.jpg&q=75)
-  
-
-保安局表示，特區救援隊剛抵達緬甸地震災區曼德勒，立即與中國救援隊會合，聽取國家隊對當地災情的簡介。沿途見到不少房屋倒塌，災民在空地搭建臨時帳篷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798239-20250331.htm)
 
 ---

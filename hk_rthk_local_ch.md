@@ -1,3 +1,26 @@
+# 夏寶龍會見羅淑佩等訪京特區官員
+
+  
+
+在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見正進行訪京行程的文化體育及旅遊局局長羅淑佩。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm)
+
+---
+
 # 文憑試中文卷一文言文談安史之亂　作文題包括「為不完美添色彩」
 
   
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798445-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798445-20250401.htm)
-
----
-
-# 民建聯及經民聯對美國制裁6名官員表示反對
-
-![民建聯副主席陳勇、周浩鼎聯同多名立法會議員及區議員，到美國駐港澳總領事館請願。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798444_1_20250401150919.jpg&q=70)
-  
-
-民建聯對美國國務院宣布制裁6名中央政府駐港機構和香港特區政府官員，並發布所謂「2025年香港政策法報告」，表示強烈不滿和堅決反對，批評粗暴干涉香港事務和中國內政，嚴重踐踏國際法與國際關係基本準則，敦促美方立即停止政治操弄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798444-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798444-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798444-20250401.htm)
 
 ---
