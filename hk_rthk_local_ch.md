@@ -1,5 +1,52 @@
-# 救援隊指揮官稱能夠發現生還者感到非常鼓舞
+# 羅淑佩拜會國務院港澳辦和國家體育總局
 
+  
+
+文化體育及旅遊局局長羅淑佩展開北京行程，拜會國務院港澳辦和國家體育總局。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm)
+
+---
+
+# 約4.8萬人應考文憑試中文科　考評局指各試場運作暢順
+
+  
+
+文憑試首個核心科目中文科今日開考，大約4萬8千名考生在超過430個一般試場和超過540個特別試場應考，考評局表示，各試場學校整體運作暢順，考試順利按時完成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798681-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798681-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798681-20250402.htm)
+
+---
+
+# 特區救援隊救出一名生還者　指揮官：只要有一個機會也不會放棄
+
+![救援隊指揮官表示，能夠在地震發生6日後找到生還者，救援隊感到非常鼓舞和振奮。（香港消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798678_1_20250402210137.jpg&q=85)
   
 
 正在緬甸地震災區協助搜救工作的特區救援隊，今日成功救出一名生還者。
@@ -23,6 +70,7 @@
 
 # 發展局估計生態旅遊發展項目成本數十億元以上　花6至7年完成
 
+![發展局希望發展這三個項目，令本地人或遊客都有多一個選擇，令他們願意留港過夜。（土木工程拓展署）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798677_1_20250402210031.jpg&q=90)
   
 
 發展局今日起邀請市場在3個月內分別就前南丫島石礦場用地、南大嶼生態康樂走廊、與及尖鼻咀及白泥的生態旅遊發展項目提交意向書，目標最快明年下半年就項目招標。
@@ -70,6 +118,7 @@
 
 # 港澳辦網站再轉載文章促長和盡快回頭改變錯誤決定
 
+![港澳辦網站再度轉發《大公報》文章，指出長和的港口交易涉及國家安全和利益。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798675_1_20250402210101.jpg&q=80)
   
 
 港澳辦網站再度轉發《大公報》文章，指出長和的港口交易涉及國家安全和利益，國家市場監督管理總局依法審查合情合理合法，身為香港的重要企業，長和必須尊重國家利益，應當承擔最基本的責任義務，必須盡快回頭，改變錯誤決定。
@@ -93,7 +142,7 @@
 
 # 鄧炳強感謝國家及特區救援隊救出生還者　稱開心感動又驕傲
 
-![特區救援隊於曼德勒65街一間酒店的瓦礫中救出生還者。（鄧炳強社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798674_1_20250402202915.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798674_1_20250402202915.jpg&q=85)
   
 
 保安局局長鄧炳強表示，剛剛收到特區救援隊帶來好消息，於曼德勒65街一間酒店的瓦礫中救出生還者。
@@ -745,7 +794,7 @@
 ![丘應樺表示，港台作為公共廣播機構，與新聞處主責政府公共關係，各司其職，職能上並無重疊。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798610_1_20250402141912.jpg&q=90)
   
 
-商務及經濟局局長丘應樺表示，香港電台與政府新聞處雖然同為政府部門，但港台作為公共廣播機構，與新聞處主責政府公共關係，各司其職，職能上並無重疊。
+商務及經濟發展局局長丘應樺表示，香港電台與政府新聞處雖然同為政府部門，但港台作為公共廣播機構，與新聞處主責政府公共關係，各司其職，職能上並無重疊。
 
   
 
@@ -1388,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm)
-
----
-
-# 立法會議員到警察總部了解電子交通告票平台功能
-
-![立法會交通事務委員會前往警察總部，觀看電子交通告票平台功能的示範。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798507_1_20250401215706.jpg&q=85)
-  
-
-立法會交通事務委員會前往警察總部，觀看電子交通告票平台功能的示範，了解警方將於6月15日起實施以電子方式，發出電子告票的最新措施和執行細節。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798507-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798507-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798507-20250401.htm)
-
----
-
-# 房協兩個資助項目暫收近1200份申請
-
-![房協資助出售房屋項目觀塘「峻然」及粉嶺「聚然」共1604個單位，今日起接受申請。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798506_1_20250401215727.jpg&q=80)
-  
-
-房協資助出售房屋項目觀塘「峻然」及粉嶺「聚然」共1604個單位，今日起接受申請。截至下午5時，房協共收到近1200份申請表。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798506-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798506-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798506-20250401.htm)
 
 ---
