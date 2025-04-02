@@ -22,6 +22,30 @@ The Hong Kong and Macau Affairs Office (HKMAO) on Wednesday reposted an article 
 
 ---
 
+# Mainland, SAR rescuers find quake survivor in Mandalay
+
+![A 52-year-old man has been rescued from the rubble of a hotel in Mandalay. Photo: Chris Tang's Facebook page](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798679_1_20250402204310.jpg&q=85)
+  
+
+Rescue teams from the SAR and the mainland have joined hands in finding a survivor in the quake-rattled Myanmar city of Mandalay.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm)
+
+---
+
 # Tibet tourist numbers soar to all-time high
 
 ![The Potala Palace in Lhasa is a top tourist attraction. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798638_1_20250402164919.jpg&q=85)
@@ -1415,29 +1439,5 @@ Hong Kong has the full support from the central government in maintaining its un
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796677-20250320.htm)
-
----
-
-# Four Canadians 'executed in line with the law'
-
-![Mao Ning says China handles cases in strict accordance with the law. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796617_1_20250320165302.jpg&q=90)
-  
-
-China said on Thursday it acted in accordance with the law over the execution of four Canadian citizens in recent weeks.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm)
 
 ---

@@ -1,3 +1,51 @@
+# 政府完成黃大仙竹園聯合村聯合行動　相關用地日後發展公營房屋
+
+![發展局表示，在照顧受發展影響住戶的同時，亦須確保發展計劃按時完成，無法再延長遷出寬限期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798695_1_20250402230234.jpg&q=90)
+  
+
+發展局表示，地政總署今日聯同相關政府部門，在黃大仙竹園聯合村進行聯合行動，將相關用地交予土木工程拓展署，以配合日後的公營房屋發展，相關行動已完成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm)
+
+---
+
+# 道指初段曾跌逾300點　其後倒升
+
+![道瓊斯指數初段一度跌360點，其後轉升，較早時報42070點，升80點，升幅0.19%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798694_1_20250402225614.jpg&q=90)
+  
+
+美股在美國總統特朗普宣布對等關稅措施前，走勢先低後高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798694-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798694-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798694-20250402.htm)
+
+---
+
 # 緬甸地震增至逾三千人死　軍方宣布暫時停火以便救災
 
 ![緬甸大地震增至超過3000人死亡，軍方宣布暫時停火以便救災。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798693_1_20250402225256.jpg&q=50)

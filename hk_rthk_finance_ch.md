@@ -1,3 +1,27 @@
+# 道指初段曾跌逾300點　其後倒升
+
+![道瓊斯指數初段一度跌360點，其後轉升，較早時報42070點，升80點，升幅0.19%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798694_1_20250402225614.jpg&q=90)
+  
+
+美股在美國總統特朗普宣布對等關稅措施前，走勢先低後高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798694-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798694-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798694-20250402.htm)
+
+---
+
 # 特首辦本年度撥款增920萬元　新設3職位薪金約266萬元
 
 ![特首辦指，一直秉持審慎理財、善用資源的公共財政原則，並積極透過內部人手和資源調配、精簡程序和應用科技以提升效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798692_1_20250402225213.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798482-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798482-20250401.htm)
-
----
-
-# 在岸人民幣兌美元收市創近1個月低位
-
-![在岸人民幣收市報7.2687兌1美元，較上日收市跌171點子，創近1個月新低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798467_1_20250401170741.jpg&q=85)
-  
-
-在岸人民幣兌美元收市創近1個月新低，報7.2687兌1美元，較上日收市價跌171點子。中間價稍為反彈至7.1775兌1美元，與市場預測偏離仍逾800點子，反映監管層維穩意圖。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798467-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798467-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798467-20250401.htm)
 
 ---

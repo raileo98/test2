@@ -1,3 +1,51 @@
+# Israel to seize 'large areas' of Gaza
+
+![Israel carries out deadly air strikes in southern and central Gaza. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798686_1_20250402213633.jpg&q=90)
+  
+
+Israel said on Wednesday it would expand its military operations and seize "large areas" of the Gaza Strip where rescuers said 34 people were killed in Israeli strikes, including on a United Nations building.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm)
+
+---
+
+# Mainland, SAR rescuers find quake survivor in Mandalay
+
+![A 52-year-old man has been rescued from the rubble of a hotel in Mandalay. Photo: Chris Tang's Facebook page](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798679_1_20250402204310.jpg&q=85)
+  
+
+Rescue teams from the SAR and the mainland have joined hands in finding a survivor in the quake-rattled Myanmar city of Mandalay.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798679-20250402.htm)
+
+---
+
 # Teen held over mass killings plan outside mosques
 
 ![The 17-year-old is alleged to have targeted five mosques in Singapore as part of his plan to kill at least 100 Muslims. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798653_1_20250402175858.jpg&q=75)
@@ -1390,53 +1438,5 @@ Thai authorities have declared a state of emergency in Bangkok, Prime Minister P
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797877-20250328.htm)
-
----
-
-# 43 trapped after quake brings down Bangkok high-rise
-
-![The trauma of the building's collapse takes its toll on one of the construction worker who managed to get out. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797867_5_20250328163235.jpg&q=85)
-  
-
-A strong 7.7 magnitude earthquake hit central Myanmar on Friday, the United States Geological Survey (USGS) said, buckling roads in the capital Naypyidaw and with tremors felt in China and Thailand.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797867-20250328.htm)
-
----
-
-# Myanmar junta chief courts region in rare Thai trip
-
-![Myanmar's military chief Min Aung Hlaing marks Armed Forces Day in Naypyidaw on Thursday. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797854_1_20250328135837.jpg&q=90)
-  
-
-Myanmar's junta chief Min Aung Hlaing will join a regional leaders' summit in Thailand next week where he is seeking high-level bilateral meetings, said three sources with direct knowledge, in a rare visit to a Southeast Asian country since seizing power in coup that led to a civil war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797854-20250328.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 政府完成黃大仙竹園聯合村聯合行動　相關用地日後發展公營房屋
+
+![發展局表示，在照顧受發展影響住戶的同時，亦須確保發展計劃按時完成，無法再延長遷出寬限期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798695_1_20250402230234.jpg&q=90)
+  
+
+發展局表示，地政總署今日聯同相關政府部門，在黃大仙竹園聯合村進行聯合行動，將相關用地交予土木工程拓展署，以配合日後的公營房屋發展，相關行動已完成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm)
+
+---
+
 # 特首辦本年度撥款增920萬元　新設3職位薪金約266萬元
 
 ![特首辦指，一直秉持審慎理財、善用資源的公共財政原則，並積極透過內部人手和資源調配、精簡程序和應用科技以提升效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798692_1_20250402225213.jpg&q=80)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm)
-
----
-
-# 粵港澳大灣區專責小組首次會議　張國鈞稱用好大灣區獨特優勢
-
-![張國鈞主持新一屆粵港澳大灣區專責小組首次會議。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798513_1_20250401220009.jpg&q=90)
-  
-
-律政司副司長張國鈞今日主持新一屆粵港澳大灣區專責小組首次會議，強調「創新」對促進三地機制對接、規則銜接和人才連接尤其重要，能更充分地支持香港融入國家發展大局，提升大灣區的創新能力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm)
 
 ---

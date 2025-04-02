@@ -1,3 +1,27 @@
+# Israel to seize 'large areas' of Gaza
+
+![Israel carries out deadly air strikes in southern and central Gaza. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798686_1_20250402213633.jpg&q=90)
+  
+
+Israel said on Wednesday it would expand its military operations and seize "large areas" of the Gaza Strip where rescuers said 34 people were killed in Israeli strikes, including on a United Nations building.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798686-20250402.htm)
+
+---
+
 # Govt seeks interest in ecotourism projects
 
 ![The government wants to develop Pak Nai into an ecotourism destination. Photo: Development Bureau](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798669_1_20250402192137.jpg&q=80)
@@ -1414,29 +1438,5 @@ Tesla investors are bracing for a drop in first-quarter vehicle deliveries as a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798413-20250401.htm)
-
----
-
-# Crypto investor Wang leads first polar space mission
-
-![SpaceX's Falcon 9 rocket carries the four commercial astronauts into a 90-degree inclination polar orbit on the Fram2 mission after launching from Kennedy Space Center in Cape Canaveral, Florida. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798408_1_20250401112340.jpg&q=90)
-  
-
-A bitcoin investor who bought a SpaceX flight for himself and three polar explorers has blasted off on the first rocket ride to carry people over the North and South poles .
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798408-20250401.htm)
 
 ---
