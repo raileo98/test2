@@ -1,3 +1,26 @@
+# 陳美寶：的士車隊以不同方法羅致司機　運輸署將監察運作表現
+
+  
+
+運輸及物流局局長陳美寶出席一項活動後主動回應的士車隊問題。她表示，當局最近推動一系列的士改革措施，有5個車隊成立，按運輸署計劃，車隊需要在今年7月底或之前正式運作。她說知道車隊以不同方法羅致和聘用司機，希望車隊正式運作時，可加速業界積極招聘有質素和有活力的司機加盟，更好服務市民。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798604-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798604-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798604-20250402.htm)
+
+---
+
 # 周一鳴對任命感光榮　將維護國家安全推動智慧警政及鞏固團隊文化
 
 ![周一鳴表示，對任命感光榮，將維護國家安全、推動智慧警政及鞏固團隊文化。（林漢山攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798597_1_20250402124454.jpg&q=90)
@@ -1417,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798409-20250401.htm)
-
----
-
-# 國家水利部長：全力做好對港供水保障工作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798407_1_20250401121819.jpg&q=90)
-  
-
-國家水利部部長李國英表示，當前氣候變化影響加劇，為人類社會帶來深遠影響，保障水安全的形勢更趨嚴峻複雜，未來水利部將堅定不移實踐國家主席習近平的治水思路，堅決貫徹落實一國兩制方針，與香港特區政府有關部門加強交流，全力做好對港供水保障等工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 往來航班增加　疫情後港人到西藏旅遊有上升趨勢
+
+  
+
+西藏去年遊客數字錄得超過6300萬人次，按年增長15%，創歷史新高，帶動當地的經濟收入。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798605-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798605-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798605-20250402.htm)
+
+---
+
 # 郵儲行預計今年息差仍面臨下行壓力
 
 ![劉建軍稱郵儲行今年將加大對農業生產經營、生活消費、假日、文旅等產業信貸投放。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798599_1_20250402124629.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798234-20250331.htm)
-
----
-
-# 特朗普：出售TikTok協議將在限期前敲定
-
-![特朗普在空軍一號說，有很多潛在買家對TikTok非常有興趣。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798233_1_20250331125036.jpg&q=90)
-  
-
-美國總統特朗普表示，中國公司字節跳動出售旗下短片分享平台TikTok的協議，將在4月5日期限前敲定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm](https://news.rthk.hk/rthk/ch/component/k2/1798233-20250331.htm)
 
 ---
