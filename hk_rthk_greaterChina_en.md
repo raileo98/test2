@@ -1,3 +1,27 @@
+# HKMAO reposts another article on Hutchison deal
+
+![CK Hutchison has announced plans to sell its ports, including assets along the Panama Canal. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798683_1_20250402211035.jpg&q=80)
+  
+
+The Hong Kong and Macau Affairs Office (HKMAO) on Wednesday reposted an article by the Ta Kung Pao newspaper voicing opposition to CK Hutchison's plans to sell dozens of ports, including strategic assets along the Panama Canal.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm)
+
+---
+
 # Tibet tourist numbers soar to all-time high
 
 ![The Potala Palace in Lhasa is a top tourist attraction. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798638_1_20250402164919.jpg&q=85)
@@ -1415,29 +1439,5 @@ China said on Thursday it acted in accordance with the law over the execution of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796617-20250320.htm)
-
----
-
-# Malaysia gives green light for new MH370 search
-
-![Relatives of passengers on board the missing MH370 leave after taking part in a demonstration outside the Malaysian embassy in Beijing on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796601_1_20250320142559.jpg&q=75)
-  
-
-Malaysia’s government has given final approval for a Texas-based marine robotics company to renew the search for Malaysia Airlines flight 370, which is believed to have crashed in the southern Indian Ocean more than a decade ago.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796601-20250320.htm)
 
 ---

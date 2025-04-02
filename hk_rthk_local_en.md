@@ -1,3 +1,27 @@
+# HKMAO reposts another article on Hutchison deal
+
+![CK Hutchison has announced plans to sell its ports, including assets along the Panama Canal. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798683_1_20250402211035.jpg&q=80)
+  
+
+The Hong Kong and Macau Affairs Office (HKMAO) on Wednesday reposted an article by the Ta Kung Pao newspaper voicing opposition to CK Hutchison's plans to sell dozens of ports, including strategic assets along the Panama Canal.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798683-20250402.htm)
+
+---
+
 # More arrests in Fo Tan murder case
 
 ![Superintendent Li Muk-yik said officers were able to identify the suspects through surveillance cameras. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798670_1_20250402193112.jpg&q=90)
@@ -1421,29 +1445,5 @@ There were winning starts for the Hong Kong, China men's and women's squads on F
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797928-20250328.htm)
-
----
-
-# Cathay flight to Bangkok turned back after quake
-
-![Cathay Pacific says other flights operated by the airline to and from Bangkok are expected to experience delays. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797916_1_20250328190210.jpg&q=90)
-  
-
-A Cathay Pacific flight to Bangkok was forced to return to Hong Kong after take-off on Friday after a deadly earthquake that hit Thailand and Myanmar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797916-20250328.htm)
 
 ---
