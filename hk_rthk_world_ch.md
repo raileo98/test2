@@ -1,3 +1,26 @@
+# 古特雷斯呼籲國際社會向緬甸加大資金支持
+
+  
+
+新華社報道，聯合國秘書長古特雷斯呼籲國際社會，向發生7.9級地震的緬甸加大資金支持，並確保人道主義援助不受阻礙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798890-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798890-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798890-20250404.htm)
+
+---
+
 # 美國中西部和南部遭龍捲風吹襲至少7死
 
 ![田納西州遭受龍捲風吹襲，有建築物被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798888_1_20250404054316.jpg&q=80)
@@ -1410,30 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798566-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798566-20250402.htm)
-
----
-
-# 緬甸曼德勒天氣炎熱有餘震　特區救援隊消毒營地防疫病
-
-![4名醫生及護士隨特區救援隊抵達曼德勒後，每日為救援隊成員做健康檢查。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798562_1_20250402095915.jpg&q=90)
-![保安局指出，當地出現嚴重蚊患，醫管局隨團醫生特別留意預防登革熱及瘧疾問題。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798562_2_20250402095955.jpg&q=55)
-  
-
-特區救援隊正在緬甸第二大城市曼德勒救援。保安局表示，當地有餘震，救援隊基地亦感到震動。而由於天氣炎熱，早上更高達42度，救援隊需要定時消毒營地及臨時洗手間，以防瘟疫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm)
 
 ---

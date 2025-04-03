@@ -1,3 +1,26 @@
+# 古特雷斯呼籲國際社會向緬甸加大資金支持
+
+  
+
+新華社報道，聯合國秘書長古特雷斯呼籲國際社會，向發生7.9級地震的緬甸加大資金支持，並確保人道主義援助不受阻礙。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798890-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798890-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798890-20250404.htm)
+
+---
+
 # 英超車路士1:0小勝熱刺
 
 ![車路士憑安素費南迪斯攻入全場唯一入球，以1:0小勝熱刺。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798889_1_20250404071803.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm)
-
----
-
-# 加拿大將採取反制措施　日韓指示部門減低關稅影響
-
-![加拿大總理卡尼表明將採取反制措施，日韓指示部門減低關稅影響。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798817_1_20250403170754.jpg&q=85)
-  
-
-加拿大總理卡尼說，美國的關稅措施將從根本上改變全球貿易體系，將採取反制措施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798817-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798817-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798817-20250403.htm)
 
 ---
