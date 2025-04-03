@@ -1,3 +1,27 @@
+# 世貿組織稱美國關稅措施或致全球商品貿易量今年萎縮約1%
+
+![伊維拉呼籲世貿成員防止貿易緊張局勢加劇。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798873_1_20250404012242.jpg&q=90)
+  
+
+世界貿易組織總幹事伊維拉表示，美國剛宣布的新關稅及今年年初以來推出的措施，可能導致今年全球商品貿易量整體萎縮約1%，較先前預測下調近四個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm)
+
+---
+
 # 緬甸大地震逾3100死　敏昂萊抵曼谷出席地區峰會
 
 ![敏昂萊抵達曼谷出席峰會，在大會晚宴與泰國總理佩通坦合照。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798872_1_20250404011017.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm)
-
----
-
-# 配合三項鐵人賽事　中環及灣仔本周五至周日有封路及特別交通安排
-
-![亞洲三鐵半奧運距離錦標賽明日起，一連三日在中環海濱舉行，中環及灣仔將有封路及特別交通安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798801_1_20250403161530.jpg&q=80)
-  
-
-亞洲三鐵半奧運距離錦標賽明日起，一連三日在中環海濱舉行，中環及灣仔將有封路及特別交通安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm)
 
 ---

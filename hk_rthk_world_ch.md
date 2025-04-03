@@ -1,3 +1,27 @@
+# 世貿組織稱美國關稅措施或致全球商品貿易量今年萎縮約1%
+
+![伊維拉呼籲世貿成員防止貿易緊張局勢加劇。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798873_1_20250404012242.jpg&q=90)
+  
+
+世界貿易組織總幹事伊維拉表示，美國剛宣布的新關稅及今年年初以來推出的措施，可能導致今年全球商品貿易量整體萎縮約1%，較先前預測下調近四個百分點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798873-20250404.htm)
+
+---
+
 # 緬甸大地震逾3100死　敏昂萊抵曼谷出席地區峰會
 
 ![敏昂萊抵達曼谷出席峰會，在大會晚宴與泰國總理佩通坦合照。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798872_1_20250404011017.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798531-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798531-20250402.htm)
-
----
-
-# 俄外長稱俄美正準備新一輪會談以實現接觸正常化
-
-![拉夫羅夫說俄美團隊透過電話及視像會議接觸，目前看到一些進展。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798528_1_20250402025636.jpg&q=90)
-  
-
-俄羅斯外交部長拉夫羅夫表示，俄羅斯與美國正準備新一輪會談，以消除雙邊關係中的刺激因素，實現接觸正常化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798528-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798528-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798528-20250402.htm)
 
 ---
