@@ -1,26 +1,3 @@
-# 國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜
-
-  
-
-國家安全機關偵破一宗菲律賓間諜案件，拘捕3名涉嫌在中國境內從事間諜活動的菲律賓人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm)
-
----
-
 # 烏克蘭克里沃伊羅格市遭俄軍導彈襲擊至少4死十多傷
 
 ![克里沃伊羅格市曾多次遭俄軍大規模空襲。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798761_1_20250403110039.jpg&q=35)
@@ -42,6 +19,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798761-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798761-20250403.htm)
+
+---
+
+# 商務部：中方堅決反對美國對等關稅　將採取反制措施維護自身權益
+
+![商務部表明，中方堅決反對美國的對等關稅，並將堅決採取反制措施維護自身權益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798755_1_20250403101545.jpg&q=75)
+  
+
+在北京，商務部堅決反對美方宣布對所有貿易夥伴徵收對等關稅，並將堅決採取反制措施維護自身權益，強調貿易戰沒有贏家，保護主義沒有出路，中方敦促美方立即取消單邊關稅措施，與貿易夥伴通過平等對話妥善解決分歧。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm)
 
 ---
 

@@ -1,5 +1,6 @@
 # 國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜
 
+![國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798764_1_20250403114245.jpg&q=90)
   
 
 國家安全機關偵破一宗菲律賓間諜案件，拘捕3名涉嫌在中國境內從事間諜活動的菲律賓人。
