@@ -1,3 +1,27 @@
+# 外交部：菲律賓炮製多宗所謂「中國間諜案」　促停止捕風捉影
+
+![郭嘉昆表示，中國司法機關和有關部門嚴格依法辦案，也將保障有關人員的合法權益。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798806_1_20250403155437.jpg&q=90)
+  
+
+國家安全機關偵破一宗菲律賓間諜案，拘捕3名涉嫌在中國境內從事間諜活動的菲律賓籍人士。外交部表示，有關部門已經公佈具體情況，中國司法機關和有關部門嚴格依法辦案，也將保障有關人員的合法權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798806-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798806-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798806-20250403.htm)
+
+---
+
 # 外交部：反對美國打著「對等」幌子加關稅　促美方糾正錯誤做法
 
 ![外交部發言人郭嘉昆表示，中方堅決反對美方打著「對等」的幌子，對中國在內的多國輸美產品加徵關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798804_1_20250403154448.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm)
-
----
-
-# 駐港國安公署嚴厲譴責　稱美國制裁是一張廢紙
-
-![駐港國安公署嚴厲譴責美方行為，並嚴正警告任何外部勢力妄圖干涉香港維護國家安全必定碰壁。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798456_1_20250401164543.jpg&q=80)
-  
-
-美國以損害香港自治為由，制裁6名中央和特區官員。駐港國安公署嚴厲譴責美方行為，並嚴正警告任何外部勢力妄圖干涉香港維護國家安全必定碰壁，美方應趁早收起狂妄肆意囂張的霸凌做法。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm)
 
 ---

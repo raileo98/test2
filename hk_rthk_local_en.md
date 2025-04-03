@@ -1,6 +1,6 @@
 # Man convicted of Yuen Long rioting after retrial
 
-![The District Court said the defendant had taken part in "an indiscriminate attack" inside Yuen Long MTR Station. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798783_1_20250403125539.jpg&q=90)
+![A District Court judge says the defendant took part in "an indiscriminate attack" inside Yuen Long MTR station. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798783_1_20250403125539.jpg&q=90)
   
 
 A transport worker was on Thursday convicted of rioting in the Yuen Long clashes in 2019 following a retrial.

@@ -70,7 +70,7 @@
 
 # 民建聯倡北都容許地價分期支付　放寬住宅預售期限制
 
-![劉國勳建議擴大片區試點範圍，批地範圍須連接現有道路，以達致地塊連接。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798794_1_20250403153436.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798794_1_20250403153436.jpg&q=90)
   
 
 北部都會區三個「片區開發」試點，當局日前收到22份意向書。民建聯新界北立法會議員劉國勳說，反映市場歡迎新發展模式，但需要將意向書轉為投標的實際行動，關鍵在於招標條款是否符合市場運作。
