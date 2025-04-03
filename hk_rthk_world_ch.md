@@ -1,3 +1,27 @@
+# 美國中西部和南部遭龍捲風吹襲至少7死
+
+![田納西州遭受龍捲風吹襲，有建築物被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798888_1_20250404054316.jpg&q=80)
+  
+
+美國中西部和南部遭受龍捲風吹襲，至少7人死亡，13人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798888-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798888-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798888-20250404.htm)
+
+---
+
 # 特朗普：市場反應屬意料中　若中國批准TikTok交易或獲減免
 
 ![特朗普在總統專機空軍一號上回應記者提問。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798883_1_20250404052715.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm)
-
----
-
-# 《環看天下》：瑪麗娜勒龐5年不得選公職　分析料選總統機會渺茫
-
-![瑪麗娜勒龐被裁定挪用歐洲議會公款罪成，判處四年監禁，當中兩年緩期執行。她亦被禁止5年內參選任何公職。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798560_1_20250402093509.jpg&q=90)
-  
-
-法國極右領袖瑪麗娜勒龐連同她所屬政黨「國民聯盟」的多名成員，被法院裁定挪用歐洲議會公款罪成。瑪麗娜勒龐被判監4年，當中有兩年緩刑執行，5年內不得參選公職。瑪麗娜勒龐批評法庭的判決帶有政治動機，表明會上訴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798560-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798560-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798560-20250402.htm)
 
 ---

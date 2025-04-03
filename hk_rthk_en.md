@@ -1,3 +1,27 @@
+# US stocks close down sharply on tariff fallout
+
+![The S&P 500 dropped 4.8 percent in its biggest loss since 2020. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798887_1_20250404054252.jpg&q=90)
+  
+
+Wall Street led a global markets bloodbath on Thursday as countries around the world reeled from President Donald Trump's trade war, while the White House insisted the US economy will emerge victorious.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm)
+
+---
+
 # Attack on Gaza medics likely Israeli 'war crimes': UN
 
 ![People and Palestinian rescuers run for cover as Israeli strike hits a school in the al-Tuffah neighbourhood in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798885_1_20250404052856.jpg&q=85)
@@ -1415,29 +1439,5 @@ A 25-year-old Hong Kong man wanted by the police for his alleged involvement in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798572-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798572-20250402.htm)
-
----
-
-# Joe Chow appointed as new police commissioner
-
-![Joe Chow takes over as new police chief from his retiring predecessor Raymond Siu. Photo courtesy of the Hong Kong Police Force](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798573_1_20250402103051.jpg&q=90)
-  
-
-Beijing has named Joe Chow as the new Commissioner of Police, replacing Raymond Siu.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm)
 
 ---

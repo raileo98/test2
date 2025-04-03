@@ -1,3 +1,51 @@
+# 美元兌歐元、日圓及瑞士法郎跌至6個月低位
+
+![美元兌主要貨幣下跌，兌歐元、日圓及瑞士法郎都跌至6個月低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798884_1_20250404052802.jpg&q=75)
+  
+
+美元兌主要貨幣下跌，兌歐元、日圓及瑞士法郎都跌至6個月低位。投資者憂慮美國對等關稅引發全面貿易戰導致全球經濟急劇放緩及加劇通脹，正密切注視今晚美國公布非農業職位報告，以及聯儲局主席鮑威爾的講話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798884-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798884-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798884-20250404.htm)
+
+---
+
+# 美國中西部和南部遭龍捲風吹襲至少7死
+
+![田納西州遭受龍捲風吹襲，有建築物被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798888_1_20250404054316.jpg&q=80)
+  
+
+美國中西部和南部遭受龍捲風吹襲，至少7人死亡，13人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798888-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798888-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798888-20250404.htm)
+
+---
+
 # 特朗普：市場反應屬意料中　若中國批准TikTok交易或獲減免
 
 ![特朗普在總統專機空軍一號上回應記者提問。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798883_1_20250404052715.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798816-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798816-20250403.htm)
-
----
-
-# 商務部稱願與美方通過平等對話磋商　解決各自的關切
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
-  
-
-美方宣布對所有貿易夥伴徵收對等關稅。在北京，商務部新聞發言人何亞東表示，中美兩國經貿部門一直保持溝通，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm)
-
----
-
-# 港股低收352點　本周累計跌近2.5%
-
-![恒生指數收市報22849點，跌352點，跌幅約1.52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798811_1_20250403163254.jpg&q=15)
-  
-
-美國對多個國家及地區實施對等關稅，港股跟隨區內股市向下，失守23000點水平。恒生指數低開逾560點，跌至22638點，是全日低位，跌幅其後收窄至204點，收市報22849點，跌352點，跌幅約1.5%，創逾1個月收市新低，主板成交額約2895億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798811-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798811-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798811-20250403.htm)
 
 ---

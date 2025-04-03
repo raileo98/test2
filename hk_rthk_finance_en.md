@@ -1,3 +1,27 @@
+# US stocks close down sharply on tariff fallout
+
+![The S&P 500 dropped 4.8 percent in its biggest loss since 2020. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798887_1_20250404054252.jpg&q=90)
+  
+
+Wall Street led a global markets bloodbath on Thursday as countries around the world reeled from President Donald Trump's trade war, while the White House insisted the US economy will emerge victorious.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798887-20250404.htm)
+
+---
+
 # Stocks, US dollar and oil sink, as gold hits high
 
 ![Wall Street's main indices opened sharply lower, with the Nasdaq falling more than four percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798865_1_20250403221424.jpg&q=85)
@@ -1414,29 +1438,5 @@ Hong Kong has seen its winding-up orders hitting the highest level in more than 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm)
-
----
-
-# Hong Kong stocks fall 0.46pc at the open
-
-![Shares of CK Hutchison were down HK$1.10 in early trading after it announced a drop in profits for 2024. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796728_1_20250321095016.jpg&q=75)
-  
-
-Hong Kong's Hang Seng Index fell 110.88 points, or 0.46 percent, to open at 24,109 points on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm)
 
 ---
