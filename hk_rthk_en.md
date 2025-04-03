@@ -482,7 +482,7 @@ Rescue teams from the SAR and the mainland have joined hands in finding a surviv
 
 # Tibet tourist numbers soar to all-time high
 
-![The Potala Palace in Lhasa is a top tourist attraction. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798638_1_20250402164919.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798638_1_20250402164919.jpg&q=85)
   
 
 Visitor numbers to the Tibet region reached 63 million last year, its highest ever.
