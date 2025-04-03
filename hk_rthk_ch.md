@@ -1,3 +1,51 @@
+# GUM料關稅政策對港股影響有限　恒指今季末上望24000點
+
+![陳銳隆預計，恒生指數於第2季末可望升至24000點，強積金港股基金回報或再升1至2個百分點。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798785_1_20250403131816.jpg&q=90)
+  
+
+美國總統特朗普宣布對貿易夥伴實施對等關稅。強積金顧問公司GUM常務董事陳銳隆認為，關稅政策對港股表現影響有限，又說自特朗普首屆任期以來，亞洲地區外貿早已轉型，對美國的依賴程度逐漸降低。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798785-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798785-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798785-20250403.htm)
+
+---
+
+# 港股下午初段跌360點
+
+![恒生指數較早時報22841點，跌360點，跌幅1.55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798784_1_20250403130628.jpg&q=80)
+  
+
+港股下午初段繼續向下，恒生指數較早時報22841點，跌360點，跌幅1.55%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm)
+
+---
+
 # 渣打料中國或加大政策力度應對美國關稅措施
 
 ![渣打認為美國仍有手段避過特朗普關稅政策帶來經濟衰退，例如聯儲局繼續減息。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798780_1_20250403123622.jpg&q=90)

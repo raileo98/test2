@@ -1,3 +1,27 @@
+# 港股下午初段跌360點
+
+![恒生指數較早時報22841點，跌360點，跌幅1.55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798784_1_20250403130628.jpg&q=80)
+  
+
+港股下午初段繼續向下，恒生指數較早時報22841點，跌360點，跌幅1.55%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm)
+
+---
+
 # 有立會議員稱美方關稅措施影響全球貿易導致利率高企
 
 ![美國取消中國內地和香港的小額包裹豁免關稅政策 。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798771_1_20250403124051.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798604-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798604-20250402.htm)
-
----
-
-# 周一鳴對任命感光榮　將維護國家安全推動智慧警政及鞏固團隊文化
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798597_1_20250402124454.jpg&q=90)
-  
-
-新任警務處處長周一鳴表示，未來工作有三個重點方向，第一是維護國家安全，以及提升全民國家安全的意識；第二是推動智慧警政，善用科技提升行動效率、工作效能以及提供更加優質的服務；第三是鞏固團隊文化，共同價值觀及歸屬感，提供更加到位的支援及機遇發展的機會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798597-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798597-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798597-20250402.htm)
 
 ---
