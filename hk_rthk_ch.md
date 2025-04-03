@@ -1,3 +1,26 @@
+# 林健鋒：美國全球關稅措施打擊港商部署　吳永嘉：影響電商運作
+
+  
+
+美國公布針對全球的對等關稅措施，除了早前徵收的20%關稅外，還會對中國進口產品徵收34%對等關稅，令新徵稅總額達到54%。另外，美國取消對來自中國內地和香港的小額包裹豁免關稅政策，5月2日起生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798789-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798789-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798789-20250403.htm)
+
+---
+
 # 尹錫悅明日不出席憲法法院彈劾案宣判
 
 ![尹錫悅明日將在總統官邸觀看宣判直播。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798788_1_20250403142129.jpg&q=90)
