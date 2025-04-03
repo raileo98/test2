@@ -1,3 +1,26 @@
+# 國家消防救援局：今年首季逾1800宗電動自行車火災
+
+  
+
+國家消防救援局舉行記者會，交代整治電動自行車安全隱患情況。副局長宋樹欣表示，全國有3億輛電動自行車，過去一年，在相關部門及各地區共同努力下，整治工作取得初步成效，相關火災總量明顯下降。但他強調目前整個整治工作距離國務院定下的明確目標及民眾的期盼還有很大差距，電動自行車假冒偽劣和非法拆改仍然很多，老舊電動自行車的存量風險仍然很大，使用者不安全停車及充電習慣安全意識有待提高。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798778-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798778-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798778-20250403.htm)
+
+---
+
 # 國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜
 
 ![國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798764_2_20250403115547.jpg&q=90)
@@ -28,7 +51,7 @@
 ![澳門國際機場專營股份有限公司物流暨通用航空發展部總監胡漢新表示，航線成功開通具有戰略意義。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798762_2_20250403113350.jpg&q=90)
   
 
-澳門國際機場首次開拓至歐洲的跨境電商物流服務，將貨運服務由目前的東南亞、中東和美洲，延伸至西班牙馬德里，進一步完善機場貨運網絡，為粵港澳大灣區跨境電商貨物運輸，提供多一個琴澳物流新模式的選擇方案。
+澳門國際機場首次開拓至歐洲的跨境電商物流服務，將貨運服務由目前的東南亞、中東和美洲，延伸至西班牙馬德里，進一步完善機場全貨運網絡，為粵港澳大灣區跨境電商貨物運輸，提供多一個琴澳物流新模式的選擇方案。
 
   
 
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm)
-
----
-
-# 西藏自治區政府推出多項措施促進就業
-
-![西藏政府為外來企業提供補貼，包括水電費、廠房租金等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798423_1_20250401123305.jpg&q=80)
-  
-
-繼續西藏自治區成立60周年系列報道。西藏曾是全國貧困發生率最高的地區，當地政府推出多項措施促進就業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 有立會議員稱美方關稅措施影響全球貿易導致利率高企
+
+  
+
+因應美國對中國進口產品徵收新關稅安排，並取消中國內地和香港的小額包裹豁免關稅政策 。有立法會議員批評美方的做法，影響全球貿易，將導致利率高企，影響經商。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798771-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798771-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798771-20250403.htm)
+
+---
+
 # 康體通本月8日部分時間暫停服務進行系統升級工程
 
   
@@ -23,6 +46,7 @@
 
 # 醫健通用戶現可透過流動應用程式查閱公私營機構存入放射報告
 
+![醫健通用戶可以透過流動應用程式，查閱由醫管局、衞生署及私營醫護機構存入戶口的放射報告，方便市民了解自己的健康。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798775_1_20250403122709.jpg&q=90)
   
 
 醫務衞生局公布，醫健通用戶可以透過流動應用程式，查閱由醫管局、衞生署及私營醫護機構存入戶口的放射報告，方便市民了解自己的健康。
@@ -46,6 +70,7 @@
 
 # 涉火炭命案25歲男子被暫控謀殺罪
 
+![被捕男子昨日被警方帶到沙田及旺角的不同地方重組案情。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798773_1_20250403122602.jpg&q=80)
   
 
 警方暫控一名25歲男子一項謀殺罪。
@@ -93,6 +118,7 @@
 
 # 港車北上安排優化　指定遞交申請時段劃一延長至13個曆日
 
+![「港車北上」計劃的申請資格、程序和抽籤等安排均維持不變。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798765_1_20250403122402.jpg&q=90)
   
 
 運輸署公布，將於本月14日起進一步優化「港車北上」申請安排，中籤的新申請及續期申請人士的指定遞交申請時段，將由現時分別為3個曆日及6個曆日，劃一延長至13個曆日，讓申請人有更充足時間準備所需申請文件。
@@ -116,6 +142,7 @@
 
 # 元朗721事件　區院重審裁定王志榮暴動及蓄意傷人兩罪成立
 
+![區域法院裁定王志榮為犯案男子，暴動及蓄意傷人兩項罪名成立。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798763_1_20250403122322.jpg&q=90)
   
 
 元朗站「721」事件，7名白衣人罪名成立，58歲被告王志榮暴動及蓄意傷人脫罪，律政司不服，提案件呈述上訴。去年上訴庭裁定律政司上訴得直，下令案件發還原審法官葉佐文重新考慮裁決，今早區域法院為重審裁決，表示比對片中犯案男子脫口罩後的外貌，認為與王志榮非常相似，搜獲的啡色短褲及藍色運動鞋亦極為相似，裁定王志榮為犯案男子，暴動及蓄意傷人兩項罪名成立。
@@ -1406,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798597-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798597-20250402.htm)
-
----
-
-# 隧道費檢討料年內完成　陳美寶稱會考慮四大原則
-
-![陳美寶表示，運輸署正進行隧道費檢討工作，預計今年內完成，並諮詢立法會交通事務委員會。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798594_1_20250402124606.jpg&q=90)
-  
-
-運輸及物流局局長陳美寶表示，運輸署正進行隧道費檢討工作，預計今年內完成，並諮詢立法會交通事務委員會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798594-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798594-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798594-20250402.htm)
 
 ---

@@ -1,9 +1,9 @@
 # Three traffic accidents disrupt early morning commute
 
-![A seven-car pile-up occurred in the early hours of Thursday on Lung Cheung Road. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798758_1_20250403103909.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798758_1_20250403103909.jpg&q=80)
   
 
-A series of traffic accidents disrupted early morning commute on Thursday, with collisions occurring in quick succession along Lung Cheung Road and Ching Cheung Road.
+A series of traffic accidents disrupted early morning commutes on Thursday, with collisions occurring in quick succession along Lung Cheung Road and Ching Cheung Road.
 
   
 
