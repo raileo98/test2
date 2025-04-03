@@ -1,3 +1,27 @@
+# 歐洲主要股市低收　德法股市挫逾3%
+
+![法蘭克福DAX指數報21717點，跌673點，跌幅3.01%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798879_1_20250404042312.jpg&q=90)
+  
+
+歐洲主要股市下跌。投資者擔心貿易戰不斷升溫將剎停經濟增長。對經濟敏感的銀行、基礎資源、銀行及奢侈品類股份下挫，資金流入防守性較強的公用及房地產股份。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798879-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798879-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798879-20250404.htm)
+
+---
+
 # 內塔尼亞胡讚揚匈牙利退出國際刑事法院是大膽和有原則
 
 ![歐爾班與內塔尼亞胡見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798878_1_20250404034254.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798809-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798809-20250403.htm)
-
----
-
-# 海關檢市值約2900萬元懷疑可卡因　搗破紅磡酒店房間儲存倉
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798808_1_20250403165523.jpg&q=90)
-  
-
-海關在紅磡搗破一個懷疑毒品儲存倉，檢獲約34公斤懷疑可卡因，估計市值約2900萬元，拘捕一名23歲男子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798808-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798808-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798808-20250403.htm)
 
 ---
