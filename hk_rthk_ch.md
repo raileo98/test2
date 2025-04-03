@@ -1,3 +1,27 @@
+# 道指曾跌近1600點　納指跌逾5%
+
+![道瓊斯指數一度跌近1600點，較早時報40723點，跌1501點，跌幅3.56%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798868_1_20250403224545.jpg&q=90)
+  
+
+美股3大指數跌幅擴大，大型科技股急挫。美國宣布對多個國家及地區徵收對等關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798868-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798868-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798868-20250403.htm)
+
+---
+
 # 標普全球美國3月服務業PMI終值為54.4　略好過預期
 
   
