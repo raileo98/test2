@@ -1,3 +1,27 @@
+# Attack on Gaza medics likely Israeli 'war crimes': UN
+
+![People and Palestinian rescuers run for cover as Israeli strike hits a school in the al-Tuffah neighbourhood in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798885_1_20250404052856.jpg&q=85)
+  
+
+The death of 15 medics and humanitarian workers in Gaza after shots were fired at their ambulances raises further concerns of "war crimes by the Israeli army," the UN High Commissioner for Human Rights said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798885-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798885-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798885-20250404.htm)
+
+---
+
 # Hong Kong calls on US to withdraw 'bullying' tariffs
 
 ![The SAR government says it'll take actions to defend the city's legitimate rights. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798851_1_20250403202459.jpg&q=85)
@@ -1411,29 +1435,5 @@ US President Donald Trump on Sunday threatened Iran with bombings and secondary 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm)
-
----
-
-# Foreign aid, rescuers come to Myanmar's assistance
-
-![This building in Mandalay is among those that collapsed in Friday's killer earthquake. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798150_1_20250330223525.jpg&q=80)
-  
-
-The toll from Myanmar's earthquake continued to rise on Sunday, as foreign rescue teams and aid rushed into the country where hospitals were overwhelmed and some communities scrambled to mount rescue efforts with limited resources.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm)
 
 ---

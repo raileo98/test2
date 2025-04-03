@@ -1,3 +1,27 @@
+# Attack on Gaza medics likely Israeli 'war crimes': UN
+
+![People and Palestinian rescuers run for cover as Israeli strike hits a school in the al-Tuffah neighbourhood in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798885_1_20250404052856.jpg&q=85)
+  
+
+The death of 15 medics and humanitarian workers in Gaza after shots were fired at their ambulances raises further concerns of "war crimes by the Israeli army," the UN High Commissioner for Human Rights said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798885-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798885-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798885-20250404.htm)
+
+---
+
 # Stocks, US dollar and oil sink, as gold hits high
 
 ![Wall Street's main indices opened sharply lower, with the Nasdaq falling more than four percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798865_1_20250403221424.jpg&q=85)
@@ -1415,29 +1439,5 @@ Beijing has named Joe Chow as the new Commissioner of Police, replacing Raymond 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798573-20250402.htm)
-
----
-
-# US senator makes record books with 25-hour talk-a-thon
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798571_1_20250402102752.jpg&q=90)
-  
-
-A Democratic US lawmaker shattered a record for the longest speech in Senate history, staying on his feet for more than 25 hours to deliver a fiery protest against President Donald Trump's "unconstitutional" actions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm)
 
 ---

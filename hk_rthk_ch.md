@@ -1,3 +1,27 @@
+# 特朗普：市場反應屬意料中　若中國批准TikTok交易或獲減免
+
+![特朗普在總統專機空軍一號上回應記者提問。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798883_1_20250404052715.jpg&q=90)
+  
+
+美國總統特朗普表示，市場對關稅措施的反應屬意料之中，如果其他國家提出非常有吸引力的條件，他對於關稅談判持開放態度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798883-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798883-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798883-20250404.htm)
+
+---
+
 # 紐約期金低收1.4%
 
 ![外圍金價創新高後下跌。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798881_1_20250404045719.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798811-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798811-20250403.htm)
-
----
-
-# 廉署起訴一名銀行職員兩名保險經紀　涉受賄助客戶開立銀行戶口
-
-![廉政公署落案起訴一名銀行職員和一對保險經紀兼中介夫婦，涉嫌串謀收受賄款超過15萬元，以協助中介的客戶開立銀行戶口。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798813_1_20250403171553.jpg&q=90)
-  
-
-廉政公署落案起訴一名銀行職員和一對保險經紀兼中介夫婦，涉嫌串謀收受賄款超過15萬元，以協助中介的客戶開立銀行戶口。案件下星期一在東區裁判法院提訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 特朗普：市場反應屬意料中　若中國批准TikTok交易或獲減免
+
+![特朗普在總統專機空軍一號上回應記者提問。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798883_1_20250404052715.jpg&q=90)
+  
+
+美國總統特朗普表示，市場對關稅措施的反應屬意料之中，如果其他國家提出非常有吸引力的條件，他對於關稅談判持開放態度。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798883-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798883-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798883-20250404.htm)
+
+---
+
 # 內塔尼亞胡讚揚匈牙利退出國際刑事法院是大膽和有原則
 
 ![歐爾班與內塔尼亞胡見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798878_1_20250404034254.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798560-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798560-20250402.htm)
-
----
-
-# 火炭謀殺案　25歲被通緝疑犯於泰國芭堤雅落網
-
-![泰國傳媒引述當地移民局表示，警方在春武里府一間出租屋內，拘捕該名譯名為Truong的通緝犯，相信他在香港犯案後逃往當地。（泰國移民局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798555_1_20250402093832.jpg&q=90)
-  
-
-火炭麗禾里上月中發生的謀殺案，被通緝的一名25歲疑犯，在泰國芭堤雅落網，他將會被驅逐出境，遞解回港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm)
 
 ---
