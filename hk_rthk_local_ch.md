@@ -1,3 +1,26 @@
+# 鄭雁雄指要加強教育對科技和人才的支撐作用
+
+  
+
+特區政府舉辦學習全國兩會精神座談會，行政長官李家超主持。中聯辦主任鄭雁雄應邀出席並作交流分享。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm)
+
+---
+
 # 中電稱已制定應變方案減少山火對電力系統潛在風險
 
 ![中電表示，已制定應變方案，減少山火對電力系統造成的潛在風險。（中電提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798844_1_20250403193210.jpg&q=80)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm)
-
----
-
-# 何永賢：必須持續供應居屋　成為年輕人置業希望
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798648_2_20250402194405.jpg&q=90)
-  
-
-房屋局局長何永賢接受本台節目《盤點政策》訪問。她表示，居屋認購超額30多倍至60倍不等，反映置業需求很大，認為必須持續供應居屋，成為年輕人的置業希望。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798648-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798648-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798648-20250402.htm)
 
 ---
