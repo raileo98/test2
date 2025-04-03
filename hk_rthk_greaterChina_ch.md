@@ -1,3 +1,28 @@
+# 澳門入境旅客突破1千萬人次　恢復至疫情前同期九成半水平
+
+![澳門今年入境旅各量，比去年提前了11天突破1千萬人次。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798867_1_20250403223907.jpg&q=80)
+![隨著當局推動橫琴與澳門的往來，橫琴口岸已成為澳門第三個旅客常用通道。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798867_2_20250403223907.jpg&q=75)
+  
+
+澳門今年比去年提前11天錄得入境旅客突破1千萬人次，恢復到2019年疫情前同期的九成半。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm)
+
+---
+
 # 再多一名中國人死於緬甸大地震
 
 ![中國駐緬甸大使館確認，再多一名中國人死於緬甸中部大地震。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798862_1_20250403223629.jpg&q=90)
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm)
-
----
-
-# 普京指俄中應續發加強戰略協作信號　王毅稱兩國合作不受外部干擾
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
-  
-
-俄羅斯總統普京在首都莫斯科，會見到訪的中共中央政治局委員、外交部長王毅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm)
 
 ---

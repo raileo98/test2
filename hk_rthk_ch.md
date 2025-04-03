@@ -1,3 +1,28 @@
+# 澳門入境旅客突破1千萬人次　恢復至疫情前同期九成半水平
+
+![澳門今年入境旅各量，比去年提前了11天突破1千萬人次。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798867_1_20250403223907.jpg&q=80)
+![隨著當局推動橫琴與澳門的往來，橫琴口岸已成為澳門第三個旅客常用通道。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798867_2_20250403223907.jpg&q=75)
+  
+
+澳門今年比去年提前11天錄得入境旅客突破1千萬人次，恢復到2019年疫情前同期的九成半。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm)
+
+---
+
 # ISM：美國3月非製造業指數跌至50.8　低過預期
 
   
