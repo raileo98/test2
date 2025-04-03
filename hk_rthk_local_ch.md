@@ -1,3 +1,26 @@
+# 民建聯倡北都容許地價分期支付　放寬住宅預售期限制
+
+  
+
+北部都會區三個「片區開發」試點，當局日前收到22份意向書。民建聯新界北立法會議員金為，反映市場歡迎新發展模式，但需要將意向書轉為投標的實際行動，關鍵在於招標條款是否符合市場運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798794-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798794-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798794-20250403.htm)
+
+---
+
 # 林健鋒：美國全球關稅措施打擊港商部署　吳永嘉：影響電商運作
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798609-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798609-20250402.htm)
-
----
-
-# 周一鳴認為社會存在軟對抗　無懼制裁不影響與海外合作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798606_1_20250402135114.jpg&q=80)
-  
-
-新任警務處處長周一鳴表示，《香港國安法》及《維護國家安全條例》實施有如「定海神針」，雖然社會平靜，但暗湧處處，很多人以不同方式「軟對抗」，希望透過媒體、文化藝術項目嘗試煽動其他人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798606-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798606-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798606-20250402.htm)
 
 ---

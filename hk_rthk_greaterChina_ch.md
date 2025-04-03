@@ -1,3 +1,27 @@
+# 中國政府第二批援助緬甸物資運抵仰光機場
+
+![中國政府向緬甸提供的第二批緊急人道救災援助物資抵達仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798791_1_20250403144239.jpg&q=90)
+  
+
+緬甸大地震搜救工作持續，國家管理委員會說，截至當地時間今天上午8時，強震已導致3085人死亡，4715人受傷，另有341人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm)
+
+---
+
 # 渣打料中國或加大政策力度應對美國關稅措施
 
 ![渣打認為美國仍有手段避過特朗普關稅政策帶來經濟衰退，例如聯儲局繼續減息。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798780_1_20250403123622.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm)
-
----
-
-# 陳國基冀市民透過各項展覽了解東江水供港歷史及國家關懷
-
-![發展局和水務署今日起至6月13日，在添馬公園舉辦藝術展覽「舞動水滴展」。（陳國基社交網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798448_1_20250401153234.jpg&q=75)
-  
-
-政務司司長陳國基表示，東江水是香港主要的食水來源，形容如同血脈般滋養這片土地，為香港社會經濟發展和市民安居樂業築牢根基。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798448-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798448-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798448-20250401.htm)
 
 ---
