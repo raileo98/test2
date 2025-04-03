@@ -1,6 +1,34 @@
-# 商務部：中方堅決反對美國對等關稅　將採取措施維護自身權益
+# 財新中國3月服務業PMI升至51.9　新訂單加快增長
+
+![財新中國3月服務業採購經理指數升至51.9，按月升0.5，連續逾兩年處於50以上的擴張水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798753_1_20250403100417.jpg&q=90)
+  
+
+財新中國3月服務業採購經理指數（PMI）升至51.9，按月升0.5，連續逾兩年處於50以上擴張水平。數據顯示服務業活動擴張速度加快，增速溫和。
 
   
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798753-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798753-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798753-20250403.htm)
+
+---
+
+# 商務部：中方堅決反對美國對等關稅　將採取反制措施維護自身權益
+
+![商務部表明，中方堅決反對美國的對等關稅，並將堅決採取反制措施維護自身權益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798755_1_20250403101545.jpg&q=75)
+  
+
+在北京，商務部堅決反對美方宣布對所有貿易夥伴徵收對等關稅，並將堅決採取反制措施維護自身權益，強調貿易戰沒有贏家，保護主義沒有出路，中方敦促美方立即取消單邊關稅措施，與貿易夥伴通過平等對話妥善解決分歧。
+
   
 
 
@@ -1410,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm)
-
----
-
-# 李家超：東江水支持香港經濟　確保可持續發展和長期繁榮
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798393_1_20250401111135.jpg&q=90)
-  
-
-行政長官李家超表示，60年前東江水正式供港，60年間為香港提供70%至80%的用水需求。隨著香港對水資源需求增加，東深供水系統已進行過3次擴建和改造，對港供水量提升到每年8億2000萬立方米，增長12倍。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm)
 
 ---

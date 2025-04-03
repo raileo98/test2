@@ -1,6 +1,57 @@
-# 商務部：中方堅決反對美國對等關稅　將採取措施維護自身權益
+# 運輸署籲清明節長周末往返內地及澳門　於非繁忙時段出行
 
   
+
+運輸署表示，清明節是香港和內地的公眾假期，呼籲於長周末、即本月4至6日經各陸路管制站往返內地及澳門的市民、內地旅客及跨境車輛，及早規劃行程，預留充裕交通時間，於非繁忙時段出行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798757-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798757-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798757-20250403.htm)
+
+---
+
+# 財新中國3月服務業PMI升至51.9　新訂單加快增長
+
+![財新中國3月服務業採購經理指數升至51.9，按月升0.5，連續逾兩年處於50以上的擴張水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798753_1_20250403100417.jpg&q=90)
+  
+
+財新中國3月服務業採購經理指數（PMI）升至51.9，按月升0.5，連續逾兩年處於50以上擴張水平。數據顯示服務業活動擴張速度加快，增速溫和。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798753-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798753-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798753-20250403.htm)
+
+---
+
+# 商務部：中方堅決反對美國對等關稅　將採取反制措施維護自身權益
+
+![商務部表明，中方堅決反對美國的對等關稅，並將堅決採取反制措施維護自身權益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798755_1_20250403101545.jpg&q=75)
+  
+
+在北京，商務部堅決反對美方宣布對所有貿易夥伴徵收對等關稅，並將堅決採取反制措施維護自身權益，強調貿易戰沒有贏家，保護主義沒有出路，中方敦促美方立即取消單邊關稅措施，與貿易夥伴通過平等對話妥善解決分歧。
+
   
 
 
@@ -18,8 +69,9 @@
 
 ---
 
-# 發展局：前南丫島石礦場用地旅遊元素先行顧問　初步顯示財務可行
+# 發展局：前南丫島石礦場用地旅遊元素先行　初步顯示財務可行
 
+![何珮玲表示，針對前南丫島石礦場用地建議發展為生態旅遊地點，希望以旅遊元素先行。（立法會文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798754_1_20250403103830.jpg&q=90)
   
 
 發展局推出3個生態旅遊發展片區項目，邀請發展商提交意向書。發展局常任秘書長何珮玲在一個電台節目表示，針對前南丫島石礦場用地建議發展為生態旅遊地點，相對10年前的想法，當局今次希望以旅遊元素先行，降低住宅樓面的成份，由於項目附近有海灣，因此希望有遊艇會，顧問初步分析顯示財務可行，在減少發展規模及減少對基建需求下，整塊地會以單一形式推出。
@@ -1383,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm)
-
----
-
-# 羅淑佩拜會國務院港澳辦和國家體育總局
-
-![羅淑佩拜會國務院港澳辦和國家體育總局](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798682_1_20250402212217.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩展開北京行程，拜會國務院港澳辦和國家體育總局。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm)
-
----
-
-# 約4.8萬人應考文憑試中文科　考評局指各試場運作暢順
-
-![考評局表示，各試場學校整體運作暢順，考試順利按時完成。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798681_1_20250402212515.jpg&q=85)
-  
-
-文憑試首個核心科目中文科今日開考，大約4萬8千名考生在超過430個一般試場和超過540個特別試場應考，考評局表示，各試場學校整體運作暢順，考試順利按時完成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798681-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798681-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798681-20250402.htm)
 
 ---

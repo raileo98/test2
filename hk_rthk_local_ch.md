@@ -1,5 +1,29 @@
-# 發展局：前南丫島石礦場用地旅遊元素先行顧問　初步顯示財務可行
+# 運輸署籲清明節長周末往返內地及澳門　於非繁忙時段出行
 
+  
+
+運輸署表示，清明節是香港和內地的公眾假期，呼籲於長周末、即本月4至6日經各陸路管制站往返內地及澳門的市民、內地旅客及跨境車輛，及早規劃行程，預留充裕交通時間，於非繁忙時段出行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798757-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798757-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798757-20250403.htm)
+
+---
+
+# 發展局：前南丫島石礦場用地旅遊元素先行　初步顯示財務可行
+
+![何珮玲表示，針對前南丫島石礦場用地建議發展為生態旅遊地點，希望以旅遊元素先行。（立法會文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798754_1_20250403103830.jpg&q=90)
   
 
 發展局推出3個生態旅遊發展片區項目，邀請發展商提交意向書。發展局常任秘書長何珮玲在一個電台節目表示，針對前南丫島石礦場用地建議發展為生態旅遊地點，相對10年前的想法，當局今次希望以旅遊元素先行，降低住宅樓面的成份，由於項目附近有海灣，因此希望有遊艇會，顧問初步分析顯示財務可行，在減少發展規模及減少對基建需求下，整塊地會以單一形式推出。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798586-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798586-20250402.htm)
-
----
-
-# 李家超：深信周一鳴定能有力帶領警隊　迎接未來挑戰
-
-![周一鳴（左）在行政長官李家超（右）監誓下宣誓就職。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798579_2_20250402115048.jpg&q=90)
-  
-
-行政長官李家超公布，依照《基本法》有關規定，中央政府根據行政長官的提名及建議，任命周一鳴為警務處處長，同時免去蕭澤頤的警務處處長職務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798579-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798579-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798579-20250402.htm)
 
 ---

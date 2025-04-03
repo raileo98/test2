@@ -1,3 +1,75 @@
+# 財新中國3月服務業PMI升至51.9　新訂單加快增長
+
+![財新中國3月服務業採購經理指數升至51.9，按月升0.5，連續逾兩年處於50以上的擴張水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798753_1_20250403100417.jpg&q=90)
+  
+
+財新中國3月服務業採購經理指數（PMI）升至51.9，按月升0.5，連續逾兩年處於50以上擴張水平。數據顯示服務業活動擴張速度加快，增速溫和。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798753-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798753-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798753-20250403.htm)
+
+---
+
+# 商務部：中方堅決反對美國對等關稅　將採取反制措施維護自身權益
+
+![商務部表明，中方堅決反對美國的對等關稅，並將堅決採取反制措施維護自身權益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798755_1_20250403101545.jpg&q=75)
+  
+
+在北京，商務部堅決反對美方宣布對所有貿易夥伴徵收對等關稅，並將堅決採取反制措施維護自身權益，強調貿易戰沒有贏家，保護主義沒有出路，中方敦促美方立即取消單邊關稅措施，與貿易夥伴通過平等對話妥善解決分歧。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm)
+
+---
+
+# 發展局：前南丫島石礦場用地旅遊元素先行　初步顯示財務可行
+
+![何珮玲表示，針對前南丫島石礦場用地建議發展為生態旅遊地點，希望以旅遊元素先行。（立法會文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798754_1_20250403103830.jpg&q=90)
+  
+
+發展局推出3個生態旅遊發展片區項目，邀請發展商提交意向書。發展局常任秘書長何珮玲在一個電台節目表示，針對前南丫島石礦場用地建議發展為生態旅遊地點，相對10年前的想法，當局今次希望以旅遊元素先行，降低住宅樓面的成份，由於項目附近有海灣，因此希望有遊艇會，顧問初步分析顯示財務可行，在減少發展規模及減少對基建需求下，整塊地會以單一形式推出。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798754-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798754-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798754-20250403.htm)
+
+---
+
 # 人行開展2234億元人民幣逆回購操作　本周淨回籠5019億元
 
 ![據外電測算，人行本周在公開市場淨回籠5019億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798746_1_20250403094219.jpg&q=80)
@@ -1362,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm)
-
----
-
-# 恒指競價時段跌39點
-
-![恒生指數競價時段報23167點，跌39點，跌幅0.17%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798557_1_20250402092248.jpg&q=65)
-  
-
-港股輕微低開，恒生指數競價時段報23167點，跌39點，跌幅0.17%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798557-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798557-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798557-20250402.htm)
-
----
-
-# 人民幣兌美元中間價逼近7.18水平　創逾兩個月新低
-
-![人民幣中間價報7.1793兌1美元，較昨日中間價跌18點子，創逾兩個月最低。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798556_1_20250402091807.jpg&q=75)
-  
-
-人民幣中間價報7.1793兌1美元，較昨日中間價跌18點子，創1月20日以來最低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798556-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798556-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798556-20250402.htm)
-
----
-
-# 台股開市後偏軟
-
-![台灣加權指數較早時報21266點，跌13點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798554_1_20250402090554.jpg&q=90)
-  
-
-台灣股市偏軟。加權指數較早時報21266點，跌13點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798554-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798554-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798554-20250402.htm)
 
 ---
