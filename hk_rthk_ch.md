@@ -1,3 +1,46 @@
+# 商務部：中方堅決反對美國對等關稅　將採取措施維護自身權益
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm)
+
+---
+
+# 發展局：前南丫島石礦場用地旅遊元素先行顧問　初步顯示財務可行
+
+  
+
+發展局推出3個生態旅遊發展片區項目，邀請發展商提交意向書。發展局常任秘書長何珮玲在一個電台節目表示，針對前南丫島石礦場用地建議發展為生態旅遊地點，相對10年前的想法，當局今次希望以旅遊元素先行，降低住宅樓面的成份，由於項目附近有海灣，因此希望有遊艇會，顧問初步分析顯示財務可行，在減少發展規模及減少對基建需求下，整塊地會以單一形式推出。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798754-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798754-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798754-20250403.htm)
+
+---
+
 # 人行開展2234億元人民幣逆回購操作　本周淨回籠5019億元
 
 ![據外電測算，人行本周在公開市場淨回籠5019億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798746_1_20250403094219.jpg&q=80)
@@ -1388,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798681-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798681-20250402.htm)
-
----
-
-# 美國3月ADP私人市場新增職位15.5萬個　多過預期
-
-![ADP報告指，美國3月私人市場新增職位15.5萬個，多過市場預期的11.5萬個。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798680_1_20250402204947.jpg&q=90)
-  
-
-人力資源服務公司ADP報告指，美國3月私人市場新增職位15.5萬個，多過市場預期的11.5萬個，亦多過2月向上修訂後的8.4萬個。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798680-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798680-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798680-20250402.htm)
-
----
-
-# 特區救援隊救出一名生還者　指揮官：只要有一個機會也不會放棄
-
-![救援隊指揮官表示，能夠在地震發生6日後找到生還者，救援隊感到非常鼓舞和振奮。（香港消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798678_1_20250402210137.jpg&q=85)
-  
-
-正在緬甸地震災區協助搜救工作的特區救援隊，今日成功救出一名生還者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm)
 
 ---

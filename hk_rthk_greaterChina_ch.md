@@ -1,3 +1,23 @@
+# 商務部：中方堅決反對美國對等關稅　將採取措施維護自身權益
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm)
+
+---
+
 # 中國政府援助緬甸第二批緊急人道主義地震救災物資啟運
 
 ![中國政府首批援助物資上月31日抵達緬甸仰光國際機場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798740_1_20250403091327.jpg&q=90)
@@ -1414,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798393-20250401.htm)
-
----
-
-# 國台辦：解放軍聯合演訓是對賴清德當局猖狂謀「獨」挑釁堅決懲戒
-
-![國台辦稱，解放軍聯合演訓是對賴清德當局猖狂謀「獨」挑釁的堅決懲戒。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798382_1_20250401092006.jpg&q=90)
-  
-
-解放軍東部戰區於台島周邊開展聯合演訓，國台辦表示，演訓是對賴清德當局倡狂謀「獨」挑釁的堅決懲戒，是對「台獨」分裂勢力蓄意破壞台海和平的嚴正警告，是捍衛國家主權和領土完整的必要之舉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798382-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798382-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798382-20250401.htm)
 
 ---

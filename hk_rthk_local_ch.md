@@ -1,3 +1,26 @@
+# 發展局：前南丫島石礦場用地旅遊元素先行顧問　初步顯示財務可行
+
+  
+
+發展局推出3個生態旅遊發展片區項目，邀請發展商提交意向書。發展局常任秘書長何珮玲在一個電台節目表示，針對前南丫島石礦場用地建議發展為生態旅遊地點，相對10年前的想法，當局今次希望以旅遊元素先行，降低住宅樓面的成份，由於項目附近有海灣，因此希望有遊艇會，顧問初步分析顯示財務可行，在減少發展規模及減少對基建需求下，整塊地會以單一形式推出。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798754-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798754-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798754-20250403.htm)
+
+---
+
 # 積金局：各類基金過去1年平均淨回報均錄正數　股票基金表現最好
 
 ![積金局數據顯示，強積金各類基金在過去12個月平均年率化淨回報都是正數，並提醒不應以短線投資角度看待。（積金局圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798750_1_20250403095209.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798579-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798579-20250402.htm)
-
----
-
-# 有市民成年後即輪候公屋　何永賢冀矯正觀念
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798576_1_20250402104736.jpg&q=80)
-  
-
-房屋局局長何永賢在本台電視節目《盤點政策》表示，接任局長兩年半以來，面對的最主要問題是房屋供應不足，本港過往曾有一段長時間沒有居屋，以致居屋的認購額超標30多倍至60倍不等，反映置業需求很大。對於有市民在18歲便輪候公屋，她認為要找機會理順或矯正這個觀念，重申居屋很重要，而且必須要持續供應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798576-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798576-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798576-20250402.htm)
 
 ---

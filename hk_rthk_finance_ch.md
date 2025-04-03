@@ -141,32 +141,6 @@
 
 ---
 
-# 西藏火車設供氧系統　旅客感放心同時冀列車能提速
-
-![來往拉薩及林芝的「拉林鐵路」於2021年正式通車。（青藏鐵路集團提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798742_1_20250403092356.jpg&q=65)
-![拉林鐵路主力採用復興號高原動車組。（葉燿坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798742_2_20250403092356.jpg&q=90)
-![截至今年2月，西藏鐵路累計運載超過3875萬旅客人次。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798742_3_20250403092356.jpg&q=90)
-  
-
-青藏鐵路2006年起落成通車後，西藏鐵路系統逐步擴展，改善當地居民出行及商業活動。截至今年2月，累計運營里程超過1180萬公里、運載超過3875萬旅客人次、貨物9256萬噸。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm)
-
----
-
 # 人民幣兌美元中間價下跌
 
 ![人民幣兌美元中間價報7.1889，較上日中間價跌96點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798741_1_20250403091729.jpg&q=80)
@@ -1436,5 +1410,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798556-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798556-20250402.htm)
+
+---
+
+# 台股開市後偏軟
+
+![台灣加權指數較早時報21266點，跌13點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798554_1_20250402090554.jpg&q=90)
+  
+
+台灣股市偏軟。加權指數較早時報21266點，跌13點。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798554-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798554-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798554-20250402.htm)
 
 ---
