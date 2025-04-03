@@ -337,7 +337,7 @@ Myanmar's junta announced a temporary ceasefire on Wednesday as the death toll f
 
 # Trump unveils sweeping global tariffs
 
-![Donald Trump – who held up a chart with a list of levies – has said  the US "has been looted, pillaged, raped and plundered by nations near and far, both friend and foe alike". Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798719_1_20250403055136.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798719_1_20250403055136.jpg&q=90)
   
 
 US President Donald Trump on Wednesday unveiled a raft of punishing tariffs targeting countries around the world including some of its closest trading partners, in a move that risks sparking a ruinous trade war.
