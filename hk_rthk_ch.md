@@ -1,3 +1,95 @@
+# 香港律師會訪京　湯文龍稱任何對公職人員制裁都是對法治侮辱
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm)
+
+---
+
+# 美股3大指數期貨跌逾2%至3%　道指期貨挫逾千點
+
+![道瓊斯指數期貨一度跌逾1100點，較早時報41472點，跌1020點，跌幅2.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798821_1_20250403172029.jpg&q=90)
+  
+
+美國對多個國家同地區徵收對等關稅，美股指數期貨急挫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798821-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798821-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798821-20250403.htm)
+
+---
+
+# 本港二手樓價按周升逾1%　港島樓價急升近3.5%
+
+![中原城市領先指數（CCL）最新報136.82點，按周升1.12%，反映3月中旬個別新盤熱銷。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798823_1_20250403172334.jpg&q=70)
+  
+
+反映本港二手樓價走勢的中原城市領先指數（CCL）最新報136.82點，按周升1.12%，連升兩周，亦是12周以來最大單周升幅，反映3月中旬天水圍和大埔個別新盤熱銷的當周市況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798823-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798823-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798823-20250403.htm)
+
+---
+
+# 商務部：中歐同意盡快重啟電動汽車反補貼案價格承諾談判
+
+![何亞東說，中歐雙方同意盡快重啟電動汽車反補貼案價格承諾談判，為推動中歐企業開展投資和產業合作營造良好的環境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798822_1_20250403172239.jpg&q=75)
+  
+
+在北京，商務部新聞發言人何亞東表示，中歐雙方同意盡快重啟電動汽車反補貼案價格承諾談判，為推動中歐企業開展投資和產業合作營造良好的環境。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798822-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798822-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798822-20250403.htm)
+
+---
+
 # 約5萬考生應考文憑試英文科卷一及卷二　考評局：各試場運作暢順
 
   

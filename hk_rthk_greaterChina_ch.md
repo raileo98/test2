@@ -1,3 +1,27 @@
+# 商務部：中歐同意盡快重啟電動汽車反補貼案價格承諾談判
+
+![何亞東說，中歐雙方同意盡快重啟電動汽車反補貼案價格承諾談判，為推動中歐企業開展投資和產業合作營造良好的環境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798822_1_20250403172239.jpg&q=75)
+  
+
+在北京，商務部新聞發言人何亞東表示，中歐雙方同意盡快重啟電動汽車反補貼案價格承諾談判，為推動中歐企業開展投資和產業合作營造良好的環境。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798822-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798822-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798822-20250403.htm)
+
+---
+
 # 習近平向老撾國家主席致唁電　就坎代逝世表示沉痛哀悼
 
 ![習近平說，中方願與老方一起努力，推動中老命運共同體建設以及各自社會主義事業不斷取得更大發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798819_1_20250403171724.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm)
-
----
-
-# 港澳辦：美國制裁暴露霸權霸道　黔驢技窮歇斯底里
-
-![發言人表示，美國所謂報告的鼓噪和制裁的恫嚇，絲毫動搖不了中央政府和香港特區政府維護國家安全和香港法治的決心意志。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798477_1_20250401174045.jpg&q=80)
-  
-
-國務院港澳辦表示，強烈反對、嚴厲譴責美國國務院發表所謂「香港政策法報告」，抹黑詆毀香港國安法治並對中央政府和香港特區政府有關官員實施所謂制裁。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm)
 
 ---

@@ -1,3 +1,27 @@
+# SAR women's cycling team wins Tour of Thailand
+
+![The Hong Kong, China, team finished in an overall time of 19 hours, 43 minutes and 37 seconds. Photo courtesy of The Princess Maha Chakri Sirindhorn's Cup Tour of Thailand](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798818_1_20250403171524.jpg&q=80)
+  
+
+The Hong Kong, China, women's cycling team rode their way to victory at the three-day women's Tour of Thailand, while rising star Ceci Lee claimed second place in the individual general classification.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm)
+
+---
+
 # Heat sink Celtics for sixth straight win; Cavs roll on
 
 ![Tyler Herro led the Heat with 25 points, as six other Miami players finished in double figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798766_1_20250403113553.jpg&q=90)
@@ -1428,29 +1452,5 @@ Hong Kong's rising tennis star Coleman Wong on Monday fell short of a third roun
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797228-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797228-20250325.htm)
-
----
-
-# Billiards, tennis retain Tier A status
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797192_1_20250324223333.jpg&q=90)
-  
-
-The government announced on Monday that tennis and billiards have retained their Tier A sport status for two years, avoiding a downgrade that would result in significant funding cuts.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm)
 
 ---

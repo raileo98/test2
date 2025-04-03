@@ -1,4 +1,28 @@
-# HK stocks joins market in seeing red from tariffs
+# SAR women's cycling team wins Tour of Thailand
+
+![The Hong Kong, China, team finished in an overall time of 19 hours, 43 minutes and 37 seconds. Photo courtesy of The Princess Maha Chakri Sirindhorn's Cup Tour of Thailand](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798818_1_20250403171524.jpg&q=80)
+  
+
+The Hong Kong, China, women's cycling team rode their way to victory at the three-day women's Tour of Thailand, while rising star Ceci Lee claimed second place in the individual general classification.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798818-20250403.htm)
+
+---
+
+# HK stocks joins markets in seeing red from tariffs
 
 ![Stocks in Hong Kong ended the day down 1.52 percent at 22,849.81. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_1_20250403170035.jpg&q=80)
 ![The Nikkei pared its losses to close 2.8 percent down. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_2_20250403170035.jpg&q=90)
@@ -1415,30 +1439,5 @@ A French appeals court said on Tuesday it would examine Marine Le Pen's case wit
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm)
-
----
-
-# Forest beat Man Utd; Saka scores on Arsenal return
-
-![Nottingham Forest's Anthony Elanga scored the only goal of the match against United. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798535_1_20250402054006.jpg&q=90)
-![Bukayo Saka scored in his first appearance with Arsenal since December. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798535_2_20250402054006.jpg&q=90)
-  
-
-Nottingham Forest beat Manchester United 1-0 to close in on Champions League football next season as Bukayo Saka scored in Arsenal's 2-1 win over Fulham on his return from injury.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm)
 
 ---

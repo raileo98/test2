@@ -1,4 +1,4 @@
-# HK stocks joins market in seeing red from tariffs
+# HK stocks joins markets in seeing red from tariffs
 
 ![Stocks in Hong Kong ended the day down 1.52 percent at 22,849.81. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_1_20250403170035.jpg&q=80)
 ![The Nikkei pared its losses to close 2.8 percent down. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_2_20250403170035.jpg&q=90)
