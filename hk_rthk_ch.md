@@ -1,3 +1,51 @@
+# 紐約期金低收1.4%
+
+![外圍金價創新高後下跌。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798881_1_20250404045719.jpg&q=90)
+  
+
+外圍金價創新高後下跌。有交易商說，其他資產類別下跌，投資者沽出部分黃金以彌補損失。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798881-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798881-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798881-20250404.htm)
+
+---
+
+# 紐約期油急跌逾6%
+
+![美國宣布全面徵收對等關稅；主要產油國同意增產，兩者拖累油價創2022年以來最大單日跌幅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798882_1_20250404050748.jpg&q=90)
+  
+
+原油期貨價格下挫。美國宣布全面徵收對等關稅市場憂慮打擊全球經濟；石油輸出國組織及盟友同意增產，兩者拖累油價創2022年以來最大單日跌幅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798882-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798882-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798882-20250404.htm)
+
+---
+
 # 美股主要指數挫近4-6%　約5年最大單日跌幅
 
 ![美股主要指數挫近4-6%，投資者憂慮全面貿易戰衝擊全球經濟增長。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798880_1_20250404044310.jpg&q=90)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm)
-
----
-
-# 外交部批評日方言行違背一中原則　已嚴正交涉
-
-![郭嘉昆說，中方有關聯合演訓是對「台獨」分裂勢力的嚴重警告和有力遏制，日方無權說三道四。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798812_1_20250403164020.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆強調，中方聯合演訓是對「台獨」分裂勢力的嚴重警告和有力遏制，是捍衛國家主權、維護國家統一的正當必要行動，日方無權說三道四，更不得插手干涉，批評日方言行公然違背一個中國原則，中方強烈不滿和堅決反對，已向日方嚴正交涉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm)
-
----
-
-# 緬甸曼德勒國際機場已開放用於救援飛機升降
-
-![緬甸曼德勒不少建築物在地震中倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798810_1_20250403162910.jpg&q=85)
-  
-
-央視新聞報道，緬甸曼德勒國際機場昨天已經開放用於救援飛機升降，預計明天開放本地航空客運升降。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798810-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798810-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798810-20250403.htm)
 
 ---
