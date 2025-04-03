@@ -1,3 +1,27 @@
+# 'Not the season' as MH370 search suspended
+
+![Relatives of the missing MH370 passengers gather in Beijing last month on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798795_1_20250403145825.jpg&q=90)
+  
+
+The latest search for Malaysia Airlines flight MH370 has been suspended as it is "not the season", the country's transport minister said, more than a decade after the plane went missing.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798795-20250403.htm)
+
+---
+
 # Man convicted of Yuen Long rioting after retrial
 
 ![The District Court said the defendant had taken part in "an indiscriminate attack" inside Yuen Long MTR Station. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798783_1_20250403125539.jpg&q=90)
@@ -1415,29 +1439,5 @@ Far-right party chief Jordan Bardella called on the French to rally this weekend
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm)
-
----
-
-# Ng On-yee happy that billiards keep Tier A status
-
-![Ng On-yee shows off her British Open trophy upon her return to Hong Kong. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798472_1_20250401170234.jpg&q=90)
-  
-
-Hong Kong, China snooker star Ng On-yee said a decision by the government last week allowing billiards to retain its Tier A status will help the players as well as the sport's overall development.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm)
 
 ---
