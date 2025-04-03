@@ -1,5 +1,29 @@
+# 李家超在政總主持學習全國兩會精神座談會　鄭雁雄出席
+
+  
+
+行政長官李家超在社交專頁表示，今天在政府總部主持學習全國兩會精神座談會，特別感謝中聯辦主任鄭雁雄出席，與一眾特區政府官員、港區全國人大代表、港區全國政協委員、行政會議成員、立法會議員等300多人分享學習全國兩會精神和重要內容。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798837-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798837-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798837-20250403.htm)
+
+---
+
 # 火炭謀殺案押後至5月29日再訊　被告還押
 
+![案件在沙田裁判法院首次提堂，裁判官應控方申請，將案件押後至5月29日再訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798836_1_20250403184710.jpg&q=80)
   
 
 火炭上月發生一宗謀殺案，男被告下午在沙田裁判法院首次提堂。裁判官應控方申請，將案件押後至5月29日再訊，被告須還押候訊。
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798655-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798655-20250402.htm)
-
----
-
-# 火炭謀殺案重組案情　疑犯以道具刀斬向代表受害人的假人
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798654_1_20250402181124.jpg&q=60)
-  
-
-火炭上月發生謀殺案，一名52歲男子被人用刀襲擊，傷重不治，警方下午押解疑犯在案發現場重組案情。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798654-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798654-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798654-20250402.htm)
 
 ---
