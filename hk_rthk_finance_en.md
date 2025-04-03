@@ -1,3 +1,27 @@
+# Tariffs will rebound on US: economists
+
+![The punitive 54 percent tariffs heaped on Chinese exports from such ports as Qingdao in Shandong can be counterbalanced by pro-active promotions of domestic consumption, says an economist. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798796_1_20250403160427.jpg&q=40)
+  
+
+The latest tariffs imposed by the United States will add to the country's own economic pains, complicate already heightened global trade and geopolitical tensions, and result in a backlash from many nations, according to economists.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm)
+
+---
+
 # EU to prepare countermeasures to US reciprocal tariffs
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798769_1_20250403114610.jpg&q=90)
@@ -1413,29 +1437,5 @@ The White House on Thursday vowed to impose "big tariffs" on April 2 when US Pre
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm)
-
----
-
-# Inflation pace eases in February
-
-![City's inflation eased last month, with prices for clothing and footwear products dropping by about two percent year on year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796632_1_20250320173703.jpg&q=90)
-  
-
-Hong Kong's inflation pace eased last month, rising by just 1.4 percent year on year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796632-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796632-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796632-20250320.htm)
 
 ---

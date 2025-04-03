@@ -1,5 +1,29 @@
+# 消防處：明日清明節天氣較乾燥　發生山火或處高水平
+
+  
+
+明日是清明節。消防處表示，明日天氣預計會較乾燥，發生山火的機會或處於高水平。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798807-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798807-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798807-20250403.htm)
+
+---
+
 # 配合三項鐵人賽事　中環及灣仔本周五至周日有封路及特別交通安排
 
+![亞洲三鐵半奧運距離錦標賽明日起，一連三日在中環海濱舉行，中環及灣仔將有封路及特別交通安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798801_1_20250403161530.jpg&q=80)
   
 
 亞洲三鐵半奧運距離錦標賽明日起，一連三日在中環海濱舉行，中環及灣仔將有封路及特別交通安排。
@@ -23,6 +47,7 @@
 
 # 崔建春約見梅儒瑞　就美國制裁中方官員提出嚴正交涉
 
+![崔建春昨日約見美國駐香港總領事梅儒瑞，就美國國務院宣布對6名中方官員實施無理制裁，並發布抹黑香港的《2025年香港政策法報告》提出嚴正交涉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798800_1_20250403161446.jpg&q=80)
   
 
 外交部駐港特派員崔建春昨日約見美國駐香港總領事梅儒瑞，就美國國務院宣布對6名中方官員實施無理制裁，並發布抹黑香港的《2025年香港政策法報告》提出嚴正交涉。
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm)
-
----
-
-# 文憑試中文卷一文言文談安史之亂　作文題包括「為不完美添色彩」
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798618_1_20250402181159.jpg&q=90)
-  
-
-文憑試首個核心科目中文科今日開考，共有4萬8千人報考。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798618-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798618-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798618-20250402.htm)
 
 ---
