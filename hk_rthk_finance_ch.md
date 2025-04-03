@@ -1,3 +1,27 @@
+# 英法德股市初段跌逾1%至逾2%
+
+![英國、法國和德國股市在開市初段跌逾1%至逾2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798803_1_20250403153700.jpg&q=90)
+  
+
+歐洲主要股市初段下跌，美國對多個國家及地區徵收對等關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm)
+
+---
+
 # 內地股市收市向下　創業板跌近2%
 
 ![上證指數低開近1%後曾輕微倒升，收市報3342點，跌8點，跌幅0.24%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798797_1_20250403151620.jpg&q=90)
@@ -1411,29 +1435,5 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798619-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798619-20250402.htm)
-
----
-
-# 韓股低收0.6%
-
-![首爾綜合指數收市報2505點，跌15點，跌幅0.62%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798616_1_20250402144221.jpg&q=85)
-  
-
-南韓股市反覆向下，首爾綜合指數收市報2505點，跌15點，跌幅0.62%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798616-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798616-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798616-20250402.htm)
 
 ---

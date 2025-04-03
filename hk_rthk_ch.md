@@ -1,3 +1,51 @@
+# 商務部：日本半導體出口管制損害兩國企業利益
+
+![商務部發言人表示，希望日方從維護國際經貿規則及中日經貿合作大局出發，保持理性決策，及時糾正錯誤做法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798805_1_20250403154527.jpg&q=90)
+  
+
+在北京，商務部回應日本政府宣布對十多種半導體相關物項實施出口管制時說，日方的措施將嚴重干擾企業之間正常商業往來，損害兩國企業利益，中方將採取必要措施，堅決維護自身正當權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm)
+
+---
+
+# 英法德股市初段跌逾1%至逾2%
+
+![英國、法國和德國股市在開市初段跌逾1%至逾2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798803_1_20250403153700.jpg&q=90)
+  
+
+歐洲主要股市初段下跌，美國對多個國家及地區徵收對等關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm)
+
+---
+
 # 配合三項鐵人賽事　中環及灣仔本周五至周日有封路及特別交通安排
 
   

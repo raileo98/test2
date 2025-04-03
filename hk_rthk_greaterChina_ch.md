@@ -1,3 +1,27 @@
+# 商務部：日本半導體出口管制損害兩國企業利益
+
+![商務部發言人表示，希望日方從維護國際經貿規則及中日經貿合作大局出發，保持理性決策，及時糾正錯誤做法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798805_1_20250403154527.jpg&q=90)
+  
+
+在北京，商務部回應日本政府宣布對十多種半導體相關物項實施出口管制時說，日方的措施將嚴重干擾企業之間正常商業往來，損害兩國企業利益，中方將採取必要措施，堅決維護自身正當權益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm)
+
+---
+
 # 崔建春約見梅儒瑞　就美國制裁中方官員提出嚴正交涉
 
   
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm)
-
----
-
-# 外交部：解放軍聯合演訓是對台獨分裂勢力嚴重警告
-
-![郭嘉昆稱，解放軍聯合演訓是對台獨分裂勢力的嚴重警告和有力遏制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798452_1_20250401154745.jpg&q=90)
-  
-
-解放軍東部戰區於台島周邊組織聯合演訓。在北京，外交部發言人郭嘉昆表示，有關聯合演訓是對台獨分裂勢力的嚴重警告和有力遏制，是捍衛國家主權，維護國家統一的正當必要行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798452-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798452-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798452-20250401.htm)
 
 ---
