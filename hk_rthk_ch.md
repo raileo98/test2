@@ -1,3 +1,27 @@
+# 尹錫悅彈劾案今早宣判　警方啟動最高響應於首爾部署1.4萬人
+
+![彈劾案宣判前夕，警方在法院外加強戒備。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798870_1_20250403235349.jpg&q=85)
+  
+
+南韓憲法法院將於本港時間今早10時對總統尹錫悅彈劾案作出宣判，尹錫悅將不會出席，而是在總統官邸收看直播。如果彈劾案獲通過，尹錫悅將被罷免總統職務，相反如果彈劾案被否決，尹錫悅將立即恢復總統職務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798870-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798870-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798870-20250404.htm)
+
+---
+
 # 美元指數跌幅擴大至近2%　兌日圓跌穿146　離岸人民幣反彈
 
 ![美元指數失守102水平，較早時報101.36，跌幅逾1.7%；美元兌日圓較早時跌逾2.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798869_1_20250403230641.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm)
-
----
-
-# 內地股市收市向下　創業板跌近2%
-
-![上證指數低開近1%後曾輕微倒升，收市報3342點，跌8點，跌幅0.24%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798797_1_20250403151620.jpg&q=90)
-  
-
-內地股市收市向下，汽車產業鏈、廚衛電器、蘋果概念股下跌；貴金屬、旅遊酒店股造好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm)
 
 ---
