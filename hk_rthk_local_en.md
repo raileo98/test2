@@ -1,3 +1,27 @@
+# 'Don't go with top-bidder rule for N Metropolis'
+
+![Lau Kwok-fan says the government should consider the developers' financial stability when they award tenders for Northern Metropolis projects. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798786_1_20250403132127.jpg&q=90)
+  
+
+A DAB lawmaker on Thursday suggested the government take into account the financial stability of developers when it comes to decisions on tender awards for Northern Metropolis projects to the highest bidders.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798786-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798786-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798786-20250403.htm)
+
+---
+
 # Three traffic accidents disrupt early morning commute
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798758_1_20250403103909.jpg&q=80)
@@ -1421,29 +1445,5 @@ Secretary for Housing Winnie Ho on Saturday said she hoped landlords of subdivid
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm)
-
----
-
-# Police arrest three more in Yuen Long murder case
-
-![The case, in which a 24-year-old man was killed and a 28-year-old injured, will be heard at Tuen Mun Magistrates’ Court. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797963_1_20250329051008.jpg&q=90)
-  
-
-Police have arrested three more suspects linked to a January 22 murder and wounding case in Yuen Long.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797963-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797963-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797963-20250329.htm)
 
 ---

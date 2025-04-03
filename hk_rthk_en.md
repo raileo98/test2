@@ -1,3 +1,27 @@
+# 'Don't go with top-bidder rule for N Metropolis'
+
+![Lau Kwok-fan says the government should consider the developers' financial stability when they award tenders for Northern Metropolis projects. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798786_1_20250403132127.jpg&q=90)
+  
+
+A DAB lawmaker on Thursday suggested the government take into account the financial stability of developers when it comes to decisions on tender awards for Northern Metropolis projects to the highest bidders.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798786-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798786-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798786-20250403.htm)
+
+---
+
 # Japan says tariffs may break WTO rules, deal with US
 
 ![Yoji Muto says he spoke to US Commerce Secretary Howard Lutnick but Donald Trump's announcement showed it was to no avail. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798781_1_20250403123758.jpg&q=90)
@@ -1415,29 +1439,5 @@ Hong Kong stocks ended higher on Tuesday, with the benchmark Hang Seng Index up 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm)
-
----
-
-# Police bust cannabis farm, seize drugs worth HK$5m
-
-![Officers seized hundreds of cannabis plants in a raid in Ta Kwu Ling. Photo courtesy of Hong Kong Police.](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798475_1_20250401170614.jpg&q=90)
-  
-
-Police have arrested two people after busting a cannabis production facility in Ta Kwu Ling.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm)
 
 ---
