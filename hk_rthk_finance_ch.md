@@ -46,7 +46,7 @@
 
 ---
 
-# 比利時直飛澳門貨運包機首航　澳門國際機場稱具戰略意義
+# 來往澳門至馬德里貨運包機首航　澳門國際機場稱具戰略意義
 
 ![埃塞俄比亞航空由比利時直飛澳門的首航貨運包機，降落澳門國際機場通過水門洗禮。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798762_1_20250403113350.jpg&q=90)
 ![澳門國際機場專營股份有限公司物流暨通用航空發展部總監胡漢新表示，航線成功開通具有戰略意義。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798762_2_20250403113350.jpg&q=90)

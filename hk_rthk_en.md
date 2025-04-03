@@ -145,7 +145,7 @@ US President Donald Trump signed an executive order on Wednesday that closes a t
 
 # 'Tariffs will change global trading system'
 
-![Canadian Prime Minister Mark Carney vowed to fight tariffs, although America's northern neighbour was not singled out for additional tariffs in Trump's latest announcement. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798733_1_20250403083353.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798733_1_20250403083353.jpg&q=90)
   
 
 Canadian Prime Minister Mark Carney on Wednesday vowed to "fight" against US President Donald Trump's sweeping tariffs, which he warned will "fundamentally change the global trading system."

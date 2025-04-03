@@ -1,3 +1,27 @@
+# 國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜
+
+![國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798764_2_20250403115547.jpg&q=90)
+  
+
+國家安全機關偵破一宗菲律賓間諜案件，拘捕3名涉嫌在中國境內從事間諜活動的菲律賓人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm)
+
+---
+
 # 烏克蘭克里沃伊羅格市遭俄軍導彈襲擊至少4死十多傷
 
 ![克里沃伊羅格市曾多次遭俄軍大規模空襲。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798761_1_20250403110039.jpg&q=35)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798483-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798483-20250401.htm)
-
----
-
-# 緬甸地震增至逾2700人死亡　中國救援隊伍已救出8名倖存者
-
-![中國救援隊在曼德勒協助救援。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798479_1_20250401173446.jpg&q=90)
-  
-
-緬甸中部大地震發生至今，增至超過2700人死亡，4500多人受傷，超過440人失蹤。新華社報道，截至當地今早8時，中國救援隊伍共搜救出8名倖存者。至於在當地的特區救援隊，早上首次聯同中國救援隊搜救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm)
 
 ---
