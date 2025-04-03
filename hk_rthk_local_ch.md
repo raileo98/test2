@@ -1,3 +1,27 @@
+# 天文台錄得相對濕度曾降至22%　平了1984年以來最低紀錄
+
+![天文台呼籲市民上山祭祖小心山火，勿留火種。（天文台社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798842_1_20250403192428.jpg&q=90)
+  
+
+天文台表示，受到乾燥偏東氣流影響，今日香港多區相對濕度下降到30%或以下，天文台總部錄得相對濕度更曾下降到22%，追平天文台自1984年設置自動氣象站以來、4月份最低紀錄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798842-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798842-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798842-20250403.htm)
+
+---
+
 # 政府委任梁世光出任輔警總監　接替行將退休楊祖賜
 
 ![警務處處長周一鳴（右）頒授委任狀予新委任香港輔助警察隊總監梁世光（左）。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798839_1_20250403185915.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798657-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798657-20250402.htm)
-
----
-
-# 曾國衞：立法會功能界別選舉以點票機點票　可減省投票後工作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798656_1_20250402183819.jpg&q=90)
-  
-
-立法會換屆選舉將於今年12月7日舉行，當局提出修訂部分選舉法例，參考選委會界別分組選舉及立法會選委會界別選舉中使用點票機的做法和經驗後，當局建議賦權選管會在功能界別選舉，也可以使用點票機進行點票。而與相關點票程序的法例亦須作出相應調整，如毋須在點票前以人手方式將選票按界別分類等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798656-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798656-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798656-20250402.htm)
 
 ---

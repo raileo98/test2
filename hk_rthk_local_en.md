@@ -24,7 +24,7 @@ Any sanctions imposed on public officers are "insults" to the rule of law, the h
 
 # Boxing coach charged over Fo Tan murder
 
-![A Shatin Court magistrate adjourned the case until May 29. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798826_1_20250403175151.jpg&q=90)
+![A Sha Tin magistrate adjourned the case until May 29. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798826_1_20250403175151.jpg&q=90)
   
 
 A boxing coach charged with murdering a man in Fo Tan last month appeared in Shatin Court on Thursday, after he was arrested in Thailand and sent back to Hong Kong this week.

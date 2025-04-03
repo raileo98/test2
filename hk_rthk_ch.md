@@ -1,3 +1,52 @@
+# 天文台錄得相對濕度曾降至22%　平了1984年以來最低紀錄
+
+![天文台呼籲市民上山祭祖小心山火，勿留火種。（天文台社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798842_1_20250403192428.jpg&q=90)
+  
+
+天文台表示，受到乾燥偏東氣流影響，今日香港多區相對濕度下降到30%或以下，天文台總部錄得相對濕度更曾下降到22%，追平天文台自1984年設置自動氣象站以來、4月份最低紀錄。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798842-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798842-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798842-20250403.htm)
+
+---
+
+# 習近平參加植樹活動　要求解決林草資源總量不足問題
+
+![習近平在北京市豐台區永定河畔參加植樹活動。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798841_1_20250403191940.jpg&q=90)
+![習近平與在場的幹部群眾、少先隊員交談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798841_2_20250403191940.jpg&q=90)
+  
+
+中共中央總書記、國家主席、中央軍委主席習近平，參加植樹活動時強調，植樹造林是生態文明建設重要一環，各地區各部門要進一步行動，積極參與造林綠化，踐行綠色發展理念，弘揚生態文化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798841-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798841-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798841-20250403.htm)
+
+---
+
 # 交行香港分行協助財政部在倫敦發行60億人民幣綠色主權債
 
 ![交通銀行香港分行協助中國財政部在英國倫敦成功發行60億人民幣綠色主權債，超額認購6.8倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798833_1_20250403183328.jpg&q=75)

@@ -1,3 +1,28 @@
+# 習近平參加植樹活動　要求解決林草資源總量不足問題
+
+![習近平在北京市豐台區永定河畔參加植樹活動。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798841_1_20250403191940.jpg&q=90)
+![習近平與在場的幹部群眾、少先隊員交談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798841_2_20250403191940.jpg&q=90)
+  
+
+中共中央總書記、國家主席、中央軍委主席習近平，參加植樹活動時強調，植樹造林是生態文明建設重要一環，各地區各部門要進一步行動，積極參與造林綠化，踐行綠色發展理念，弘揚生態文化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798841-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798841-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798841-20250403.htm)
+
+---
+
 # 澳門開通至歐洲貨運直航包機服務
 
   
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798495-20250401.htm)
-
----
-
-# 特區政府強烈譴責和反對美國《香港政策法》報告
-
-![特區政府就美國發表所謂2025年《香港政策法》報告中對香港特區各方面情況的失實言論和污衊抹黑，表示強烈譴責和反對。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798494_1_20250401185407.jpg&q=90)
-  
-
-特區政府就美國發表所謂2025年《香港政策法》報告中對香港特區各方面情況的失實言論和污衊抹黑，表示強烈譴責和反對，當中內容明顯是為保護美國獨大的政治目的而編製，再次顯露美國霸權主義下的野蠻，為打壓其他地方的發展權利和安全利益而堆砌故事穿鑿附會，是明顯為服務美國自身政治利益而創作的製成品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm)
 
 ---
