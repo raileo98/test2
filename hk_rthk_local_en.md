@@ -1,3 +1,27 @@
+# Three traffic accidents disrupt early morning commute
+
+![A seven-car pile-up occurred in the early hours of Thursday on Lung Cheung Road. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798758_1_20250403103909.jpg&q=80)
+  
+
+A series of traffic accidents disrupted early morning commute on Thursday, with collisions occurring in quick succession along Lung Cheung Road and Ching Cheung Road.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798758-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798758-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798758-20250403.htm)
+
+---
+
 # Tariffs target packages under US$800 from HK
 
 ![US President Donald Trump holds a signed executive order on tariffs, in the Rose Garden at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798734_1_20250403084633.jpg&q=90)
@@ -1421,29 +1445,5 @@ Police have arrested three more suspects linked to a January 22 murder and wound
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797963-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797963-20250329.htm)
-
----
-
-# Govt taking steps to protect IP, says Algernon Yau
-
-![Algernon Yau says the SAR government is taking steps to protect intellectual property to help develop Hong Kong into a regional IP trading centre. Photo courtesy: GIS](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797952_1_20250329002426.jpg&q=85)
-  
-
-Secretary for Commerce and Economic Development Algernon Yau on Friday said the SAR government is taking forward a series of initiatives to protect intellectual property rights to help develop the city into a regional IP trading centre.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797952-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797952-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797952-20250329.htm)
 
 ---

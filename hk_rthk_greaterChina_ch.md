@@ -1,3 +1,27 @@
+# 中國成功發射天平三號A星02星
+
+![中國在太原衛星發射中心使用長征六號運載火箭，成功將天平三號A星02星發射升空。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798760_1_20250403105807.jpg&q=90)
+  
+
+中國早上10時12分在太原衛星發射中心使用長征六號運載火箭，成功將天平三號A星02星發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798760-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798760-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798760-20250403.htm)
+
+---
+
 # 財新中國3月服務業PMI升至51.9　新訂單加快增長
 
 ![財新中國3月服務業採購經理指數升至51.9，按月升0.5，連續逾兩年處於50以上的擴張水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798753_1_20250403100417.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm)
-
----
-
-# 中國駐美使館：中方敦促美方停止誣衊抹黑香港民主法治
-
-![發言人說，中方敦促美方停止干涉中國內政，停止誣衊抹黑香港民主法治。（中國駐美使館網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798403_1_20250401104720.jpg&q=90)
-  
-
-中國駐美使館發言人表示，美方所謂「香港政策法報告」延續抹黑香港民主法治、人權自由狀況的陳詞濫調，並對中國中央政府駐港機構和香港特區政府官員妄施所謂「制裁」，粗暴干涉中國內政和香港事務，嚴重違反國際法和國際關係基本準則，中方對此強烈譴責、堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798403-20250401.htm)
 
 ---

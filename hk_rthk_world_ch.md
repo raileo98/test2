@@ -1,3 +1,27 @@
+# 烏克蘭克里沃伊羅格市遭俄軍導彈襲擊至少4死十多傷
+
+![克里沃伊羅格市曾多次遭俄軍大規模空襲。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798761_1_20250403110039.jpg&q=35)
+  
+
+烏克蘭克里沃伊羅格市遭俄羅斯導彈襲擊，至少4人死亡，另有14人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798761-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798761-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798761-20250403.htm)
+
+---
+
 # 巴西對美國加徵關稅表示遺憾　正評估所有可能行動
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm)
-
----
-
-# 王毅：中俄不斷深化戰略協作夥伴關係有利彼此成就
-
-![王毅說，相信中俄兩國將堅定延續偉大友誼，為推動國際秩序朝著更公正合理的方向發展作出「中俄貢獻」 。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798463_1_20250401165210.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅說，中俄互為最大鄰國，都是世界大國，對維護世界和平發展負有特殊責任。兩國不斷深化戰略協作夥伴關係，有利雙方和睦相處、彼此成就。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm)
 
 ---

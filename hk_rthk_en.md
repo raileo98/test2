@@ -1,3 +1,27 @@
+# Three traffic accidents disrupt early morning commute
+
+![A seven-car pile-up occurred in the early hours of Thursday on Lung Cheung Road. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798758_1_20250403103909.jpg&q=80)
+  
+
+A series of traffic accidents disrupted early morning commute on Thursday, with collisions occurring in quick succession along Lung Cheung Road and Ching Cheung Road.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798758-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798758-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798758-20250403.htm)
+
+---
+
 # China urges US to 'immediately cancel' new tariffs
 
 ![The Commerce Ministry has called for Washington to "immediately cancel" sweeping new tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798759_1_20250403104243.jpg&q=80)
@@ -1414,29 +1438,5 @@ Aid groups in the worst-hit areas of Myanmar said there was an urgent need for s
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm)
-
----
-
-# Three killed in Beirut as Israel targets top militant
-
-![The airstrike targeted a Hezbollah militant in the top three floors of a building in south Beirut. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798455_1_20250401160916.jpg&q=90)
-  
-
-At least three people were killed and seven wounded in an Israeli airstrike on Beirut's southern suburbs on Tuesday, the Lebanese health ministry said, further testing a shaky four-month ceasefire between Israel and Hezbollah.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798455-20250401.htm)
 
 ---

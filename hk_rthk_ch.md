@@ -1,3 +1,27 @@
+# 中國成功發射天平三號A星02星
+
+![中國在太原衛星發射中心使用長征六號運載火箭，成功將天平三號A星02星發射升空。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798760_1_20250403105807.jpg&q=90)
+  
+
+中國早上10時12分在太原衛星發射中心使用長征六號運載火箭，成功將天平三號A星02星發射升空，衛星順利進入預定軌道，發射任務獲得圓滿成功。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798760-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798760-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798760-20250403.htm)
+
+---
+
 # 日股曾挫4.5%　半日跌幅收窄至約3%
 
 ![日經指數今早曾跌逾1600點，低見34102點，跌幅4.5%。半日收報34673點，跌幅2.95%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798756_1_20250403103532.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798687-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798687-20250402.htm)
-
----
-
-# 建造業議會推計劃記錄前線人員安全表現　約270個項目承諾參加
-
-![「前線人員安全表現紀錄計劃」經過超過一年諮詢，將推出統一標準，記錄建造業前線人員安全表現。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798685_1_20250402213805.jpg&q=60)
-  
-
-建造業議會推出「前線人員安全表現紀錄計劃」，計劃經過超過一年諮詢，將推出統一標準，記錄建造業前線人員安全表現。建造業議會主席何安誠表示，計劃至今有大約270個項目承諾會參加，會設3.5小時進修課程，每項課程也會針對特定項目，並會於平日晚上或星期日上課，確保課程有足夠學額。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798685-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798685-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798685-20250402.htm)
 
 ---
