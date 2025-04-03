@@ -1,3 +1,75 @@
+# 韓股開市後跌逾2%
+
+![首爾綜合指數較早時報2448點，跌56點，跌幅2.27%。（交易所圖片](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798731_1_20250403080949.jpg&q=90)
+  
+
+南韓股市下跌。首爾綜合指數較早時報2448點，跌56點，跌幅2.27%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798731-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798731-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798731-20250403.htm)
+
+---
+
+# 日股開市後跌逾千點
+
+![日經指數較早時報34544點，跌1181點，跌幅3.31%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798730_1_20250403080702.jpg&q=90)
+  
+
+東京股市下挫。日經指數較早時報34544點，跌1181點，跌幅3.31%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798730-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798730-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798730-20250403.htm)
+
+---
+
+# 美國債息下跌　受特朗普宣布加徵關稅影響
+
+![美國國債孳息率尾市下跌。美國總統特朗普公布一系列關稅措施，引發市場憂慮。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798729_1_20250403074707.jpg&q=90)
+  
+
+美國國債孳息率尾市下跌。美國總統特朗普公布一系列關稅措施，引發市場對通脹及經濟增長的憂慮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798729-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798729-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798729-20250403.htm)
+
+---
+
 # 美股3大股指期貨跌幅加大　市場憂慮貿易戰升溫
 
 ![美股3大指數期貨跌幅加大。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798728_1_20250403072856.jpg&q=90)
@@ -1364,77 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm)
-
----
-
-# 火炭謀殺案刀手潛逃泰國落網　警方商討移送潛逃內地被捕2人
-
-![警方表示，正與內地商討潛逃內地後被捕2名人士的移送安排。（孔令輝攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798660_1_20250402190421.jpg&q=90)
-  
-
-火炭上月發生謀殺案，一名52歲男子被人用刀襲擊，傷重不治。警方已拘捕兩名懷疑策劃今次事件的主謀，以及3名懷疑協助兇徒潛逃的人士，昨日再拘捕一度潛逃泰國的25歲刀手。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm)
-
----
-
-# 文憑試中文科開考　有教師稱部分寫作題目要求考生發揮想像力
-
-![文憑試首個核心科目中文科今日開考。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798659_1_20250402190446.jpg&q=80)
-  
-
-文憑試首個核心科目中文科今日開考。其中作文題目三揀一，題目包括「藏在泥土中的寶物」及「為不完美添色彩」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm)
-
----
-
-# 消息稱控煙「十招」將全數推出　部分排隊輪候地方禁煙
-
-![消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，全數「十招」都會推出並陸續執行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798658_1_20250402184118.jpg&q=90)
-  
-
-消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，全數「十招」都會推出並陸續執行，包括提出進一步擴大禁煙範圍、部分排隊輪候地方禁煙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm)
 
 ---

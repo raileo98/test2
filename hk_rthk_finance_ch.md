@@ -1,3 +1,75 @@
+# 韓股開市後跌逾2%
+
+![首爾綜合指數較早時報2448點，跌56點，跌幅2.27%。（交易所圖片](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798731_1_20250403080949.jpg&q=90)
+  
+
+南韓股市下跌。首爾綜合指數較早時報2448點，跌56點，跌幅2.27%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798731-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798731-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798731-20250403.htm)
+
+---
+
+# 日股開市後跌逾千點
+
+![日經指數較早時報34544點，跌1181點，跌幅3.31%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798730_1_20250403080702.jpg&q=90)
+  
+
+東京股市下挫。日經指數較早時報34544點，跌1181點，跌幅3.31%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798730-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798730-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798730-20250403.htm)
+
+---
+
+# 美國債息下跌　受特朗普宣布加徵關稅影響
+
+![美國國債孳息率尾市下跌。美國總統特朗普公布一系列關稅措施，引發市場憂慮。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798729_1_20250403074707.jpg&q=90)
+  
+
+美國國債孳息率尾市下跌。美國總統特朗普公布一系列關稅措施，引發市場對通脹及經濟增長的憂慮。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798729-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798729-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798729-20250403.htm)
+
+---
+
 # 美股3大股指期貨跌幅加大　市場憂慮貿易戰升溫
 
 ![美股3大指數期貨跌幅加大。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798728_1_20250403072856.jpg&q=90)
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798536-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798536-20250402.htm)
-
----
-
-# 歐洲主要股市高收　德股升1.7%
-
-![法蘭克福DAX指數報22539點，升376點，漲幅1.7%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798534_1_20250402052431.jpg&q=90)
-  
-
-歐洲主要股市反彈。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798534-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798534-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798534-20250402.htm)
-
----
-
-# 美股收市個別發展　市場等候特朗普公布對等關稅措施
-
-![投資者對美國總統特朗普快將宣布對等關稅措施的焦慮情緒主導美股走勢。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798532_1_20250402052011.jpg&q=90)
-  
-
-紐約股市收市個別發展，走勢反覆。投資者對美國總統特朗普快將宣布對等關稅措施的焦慮情緒主導市場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798532-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798532-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798532-20250402.htm)
-
----
-
-# 美股由跌轉升　道指曾跌逾480點
-
-![道瓊斯指數早段曾跌逾480點，較早時報42091點，升89點，升幅0.21%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798519_1_20250401232218.jpg&q=90)
-  
-
-美股3大指數初段下跌，其後轉升。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798519-20250401.htm)
 
 ---

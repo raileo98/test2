@@ -1,3 +1,27 @@
+# Albanese says US trade tariff not 'act of a friend'
+
+![Australian Prime Minister Anthony Albanese said Australia charged nothing on US imports and should face zero US tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798732_1_20250403082709.jpg&q=90)
+  
+
+Donald Trump's trade tariffs on close ally Australia are "not the act of a friend" and will hurt the two nations' relationship, Prime Minister Anthony Albanese said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm)
+
+---
+
 # Barca oust Atlético; set up Clasico Copa del Rey final
 
 ![Ferran Torres celebrates scoring the opening goal during the Spanish Copa del Rey semi-final second leg. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798723_1_20250403061233.jpg&q=90)
@@ -1414,29 +1438,5 @@ Local political groups have denounced Washington's move to put six mainland and 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm)
-
----
-
-# Over 100 injured in Kuala Lumpur gas pipeline fireball
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798431_2_20250401131510.jpg&q=90)
-  
-
-A massive fire caused by a gas pipeline leak forced people from their homes and injured more than 100 during Eid celebrations near Malaysia's capital on Tuesday, fire officials said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798431-20250401.htm)
 
 ---

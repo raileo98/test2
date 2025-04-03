@@ -1,3 +1,27 @@
+# Albanese says US trade tariff not 'act of a friend'
+
+![Australian Prime Minister Anthony Albanese said Australia charged nothing on US imports and should face zero US tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798732_1_20250403082709.jpg&q=90)
+  
+
+Donald Trump's trade tariffs on close ally Australia are "not the act of a friend" and will hurt the two nations' relationship, Prime Minister Anthony Albanese said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm)
+
+---
+
 # Wall Street rises in another jittery day
 
 ![More volatility is expected, with US futures moving decisively lower late Wednesday after Trump announced his tariffs plan. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798722_1_20250403060921.jpg&q=75)
@@ -1413,29 +1437,5 @@ President Donald Trump urged the US Federal Reserve on Wednesday to cut interest
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796555-20250320.htm)
-
----
-
-# Local stocks dip at open
-
-![The Hang Seng Index dropped 18 points, or 0.07 percent, to open at 24,753. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796541_1_20250320094212.jpg&q=75)
-  
-
-Hong Kong stocks on Thursday edged down, after the US Federal Reserve kept interest rates unchanged but pointed to increased economic uncertainty, while US Treasury bond yields tumbled.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796541-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796541-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796541-20250320.htm)
 
 ---

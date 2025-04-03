@@ -1,3 +1,27 @@
+# Albanese says US trade tariff not 'act of a friend'
+
+![Australian Prime Minister Anthony Albanese said Australia charged nothing on US imports and should face zero US tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798732_1_20250403082709.jpg&q=90)
+  
+
+Donald Trump's trade tariffs on close ally Australia are "not the act of a friend" and will hurt the two nations' relationship, Prime Minister Anthony Albanese said on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798732-20250403.htm)
+
+---
+
 # Tesla sales slump as pressure piles on Musk
 
 ![The number of autos delivered globally dropped by 13 percent in the first three months of 2025. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798709_1_20250403033051.jpg&q=90)
@@ -1411,29 +1435,5 @@ US Vice President JD Vance accused Denmark on Friday of not having done enough t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm)
-
----
-
-# Quake causes injuries and property damage in Ruili
-
-![Chinese residents flee as building debris shaken loose by the earthquake in Myanmar falls. Photo: taken from online](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797900_1_20250328181242.jpg&q=90)
-  
-
-The earthquake in Myanmar was felt in China's Yunnan and Sichuan provinces and caused injuries and damage to houses in the city of Ruili on the border with northern Myanmar, according to Chinese media reports.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797900-20250328.htm)
 
 ---
