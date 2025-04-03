@@ -1,3 +1,27 @@
+# 馬克龍呼籲暫停對美投資　歐盟成員國下周表決鋼鋁關稅反制措施
+
+![馬克龍會見工業界代表時形容，新關稅是野蠻而且毫無根據。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798877_1_20250404032220.jpg&q=90)
+  
+
+美國總統特朗普公布對等關稅措施，引起多國不滿，法國總統馬克龍呼籲暫停對美投資。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798877-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798877-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798877-20250404.htm)
+
+---
+
 # 以軍周四轟炸加沙致過百死　哈馬斯籲國際社會向以色列施壓
 
 ![加沙城有巴勒斯坦人響應以軍呼籲撤走。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798875_1_20250404021651.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798550-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798550-20250402.htm)
-
----
-
-# 白宮稱特朗普與團隊一同完善對等關稅措施細節　指各國尋求談判
-
-![萊維特（圖）說對等關稅將於特朗普宣布後立即生效。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798542_1_20250402065113.jpg&q=90)
-  
-
-美國白宮證實，總統特朗普將於當地星期三宣布一系列對等關稅措施，但未有透露徵收的規模及範圍等細節。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm)
 
 ---

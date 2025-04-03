@@ -1,3 +1,27 @@
+# 馬克龍呼籲暫停對美投資　歐盟成員國下周表決鋼鋁關稅反制措施
+
+![馬克龍會見工業界代表時形容，新關稅是野蠻而且毫無根據。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798877_1_20250404032220.jpg&q=90)
+  
+
+美國總統特朗普公布對等關稅措施，引起多國不滿，法國總統馬克龍呼籲暫停對美投資。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798877-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798877-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798877-20250404.htm)
+
+---
+
 # 清明節長假期開始　深圳口岸料日均95萬人次出入境
 
 ![當局預計，羅湖、福田和深圳灣口岸是承擔假期出入境客流的主力口岸。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798876_1_20250404025651.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798807-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798807-20250403.htm)
-
----
-
-# 外交部：菲律賓炮製多宗所謂「中國間諜案」　促停止捕風捉影
-
-![郭嘉昆表示，中國司法機關和有關部門嚴格依法辦案，也將保障有關人員的合法權益。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798806_1_20250403155437.jpg&q=90)
-  
-
-國家安全機關偵破一宗菲律賓間諜案，拘捕3名涉嫌在中國境內從事間諜活動的菲律賓籍人士。外交部表示，有關部門已經公佈具體情況，中國司法機關和有關部門嚴格依法辦案，也將保障有關人員的合法權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798806-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798806-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798806-20250403.htm)
 
 ---
