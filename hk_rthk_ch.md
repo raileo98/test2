@@ -1,3 +1,27 @@
+# 加拿大反制　向不符合北美自貿協定的美國進口汽車徵收25%關稅
+
+![卡尼指出，加拿大對美國貿易的嚴重依賴已經結束。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798871_1_20250404003303.jpg&q=90)
+  
+
+加拿大總理卡尼宣布，對所有不符合北美自貿協定的美國進口汽車徵收25%關稅，回應美國從星期四起對所有進口汽車徵收25%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm)
+
+---
+
 # 尹錫悅彈劾案今早宣判　警方啟動最高響應於首爾部署1.4萬人
 
 ![彈劾案宣判前夕，警方在法院外加強戒備。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798870_1_20250403235349.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm)
-
----
-
-# 崔建春約見梅儒瑞　就美國制裁中方官員提出嚴正交涉
-
-![崔建春昨日約見美國駐香港總領事梅儒瑞，就美國國務院宣布對6名中方官員實施無理制裁，並發布抹黑香港的《2025年香港政策法報告》提出嚴正交涉。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798800_1_20250403161446.jpg&q=80)
-  
-
-外交部駐港特派員崔建春昨日約見美國駐香港總領事梅儒瑞，就美國國務院宣布對6名中方官員實施無理制裁，並發布抹黑香港的《2025年香港政策法報告》提出嚴正交涉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm)
 
 ---

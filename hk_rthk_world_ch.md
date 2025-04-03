@@ -1,3 +1,27 @@
+# 加拿大反制　向不符合北美自貿協定的美國進口汽車徵收25%關稅
+
+![卡尼指出，加拿大對美國貿易的嚴重依賴已經結束。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798871_1_20250404003303.jpg&q=90)
+  
+
+加拿大總理卡尼宣布，對所有不符合北美自貿協定的美國進口汽車徵收25%關稅，回應美國從星期四起對所有進口汽車徵收25%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798871-20250404.htm)
+
+---
+
 # 尹錫悅彈劾案今早宣判　警方啟動最高響應於首爾部署1.4萬人
 
 ![彈劾案宣判前夕，警方在法院外加強戒備。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798870_1_20250403235349.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm)
-
----
-
-# 芬蘭增國防開支　稱回應當前歐洲安全形勢
-
-![芬蘭增國防開支　稱回應當前歐洲安全形勢](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798526_1_20250402031654.jpg&q=90)
-  
-
-芬蘭國防部發表公告表示，將於2029年將國防開支，提高到至少佔當地國內生產總值的3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798526-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798526-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798526-20250402.htm)
 
 ---
