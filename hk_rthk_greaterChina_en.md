@@ -1,6 +1,6 @@
 # Chinese rescuers fill vacuum US cuts leave in Myanmar
 
-![Chinese rescue workers work at the site of a collapsed building in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798770_1_20250403120430.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798770_1_20250403120430.jpg&q=75)
   
 
 After a 7.7 magnitude earthquake shook Myanmar on Friday, killing more than 2,800 people, international rescuers rushed into the devastated Southeast Asian country.
