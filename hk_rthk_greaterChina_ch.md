@@ -1,3 +1,51 @@
+# 國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜
+
+  
+
+國家安全機關偵破一宗菲律賓間諜案件，拘捕3名涉嫌在中國境內從事間諜活動的菲律賓人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm)
+
+---
+
+# 比利時直飛澳門貨運包機首航　澳門國際機場稱具戰略意義
+
+![埃塞俄比亞航空由比利時直飛澳門的首航貨運包機，降落澳門國際機場通過水門洗禮。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798762_1_20250403113350.jpg&q=90)
+![澳門國際機場專營股份有限公司物流暨通用航空發展部總監胡漢新表示，航線成功開通具有戰略意義。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798762_2_20250403113350.jpg&q=90)
+  
+
+澳門國際機場首次開拓至歐洲的跨境電商物流服務，將貨運服務由目前的東南亞、中東和美洲，延伸至歐洲，進一步完善機場貨運網絡，為粵港澳大灣區跨境電商貨物運輸，提供多一個琴澳物流新模式的選擇方案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm)
+
+---
+
 # 中國成功發射天平三號A星02星
 
 ![中國在太原衛星發射中心使用長征六號運載火箭，成功將天平三號A星02星發射升空。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798760_1_20250403105807.jpg&q=90)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798423-20250401.htm)
-
----
-
-# 國家水利部長：全力做好對港供水保障工作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798407_1_20250401121819.jpg&q=90)
-  
-
-國家水利部部長李國英表示，當前氣候變化影響加劇，為人類社會帶來深遠影響，保障水安全的形勢更趨嚴峻複雜，未來水利部將堅定不移實踐國家主席習近平的治水思路，堅決貫徹落實一國兩制方針，與香港特區政府有關部門加強交流，全力做好對港供水保障等工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798407-20250401.htm)
-
----
-
-# 國家移民管理局料清明假期全國口岸日均出入境逾2百萬人次
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798405_1_20250401111050.jpg&q=90)
-  
-
-國家移民管理局預計，今年清明節假期全國口岸日均出入境將達210萬人次，較去年同期增長約21%。北京首都、上海浦東及廣州白雲等大型國際機場口岸，出入境客流小幅增長。毗鄰港澳陸路口岸旅客流量快速增長，返鄉祭祖的港澳台居民、海外僑胞將明顯增多。其中，港珠澳大橋日均出入境預計將達到超過12萬人次，深圳羅湖、福田、深圳灣、蓮塘及高鐵西九龍站口岸，預計會有大約10萬至近25萬人次。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798405-20250401.htm)
 
 ---

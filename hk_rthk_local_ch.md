@@ -1,3 +1,72 @@
+# 強積金顧問：今年以來強積金人均回報逾9100元
+
+  
+
+強積金顧問公司GUM表示，今年至上星期五，旗下強積金綜合指數升3.3%，報253.5。期內，強積金人均賺約9126元，相當於去年人均回報的42%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm)
+
+---
+
+# 港車北上安排優化　指定遞交申請時段劃一延長至13個曆日
+
+  
+
+運輸署公布，將於本月14日起進一步優化「港車北上」申請安排，中籤的新申請及續期申請人士的指定遞交申請時段，將由現時分別為3個曆日及6個曆日，劃一延長至13個曆日，讓申請人有更充足時間準備所需申請文件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798765-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798765-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798765-20250403.htm)
+
+---
+
+# 元朗721事件　區院重審裁定王志榮暴動及蓄意傷人兩罪成立
+
+  
+
+元朗站「721」事件，7名白衣人罪名成立，58歲被告王志榮暴動及蓄意傷人脫罪，律政司不服，提案件呈述上訴。去年上訴庭裁定律政司上訴得直，下令案件發還原審法官葉佐文重新考慮裁決，今早區域法院為重審裁決，表示比對片中犯案男子脫口罩後的外貌，認為與王志榮非常相似，搜獲的啡色短褲及藍色運動鞋亦極為相似，裁定王志榮為犯案男子，暴動及蓄意傷人兩項罪名成立。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798763-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798763-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798763-20250403.htm)
+
+---
+
 # 運輸署籲清明節長周末往返內地及澳門　於非繁忙時段出行
 
 ![運輸署呼籲於長周末、即本月4至6日經各陸路管制站往返內地及澳門的市民、內地旅客及跨境車輛，及早規劃行程。（運輸署社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798757_1_20250403104726.jpg&q=75)
@@ -1364,77 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798591-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798591-20250402.htm)
-
----
-
-# 蕭澤頤出席歡送禮　相信新管理層帶領下警隊繼續進步
-
-![蕭澤頤離開警總時，與在場道別的同僚握手。（警方社交網站片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798588_1_20250402122825.jpg&q=90)
-  
-
-警隊昨日為最後一日出任警務處處長的蕭澤頤舉行歡送典禮。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798588-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798588-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798588-20250402.htm)
-
----
-
-# 清明節14間普通科門診提供公眾假期診症服務
-
-![本周五清明節假期將有14間普通科門診診所，提供公眾假期普通科門診服務。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798587_1_20250402115756.jpg&q=80)
-  
-
-醫管局表示，本周五清明節假期將有14間普通科門診診所提供公眾假期普通科門診服務。求診人士可透過電話預約系統或流動應用程式「HA Go」內的「預約普通科門診」功能，預約診症時間。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798587-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798587-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798587-20250402.htm)
-
----
-
-# 葉劉淑儀稱周一鳴有豐富警務經驗　有信心可領導警隊
-
-![葉劉淑儀有信心周一鳴能秉持「忠誠勇毅」的精神，領導警隊。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798586_1_20250402115720.jpg&q=80)
-  
-
-行政會議召集人、新民黨主席葉劉淑儀回應周一鳴獲任命為警務處處長，表示雖然與對方並不相熟，但過往曾在行會觀察過對方表現，相信憑著他豐富的警務經驗，過去一直與上任警務處處長蕭澤頤合作得很好，有信心周一鳴能秉持「忠誠勇毅」的精神，領導警隊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798586-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798586-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798586-20250402.htm)
 
 ---

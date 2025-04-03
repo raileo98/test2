@@ -1,3 +1,121 @@
+# 強積金顧問：今年以來強積金人均回報逾9100元
+
+  
+
+強積金顧問公司GUM表示，今年至上星期五，旗下強積金綜合指數升3.3%，報253.5。期內，強積金人均賺約9126元，相當於去年人均回報的42%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm)
+
+---
+
+# 港車北上安排優化　指定遞交申請時段劃一延長至13個曆日
+
+  
+
+運輸署公布，將於本月14日起進一步優化「港車北上」申請安排，中籤的新申請及續期申請人士的指定遞交申請時段，將由現時分別為3個曆日及6個曆日，劃一延長至13個曆日，讓申請人有更充足時間準備所需申請文件。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798765-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798765-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798765-20250403.htm)
+
+---
+
+# 元朗721事件　區院重審裁定王志榮暴動及蓄意傷人兩罪成立
+
+  
+
+元朗站「721」事件，7名白衣人罪名成立，58歲被告王志榮暴動及蓄意傷人脫罪，律政司不服，提案件呈述上訴。去年上訴庭裁定律政司上訴得直，下令案件發還原審法官葉佐文重新考慮裁決，今早區域法院為重審裁決，表示比對片中犯案男子脫口罩後的外貌，認為與王志榮非常相似，搜獲的啡色短褲及藍色運動鞋亦極為相似，裁定王志榮為犯案男子，暴動及蓄意傷人兩項罪名成立。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798763-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798763-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798763-20250403.htm)
+
+---
+
+# 比利時直飛澳門貨運包機首航　澳門國際機場稱具戰略意義
+
+![埃塞俄比亞航空由比利時直飛澳門的首航貨運包機，降落澳門國際機場通過水門洗禮。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798762_1_20250403113350.jpg&q=90)
+![澳門國際機場專營股份有限公司物流暨通用航空發展部總監胡漢新表示，航線成功開通具有戰略意義。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798762_2_20250403113350.jpg&q=90)
+  
+
+澳門國際機場首次開拓至歐洲的跨境電商物流服務，將貨運服務由目前的東南亞、中東和美洲，延伸至歐洲，進一步完善機場貨運網絡，為粵港澳大灣區跨境電商貨物運輸，提供多一個琴澳物流新模式的選擇方案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm)
+
+---
+
+# 烏克蘭克里沃伊羅格市遭俄軍導彈襲擊至少4死十多傷
+
+![克里沃伊羅格市曾多次遭俄軍大規模空襲。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798761_1_20250403110039.jpg&q=35)
+  
+
+烏克蘭克里沃伊羅格市遭俄羅斯導彈襲擊，至少4人死亡，另有14人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798761-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798761-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798761-20250403.htm)
+
+---
+
 # 中國成功發射天平三號A星02星
 
 ![中國在太原衛星發射中心使用長征六號運載火箭，成功將天平三號A星02星發射升空。（央視圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798760_1_20250403105807.jpg&q=90)
@@ -1316,125 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798692-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798692-20250402.htm)
-
----
-
-# 美國上周原油及蒸餾油庫存出乎預期增加
-
-![美國能源信息署公布，美國上星期原油庫存增加616.5萬桶，出乎市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798691_1_20250402224746.jpg&q=85)
-  
-
-美國能源信息署(EIA)公布，美國上星期原油庫存出乎預期增加616.5萬桶，市場原先預計減少211.6萬桶。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798691-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798691-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798691-20250402.htm)
-
----
-
-# 美國2月工廠訂單按月升0.6%勝預期
-
-![美國2月工廠訂單按月增加0.6%，增幅高過預期的0.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798689_1_20250402221539.jpg&q=85)
-  
-
-美國商務部公布，美國2月工廠訂單按月增加0.6%，增幅高過預期的0.5%。扣除運輸的工廠訂單按月增長0.4%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798689-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798689-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798689-20250402.htm)
-
----
-
-# 韓正晤滙豐集席杜嘉祺　冀集團為促進中英關係發展作貢獻
-
-![韓正與英國滙豐集團主席杜嘉祺會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798690_1_20250402223133.jpg&q=90)
-  
-
-國家副主席韓正在北京會見英國滙豐集團主席杜嘉祺。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm)
-
----
-
-# 逾4.1萬申請人獲發新生嬰兒獎勵金涉逾8億元　行政費約80萬
-
-![政府接獲42060宗「新生嬰兒獎勵金」的合資格申請，已向41304名申請人發放獎勵金，涉及8億2600萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798688_1_20250402221657.jpg&q=70)
-  
-
-政府表示，截至上月中，共接獲42060宗「新生嬰兒獎勵金」的合資格申請，並已向41304名申請人發放獎勵金，涉及8億2600萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798688-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798688-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798688-20250402.htm)
-
----
-
-# 美股初段下跌
-
-![道瓊斯指數較早時報41762點，跌227點，跌幅0.54%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798687_1_20250402213713.jpg&q=90)
-  
-
-美股在開市初段下跌，市場靜待美國對等關稅細節公布。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798687-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798687-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798687-20250402.htm)
 
 ---

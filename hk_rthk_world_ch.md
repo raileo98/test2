@@ -1,3 +1,26 @@
+# 國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜
+
+  
+
+國家安全機關偵破一宗菲律賓間諜案件，拘捕3名涉嫌在中國境內從事間諜活動的菲律賓人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm)
+
+---
+
 # 烏克蘭克里沃伊羅格市遭俄軍導彈襲擊至少4死十多傷
 
 ![克里沃伊羅格市曾多次遭俄軍大規模空襲。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798761_1_20250403110039.jpg&q=35)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm)
-
----
-
-# 外交部：伊朗核問題再走到十字路口　美方應早日回歸復談
-
-![郭嘉昆說，美方應展現政治誠意，早日回歸復談，制裁施壓、武力威脅沒有出路。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798478_1_20250401172222.jpg&q=90)
-  
-
-美國總統特朗普早前警告，如果伊朗不與美國就核問題達成協議，美國將轟炸伊朗，並對伊朗產品徵收關稅。在北京，外交部發言人郭嘉昆表示，伊朗核問題全面協議的執行因美方執意退出而受到干擾，美方應展現政治誠意，早日回歸復談，制裁施壓、武力威脅沒有出路。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm)
 
 ---

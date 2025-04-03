@@ -1,3 +1,28 @@
+# Heat sink Celtics for sixth straight win; Cavs roll on
+
+![Tyler Herro led the Heat with 25 points, as six other Miami players finished in double figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798766_1_20250403113553.jpg&q=90)
+![Donovan Mitchell's 27 points led the Cavs to their 61st win on the season. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798766_2_20250403113553.jpg&q=90)
+  
+
+The Miami Heat ended Boston's nine-game NBA winning streak with a 124-103 victory that pushed the reigning champion Celtics further behind Eastern Conference leaders Cleveland, who rallied to beat New York.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798766-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798766-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798766-20250403.htm)
+
+---
+
 # Barca oust Atlético; set up Clasico Copa del Rey final
 
 ![Ferran Torres celebrates scoring the opening goal during the Spanish Copa del Rey semi-final second leg. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798723_1_20250403061233.jpg&q=90)
@@ -1427,29 +1452,5 @@ The government announced on Monday that tennis and billiards have retained their
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797192-20250324.htm)
-
----
-
-# Appeal crunch time for Blatter and Platini
-
-![Michael Platini, left, with Sepp Blatter in 2014. File Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797152_1_20250324151246.jpg&q=90)
-  
-
-Former Fifa president Sepp Blatter and France football great Michel Platini will appear before a Swiss court on Tuesday to hear whether the case that finished their careers in football will end with their acquittals or convictions for corruption.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797152-20250324.htm)
 
 ---

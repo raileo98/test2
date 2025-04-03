@@ -1,3 +1,51 @@
+# 強積金顧問：今年以來強積金人均回報逾9100元
+
+  
+
+強積金顧問公司GUM表示，今年至上星期五，旗下強積金綜合指數升3.3%，報253.5。期內，強積金人均賺約9126元，相當於去年人均回報的42%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm)
+
+---
+
+# 比利時直飛澳門貨運包機首航　澳門國際機場稱具戰略意義
+
+![埃塞俄比亞航空由比利時直飛澳門的首航貨運包機，降落澳門國際機場通過水門洗禮。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798762_1_20250403113350.jpg&q=90)
+![澳門國際機場專營股份有限公司物流暨通用航空發展部總監胡漢新表示，航線成功開通具有戰略意義。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798762_2_20250403113350.jpg&q=90)
+  
+
+澳門國際機場首次開拓至歐洲的跨境電商物流服務，將貨運服務由目前的東南亞、中東和美洲，延伸至歐洲，進一步完善機場貨運網絡，為粵港澳大灣區跨境電商貨物運輸，提供多一個琴澳物流新模式的選擇方案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798762-20250403.htm)
+
+---
+
 # 日股曾挫4.5%　半日跌幅收窄至約3%
 
 ![日經指數今早曾跌逾1600點，低見34102點，跌幅4.5%。半日收報34673點，跌幅2.95%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798756_1_20250403103532.jpg&q=90)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798567-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798567-20250402.htm)
-
----
-
-# 內地股市初段變動不大
-
-![內地股市初段變動不大，上證指數較早時報3348點，升不足1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798561_1_20250402093517.jpg&q=85)
-  
-
-內地股市初段變動不大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798561-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798561-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798561-20250402.htm)
-
----
-
-# 人行逆回購2299億元人民幣
-
-![人行進行2299億元人民幣7日期逆回購操作。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798559_1_20250402092706.jpg&q=75)
-  
-
-人民銀行公開市場今日進行2299億元人民幣7日期逆回購操作，中標量與投標量相同，利率維持在1.5厘，對沖今日到期量後，單日淨回籠2255億元，連續兩日淨回籠。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798559-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798559-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798559-20250402.htm)
 
 ---

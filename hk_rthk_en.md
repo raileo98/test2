@@ -1,3 +1,28 @@
+# Heat sink Celtics for sixth straight win; Cavs roll on
+
+![Tyler Herro led the Heat with 25 points, as six other Miami players finished in double figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798766_1_20250403113553.jpg&q=90)
+![Donovan Mitchell's 27 points led the Cavs to their 61st win on the season. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798766_2_20250403113553.jpg&q=90)
+  
+
+The Miami Heat ended Boston's nine-game NBA winning streak with a 124-103 victory that pushed the reigning champion Celtics further behind Eastern Conference leaders Cleveland, who rallied to beat New York.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798766-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798766-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798766-20250403.htm)
+
+---
+
 # Three traffic accidents disrupt early morning commute
 
 ![A seven-car pile-up occurred in the early hours of Thursday on Lung Cheung Road. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798758_1_20250403103909.jpg&q=80)
@@ -1414,29 +1439,5 @@ Home affairs minister Alice Mak said on Tuesday that the number of cases a distr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm)
-
----
-
-# Junta leader fears worse to come as toll passes 2,700
-
-![People are preferring to take their chances out in the open in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798458_1_20250401162658.jpg&q=90)
-  
-
-Aid groups in the worst-hit areas of Myanmar said there was an urgent need for shelter, food and water after an earthquake that killed more than 2,700 people, but said the country's civil war could prevent help reaching those in need.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798458-20250401.htm)
 
 ---
