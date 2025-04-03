@@ -1,3 +1,74 @@
+# 羅淑佩拜會國家文化和旅遊部及國家電影局
+
+  
+
+文化體育及旅遊局局長羅淑佩與代表團部分成員繼續北京行程，拜會國家文化和旅遊部及國家電影局。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm)
+
+---
+
+# 財政部指惠譽下調中國主權信用評級偏頗深表遺憾
+
+![惠譽將中國主權信用評級由「A+」下調至「A」，財政部回應指，有失偏頗，對此深表遺憾、不予認可。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798856_1_20250403211045.jpg&q=85)
+  
+
+財政部回應評級機構惠譽下調中國主權信用評級，指有關分析有失偏頗，不能充分客觀反映中國實際情況，以及國際國內市場對中國經濟回升向好的一致認知，對此深表遺憾、不予認可。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm)
+
+---
+
+# 美國上周首次申領失業救濟人數減至21.9萬人　少過預期
+
+![美國上星期首次申領失業救濟人數21.9萬人，按星期減少6000人，少過市場預期的22.5萬人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798857_1_20250403212430.jpg&q=80)
+  
+
+美國勞工部公布，美國上星期首次申領失業救濟人數21.9萬人，按星期減少6000人，少過市場預期的22.5萬人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798857-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798857-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798857-20250403.htm)
+
+---
+
 # 抵港男旅客攜近5萬支未完稅香煙　判監7個月
 
 ![涉案男子在西九龍裁判法院被判處監禁7個月5天。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798855_1_20250403211404.jpg&q=90)
@@ -264,7 +335,6 @@
 
 # 習近平參加植樹活動　要求解決林草資源總量不足問題
 
-![習近平在北京市豐台區永定河畔參加植樹活動。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798841_1_20250403191940.jpg&q=90)
 ![習近平與在場的幹部群眾、少先隊員交談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798841_2_20250403191940.jpg&q=90)
   
 

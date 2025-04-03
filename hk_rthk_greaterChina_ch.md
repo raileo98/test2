@@ -1,3 +1,50 @@
+# 羅淑佩拜會國家文化和旅遊部及國家電影局
+
+  
+
+文化體育及旅遊局局長羅淑佩與代表團部分成員繼續北京行程，拜會國家文化和旅遊部及國家電影局。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm)
+
+---
+
+# 財政部指惠譽下調中國主權信用評級偏頗深表遺憾
+
+![惠譽將中國主權信用評級由「A+」下調至「A」，財政部回應指，有失偏頗，對此深表遺憾、不予認可。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798856_1_20250403211045.jpg&q=85)
+  
+
+財政部回應評級機構惠譽下調中國主權信用評級，指有關分析有失偏頗，不能充分客觀反映中國實際情況，以及國際國內市場對中國經濟回升向好的一致認知，對此深表遺憾、不予認可。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm)
+
+---
+
 # 中國海軍指美軍艦機偵察活動極易造成誤解誤判　危害中國安全
 
 ![中國海軍指美軍艦機偵察活動極易造成誤解誤判　危害中國安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798852_2_20250403203305.jpg&q=90)
@@ -96,7 +143,6 @@
 
 # 習近平參加植樹活動　要求解決林草資源總量不足問題
 
-![習近平在北京市豐台區永定河畔參加植樹活動。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798841_1_20250403191940.jpg&q=90)
 ![習近平與在場的幹部群眾、少先隊員交談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798841_2_20250403191940.jpg&q=90)
   
 
@@ -1390,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm)
-
----
-
-# 普京稱俄中關係保持高水平發展　王毅指兩國為動蕩世界的穩定力量
-
-![普京（右二）在莫斯科會見王毅（左二）。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798520_1_20250402004746.jpg&q=90)
-  
-
-俄羅斯總統普京在首都莫斯科，會見中共中央政治局委員、外長王毅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798520-20250401.htm)
-
----
-
-# 粵港澳大灣區專責小組首次會議　張國鈞稱用好大灣區獨特優勢
-
-![張國鈞主持新一屆粵港澳大灣區專責小組首次會議。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798513_1_20250401220009.jpg&q=90)
-  
-
-律政司副司長張國鈞今日主持新一屆粵港澳大灣區專責小組首次會議，強調「創新」對促進三地機制對接、規則銜接和人才連接尤其重要，能更充分地支持香港融入國家發展大局，提升大灣區的創新能力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm)
 
 ---
