@@ -1,3 +1,27 @@
+# 陳虹秀暴動罪成法庭聽取求情　案件押後至下周三判刑
+
+![案件押後至下星期三判刑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798850_1_20250403195702.jpg&q=80)
+  
+
+2019年灣仔的示威衝突，社工陳虹秀被捕，經審訊後被裁定罪脫，其後律政司上訴得直，案件發還重審。陳虹秀否認暴動罪受審後，暫委法官鍾明新早前裁定陳虹秀暴動罪成，辯方今日在區域法院求情，案件押後至下星期三與其他被告一同判刑。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798850-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798850-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798850-20250403.htm)
+
+---
+
 # 86歲老婦旺角失蹤　警方籲市民提供消息
 
   
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm)
-
----
-
-# 文憑試中文科開考　有教師稱部分寫作題目要求考生發揮想像力
-
-![文憑試首個核心科目中文科今日開考。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798659_1_20250402190446.jpg&q=80)
-  
-
-文憑試首個核心科目中文科今日開考。其中作文題目三揀一，題目包括「藏在泥土中的寶物」及「為不完美添色彩」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm)
 
 ---
