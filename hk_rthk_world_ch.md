@@ -1,3 +1,27 @@
+# 馮德萊恩稱準備好與美國談判關稅　倘談判失敗將進一步反制
+
+![歐盟委員會主席馮德萊恩重申歐盟準備與美國談判關稅，如果談判失敗，會進一步反制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798798_1_20250403152206.jpg&q=90)
+  
+
+美方宣布對所有貿易夥伴徵收對等關稅，歐盟產品關稅是20%。歐盟委員會主席馮德萊恩表示遺憾，重申歐盟一直準備與美國談判，消除跨大西洋貿易壁壘，同時也準備回應。她說歐盟正敲定對美國鋼鋁關稅的反制措施的最後細節。如果談判失敗，會進一步反制，保護歐盟的利益和商業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm)
+
+---
+
 # 本港向緬甸捐贈逾20公噸救援物資　陳國基：全力支援救災賑災
 
   
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm)
-
----
-
-# 《華郵》指美國擬向進口商品徵約20%關稅　歐盟表明將反擊
-
-![《華盛頓郵報》引述白宮消息報道，特朗普政府計劃向大部分進口商品徵收約20%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798498_1_20250401191654.jpg&q=85)
-  
-
-《華盛頓郵報》引述美國白宮消息報道，特朗普政府計劃向大部分進口商品徵收約20%關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm)
 
 ---

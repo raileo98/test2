@@ -1,3 +1,26 @@
+# 配合三項鐵人賽事　中環及灣仔本周五至周日有封路及特別交通安排
+
+  
+
+亞洲三鐵半奧運距離錦標賽明日起，一連三日在中環海濱舉行，中環及灣仔將有封路及特別交通安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm)
+
+---
+
 # 英超利物浦主場1:0小勝愛華頓　曼城主場2:0擊敗李斯特城
 
 ![迪亞高祖達打破兩個半月來的入球荒，協助紅軍取勝。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798726_1_20250403070933.jpg&q=90)
@@ -1432,29 +1455,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796988-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796988-20250323.htm)
-
----
-
-# 《環看天下》：考文垂當選下任國際奧委會主席　面臨不少挑戰
-
-![考文垂成為首位女性及來自非洲的代表，擔任國際奧委會主席。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796893_1_20250322084815.jpg&q=90)
-  
-
-國際奧委會公布下任主席人選，將會由津巴布韋體育部長，前奧運游泳金牌得主考文垂出任。她亦將會成為首位女性及來自非洲的代表，擔任國際奧委會主席一職。中國等多國的奧委會都先後向考文垂發信祝賀。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796893-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796893-20250322.htm](https://news.rthk.hk/rthk/ch/component/k2/1796893-20250322.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 崔建春約見梅儒瑞　就美國制裁中方官員提出嚴正交涉
+
+  
+
+外交部駐港特派員崔建春昨日約見美國駐香港總領事梅儒瑞，就美國國務院宣布對6名中方官員實施無理制裁，並發布抹黑香港的《2025年香港政策法報告》提出嚴正交涉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm)
+
+---
+
 # 中國政府第二批援助緬甸物資運抵仰光機場
 
 ![中國政府向緬甸提供的第二批緊急人道救災援助物資抵達仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798791_1_20250403144239.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798452-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798452-20250401.htm)
-
----
-
-# 美國制裁6名中央和特區官員　中方稱堅決反制美方錯誤行徑
-
-![郭嘉昆重申，香港事務純屬中國內政，敦促美方停止以任何方式插手香港事務和中國內政。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798451_1_20250401154203.jpg&q=90)
-  
-
-美國以損害香港自治為由，制裁6名中央和特區官員。在北京，外交部發言人郭嘉昆表示強烈不滿，堅決反對，並予以強烈譴責，表明將堅決反制美方錯誤行徑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm)
 
 ---

@@ -1,3 +1,49 @@
+# 配合三項鐵人賽事　中環及灣仔本周五至周日有封路及特別交通安排
+
+  
+
+亞洲三鐵半奧運距離錦標賽明日起，一連三日在中環海濱舉行，中環及灣仔將有封路及特別交通安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm)
+
+---
+
+# 崔建春約見梅儒瑞　就美國制裁中方官員提出嚴正交涉
+
+  
+
+外交部駐港特派員崔建春昨日約見美國駐香港總領事梅儒瑞，就美國國務院宣布對6名中方官員實施無理制裁，並發布抹黑香港的《2025年香港政策法報告》提出嚴正交涉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm)
+
+---
+
 # 本港向緬甸捐贈逾20公噸救援物資　陳國基：全力支援救災賑災
 
   
@@ -1385,53 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798618-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798618-20250402.htm)
-
----
-
-# 丘應樺：港台與新聞處職能上無重疊　合併或會帶來反效果
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798610_1_20250402141912.jpg&q=90)
-  
-
-商務及經濟發展局局長丘應樺表示，香港電台與政府新聞處雖然同為政府部門，但港台作為公共廣播機構，與新聞處主責政府公共關係，各司其職，職能上並無重疊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798610-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798610-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798610-20250402.htm)
-
----
-
-# 周一鳴：視乎情況決定是否批准公眾遊行集會
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798608_1_20250402140828.jpg&q=90)
-  
-
-新任警務處處長周一鳴會見傳媒，被問到前處長蕭澤頤非常關注在反修例事件被捕的年輕人，未來會如何跟進，會否加快速度處理案件。周一鳴回應說承先啟後是重點，歷任警務處處長做了很多工作，播下很多種子，蕭澤頤特別花了很多時間和心思在青少年工作，這是警隊其中一個大方向，不會有太大變動。他強調警方會依法處理反修例案件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798608-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798608-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798608-20250402.htm)
 
 ---

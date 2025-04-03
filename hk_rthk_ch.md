@@ -1,3 +1,73 @@
+# 配合三項鐵人賽事　中環及灣仔本周五至周日有封路及特別交通安排
+
+  
+
+亞洲三鐵半奧運距離錦標賽明日起，一連三日在中環海濱舉行，中環及灣仔將有封路及特別交通安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm)
+
+---
+
+# 馮德萊恩稱準備好與美國談判關稅　倘談判失敗將進一步反制
+
+![歐盟委員會主席馮德萊恩重申歐盟準備與美國談判關稅，如果談判失敗，會進一步反制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798798_1_20250403152206.jpg&q=90)
+  
+
+美方宣布對所有貿易夥伴徵收對等關稅，歐盟產品關稅是20%。歐盟委員會主席馮德萊恩表示遺憾，重申歐盟一直準備與美國談判，消除跨大西洋貿易壁壘，同時也準備回應。她說歐盟正敲定對美國鋼鋁關稅的反制措施的最後細節。如果談判失敗，會進一步反制，保護歐盟的利益和商業。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm)
+
+---
+
+# 崔建春約見梅儒瑞　就美國制裁中方官員提出嚴正交涉
+
+  
+
+外交部駐港特派員崔建春昨日約見美國駐香港總領事梅儒瑞，就美國國務院宣布對6名中方官員實施無理制裁，並發布抹黑香港的《2025年香港政策法報告》提出嚴正交涉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798800-20250403.htm)
+
+---
+
 # 內地股市收市向下　創業板跌近2%
 
 ![上證指數低開近1%後曾輕微倒升，收市報3342點，跌8點，跌幅0.24%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798797_1_20250403151620.jpg&q=90)
