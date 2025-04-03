@@ -1,5 +1,30 @@
+# 政府委任梁世光出任輔警總監　接替行將退休楊祖賜
+
+![警務處處長周一鳴（右）頒授委任狀予新委任香港輔助警察隊總監梁世光（左）。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798839_1_20250403185915.jpg&q=90)
+  
+
+政府宣布委任梁世光由本月7日起出任香港輔助警察隊總監，以接替行將退休的總監楊祖賜。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798839-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798839-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798839-20250403.htm)
+
+---
+
 # 李家超在政總主持學習全國兩會精神座談會　鄭雁雄出席
 
+![李家超表示，香港在「一國兩制」獨特優勢下，可以更大力度發揮內聯外通的橋樑作用，鞏固和歐美等傳統市場的經貿聯繫。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798837_1_20250403185430.jpg&q=90)
   
 
 行政長官李家超在社交專頁表示，今天在政府總部主持學習全國兩會精神座談會，特別感謝中聯辦主任鄭雁雄出席，與一眾特區政府官員、港區全國人大代表、港區全國政協委員、行政會議成員、立法會議員等300多人分享學習全國兩會精神和重要內容。
@@ -143,6 +168,7 @@
 
 # 約5萬考生應考文憑試英文科卷一及卷二　考評局：各試場運作暢順
 
+![考評局表示，各試場學校整體運作暢順，考試順利按時完成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798820_1_20250403185812.jpg&q=85)
   
 
 中學文憑試英國語文科卷一及卷二考試早上舉行。考評局表示，約50000名考生在約430個一般試場及逾540個特別試場應考，各試場學校整體運作暢順，考試順利按時完成。
@@ -1410,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798656-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798656-20250402.htm)
-
----
-
-# 李家超晤訪港江西省省長　商討加強贛港合作
-
-![李家超（右）在禮賓府與江西省省長葉建春（左）會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798655_1_20250402181156.jpg&q=90)
-  
-
-​行政長官李家超在禮賓府與率團訪港的江西省省長葉建春會面，就加強贛港合作交流意見。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798655-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798655-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798655-20250402.htm)
 
 ---

@@ -69,6 +69,30 @@
 
 ---
 
+# 香港律師會訪京　湯文龍稱任何對公職人員制裁都是對法治侮辱
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798824_1_20250403183643.jpg&q=80)
+  
+
+美國國務院早前宣布，對6名中央和香港特區官員實施制裁。香港律師會會長湯文龍表示，不以政治角度評論事件，就法律角度而言，任何對於公職人員的制裁都是對法治的侮辱。他説，任何人包括律政司司長，根據《基本法》下行使應有的權利，不應該受到干預和制裁。如果制裁是透過政治手段，作爲法律從業員，他們對此予以譴責。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm)
+
+---
+
 # 商務部：中歐同意盡快重啟電動汽車反補貼案價格承諾談判
 
 ![何亞東說，中歐雙方同意盡快重啟電動汽車反補貼案價格承諾談判，為推動中歐企業開展投資和產業合作營造良好的環境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798822_1_20250403172239.jpg&q=75)
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm)
-
----
-
-# 外交部：中方促美方停止借涉藏問題干涉中國內政
-
-![郭嘉昆說，中方敦促美方恪守在西藏問題上所做承諾，停止借涉藏問題干涉中國內政。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798486_1_20250401175100.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆表示，美方粗暴干涉西藏事務和中國內政，嚴重違反國際法和國際關係基本準則。中方對此強烈不滿，堅決反對，將採取必要措施，對美方錯誤行徑予以堅決對等反制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798486-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798486-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798486-20250401.htm)
 
 ---

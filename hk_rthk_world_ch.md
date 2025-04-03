@@ -70,6 +70,30 @@
 
 ---
 
+# 香港律師會訪京　湯文龍稱任何對公職人員制裁都是對法治侮辱
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798824_1_20250403183643.jpg&q=80)
+  
+
+美國國務院早前宣布，對6名中央和香港特區官員實施制裁。香港律師會會長湯文龍表示，不以政治角度評論事件，就法律角度而言，任何對於公職人員的制裁都是對法治的侮辱。他説，任何人包括律政司司長，根據《基本法》下行使應有的權利，不應該受到干預和制裁。如果制裁是透過政治手段，作爲法律從業員，他們對此予以譴責。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm)
+
+---
+
 # 加拿大將採取反制措施　日韓指示部門減低關稅影響
 
 ![加拿大總理卡尼表明將採取反制措施，日韓指示部門減低關稅影響。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798817_1_20250403170754.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798523-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798523-20250402.htm)
-
----
-
-# 李強與王毅就地震導致人員傷亡及財產損失分別向泰方致慰問電
-
-![受緬甸地震影響，泰國有設施受損，導致財產損失。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798522_1_20250402005539.jpg&q=90)
-  
-
-國務院總理李強就泰國受緬甸地震影響、遭受人員傷亡及財產損失，向泰國總理佩通坦致慰問電。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm)
 
 ---
