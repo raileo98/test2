@@ -1,5 +1,30 @@
+# 日股曾挫4.5%　半日跌幅收窄至約3%
+
+![日經指數今早曾跌逾1600點，低見34102點，跌幅4.5%。半日收報34673點，跌幅2.95%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798756_1_20250403103532.jpg&q=90)
+  
+
+日股顯著下挫，美國對多個國家徵收對等關稅，觸發環球金融市場大幅波動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798756-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798756-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798756-20250403.htm)
+
+---
+
 # 運輸署籲清明節長周末往返內地及澳門　於非繁忙時段出行
 
+![運輸署呼籲於長周末、即本月4至6日經各陸路管制站往返內地及澳門的市民、內地旅客及跨境車輛，及早規劃行程。（運輸署社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798757_1_20250403104726.jpg&q=75)
   
 
 運輸署表示，清明節是香港和內地的公眾假期，呼籲於長周末、即本月4至6日經各陸路管制站往返內地及澳門的市民、內地旅客及跨境車輛，及早規劃行程，預留充裕交通時間，於非繁忙時段出行。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798685-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798685-20250402.htm)
-
----
-
-# 夏寶龍晤滙豐主席杜嘉祺　冀集團向國際社會講好中國故事
-
-![中央港澳辦、國務院港澳辦主任夏寶龍（右）下午會見滙豐集團主席杜嘉祺（左），希望滙豐集團在中國更好發展。（中央港澳辦）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798684_1_20250402222247.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍下午會見滙豐集團主席杜嘉祺，指希望滙豐集團在中國更好發展，更積極助力香港鞏固提升國際金融中心地位，繼續發揮自身優勢做好中英關係的重要橋樑紐帶，向國際社會講好「中國故事」「香港故事」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm)
 
 ---

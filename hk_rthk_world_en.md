@@ -1,3 +1,27 @@
+# China urges US to 'immediately cancel' new tariffs
+
+![The Commerce Ministry has called for Washington to "immediately cancel" sweeping new tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798759_1_20250403104243.jpg&q=80)
+  
+
+Beijing on Thursday said it "firmly opposes" sweeping new US tariffs on its exports, vowing "countermeasures to safeguard its own rights and interests".
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798759-20250403.htm)
+
+---
+
 # 'Tariffs will change global trading system'
 
 ![Canadian Prime Minister Mark Carney vowed to fight tariffs, although America's northern neighbour was not singled out for additional tariffs in Trump's latest announcement. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798733_1_20250403083353.jpg&q=90)
@@ -1411,29 +1435,5 @@ An original animatronic model of the iconic alien created for Steven Spielberg's
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm)
-
----
-
-# Trump, Carney hail 'extremely productive' call
-
-![During the call, Carney told Trump his government would impose retaliatory tariffs on American goods from April 2. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797975_1_20250329071156.jpg&q=90)
-  
-
-US President Donald Trump said he had an "extremely productive" first call Friday with Canada's new Prime Minister Mark Carney, after soaring tensions over tariffs and Trump's wish to annex his northern neighbour.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm)
 
 ---

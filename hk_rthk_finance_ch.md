@@ -1,3 +1,27 @@
+# 日股曾挫4.5%　半日跌幅收窄至約3%
+
+![日經指數今早曾跌逾1600點，低見34102點，跌幅4.5%。半日收報34673點，跌幅2.95%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798756_1_20250403103532.jpg&q=90)
+  
+
+日股顯著下挫，美國對多個國家徵收對等關稅，觸發環球金融市場大幅波動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798756-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798756-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798756-20250403.htm)
+
+---
+
 # 財新中國3月服務業PMI升至51.9　新訂單加快增長
 
 ![財新中國3月服務業採購經理指數升至51.9，按月升0.5，連續逾兩年處於50以上的擴張水平。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798753_1_20250403100417.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798559-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798559-20250402.htm)
-
----
-
-# 甯漢豪：北都發展將有更多便利市場措施　積極探討「按實補價」
-
-![甯漢豪強調北都發展不能單靠政府力量，也要市場力量參與。（文匯報片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798558_1_20250402095837.jpg&q=90)
-  
-
-發展局局長甯漢豪表示，要有破格思維提速北部都會區發展，將有更多措施出台便利市場參與。政府正積極探討「按實補價」概念，例如企業落戶北都只想做某類商業活動，但地契的商業定義寫得好闊，政府可否按企業實在的意願訂定地契及評估地價，令大家促成其事，不會與企業意向商業活動的估價標準相距好遠。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm)
 
 ---
