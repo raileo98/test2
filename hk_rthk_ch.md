@@ -1,3 +1,50 @@
+# 再多一名中國人死於緬甸大地震
+
+  
+
+中國駐緬甸大使館確認，再多一名中國人死於緬甸中部大地震，至今共4名中國公民死亡，13人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm)
+
+---
+
+# 道指初段跌逾千點　納指跌逾4%　大型科技股跌幅顯著
+
+![道瓊斯指數較早時報41074點，跌1150點，跌幅2.73%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798861_1_20250403214114.jpg&q=90)
+  
+
+美股在開市初段下跌，3大指數跌幅介乎近3%至逾4%。美國宣布對多個國家及地區徵收對等關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798861-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798861-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798861-20250403.htm)
+
+---
+
 # 海關關長晤荷蘭官員冀加強雙方海關事務協作
 
   

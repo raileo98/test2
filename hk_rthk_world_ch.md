@@ -1,3 +1,26 @@
+# 再多一名中國人死於緬甸大地震
+
+  
+
+中國駐緬甸大使館確認，再多一名中國人死於緬甸中部大地震，至今共4名中國公民死亡，13人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm)
+
+---
+
 # 匈牙利宣布退出國際刑事法院
 
 ![匈牙利拒執行國際刑事法院針對以色列總理內塔尼亞胡的拘捕令，並宣布退出國際刑事法院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798846_1_20250403193828.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798525-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798525-20250402.htm)
-
----
-
-# 普京指俄中應續發加強戰略協作信號　王毅稱兩國合作不受外部干擾
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798524_1_20250402004949.jpg&q=90)
-  
-
-俄羅斯總統普京在首都莫斯科，會見到訪的中共中央政治局委員、外交部長王毅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm)
 
 ---
