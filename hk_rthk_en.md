@@ -1,3 +1,27 @@
+# Sinner doping woes blamed on ex-physio
+
+![Jannik Sinner's running afoul of anti-doping rules has been blamed on former physiotherapist Giacomo Naldi by physical trainer Umberto Ferrara. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798835_1_20250403184040.jpg&q=90)
+  
+
+Tennis world number one Jannik Sinner's former physical trainer Umberto Ferrara said on Thursday he was blameless in the case of the three-time Grand Slam champion testing positive twice for a banned substance.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm)
+
+---
+
 # Sanctions on officials are 'insults to rule of law'
 
 ![Law Society president Roden Tong takes issue with US targeting of public officials, lawyers or even businessmen for carrying out their duties. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798828_1_20250403175853.jpg&q=80)
@@ -1415,29 +1439,5 @@ US stocks finished mixed on Tuesday on a quiet trading day as investors braced f
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798541-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798541-20250402.htm)
-
----
-
-# Real Madrid hold Real Sociedad in eight-goal thriller
-
-![Antonio Rudiger, right, was among the scorers for Real Madrid. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798540_2_20250402062922.jpg&q=90)
-  
-
-Real Madrid edged into the Copa del Rey final with a thrilling 4-4 draw against Real Sociedad after extra-time, securing a 5-4 aggregate semi-final victory.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm)
 
 ---

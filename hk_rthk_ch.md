@@ -1,3 +1,73 @@
+# 火炭謀殺案押後至5月29日再訊　被告還押
+
+  
+
+火炭上月發生一宗謀殺案，男被告下午在沙田裁判法院首次提堂。裁判官應控方申請，將案件押後至5月29日再訊，被告須還押候訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm)
+
+---
+
+# 入境處反非法勞工拘捕16人　包括兩名僱主
+
+![懷疑非法勞工在行動中被捕。（入境處提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798834_1_20250403184311.jpg&q=80)
+  
+
+入境處一連三日在多區展開反非法勞工行動，拘捕14名懷疑非法勞工及2名涉嫌聘用非法勞工的僱主。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm)
+
+---
+
+# 澳門開通至歐洲貨運直航包機服務
+
+  
+
+澳門國際機場藉近年跨境電商速迅發展，成功開通至歐洲貨運直航包機服務。由埃塞俄比亞航空執飛、來往澳門至西班牙馬德里的首個貨運包機，朝早在澳門運出第一批電商產品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798832-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798832-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798832-20250403.htm)
+
+---
+
 # 中證監召開民營科企座談會　將加快推動新一輪資本市場改革開放
 
 ![吳清表示，民營經濟是國民經濟的重要組成部分，是推動科技創新的重要力量，將加快推動新一輪資本市場改革開放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798831_1_20250403181034.jpg&q=90)
@@ -24,6 +94,7 @@
 
 # 美國對華徵收34%對等關稅　特朗普任內稅率增至54%
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798830_1_20250403183937.jpg&q=90)
   
 
 美國總統特朗普簽署他形容為歷史性的行政命令，向多個與美國有貿易往來的國家及地區實施對等關稅，下星期三生效。
@@ -71,6 +142,7 @@
 
 # 特區政府強烈不滿美國向香港產品加徵關稅　香港郵政不會代收關稅
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798827_2_20250403183942.jpg&q=80)
   
 
 特區政府表示，強烈反對及不滿美國向香港產品加徵所謂對等關稅，並由5月2日起取消香港產品的小額免稅待遇及徵收關稅，再次嚴正要求美方撤回。
@@ -118,6 +190,7 @@
 
 # 香港律師會訪京　湯文龍稱任何對公職人員制裁都是對法治侮辱
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798824_1_20250403183643.jpg&q=80)
   
 
 美國國務院早前宣布，對6名中央和香港特區官員實施制裁。香港律師會會長湯文龍表示，不以政治角度評論事件，就法律角度而言，任何對於公職人員的制裁都是對法治的侮辱。他説，任何人包括律政司司長，根據《基本法》下行使應有的權利，不應該受到干預和制裁。如果制裁是透過政治手段，作爲法律從業員，他們對此予以譴責。
@@ -308,7 +381,7 @@
 
 # 商務部稱願與美方通過平等對話磋商　解決各自的關切
 
-![何亞東表示，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
   
 
 美方宣布對所有貿易夥伴徵收對等關稅。在北京，商務部新聞發言人何亞東表示，中美兩國經貿部門一直保持溝通，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。
@@ -1580,6 +1653,7 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 
 # 何永賢：財政預算案放寬印花稅措施帶動細價樓市場趨活躍
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798748_1_20250403183535.jpg&q=90)
   
 
 簡樸房規管方案近日出爐，外界關注簡樸房租金水平。房屋局局長何永賢在一個電台節目表示，租金水平視乎供求情況。
@@ -1941,7 +2015,7 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 
 # 意總理稱美國關稅錯誤　澳洲總理指非朋友行為　加拿大將反制
 
-![阿爾巴內塞說，美國徵收關稅並不令人意外，但完全沒有道理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798727_1_20250403071846.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798727_1_20250403071846.jpg&q=90)
   
 
 意大利總理梅洛尼說，美國新公布的關稅是錯誤，可能引發貿易戰，將盡力與美國達成協議。

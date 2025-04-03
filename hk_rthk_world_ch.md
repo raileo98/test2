@@ -1,5 +1,6 @@
 # 美國對華徵收34%對等關稅　特朗普任內稅率增至54%
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798830_1_20250403183937.jpg&q=90)
   
 
 美國總統特朗普簽署他形容為歷史性的行政命令，向多個與美國有貿易往來的國家及地區實施對等關稅，下星期三生效。
@@ -47,6 +48,7 @@
 
 # 特區政府強烈不滿美國向香港產品加徵關稅　香港郵政不會代收關稅
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798827_2_20250403183942.jpg&q=80)
   
 
 特區政府表示，強烈反對及不滿美國向香港產品加徵所謂對等關稅，並由5月2日起取消香港產品的小額免稅待遇及徵收關稅，再次嚴正要求美方撤回。
@@ -94,7 +96,7 @@
 
 # 商務部稱願與美方通過平等對話磋商　解決各自的關切
 
-![何亞東表示，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
   
 
 美方宣布對所有貿易夥伴徵收對等關稅。在北京，商務部新聞發言人何亞東表示，中美兩國經貿部門一直保持溝通，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。
@@ -429,7 +431,7 @@
 
 # 意總理稱美國關稅錯誤　澳洲總理指非朋友行為　加拿大將反制
 
-![阿爾巴內塞說，美國徵收關稅並不令人意外，但完全沒有道理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798727_1_20250403071846.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798727_1_20250403071846.jpg&q=90)
   
 
 意大利總理梅洛尼說，美國新公布的關稅是錯誤，可能引發貿易戰，將盡力與美國達成協議。

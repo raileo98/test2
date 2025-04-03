@@ -1,3 +1,26 @@
+# 澳門開通至歐洲貨運直航包機服務
+
+  
+
+澳門國際機場藉近年跨境電商速迅發展，成功開通至歐洲貨運直航包機服務。由埃塞俄比亞航空執飛、來往澳門至西班牙馬德里的首個貨運包機，朝早在澳門運出第一批電商產品。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798832-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798832-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798832-20250403.htm)
+
+---
+
 # 中證監召開民營科企座談會　將加快推動新一輪資本市場改革開放
 
 ![吳清表示，民營經濟是國民經濟的重要組成部分，是推動科技創新的重要力量，將加快推動新一輪資本市場改革開放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798831_1_20250403181034.jpg&q=90)
@@ -24,6 +47,7 @@
 
 # 美國對華徵收34%對等關稅　特朗普任內稅率增至54%
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798830_1_20250403183937.jpg&q=90)
   
 
 美國總統特朗普簽署他形容為歷史性的行政命令，向多個與美國有貿易往來的國家及地區實施對等關稅，下星期三生效。
@@ -95,7 +119,7 @@
 
 # 商務部稱願與美方通過平等對話磋商　解決各自的關切
 
-![何亞東表示，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
   
 
 美方宣布對所有貿易夥伴徵收對等關稅。在北京，商務部新聞發言人何亞東表示，中美兩國經貿部門一直保持溝通，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。
@@ -530,7 +554,7 @@
 
 # 韓正晤滙豐集席杜嘉祺　冀集團為促進中英關係發展作貢獻
 
-![韓正與英國滙豐集團主席杜嘉祺會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798690_1_20250402223133.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798690_1_20250402223133.jpg&q=90)
   
 
 國家副主席韓正在北京會見英國滙豐集團主席杜嘉祺。
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798486-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798486-20250401.htm)
-
----
-
-# 陳茂波：香港百業興旺有賴穩定安全供水系統
-
-![陳茂波表示，東江供水系統不斷擴展和優化，支撐香港經濟蓬勃發展。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798480_1_20250401174125.jpg&q=90)
-  
-
-財政司司長陳茂波表示，東江供水系統不斷擴展和優化，支撐香港經濟蓬勃發展，即使其間東江流域受到旱情威脅，仍是確保香港的用水充足、優質和安全。今天香港是國際金融、貿易和航運中心，百業興旺，這些都有賴於國家的堅實支持和穩定安全的用水供應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm)
 
 ---

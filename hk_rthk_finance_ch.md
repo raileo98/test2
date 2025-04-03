@@ -24,6 +24,7 @@
 
 # 特區政府強烈不滿美國向香港產品加徵關稅　香港郵政不會代收關稅
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798827_2_20250403183942.jpg&q=80)
   
 
 特區政府表示，強烈反對及不滿美國向香港產品加徵所謂對等關稅，並由5月2日起取消香港產品的小額免稅待遇及徵收關稅，再次嚴正要求美方撤回。
@@ -720,6 +721,7 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 
 # 何永賢：財政預算案放寬印花稅措施帶動細價樓市場趨活躍
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798748_1_20250403183535.jpg&q=90)
   
 
 簡樸房規管方案近日出爐，外界關注簡樸房租金水平。房屋局局長何永賢在一個電台節目表示，租金水平視乎供求情況。
@@ -935,7 +937,7 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 
 # 意總理稱美國關稅錯誤　澳洲總理指非朋友行為　加拿大將反制
 
-![阿爾巴內塞說，美國徵收關稅並不令人意外，但完全沒有道理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798727_1_20250403071846.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798727_1_20250403071846.jpg&q=90)
   
 
 意大利總理梅洛尼說，美國新公布的關稅是錯誤，可能引發貿易戰，將盡力與美國達成協議。
@@ -1295,7 +1297,7 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 
 # 韓正晤滙豐集席杜嘉祺　冀集團為促進中英關係發展作貢獻
 
-![韓正與英國滙豐集團主席杜嘉祺會面。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798690_1_20250402223133.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798690_1_20250402223133.jpg&q=90)
   
 
 國家副主席韓正在北京會見英國滙豐集團主席杜嘉祺。

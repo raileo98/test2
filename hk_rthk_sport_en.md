@@ -1,3 +1,27 @@
+# Sinner doping woes blamed on ex-physio
+
+![Jannik Sinner's running afoul of anti-doping rules has been blamed on former physiotherapist Giacomo Naldi by physical trainer Umberto Ferrara. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798835_1_20250403184040.jpg&q=90)
+  
+
+Tennis world number one Jannik Sinner's former physical trainer Umberto Ferrara said on Thursday he was blameless in the case of the three-time Grand Slam champion testing positive twice for a banned substance.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798835-20250403.htm)
+
+---
+
 # SAR women's cycling team wins Tour of Thailand
 
 ![The Hong Kong, China, team finished in an overall time of 19 hours, 43 minutes and 37 seconds. Photo courtesy of The Princess Maha Chakri Sirindhorn's Cup Tour of Thailand](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798818_1_20250403171524.jpg&q=80)
@@ -1428,29 +1452,5 @@ Australia's Alex de Minaur put an end to Brazilian talent Joao Fonseca's challen
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797270-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797270-20250325.htm)
-
----
-
-# Hong Kong's Coleman Wong bows out of Miami Open
-
-![Wong's historic Miami Open run ended in a three-set defeat to Australia's Adam Walton. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797228_2_20250325054405.jpg&q=90)
-  
-
-Hong Kong's rising tennis star Coleman Wong on Monday fell short of a third round victory at this year's Miami Open.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797228-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797228-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797228-20250325.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 火炭謀殺案押後至5月29日再訊　被告還押
+
+  
+
+火炭上月發生一宗謀殺案，男被告下午在沙田裁判法院首次提堂。裁判官應控方申請，將案件押後至5月29日再訊，被告須還押候訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm)
+
+---
+
+# 入境處反非法勞工拘捕16人　包括兩名僱主
+
+![懷疑非法勞工在行動中被捕。（入境處提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798834_1_20250403184311.jpg&q=80)
+  
+
+入境處一連三日在多區展開反非法勞工行動，拘捕14名懷疑非法勞工及2名涉嫌聘用非法勞工的僱主。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm)
+
+---
+
 # 特區救援隊指揮官趙汝珏：天氣炎熱惟救出傷者後士氣高昂
 
 ![趙汝珏說，特區救援隊已經抵步第六日，當地天氣非常熱，日間超過40度，夜間超過30度，對體能消耗有一定壓力。(香港消防處社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798829_1_20250403181259.jpg&q=90)
@@ -24,6 +71,7 @@
 
 # 特區政府強烈不滿美國向香港產品加徵關稅　香港郵政不會代收關稅
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798827_2_20250403183942.jpg&q=80)
   
 
 特區政府表示，強烈反對及不滿美國向香港產品加徵所謂對等關稅，並由5月2日起取消香港產品的小額免稅待遇及徵收關稅，再次嚴正要求美方撤回。
@@ -47,6 +95,7 @@
 
 # 香港律師會訪京　湯文龍稱任何對公職人員制裁都是對法治侮辱
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798824_1_20250403183643.jpg&q=80)
   
 
 美國國務院早前宣布，對6名中央和香港特區官員實施制裁。香港律師會會長湯文龍表示，不以政治角度評論事件，就法律角度而言，任何對於公職人員的制裁都是對法治的侮辱。他説，任何人包括律政司司長，根據《基本法》下行使應有的權利，不應該受到干預和制裁。如果制裁是透過政治手段，作爲法律從業員，他們對此予以譴責。
@@ -597,6 +646,7 @@
 
 # 何永賢：財政預算案放寬印花稅措施帶動細價樓市場趨活躍
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798748_1_20250403183535.jpg&q=90)
   
 
 簡樸房規管方案近日出爐，外界關注簡樸房租金水平。房屋局局長何永賢在一個電台節目表示，租金水平視乎供求情況。
@@ -1384,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798654-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798654-20250402.htm)
-
----
-
-# 分析料本港整體經濟下半年有較大起色　美國關稅影響不算太嚴重
-
-![謝家曦表示，本地需求仍有隠憂，整體經濟可能要到下半年才有較大起色。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798651_1_20250402174448.jpg&q=85)
-  
-
-港大經濟及商業策略研究所亞太經濟合作研究項目預測，本港首季經濟按年增長1.6%，第2季經濟增速將加快至2.5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798651-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798651-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798651-20250402.htm)
-
----
-
-# 有老師認為文憑試中文科兩份卷難度適中
-
-![有考生表示，卷一試卷並非太難，文言文篇章容易理解。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798643_1_20250402170426.jpg&q=80)
-  
-
-文憑試首個核心科目中文科今日開考，近4萬9千人報考。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm)
 
 ---
