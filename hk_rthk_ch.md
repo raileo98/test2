@@ -1,6 +1,29 @@
+# 中電稱已制定應變方案減少山火對電力系統潛在風險
+
+  
+
+中電表示，正全方位加強山火防備工作，包括過去幾星期重點巡查山火黑點，加強農林管理，並會在超過400個地點進行電杆清理，移除附近的雜草和樹枝，避免山火影響電力設施。中電亦已制定應變方案，減少山火對電力系統造成的潛在風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798844-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798844-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798844-20250403.htm)
+
+---
+
 # 天文台錄得相對濕度曾降至22%　平了1984年以來最低紀錄
 
-![天文台呼籲市民上山祭祖小心山火，勿留火種。（天文台社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798842_1_20250403192428.jpg&q=90)
+![天文台呼籲市民上山祭祖小心山火，勿留火種。（天文台社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798842_2_20250403192548.jpg&q=90)
   
 
 天文台表示，受到乾燥偏東氣流影響，今日香港多區相對濕度下降到30%或以下，天文台總部錄得相對濕度更曾下降到22%，追平天文台自1984年設置自動氣象站以來、4月份最低紀錄。
