@@ -23,7 +23,7 @@
 
 # 林健鋒：美國全球關稅措施打擊港商部署　吳永嘉：影響電商運作
 
-![林健鋒（右）批評美方的霸權主義，損人不利己。吳永嘉（左）認為關稅政策無疑將推高當地物價及通脹。（林紹鋒攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798789_1_20250403150540.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798789_1_20250403150540.jpg&q=80)
   
 
 美國公布針對全球的對等關稅措施，除了早前徵收的20%關稅外，還會對中國進口產品徵收34%對等關稅，令新徵稅總額達到54%。另外，美國取消對來自中國內地和香港的小額包裹豁免關稅政策，5月2日起生效。

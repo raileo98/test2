@@ -24,7 +24,7 @@ A transport worker was on Thursday convicted of rioting in the Yuen Long clashes
 
 # 'Don't go with top-bidder rule for N Metropolis'
 
-![Lau Kwok-fan says the government should consider the developers' financial stability when they award tenders for Northern Metropolis projects. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798786_1_20250403132127.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798786_1_20250403132127.jpg&q=90)
   
 
 A DAB lawmaker on Thursday suggested the government take into account the financial stability of developers when it comes to decisions on tender awards for Northern Metropolis projects to the highest bidders.
