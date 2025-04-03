@@ -1,3 +1,27 @@
+# 交行香港分行協助財政部在倫敦發行60億人民幣綠色主權債
+
+![交通銀行香港分行協助中國財政部在英國倫敦成功發行60億人民幣綠色主權債，超額認購6.8倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798833_1_20250403183328.jpg&q=75)
+  
+
+交通銀行香港分行公布，協助中國財政部在英國倫敦成功發行60億人民幣綠色主權債，超額認購6.8倍，是繼2016年後，財政部再次在倫敦面向國際市場發行人民幣主權債。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798833-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798833-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798833-20250403.htm)
+
+---
+
 # 政府委任梁世光出任輔警總監　接替行將退休楊祖賜
 
 ![警務處處長周一鳴（右）頒授委任狀予新委任香港輔助警察隊總監梁世光（左）。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798839_1_20250403185915.jpg&q=90)
