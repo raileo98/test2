@@ -1,3 +1,27 @@
+# 醫衞局指星島日報有關控煙政策報道失實　措施不影響旅客訪港意欲
+
+![醫務衞生局表示，對有關報道內容失實和誤導公眾表示遺憾。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798863_1_20250403215824.jpg&q=80)
+  
+
+醫務衞生局表示，《星島日報》今日引述個別人士有關另類煙和水煙的言論，指控煙政策會破壞遊客觀感，發言人對有關報道內容失實和誤導公眾表示遺憾，醫衞局提出10項短期控煙措施已充分考慮旅遊業的情況，措施並不會影響旅客訪港意欲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798863-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798863-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798863-20250403.htm)
+
+---
+
 # 再多一名中國人死於緬甸大地震
 
   
@@ -47,6 +71,7 @@
 
 # 海關關長晤荷蘭官員冀加強雙方海關事務協作
 
+![海關關長陳子達（右）在海關總部大樓與荷蘭海關關長Nanette van Schelven（左）進行雙邊會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798860_1_20250403215627.jpg&q=90)
   
 
 海關關長陳子達與訪港的荷蘭海關關長及荷蘭駐香港總領事於海關總部大樓會面，藉此增進雙方友好關係以及加強在海關事務上的協作。

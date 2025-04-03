@@ -1,3 +1,26 @@
+# 再多一名中國人死於緬甸大地震
+
+  
+
+中國駐緬甸大使館確認，再多一名中國人死於緬甸中部大地震，至今共4名中國公民死亡，13人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm)
+
+---
+
 # 羅淑佩拜會國家文化和旅遊部及國家電影局
 
 ![文化體育及旅遊局局長羅淑佩（左）繼續北京拜訪行程，拜會國家文化和旅遊部副部長高政（右）。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798858_1_20250403213512.jpg&q=85)
@@ -1413,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm)
-
----
-
-# 李強與王毅就地震導致人員傷亡及財產損失分別向泰方致慰問電
-
-![受緬甸地震影響，泰國有設施受損，導致財產損失。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798522_1_20250402005539.jpg&q=90)
-  
-
-國務院總理李強就泰國受緬甸地震影響、遭受人員傷亡及財產損失，向泰國總理佩通坦致慰問電。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798522-20250402.htm)
 
 ---
