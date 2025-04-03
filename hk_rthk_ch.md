@@ -1,3 +1,26 @@
+# 標普全球美國3月服務業PMI終值為54.4　略好過預期
+
+  
+
+標普全球公布，美國3月服務業採購經理指數（PMI）終值為54.4，好過市場預期及初值的54.3。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798866-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798866-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798866-20250403.htm)
+
+---
+
 # 澳門入境旅客突破1千萬人次　恢復至疫情前同期九成半水平
 
 ![澳門今年入境旅各量，比去年提前了11天突破1千萬人次。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798867_1_20250403223907.jpg&q=80)
