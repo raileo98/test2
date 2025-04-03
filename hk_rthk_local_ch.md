@@ -1,3 +1,26 @@
+# 廉署起訴一名銀行職員兩名保險經紀　涉受賄助客戶開立銀行戶口
+
+  
+
+廉政公署落案起訴一名銀行職員和一對保險經紀兼中介夫婦，涉嫌串謀收受賄款超過15萬元，以協助中介的客戶開立銀行戶口。案件下星期一在東區裁判法院提訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm)
+
+---
+
 # 涉攜武士刀進入法院男子缺席提堂　法庭發出拘捕令
 
 ![案件原定今日提堂，但被告缺席，裁判官何慧嫻發出拘捕令。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798809_1_20250403162651.jpg&q=90)
@@ -118,7 +141,7 @@
 
 # 本港向緬甸捐贈逾20公噸救援物資　陳國基：全力支援救災賑災
 
-![陳國基聯同多名局長及副局長到機場出席捐贈儀式。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798799_1_20250403153645.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798799_1_20250403153645.jpg&q=85)
   
 
 緬甸大地震造成大量人員傷亡和基礎設施受損，特區政府表示，針對災區需求，徵集了一批緊急救援物資。這批救援物資超過20公噸，由不同政府部門合作和協調，當中包括食物、飲用水、醫療包和臨時居所物料等關鍵物資，部分物資由社會熱心人士捐助。這批物資已移交緬甸駐港總領事，並安排付運當地。
@@ -1409,29 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798630-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798630-20250402.htm)
-
----
-
-# 網上流傳假冒財政司司長推介投資平台影片　當局促提防並已報警
-
-![政府嚴正澄清，有關信息全屬偽造、存心詐騙，發言人忠告市民切勿受騙。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798629_1_20250402160950.jpg&q=80)
-  
-
-政府提醒市民，切勿誤信網上流傳一段疑似用人工智能合成、假冒財政司司長推介所謂「政府投資平台」的短片。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798629-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798629-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798629-20250402.htm)
 
 ---

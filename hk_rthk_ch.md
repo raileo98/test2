@@ -1,3 +1,74 @@
+# 港股低收352點
+
+![恒生指數收市報22849點，跌352點，跌幅約1.52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798811_1_20250403163254.jpg&q=15)
+  
+
+美國對多個國家及地區實施對等關稅，港股跟隨區內股市向下，失守23000點水平。恒生指數低開逾560點，跌至22638點，是全日低位，跌幅其後收窄至204點，收市報22849點，跌352點，跌幅約1.5%，主板成交額約2895億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798811-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798811-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798811-20250403.htm)
+
+---
+
+# 廉署起訴一名銀行職員兩名保險經紀　涉受賄助客戶開立銀行戶口
+
+  
+
+廉政公署落案起訴一名銀行職員和一對保險經紀兼中介夫婦，涉嫌串謀收受賄款超過15萬元，以協助中介的客戶開立銀行戶口。案件下星期一在東區裁判法院提訊。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798813-20250403.htm)
+
+---
+
+# 外交部批評日方言行違背一中原則　已嚴正交涉
+
+![郭嘉昆說，中方有關聯合演訓是對「台獨」分裂勢力的嚴重警告和有力遏制，日方無權說三道四。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798812_1_20250403164020.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆強調，中方聯合演訓是對「台獨」分裂勢力的嚴重警告和有力遏制，是捍衛國家主權、維護國家統一的正當必要行動，日方無權說三道四，更不得插手干涉，批評日方言行公然違背一個中國原則，中方強烈不滿和堅決反對，已向日方嚴正交涉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm)
+
+---
+
 # 緬甸曼德勒國際機場已開放用於救援飛機升降
 
 ![緬甸曼德勒不少建築物在地震中倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798810_1_20250403162910.jpg&q=85)
@@ -286,7 +357,7 @@
 
 # 本港向緬甸捐贈逾20公噸救援物資　陳國基：全力支援救災賑災
 
-![陳國基聯同多名局長及副局長到機場出席捐贈儀式。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798799_1_20250403153645.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798799_1_20250403153645.jpg&q=85)
   
 
 緬甸大地震造成大量人員傷亡和基礎設施受損，特區政府表示，針對災區需求，徵集了一批緊急救援物資。這批救援物資超過20公噸，由不同政府部門合作和協調，當中包括食物、飲用水、醫療包和臨時居所物料等關鍵物資，部分物資由社會熱心人士捐助。這批物資已移交緬甸駐港總領事，並安排付運當地。

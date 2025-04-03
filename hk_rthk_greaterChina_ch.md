@@ -1,3 +1,27 @@
+# 外交部批評日方言行違背一中原則　已嚴正交涉
+
+![郭嘉昆說，中方有關聯合演訓是對「台獨」分裂勢力的嚴重警告和有力遏制，日方無權說三道四。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798812_1_20250403164020.jpg&q=90)
+  
+
+在北京，外交部發言人郭嘉昆強調，中方聯合演訓是對「台獨」分裂勢力的嚴重警告和有力遏制，是捍衛國家主權、維護國家統一的正當必要行動，日方無權說三道四，更不得插手干涉，批評日方言行公然違背一個中國原則，中方強烈不滿和堅決反對，已向日方嚴正交涉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798812-20250403.htm)
+
+---
+
 # 外交部：菲律賓炮製多宗所謂「中國間諜案」　促停止捕風捉影
 
 ![郭嘉昆表示，中國司法機關和有關部門嚴格依法辦案，也將保障有關人員的合法權益。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798806_1_20250403155437.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm)
-
----
-
-# 王毅：中俄不斷深化戰略協作夥伴關係有利彼此成就
-
-![王毅說，相信中俄兩國將堅定延續偉大友誼，為推動國際秩序朝著更公正合理的方向發展作出「中俄貢獻」 。 （法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798463_1_20250401165210.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅說，中俄互為最大鄰國，都是世界大國，對維護世界和平發展負有特殊責任。兩國不斷深化戰略協作夥伴關係，有利雙方和睦相處、彼此成就。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm)
 
 ---
