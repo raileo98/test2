@@ -1,3 +1,27 @@
+# 美股主要指數挫近4-6%　約5年最大單日跌幅
+
+![美股主要指數挫近4-6%，投資者憂慮全面貿易戰衝擊全球經濟增長。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798880_1_20250404044310.jpg&q=90)
+  
+
+紐約股市顯著下挫，3個主要指數收市跌近4%至近6%，尾市跌幅擴大。美國總統特朗普公布的對等關稅措施力度超出市場預期，中國及歐盟等已經表明將採取反制行動，其他貿易夥伴亦尋求與美國談判。投資者憂慮觸發全面貿易戰衝擊全球經濟增長。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798880-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798880-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798880-20250404.htm)
+
+---
+
 # 歐洲主要股市低收　德法股市挫逾3%
 
 ![法蘭克福DAX指數報21717點，跌673點，跌幅3.01%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798879_1_20250404042312.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798810-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798810-20250403.htm)
-
----
-
-# 涉攜武士刀進入法院男子缺席提堂　法庭發出拘捕令
-
-![案件原定今日提堂，但被告缺席，裁判官何慧嫻發出拘捕令。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798809_1_20250403162651.jpg&q=90)
-  
-
-一名男子涉嫌攜帶兩把武士刀進入西九龍裁判法院，被控一項管有攻擊武器罪，案件原定今日在西九龍裁判法院提堂，但被告缺席，裁判官何慧嫻發出拘捕令。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798809-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798809-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798809-20250403.htm)
 
 ---
