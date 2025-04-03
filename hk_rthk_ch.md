@@ -1,3 +1,74 @@
+# 現貨金創新高後回軟
+
+![現貨金高見每盎司3167.57美元創新高，較早時報3127.12美元，跌幅0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798790_1_20250403144000.jpg&q=80)
+  
+
+金價再創新高，美國總統特朗普發布較預期更為激進的對等關稅政策，資金流入金市避險，其後稍為回軟。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798790-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798790-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798790-20250403.htm)
+
+---
+
+# 民建聯倡北都容許地價分期支付　放寬住宅預售期限制
+
+  
+
+北部都會區三個「片區開發」試點，當局日前收到22份意向書。民建聯新界北立法會議員金為，反映市場歡迎新發展模式，但需要將意向書轉為投標的實際行動，關鍵在於招標條款是否符合市場運作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798794-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798794-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798794-20250403.htm)
+
+---
+
+# 日股急挫近3%收市　曾跌至近8個月即市新低
+
+![日經指數初段一度急跌逾1620點，收市報34735點，跌989點，跌幅2.77%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798793_1_20250403144705.jpg&q=90)
+  
+
+日股急挫近3%收市，美國對多個國家及地區徵收對等關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798793-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798793-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798793-20250403.htm)
+
+---
+
 # 韓股失守2500點關口　低收約0.8%
 
 ![首爾綜合指數一度跌2.7%，收市報2486點，跌19點，跌幅0.76%，連跌兩日。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798792_1_20250403144619.jpg&q=90)
@@ -143,10 +214,10 @@
 
 # 渣打料中國或加大政策力度應對美國關稅措施
 
-![渣打認為美國仍有手段避過特朗普關稅政策帶來經濟衰退，例如聯儲局繼續減息。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798780_1_20250403123622.jpg&q=90)
+![渣打認為，美國仍有手段避過特朗普關稅政策帶來經濟衰退，例如聯儲局繼續減息。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798780_1_20250403123622.jpg&q=90)
   
 
-美國對多個國家同地區徵收對等關稅。渣打中國宏觀經濟部主管劉潔預期，中國將會加大政策支持力度，以應對關稅對出口的影響。她估計，中方亦將採取反制措施，或對美國商品徵收關稅，甚至涉及服務貿易、減持美債等。
+美國對多個國家同地區徵收對等關稅。渣打中國宏觀策略部主管劉潔預期，中國將會加大政策支持力度，以應對關稅對出口的影響。她估計，中方亦將採取反制措施，或對美國商品徵收關稅，甚至涉及服務貿易、減持美債等。
 
   
 
