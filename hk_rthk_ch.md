@@ -1,5 +1,78 @@
+# 匈牙利宣布退出國際刑事法院
+
+![匈牙利拒執行國際刑事法院針對以色列總理內塔尼亞胡的拘捕令，並宣布退出國際刑事法院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798846_1_20250403193828.jpg&q=90)
+  
+
+匈牙利拒執行國際刑事法院針對以色列總理內塔尼亞胡的拘捕令，並宣布退出國際刑事法院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm)
+
+---
+
+# 滬深京交易所發布程序化交易管理實施細則　7月7日起實施
+
+![上海、深圳和北京證券交易所發布程序化交易管理實施細則，對程序化交易實行實時監控，將於7月7日起實施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798843_1_20250403192505.jpg&q=90)
+  
+
+上海、深圳和北京證券交易所發布程序化交易管理實施細則，對程序化交易實行實時監控，重點監控瞬時申報速率異常、頻繁瞬時撤單、頻繁拉抬打壓、短時間大額成交等異常交易行為，細則將於7月7日起實施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798843-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798843-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798843-20250403.htm)
+
+---
+
+# 金管總局：保險機構應全部使用自有資金開展重大股權投資
+
+![國家金融監督管理總局表示，保險機構應當全部使用自有資金開展重大股權投資，防止無序擴張。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798845_1_20250403193211.jpg&q=80)
+  
+
+國家金融監督管理總局表示，保險機構應當全部使用自有資金開展重大股權投資，要審慎開展，並加強對股權投資的統籌管理，防止無序擴張。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm)
+
+---
+
 # 中電稱已制定應變方案減少山火對電力系統潛在風險
 
+![中電表示，已制定應變方案，減少山火對電力系統造成的潛在風險。（中電提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798844_1_20250403193210.jpg&q=80)
   
 
 中電表示，正全方位加強山火防備工作，包括過去幾星期重點巡查山火黑點，加強農林管理，並會在超過400個地點進行電杆清理，移除附近的雜草和樹枝，避免山火影響電力設施。中電亦已制定應變方案，減少山火對電力系統造成的潛在風險。

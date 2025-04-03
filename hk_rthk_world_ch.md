@@ -1,3 +1,27 @@
+# 匈牙利宣布退出國際刑事法院
+
+![匈牙利拒執行國際刑事法院針對以色列總理內塔尼亞胡的拘捕令，並宣布退出國際刑事法院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798846_1_20250403193828.jpg&q=90)
+  
+
+匈牙利拒執行國際刑事法院針對以色列總理內塔尼亞胡的拘捕令，並宣布退出國際刑事法院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm)
+
+---
+
 # 美國對華徵收34%對等關稅　特朗普任內稅率增至54%
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798830_1_20250403183937.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798524-20250402.htm)
-
----
-
-# 以色列空襲貝魯特剷除黎巴嫩真主黨成員　指其協助策劃重大恐襲
-
-![貝魯特南郊代希耶地區遭受空襲，有汽車受到破壞。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798523_1_20250402005737.jpg&q=85)
-  
-
-以色列政府發表聲明指出，以軍戰機在當地星期二凌晨，空襲黎巴嫩首都貝魯特南郊，剷除黎巴嫩真主黨成員貝戴爾。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798523-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798523-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798523-20250402.htm)
 
 ---
