@@ -1,3 +1,51 @@
+# 渣打料中國或加大政策力度應對美國關稅措施
+
+![渣打認為美國仍有手段避過特朗普關稅政策帶來經濟衰退，例如聯儲局繼續減息。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798780_1_20250403123622.jpg&q=90)
+  
+
+美國對多個國家同地區徵收對等關稅。渣打中國宏觀經濟部主管劉潔預期，中國將會加大政策支持力度，以應對關稅對出口的影響。她估計，中方亦將採取反制措施，或對美國商品徵收關稅，甚至涉及服務貿易、減持美債等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798780-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798780-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798780-20250403.htm)
+
+---
+
+# AEON信貸去年度盈利升逾2%　減值虧損及準備升逾19%
+
+![AEON信貸截至2月底，上個財政年度盈利約4億元，按年增長逾2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798782_1_20250403125451.jpg&q=90)
+  
+
+AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年增長逾2%。派末期息每股0.25元，全年派息0.49元，派息比率51.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798782-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798782-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798782-20250403.htm)
+
+---
+
 # 港股半日跌366點　航運及科技股受壓
 
 ![港股半日跌幅收窄，恒生指數中午報22835點，跌366點，跌幅約1.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798772_1_20250403121056.jpg&q=60)
@@ -1387,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798581-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798581-20250402.htm)
-
----
-
-# 渣打將內地今年經濟增長預測由4.5%上調至4.8%
-
-![渣打銀行上調內地今年全年經濟增長預測。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798580_1_20250402111503.jpg&q=90)
-  
-
-渣打銀行上調內地今年全年及每季經濟增長預測，全年經濟增長由原來預計4.5%，上調至4.8%，受惠首季經濟數據向好，加上堅定的政策保證。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798580-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798580-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798580-20250402.htm)
-
----
-
-# 植田和男：美國關稅對各國貿易活動有重大影響
-
-![植田和男表示，美國的關稅措施可能對每個國家貿易活動都產生重大影響。（日本央行圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798577_1_20250402104756.jpg&q=90)
-  
-
-日本央行總裁植田和男表示，美國的關稅措施可能對每個國家貿易活動都產生重大影響，具體視乎美國關稅而定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798577-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798577-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798577-20250402.htm)
 
 ---
