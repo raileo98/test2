@@ -1,4 +1,28 @@
-# Albanese says US trade tariff not 'act of a friend'
+# 'Tariffs will change global trading system'
+
+![Canadian Prime Minister Mark Carney vowed to fight tariffs, although America's northern neighbour was not singled out for additional tariffs in Trump's latest announcement. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798733_1_20250403083353.jpg&q=90)
+  
+
+Canadian Prime Minister Mark Carney on Wednesday vowed to "fight" against US President Donald Trump's sweeping tariffs, which he warned will "fundamentally change the global trading system."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm)
+
+---
+
+# US trade tariff 'not act of a friend': Albanese
 
 ![Australian Prime Minister Anthony Albanese said Australia charged nothing on US imports and should face zero US tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798732_1_20250403082709.jpg&q=90)
   
@@ -1411,29 +1435,5 @@ US President Donald Trump said he had an "extremely productive" first call Frida
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797975-20250329.htm)
-
----
-
-# Vance accuses Denmark of underinvesting in Greenland
-
-![US Vice President JD Vance demanded Denmark change its approach as President Trump pushes to take over the Danish territory. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797969_1_20250329062730.jpg&q=90)
-  
-
-US Vice President JD Vance accused Denmark on Friday of not having done enough to protect Greenland when he visited the resource-rich Danish territory coveted by US President Donald Trump.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797969-20250329.htm)
 
 ---

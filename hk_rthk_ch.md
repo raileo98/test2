@@ -1,3 +1,75 @@
+# 銅鑼灣永興街有單位發生火警　女戶主不適送院
+
+![銅鑼灣永興街有單位發生火警　女戶主不適送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798739_1_20250403090630.jpg&q=90)
+  
+
+銅鑼灣永興街9號有單位凌晨發生火警，消防救出女戶主及兩隻狗，女戶主懷疑吸入濃煙不適，送往律敦治醫院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798739-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798739-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798739-20250403.htm)
+
+---
+
+# 龍翔道和呈翔道發生多宗交通意外　部份行車線封閉
+
+![龍翔道和呈翔道發生多宗交通意外　部份行車線封閉](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798738_1_20250403090558.jpg&q=90)
+  
+
+龍翔道和呈翔道先後發生多宗交通意外。早上大約7時半，龍翔道往觀塘方向近龍翔道公園有7車相撞，全部涉及私家車，現場所見，其中一輛私家車撞至尾部剷起，壓在另一輛車的車頂上，兩人輕傷，現場部份行車線封閉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798738-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798738-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798738-20250403.htm)
+
+---
+
+# 台股假期休市
+
+![台灣假期，金融市場休市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798737_1_20250403090137.jpg&q=90)
+  
+
+台灣假期，金融市場休市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798737-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798737-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798737-20250403.htm)
+
+---
+
 # 韓股開市後跌逾2%
 
 ![首爾綜合指數較早時報2448點，跌56點，跌幅2.27%。（交易所圖片](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798731_1_20250403080949.jpg&q=90)
@@ -1363,78 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm)
-
----
-
-# 打造新旅遊及康樂「片區」　發展局就三個項目邀請市場交意向書
-
-![前南丫島石礦場用地將可發展別墅、度假酒店及豪華度假營等，會設有預計可停泊150至200艘遊艇的停泊處，亦會有低密度住宅。（立法會文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798662_1_20250402190319.jpg&q=90)
-![白泥項目佔地約33公頃。（政府新聞處資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798662_2_20250402190319.jpg&q=85)
-  
-
-發展局今日邀請市場在3個月內分別就前南丫島石礦場用地、南大嶼生態康樂走廊、以及尖鼻咀及白泥的生態旅遊發展項目提交意向書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798662-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798662-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798662-20250402.htm)
-
----
-
-# 周一鳴：重點工作包括維護國家安全　很多人以不同方式「軟對抗」
-
-![周一鳴表示，會繼續以忠誠勇毅、心繫社會的精神，帶領警隊確保香港安全穩定。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798661_1_20250402190619.jpg&q=80)
-  
-
-國務院任命周一鳴為新任警務處處長，接替退休的蕭澤頤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798661-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798661-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798661-20250402.htm)
-
----
-
-# 周一鳴接任警務處處長　維護國家安全屬重點工作方向
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798646_1_20250402183815.jpg&q=90)
-  
-
-國務院根據行政長官李家超的提名及建議，任命原本擔任警務處副處長的周一鳴，出任警務處處長，接替退休的蕭澤頤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm)
 
 ---

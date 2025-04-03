@@ -1,3 +1,51 @@
+# 銅鑼灣永興街有單位發生火警　女戶主不適送院
+
+![銅鑼灣永興街有單位發生火警　女戶主不適送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798739_1_20250403090630.jpg&q=90)
+  
+
+銅鑼灣永興街9號有單位凌晨發生火警，消防救出女戶主及兩隻狗，女戶主懷疑吸入濃煙不適，送往律敦治醫院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798739-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798739-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798739-20250403.htm)
+
+---
+
+# 龍翔道和呈翔道發生多宗交通意外　部份行車線封閉
+
+![龍翔道和呈翔道發生多宗交通意外　部份行車線封閉](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798738_1_20250403090558.jpg&q=90)
+  
+
+龍翔道和呈翔道先後發生多宗交通意外。早上大約7時半，龍翔道往觀塘方向近龍翔道公園有7車相撞，全部涉及私家車，現場所見，其中一輛私家車撞至尾部剷起，壓在另一輛車的車頂上，兩人輕傷，現場部份行車線封閉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798738-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798738-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798738-20250403.htm)
+
+---
+
 # 警方搗破毒窟、武器庫及偵破懷疑非法集結案　拘多名三合會人士
 
 ![警方將被捕人士帶上警車。（警方圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798708_1_20250403032644.jpg&q=75)
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm)
-
----
-
-# 甯漢豪：北都發展將有更多便利市場措施　積極探討「按實補價」
-
-![甯漢豪強調北都發展不能單靠政府力量，也要市場力量參與。（文匯報片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798558_1_20250402095837.jpg&q=90)
-  
-
-發展局局長甯漢豪表示，要有破格思維提速北部都會區發展，將有更多措施出台便利市場參與。政府正積極探討「按實補價」概念，例如企業落戶北都只想做某類商業活動，但地契的商業定義寫得好闊，政府可否按企業實在的意願訂定地契及評估地價，令大家促成其事，不會與企業意向商業活動的估價標準相距好遠。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798558-20250402.htm)
-
----
-
-# 火炭謀殺案　25歲被通緝疑犯於泰國芭堤雅落網
-
-![泰國傳媒引述當地移民局表示，警方在春武里府一間出租屋內，拘捕該名譯名為Truong的通緝犯，相信他在香港犯案後逃往當地。（泰國移民局）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798555_1_20250402093832.jpg&q=90)
-  
-
-火炭麗禾里上月中發生的謀殺案，被通緝的一名25歲疑犯，在泰國芭堤雅落網，他將會被驅逐出境，遞解回港。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm)
 
 ---

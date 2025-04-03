@@ -1,4 +1,52 @@
-# Albanese says US trade tariff not 'act of a friend'
+# Tariffs target packages under US$800 from HK
+
+![US President Donald Trump holds a signed executive order on tariffs, in the Rose Garden at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798734_1_20250403084633.jpg&q=90)
+  
+
+US President Donald Trump signed an executive order on Wednesday that closes a trade exemption known as "de minimis" that has allowed low-value packages from mainland China and Hong Kong to enter the United States, free of duties.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm)
+
+---
+
+# 'Tariffs will change global trading system'
+
+![Canadian Prime Minister Mark Carney vowed to fight tariffs, although America's northern neighbour was not singled out for additional tariffs in Trump's latest announcement. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798733_1_20250403083353.jpg&q=90)
+  
+
+Canadian Prime Minister Mark Carney on Wednesday vowed to "fight" against US President Donald Trump's sweeping tariffs, which he warned will "fundamentally change the global trading system."
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798733-20250403.htm)
+
+---
+
+# US trade tariff 'not act of a friend': Albanese
 
 ![Australian Prime Minister Anthony Albanese said Australia charged nothing on US imports and should face zero US tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798732_1_20250403082709.jpg&q=90)
   
@@ -1390,53 +1438,5 @@ Whole herds of cattle have drowned in vast inland floods sweeping across the Aus
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798443-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798443-20250401.htm)
-
----
-
-# Fab Four get own beat in 'bingeable' film experience
-
-![At the CinemaCon in Caesars Palace in Las Vegas are, from left, Sam Mendes, Paul Mescal, Joseph Quinn, Barry Keoghan and Harris Dickinson. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798436_1_20250401134811.jpg&q=90)
-  
-
-Sam Mendes will release four movies about The Beatles in the same month, the director has announced, with Paul Mescal playing Paul McCartney and Harris Dickinson portraying John Lennon in "the first bingeable theatrical experience."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798436-20250401.htm)
-
----
-
-# SAR political groups speak out against US sanctions
-
-![Members of the DAB handed in petitions at the US consulate in Central. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798432_1_20250401131459.jpg&q=80)
-  
-
-Local political groups have denounced Washington's move to put six mainland and Hong Kong officials on its sanctions list.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798432-20250401.htm)
 
 ---

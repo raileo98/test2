@@ -1,3 +1,27 @@
+# Tariffs target packages under US$800 from HK
+
+![US President Donald Trump holds a signed executive order on tariffs, in the Rose Garden at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798734_1_20250403084633.jpg&q=90)
+  
+
+US President Donald Trump signed an executive order on Wednesday that closes a trade exemption known as "de minimis" that has allowed low-value packages from mainland China and Hong Kong to enter the United States, free of duties.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798734-20250403.htm)
+
+---
+
 # Govt seeks interest in ecotourism projects
 
 ![The government wants to develop Pak Nai into an ecotourism destination. Photo: Development Bureau](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798669_1_20250402192137.jpg&q=80)
@@ -1421,29 +1445,5 @@ Secretary for Commerce and Economic Development Algernon Yau on Friday said the 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797952-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797952-20250329.htm)
-
----
-
-# CK Hutchison ports deal 'won't be signed next week'
-
-![A source with close links to CK Hutchison suggests that the conglomerate will not sign a deal for the sale of its ports next week. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797942_1_20250328223502.jpg&q=65)
-  
-
-A controversial ports deal between CK Hutchison and a consortium led by US investment firm BlackRock won’t be signed as expected next week – according to a source with close links to the Hong Kong conglomerate.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm](https://news.rthk.hk/rthk/en/component/k2/1797942-20250328.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 台股假期休市
+
+![台灣假期，金融市場休市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798737_1_20250403090137.jpg&q=90)
+  
+
+台灣假期，金融市場休市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798737-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798737-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798737-20250403.htm)
+
+---
+
 # 韓股開市後跌逾2%
 
 ![首爾綜合指數較早時報2448點，跌56點，跌幅2.27%。（交易所圖片](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798731_1_20250403080949.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798537-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798537-20250402.htm)
-
----
-
-# 紐約期金回吐逾4美元
-
-![外圍金價回吐，但仍接近紀錄高位。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798536_1_20250402054918.jpg&q=90)
-  
-
-外圍金價回吐，但仍接近紀錄高位。近日投資者在美國總統特朗普宣布對等關稅前，將資金轉向避險資產。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798536-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798536-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798536-20250402.htm)
 
 ---
