@@ -47,6 +47,7 @@
 
 # 海關檢市值約2900萬元懷疑可卡因　搗破紅磡酒店房間儲存倉
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798808_1_20250403165523.jpg&q=90)
   
 
 海關在紅磡搗破一個懷疑毒品儲存倉，檢獲約34公斤懷疑可卡因，估計市值約2900萬元，拘捕一名23歲男子。
