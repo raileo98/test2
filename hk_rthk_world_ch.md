@@ -1,3 +1,27 @@
+# 以軍周四轟炸加沙致過百死　哈馬斯籲國際社會向以色列施壓
+
+![加沙城有巴勒斯坦人響應以軍呼籲撤走。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798875_1_20250404021651.jpg&q=85)
+  
+
+以色列軍方持續轟炸加沙，巴勒斯坦方面說，以軍星期四的行動造成過百名巴勒斯坦人死亡，其中北部加沙城一間學校遇襲，巴勒斯坦武裝組織哈馬斯說，造成包括婦女和兒童在內的至少29人喪生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798875-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798875-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798875-20250404.htm)
+
+---
+
 # 特朗普暗示關稅帶來衝擊但美國經濟將變得強勁　白宮籲相信總統
 
 ![美國總統特朗普公布的對等關稅措施引發市場動盪。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798874_1_20250404014823.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm)
-
----
-
-# 救援組織指緬甸災區迫切需要大量食物食水及衛生設施與安置所
-
-![聯合國兒童基金會人員形容有社區被夷為平地，民眾所受的心理創傷同樣巨大。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798533_1_20250402052240.jpg&q=85)
-  
-
-在緬甸大地震災區救援的組織表示，迫切需要大量食物、食水、衛生設施及災民安置所，又形容尋獲倖存者的窗口正在迅速關閉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798533-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798533-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798533-20250402.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 以軍周四轟炸加沙致過百死　哈馬斯籲國際社會向以色列施壓
+
+![加沙城有巴勒斯坦人響應以軍呼籲撤走。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798875_1_20250404021651.jpg&q=85)
+  
+
+以色列軍方持續轟炸加沙，巴勒斯坦方面說，以軍星期四的行動造成過百名巴勒斯坦人死亡，其中北部加沙城一間學校遇襲，巴勒斯坦武裝組織哈馬斯說，造成包括婦女和兒童在內的至少29人喪生。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798875-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798875-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798875-20250404.htm)
+
+---
+
 # 特朗普暗示關稅帶來衝擊但美國經濟將變得強勁　白宮籲相信總統
 
 ![美國總統特朗普公布的對等關稅措施引發市場動盪。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798874_1_20250404014823.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm)
-
----
-
-# 商務部：日本半導體出口管制損害兩國企業利益
-
-![商務部發言人表示，希望日方從維護國際經貿規則及中日經貿合作大局出發，保持理性決策，及時糾正錯誤做法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798805_1_20250403154527.jpg&q=90)
-  
-
-在北京，商務部回應日本政府宣布對十多種半導體相關物項實施出口管制時說，日方的措施將嚴重干擾企業之間正常商業往來，損害兩國企業利益，中方將採取必要措施，堅決維護自身正當權益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm)
 
 ---
