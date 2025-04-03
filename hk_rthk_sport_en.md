@@ -1,3 +1,27 @@
+# USA to host 2031 Women's World Cup, UK in 2035
+
+![Spain are the current Fifa Women's World Cup champions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798854_1_20250403205634.jpg&q=80)
+  
+
+The United States is the sole bidder for the 2031 Women's World Cup, and the United Kingdom is set to host the 2035 tournament, Fifa president Gianni Infantino announced on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798854-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798854-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798854-20250403.htm)
+
+---
+
 # Sinner doping woes blamed on ex-physio
 
 ![Jannik Sinner's running afoul of anti-doping rules has been blamed on former physiotherapist Giacomo Naldi by physical trainer Umberto Ferrara. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798835_1_20250403184040.jpg&q=90)
@@ -1428,29 +1452,5 @@ The chairman of the Billiard Sports Council of Hong Kong China welcomes the gove
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm)
-
----
-
-# De Minaur finds way through Fonseca fervor in Miami
-
-![Alex de Minaur goes for an overhead drive in his Miami Open match against Joao Fonseca at Hard Rock Stadium. Photo: Geoff Burke-Imagn Images/Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797270_1_20250325105235.jpg&q=90)
-  
-
-Australia's Alex de Minaur put an end to Brazilian talent Joao Fonseca's challenge at the Miami Open, outlasting the 18-year-old 5-7, 7-5, 6-3 in an enthralling contest.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797270-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797270-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797270-20250325.htm)
 
 ---
