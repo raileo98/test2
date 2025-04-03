@@ -1,3 +1,27 @@
+# 加拿大將採取反制措施　日韓指示部門減低關稅影響
+
+![加拿大總理卡尼表明將採取反制措施，日韓指示部門減低關稅影響。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798817_1_20250403170754.jpg&q=85)
+  
+
+加拿大總理卡尼說，美國的關稅措施將從根本上改變全球貿易體系，將採取反制措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798817-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798817-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798817-20250403.htm)
+
+---
+
 # 商務部稱願與美方通過平等對話磋商　解決各自的關切
 
 ![何亞東表示，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798516-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798516-20250401.htm)
-
----
-
-# 緬甸地震　63歲女子被困91小時後獲救
-
-![俄羅斯救援人員協助搜索地震災區。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798504_1_20250401200751.jpg&q=85)
-  
-
-緬甸中部大地震，首都內比都一名63歲女子被困91小時後獲救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm)
 
 ---

@@ -1,5 +1,29 @@
+# 約5萬考生應考文憑試英文科卷一及卷二　考評局：各試場運作暢順
+
+  
+
+中學文憑試英國語文科卷一及卷二考試早上舉行。考評局表示，約50000名考生在約430個一般試場及逾540個特別試場應考，各試場學校整體運作暢順，考試順利按時完成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm)
+
+---
+
 # 廉署起訴一名銀行職員兩名保險經紀　涉受賄助客戶開立銀行戶口
 
+![廉政公署落案起訴一名銀行職員和一對保險經紀兼中介夫婦，涉嫌串謀收受賄款超過15萬元，以協助中介的客戶開立銀行戶口。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798813_1_20250403171553.jpg&q=90)
   
 
 廉政公署落案起訴一名銀行職員和一對保險經紀兼中介夫婦，涉嫌串謀收受賄款超過15萬元，以協助中介的客戶開立銀行戶口。案件下星期一在東區裁判法院提訊。
@@ -71,6 +95,7 @@
 
 # 消防處：明日清明節天氣較乾燥　發生山火或處高水平
 
+![消防處表示，明日天氣預計會較乾燥，發生山火的機會或處於高水平。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798807_2_20250403171519.jpg&q=80)
   
 
 明日是清明節。消防處表示，明日天氣預計會較乾燥，發生山火的機會或處於高水平。
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798633-20250402.htm)
-
----
-
-# 林健鋒認為周一鳴經驗豐富人緣好　是警務處處長合適人選
-
-![林健鋒說，認識周一鳴多年，認為他是實幹的人，亦願意聆聽各方意見。（陳樂謙攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798630_1_20250402161126.jpg&q=90)
-  
-
-國務院任命周一鳴為警務處處長。行政會議成員、立法會議員林健鋒相信，周一鳴是合適人選。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798630-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798630-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798630-20250402.htm)
 
 ---

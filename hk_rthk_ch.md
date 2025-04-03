@@ -1,3 +1,98 @@
+# 約5萬考生應考文憑試英文科卷一及卷二　考評局：各試場運作暢順
+
+  
+
+中學文憑試英國語文科卷一及卷二考試早上舉行。考評局表示，約50000名考生在約430個一般試場及逾540個特別試場應考，各試場學校整體運作暢順，考試順利按時完成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm)
+
+---
+
+# 加拿大將採取反制措施　日韓指示部門減低關稅影響
+
+![加拿大總理卡尼表明將採取反制措施，日韓指示部門減低關稅影響。(路透社)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798817_1_20250403170754.jpg&q=85)
+  
+
+加拿大總理卡尼說，美國的關稅措施將從根本上改變全球貿易體系，將採取反制措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798817-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798817-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798817-20250403.htm)
+
+---
+
+# 習近平向老撾國家主席致唁電　就坎代逝世表示沉痛哀悼
+
+![習近平說，中方願與老方一起努力，推動中老命運共同體建設以及各自社會主義事業不斷取得更大發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798819_1_20250403171724.jpg&q=90)
+  
+
+中共中央總書記、國家主席習近平向老撾人民革命黨中央總書記、國家主席通倫致唁電，對老撾黨和國家前主席坎代逝世表示沉痛哀悼，並向坎代的家屬致以誠摯慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm)
+
+---
+
+# 美元指數失守103　兌日圓跌穿147　人民幣兌美元失守7.3
+
+![美元指數失守103水平，一度跌1%，較早時報102.17，跌幅0.96%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798816_1_20250403170058.jpg&q=85)
+  
+
+美國對多個國家及地區徵收對等關稅，美元指數失守103水平，一度跌1%，較早時報102.17，跌幅0.96%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798816-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798816-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798816-20250403.htm)
+
+---
+
 # 商務部稱願與美方通過平等對話磋商　解決各自的關切
 
 ![何亞東表示，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
@@ -48,6 +143,7 @@
 
 # 廉署起訴一名銀行職員兩名保險經紀　涉受賄助客戶開立銀行戶口
 
+![廉政公署落案起訴一名銀行職員和一對保險經紀兼中介夫婦，涉嫌串謀收受賄款超過15萬元，以協助中介的客戶開立銀行戶口。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798813_1_20250403171553.jpg&q=90)
   
 
 廉政公署落案起訴一名銀行職員和一對保險經紀兼中介夫婦，涉嫌串謀收受賄款超過15萬元，以協助中介的客戶開立銀行戶口。案件下星期一在東區裁判法院提訊。
@@ -167,6 +263,7 @@
 
 # 消防處：明日清明節天氣較乾燥　發生山火或處高水平
 
+![消防處表示，明日天氣預計會較乾燥，發生山火的機會或處於高水平。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798807_2_20250403171519.jpg&q=80)
   
 
 明日是清明節。消防處表示，明日天氣預計會較乾燥，發生山火的機會或處於高水平。

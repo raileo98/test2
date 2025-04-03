@@ -1,3 +1,27 @@
+# 習近平向老撾國家主席致唁電　就坎代逝世表示沉痛哀悼
+
+![習近平說，中方願與老方一起努力，推動中老命運共同體建設以及各自社會主義事業不斷取得更大發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798819_1_20250403171724.jpg&q=90)
+  
+
+中共中央總書記、國家主席習近平向老撾人民革命黨中央總書記、國家主席通倫致唁電，對老撾黨和國家前主席坎代逝世表示沉痛哀悼，並向坎代的家屬致以誠摯慰問。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm)
+
+---
+
 # 商務部稱願與美方通過平等對話磋商　解決各自的關切
 
 ![何亞東表示，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
@@ -1414,30 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798477-20250401.htm)
-
----
-
-# 特區救援隊與國家隊展開首次緬甸地震聯合搜救
-
-![特區救援隊今早與中國救援隊在一受災區域進行首次聯合行動。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_1_20250401171159.jpg&q=80)
-![特區救援隊繼續在緬甸曼德勒災區搜救。（消防處片段截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798471_3_20250401184459.jpg&q=90)
-  
-
-特區救援隊繼續在緬甸曼德勒災區搜救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm)
 
 ---
