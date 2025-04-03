@@ -1,3 +1,26 @@
+# 本港向緬甸捐贈逾20公噸救援物資　陳國基：全力支援救災賑災
+
+  
+
+緬甸大地震造成大量人員傷亡和基礎設施受損，特區政府表示，針對災區需求，徵集了一批緊急救援物資。這批救援物資超過20公噸，由不同政府部門合作和協調，當中包括食物、飲用水、醫療包和臨時居所物料等關鍵物資，部分物資由社會熱心人士捐助。這批物資已移交緬甸駐港總領事，並安排付運當地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm)
+
+---
+
 # 中國政府第二批援助緬甸物資運抵仰光機場
 
 ![中國政府向緬甸提供的第二批緊急人道救災援助物資抵達仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798791_1_20250403144239.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798498-20250401.htm)
-
----
-
-# 特區政府強烈譴責和反對美國《香港政策法》報告
-
-![特區政府就美國發表所謂2025年《香港政策法》報告中對香港特區各方面情況的失實言論和污衊抹黑，表示強烈譴責和反對。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798494_1_20250401185407.jpg&q=90)
-  
-
-特區政府就美國發表所謂2025年《香港政策法》報告中對香港特區各方面情況的失實言論和污衊抹黑，表示強烈譴責和反對，當中內容明顯是為保護美國獨大的政治目的而編製，再次顯露美國霸權主義下的野蠻，為打壓其他地方的發展權利和安全利益而堆砌故事穿鑿附會，是明顯為服務美國自身政治利益而創作的製成品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798494-20250401.htm)
 
 ---

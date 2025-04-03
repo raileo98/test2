@@ -1,3 +1,27 @@
+# 內地股市收市向下　創業板跌近2%
+
+![上證指數低開近1%後曾輕微倒升，收市報3342點，跌8點，跌幅0.24%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798797_1_20250403151620.jpg&q=90)
+  
+
+內地股市收市向下，汽車產業鏈、廚衛電器、蘋果概念股下跌；貴金屬、旅遊酒店股造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm)
+
+---
+
 # 現貨金創新高後回軟
 
 ![現貨金高見每盎司3167.57美元創新高，較早時報3127.12美元，跌幅0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798790_1_20250403144000.jpg&q=80)
@@ -1411,29 +1435,5 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798616-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798616-20250402.htm)
-
----
-
-# 日股高收近0.3%　連升兩日
-
-![日經平均指數收市報35725點，升101點，升幅0.28%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798614_1_20250402143742.jpg&q=90)
-  
-
-日本股市反覆高收，連升兩日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798614-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798614-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798614-20250402.htm)
 
 ---

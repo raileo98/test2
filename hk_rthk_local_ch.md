@@ -1,3 +1,26 @@
+# 本港向緬甸捐贈逾20公噸救援物資　陳國基：全力支援救災賑災
+
+  
+
+緬甸大地震造成大量人員傷亡和基礎設施受損，特區政府表示，針對災區需求，徵集了一批緊急救援物資。這批救援物資超過20公噸，由不同政府部門合作和協調，當中包括食物、飲用水、醫療包和臨時居所物料等關鍵物資，部分物資由社會熱心人士捐助。這批物資已移交緬甸駐港總領事，並安排付運當地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm)
+
+---
+
 # 民建聯倡北都容許地價分期支付　放寬住宅預售期限制
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798608-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798608-20250402.htm)
-
----
-
-# 消息︰政府擬擴大禁煙範圍　部分排隊輪候地方禁煙
-
-![消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，全數「十招」都會推出。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798609_1_20250402140750.jpg&q=90)
-  
-
-消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，全數「十招」都會推出，不同措施會陸續執行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798609-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798609-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798609-20250402.htm)
 
 ---

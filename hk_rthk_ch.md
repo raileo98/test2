@@ -1,3 +1,50 @@
+# 內地股市收市向下　創業板跌近2%
+
+![上證指數低開近1%後曾輕微倒升，收市報3342點，跌8點，跌幅0.24%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798797_1_20250403151620.jpg&q=90)
+  
+
+內地股市收市向下，汽車產業鏈、廚衛電器、蘋果概念股下跌；貴金屬、旅遊酒店股造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm)
+
+---
+
+# 本港向緬甸捐贈逾20公噸救援物資　陳國基：全力支援救災賑災
+
+  
+
+緬甸大地震造成大量人員傷亡和基礎設施受損，特區政府表示，針對災區需求，徵集了一批緊急救援物資。這批救援物資超過20公噸，由不同政府部門合作和協調，當中包括食物、飲用水、醫療包和臨時居所物料等關鍵物資，部分物資由社會熱心人士捐助。這批物資已移交緬甸駐港總領事，並安排付運當地。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm)
+
+---
+
 # 現貨金創新高後回軟
 
 ![現貨金高見每盎司3167.57美元創新高，較早時報3127.12美元，跌幅0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798790_1_20250403144000.jpg&q=80)
