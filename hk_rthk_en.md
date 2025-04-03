@@ -1,3 +1,27 @@
+# Man convicted of Yuen Long rioting after retrial
+
+![The District Court said the defendant had taken part in "an indiscriminate attack" inside Yuen Long MTR Station. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798783_1_20250403125539.jpg&q=90)
+  
+
+A transport worker was on Thursday convicted of rioting in the Yuen Long clashes in 2019 following a retrial.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798783-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798783-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798783-20250403.htm)
+
+---
+
 # 'Don't go with top-bidder rule for N Metropolis'
 
 ![Lau Kwok-fan says the government should consider the developers' financial stability when they award tenders for Northern Metropolis projects. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798786_1_20250403132127.jpg&q=90)
@@ -24,7 +48,7 @@ A DAB lawmaker on Thursday suggested the government take into account the financ
 
 # Japan says tariffs may break WTO rules, deal with US
 
-![Yoji Muto says he spoke to US Commerce Secretary Howard Lutnick but Donald Trump's announcement showed it was to no avail. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798781_1_20250403123758.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798781_1_20250403123758.jpg&q=90)
   
 
 Japan slammed as "extremely regrettable" US President Donald Trump's sweeping new tariffs, saying they may break WTO rules and the two countries' trade agreement.
@@ -72,7 +96,7 @@ After a 7.7 magnitude earthquake shook Myanmar on Friday, killing more than 2,80
 
 # EU to prepare countermeasures to US reciprocal tariffs
 
-![European Commission President Ursula von der Leyen says the EU is preparing further countermeasures. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798769_1_20250403114610.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798769_1_20250403114610.jpg&q=90)
   
 
 European Commission President Ursula von der Leyen described US President Donald Trump's universal tariffs as a major blow to the world economy and said that the European Union was prepared to respond with countermeasures if negotiations failed.
@@ -169,10 +193,10 @@ Beijing on Thursday said it "firmly opposes" sweeping new US tariffs on its expo
 
 # Hong Kong stocks fall more than 2pc on Trump tariffs
 
-![The Hang Seng Index dropped 2.43 percent at the open. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798744_1_20250403092553.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798744_1_20250403092553.jpg&q=75)
   
 
-Hong Kong stocks sank more than two percent at the open on Thursday after US President Donald Trump announced sweeping tariffs against trade partners, including 34 percent on imports from China.
+Hong Kong stocks sank more than two percent in opening trades on Thursday after US President Donald Trump announced sweeping tariffs against trade partners, including 34 percent on imports from China.
 
   
 
@@ -1415,29 +1439,5 @@ Hong Kong, China snooker star Ng On-yee said a decision by the government last w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798472-20250401.htm)
-
----
-
-# HK stocks close higher
-
-![The Hang Seng Index finished up 0.4 percent at 23,206. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798476_1_20250401171429.jpg&q=75)
-  
-
-Hong Kong stocks ended higher on Tuesday, with the benchmark Hang Seng Index up 0.4 percent at 23,206.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798476-20250401.htm)
 
 ---

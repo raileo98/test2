@@ -120,7 +120,7 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 
 # 有立會議員稱美方關稅措施影響全球貿易導致利率高企
 
-![美國取消中國內地和香港的小額包裹豁免關稅政策 。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798771_1_20250403124051.jpg&q=90)
+![特朗普簽署行政命令，取消中國內地和香港的小額包裹豁免關稅政策 。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798771_1_20250403124051.jpg&q=90)
   
 
 因應美國對中國進口產品徵收新關稅安排，並取消中國內地和香港的小額包裹豁免關稅政策 。有立法會議員批評美方的做法，影響全球貿易，將導致利率高企，影響經商。

@@ -1,6 +1,6 @@
 # Japan says tariffs may break WTO rules, deal with US
 
-![Yoji Muto says he spoke to US Commerce Secretary Howard Lutnick but Donald Trump's announcement showed it was to no avail. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798781_1_20250403123758.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798781_1_20250403123758.jpg&q=90)
   
 
 Japan slammed as "extremely regrettable" US President Donald Trump's sweeping new tariffs, saying they may break WTO rules and the two countries' trade agreement.
@@ -48,7 +48,7 @@ After a 7.7 magnitude earthquake shook Myanmar on Friday, killing more than 2,80
 
 # EU to prepare countermeasures to US reciprocal tariffs
 
-![European Commission President Ursula von der Leyen says the EU is preparing further countermeasures. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798769_1_20250403114610.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798769_1_20250403114610.jpg&q=90)
   
 
 European Commission President Ursula von der Leyen described US President Donald Trump's universal tariffs as a major blow to the world economy and said that the European Union was prepared to respond with countermeasures if negotiations failed.

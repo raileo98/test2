@@ -1,3 +1,27 @@
+# Man convicted of Yuen Long rioting after retrial
+
+![The District Court said the defendant had taken part in "an indiscriminate attack" inside Yuen Long MTR Station. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798783_1_20250403125539.jpg&q=90)
+  
+
+A transport worker was on Thursday convicted of rioting in the Yuen Long clashes in 2019 following a retrial.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798783-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798783-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798783-20250403.htm)
+
+---
+
 # 'Don't go with top-bidder rule for N Metropolis'
 
 ![Lau Kwok-fan says the government should consider the developers' financial stability when they award tenders for Northern Metropolis projects. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798786_1_20250403132127.jpg&q=90)
@@ -1421,29 +1445,5 @@ Both the men’s and women’s squads for the SAR on Saturday kept their winning
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm)
-
----
-
-# 'Longer grace period doesn't mean landlords can relax'
-
-![The administration has introduced a countdown period to penalise landlords who enter new tenancy contracts for units that haven’t been certified. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797986_1_20250329102422.jpg&q=90)
-  
-
-Secretary for Housing Winnie Ho on Saturday said she hoped landlords of subdivided flats would take action to upgrade them, even though they now had a longer grace period to comply with new criteria.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797986-20250329.htm)
 
 ---

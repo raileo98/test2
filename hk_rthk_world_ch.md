@@ -1,3 +1,27 @@
+# 尹錫悅明日不出席憲法法院彈劾案宣判
+
+![尹錫悅明日將在總統官邸觀看宣判直播。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798788_1_20250403142129.jpg&q=90)
+  
+
+南韓總統尹錫悅彈劾案明日上午宣判，尹錫悅的法律代表團表示，考慮社會秩序和總統警衛問題等因素後，尹錫悅決定不出席宣判，他將在總統官邸觀看直播，由代表團出庭。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798788-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798788-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798788-20250403.htm)
+
+---
+
 # 國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜
 
 ![國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798764_2_20250403115547.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798486-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798486-20250401.htm)
-
----
-
-# 中俄外長會面　拉夫羅夫稱將為下月俄中元首峰會做好準備
-
-![拉夫羅夫指出，王毅訪問俄羅斯的主要目的，是為今年5月舉行的俄中元首峰會做好準備。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798483_1_20250401173549.jpg&q=90)
-  
-
-中俄外長在俄羅斯首都莫斯科會面。俄羅斯外長拉夫羅夫發言時提到，中共中央政治局委員、外長王毅今次正式訪問的主要目的，是為今年5月在莫斯科舉行的俄中元首峰會做好準備。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798483-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798483-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798483-20250401.htm)
 
 ---

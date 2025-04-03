@@ -1,6 +1,6 @@
 # EU to prepare countermeasures to US reciprocal tariffs
 
-![European Commission President Ursula von der Leyen says the EU is preparing further countermeasures. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798769_1_20250403114610.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798769_1_20250403114610.jpg&q=90)
   
 
 European Commission President Ursula von der Leyen described US President Donald Trump's universal tariffs as a major blow to the world economy and said that the European Union was prepared to respond with countermeasures if negotiations failed.
@@ -24,10 +24,10 @@ European Commission President Ursula von der Leyen described US President Donald
 
 # Hong Kong stocks fall more than 2pc on Trump tariffs
 
-![The Hang Seng Index dropped 2.43 percent at the open. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798744_1_20250403092553.jpg&q=75)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798744_1_20250403092553.jpg&q=75)
   
 
-Hong Kong stocks sank more than two percent at the open on Thursday after US President Donald Trump announced sweeping tariffs against trade partners, including 34 percent on imports from China.
+Hong Kong stocks sank more than two percent in opening trades on Thursday after US President Donald Trump announced sweeping tariffs against trade partners, including 34 percent on imports from China.
 
   
 

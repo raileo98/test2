@@ -1,3 +1,27 @@
+# 尹錫悅明日不出席憲法法院彈劾案宣判
+
+![尹錫悅明日將在總統官邸觀看宣判直播。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798788_1_20250403142129.jpg&q=90)
+  
+
+南韓總統尹錫悅彈劾案明日上午宣判，尹錫悅的法律代表團表示，考慮社會秩序和總統警衛問題等因素後，尹錫悅決定不出席宣判，他將在總統官邸觀看直播，由代表團出庭。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798788-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798788-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798788-20250403.htm)
+
+---
+
 # GUM料關稅政策對港股影響有限　恒指今季末上望24000點
 
 ![陳銳隆預計，恒生指數於第2季末可望升至24000點，強積金港股基金回報或再升1至2個百分點。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798785_1_20250403131816.jpg&q=90)
@@ -120,7 +144,7 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 
 # 有立會議員稱美方關稅措施影響全球貿易導致利率高企
 
-![美國取消中國內地和香港的小額包裹豁免關稅政策 。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798771_1_20250403124051.jpg&q=90)
+![特朗普簽署行政命令，取消中國內地和香港的小額包裹豁免關稅政策 。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798771_1_20250403124051.jpg&q=90)
   
 
 因應美國對中國進口產品徵收新關稅安排，並取消中國內地和香港的小額包裹豁免關稅政策 。有立法會議員批評美方的做法，影響全球貿易，將導致利率高企，影響經商。
