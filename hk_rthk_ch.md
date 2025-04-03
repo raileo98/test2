@@ -1,3 +1,27 @@
+# 美元指數一度失守102關口
+
+![美元指數一度失守102關口，低見101.95，較早時報102.1，跌幅逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798825_1_20250403173046.jpg&q=90)
+  
+
+美國對多個國家及地區徵收對等關稅，美元兌多個貨幣沽壓顯著。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798825-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798825-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798825-20250403.htm)
+
+---
+
 # 香港律師會訪京　湯文龍稱任何對公職人員制裁都是對法治侮辱
 
   
