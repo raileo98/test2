@@ -1,3 +1,27 @@
+# 中國海軍指美軍艦機偵察活動極易造成誤解誤判　危害中國安全
+
+![中國海軍指美軍艦機偵察活動極易造成誤解誤判　危害中國安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798852_2_20250403203305.jpg&q=90)
+  
+
+中美兩軍一連兩日在上海，舉行中美海上軍事安全磋商機制工作小組會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798852-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798852-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798852-20250403.htm)
+
+---
+
 # 鄭雁雄指要加強教育對科技和人才的支撐作用
 
 ![鄭雁雄表示，特區要全面把握中共總書記習近平重要講話精神，進一步強化教育對科技和人才的支撐作用。（中聯辦相片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798848_1_20250403195407.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798513-20250401.htm)
-
----
-
-# 特區政府與水利部簽署涉水事務合作協議
-
-![李家超和水利部部長李國英（後排左）在禮賓府會面，共同見證水利部與特區政府簽署《涉水事務管理與合作的安排》。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798508_1_20250401215640.jpg&q=85)
-  
-
-行政長官李家超和水利部部長李國英在禮賓府會面，共同見證水利部與特區政府簽署《涉水事務管理與合作的安排》。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm)
 
 ---

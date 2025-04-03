@@ -1,3 +1,27 @@
+# 中國海軍指美軍艦機偵察活動極易造成誤解誤判　危害中國安全
+
+![中國海軍指美軍艦機偵察活動極易造成誤解誤判　危害中國安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798852_2_20250403203305.jpg&q=90)
+  
+
+中美兩軍一連兩日在上海，舉行中美海上軍事安全磋商機制工作小組會。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798852-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798852-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798852-20250403.htm)
+
+---
+
 # 陳虹秀暴動罪成法庭聽取求情　案件押後至下周三判刑
 
 ![案件押後至下星期三判刑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798850_1_20250403195702.jpg&q=80)
@@ -24,6 +48,7 @@
 
 # 86歲老婦旺角失蹤　警方籲市民提供消息
 
+![警方呼籲市民提供在旺角失蹤婦人的消息。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798849_1_20250403201935.jpg&q=90)
   
 
 警方呼籲市民提供一名在旺角失蹤婦人的消息。
