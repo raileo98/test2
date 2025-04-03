@@ -1,3 +1,27 @@
+# EU to prepare countermeasures to US reciprocal tariffs
+
+![European Commission President Ursula von der Leyen says the EU is preparing further countermeasures. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798769_1_20250403114610.jpg&q=90)
+  
+
+European Commission President Ursula von der Leyen described US President Donald Trump's universal tariffs as a major blow to the world economy and said that the European Union was prepared to respond with countermeasures if negotiations failed.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm)
+
+---
+
 # Hong Kong stocks fall more than 2pc on Trump tariffs
 
 ![The Hang Seng Index dropped 2.43 percent at the open. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798744_1_20250403092553.jpg&q=75)
@@ -1413,29 +1437,5 @@ Hong Kong's inflation pace eased last month, rising by just 1.4 percent year on 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796632-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796632-20250320.htm)
-
----
-
-# Net profit at CK Hutchison down 27pc
-
-![CK Hutchison posts a 2024 net profit of HK$17 billion. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796631_1_20250320173808.jpg&q=90)
-  
-
-CK Hutchison has reported a 27 percent drop in net profit.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796631-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796631-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796631-20250320.htm)
 
 ---

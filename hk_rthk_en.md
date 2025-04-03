@@ -1,3 +1,27 @@
+# EU to prepare countermeasures to US reciprocal tariffs
+
+![European Commission President Ursula von der Leyen says the EU is preparing further countermeasures. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798769_1_20250403114610.jpg&q=90)
+  
+
+European Commission President Ursula von der Leyen described US President Donald Trump's universal tariffs as a major blow to the world economy and said that the European Union was prepared to respond with countermeasures if negotiations failed.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm)
+
+---
+
 # Heat sink Celtics for sixth straight win; Cavs roll on
 
 ![Tyler Herro led the Heat with 25 points, as six other Miami players finished in double figures. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798766_1_20250403113553.jpg&q=90)
@@ -1415,29 +1439,5 @@ Xiaomi said on Tuesday that it was actively cooperating with police after a fata
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm)
-
----
-
-# Numbers may not fully reflect work of DC members: Govt
-
-![Alice Mak described the current district councils as having unprecedented transparency. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798466_1_20250401165907.jpg&q=90)
-  
-
-Home affairs minister Alice Mak said on Tuesday that the number of cases a district councillor handles in a year may not fully reflect the actual work done.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798466-20250401.htm)
 
 ---

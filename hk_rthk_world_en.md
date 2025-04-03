@@ -1,3 +1,27 @@
+# EU to prepare countermeasures to US reciprocal tariffs
+
+![European Commission President Ursula von der Leyen says the EU is preparing further countermeasures. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798769_1_20250403114610.jpg&q=90)
+  
+
+European Commission President Ursula von der Leyen described US President Donald Trump's universal tariffs as a major blow to the world economy and said that the European Union was prepared to respond with countermeasures if negotiations failed.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798769-20250403.htm)
+
+---
+
 # China urges US to 'immediately cancel' new tariffs
 
 ![The Commerce Ministry has called for Washington to "immediately cancel" sweeping new tariffs. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798759_1_20250403104243.jpg&q=80)
@@ -1411,29 +1435,5 @@ The death toll from the massive earthquake in Myanmar has passed 1,600, the ruli
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797995-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797995-20250329.htm)
-
----
-
-# ET model on auction block in New York
-
-![The model of ET the Extra-Terrestrial used in Steven Spielberg's 1982 film is pictured in New York. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797976_1_20250329071526.jpg&q=90)
-  
-
-An original animatronic model of the iconic alien created for Steven Spielberg's classic 1982 film "ET the Extra-Terrestrial" is for sale at Sotheby's and is estimated to fetch as much as US$900,000.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797976-20250329.htm)
 
 ---
