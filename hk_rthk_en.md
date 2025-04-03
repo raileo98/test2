@@ -1,3 +1,27 @@
+# Hong Kong stocks fall more than 2pc on Trump tariffs
+
+![The Hang Seng Index dropped 2.43 percent at the open. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798744_1_20250403092553.jpg&q=75)
+  
+
+Hong Kong stocks sank more than two percent at the open on Thursday after US President Donald Trump announced sweeping tariffs against trade partners, including 34 percent on imports from China.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm)
+
+---
+
 # Tariffs target packages under US$800 from HK
 
 ![US President Donald Trump holds a signed executive order on tariffs, in the Rose Garden at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798734_1_20250403084633.jpg&q=90)
@@ -1414,29 +1438,5 @@ Hong Kong's university entrance exams began on Tuesday, with some candidates arr
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798449-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798449-20250401.htm)
-
----
-
-# Australia hit by floods in inland area size of France
-
-![A homestead is inundated by floodwaters near the town of Jundah in south-west Queensland. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798443_1_20250401145343.jpg&q=85)
-  
-
-Whole herds of cattle have drowned in vast inland floods sweeping across the Australian outback, officials said on Tuesday, as the muddy tide drenched an area the size of France.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798443-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798443-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798443-20250401.htm)
 
 ---

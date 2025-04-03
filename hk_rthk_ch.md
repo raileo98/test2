@@ -1,6 +1,318 @@
+# 人行開展2234億元人民幣逆回購操作　本周淨回籠5019億元
+
+![據外電測算，人行本周在公開市場淨回籠5019億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798746_1_20250403094219.jpg&q=80)
+  
+
+人民銀行公開市場開展2234億元人民幣逆回購操作，為期7日，利率維持於1.5厘不變，單日淨投放49億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798746-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798746-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798746-20250403.htm)
+
+---
+
+# 積金局：各類基金過去1年平均淨回報均錄正數　股票基金表現最好
+
+![積金局數據顯示，強積金各類基金在過去12個月平均年率化淨回報都是正數，並提醒不應以短線投資角度看待。（積金局圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798750_1_20250403095209.jpg&q=90)
+  
+
+積金局公布截至3月底的強積金投資回報臨時數據，各類基金在過去12個月平均年率化淨回報都是正數。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm)
+
+---
+
+# 李家超向緬甸駐港總領事送上慰問信　特區政府捐逾20噸物資救災
+
+![李家超早上與緬甸駐港總領事會面，送上慰問信。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798751_1_20250403095949.jpg&q=90)
+  
+
+行政長官李家超表示，早上與緬甸駐港總領事會面，送上慰問信，並通知他繼特區政府上星期六派遣救援隊前往緬甸後，政務司司長今早在機場主持捐贈儀式，捐贈共超過20噸物資，包括糧食及醫療物資等，並支援當地抗震救災工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798751-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798751-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798751-20250403.htm)
+
+---
+
+# 滬股初段變動不大　深證成指及創業板向下
+
+![上證指數初段變動不大，較早時報3351點，微升1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798749_1_20250403095013.jpg&q=85)
+  
+
+滬股初段變動不大，深證成指及創業板向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798749-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798749-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798749-20250403.htm)
+
+---
+
+# 巴西對美國加徵關稅表示遺憾　正評估所有可能行動
+
+  
+
+巴西政府發表聲明，表示正在評估所有可能的行動，以回應美國的關稅措施，同時巴西國會通過一項法案，允許政府對貿易壁壘作出回應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798747-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798747-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798747-20250403.htm)
+
+---
+
+# 何永賢：財政預算案放寬印花稅措施帶動細價樓市場趨活躍
+
+  
+
+簡樸房規管方案近日出爐，外界關注簡樸房租金水平。房屋局局長何永賢在一個電台節目表示，租金水平視乎供求情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm)
+
+---
+
+# 美財長︰美國對中國進口產品徵收關稅總額將達54%
+
+![貝森特確認，除了早前徵收的20%關稅外，美國還會對中國進口產品徵收34%對等關稅，令新徵稅總額達到54%。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798735_1_20250403094532.jpg&q=90)
+  
+
+美國總統特朗普簽署關於對等關稅的行政命令，宣布對貿易夥伴設立10%的最低基準關稅，並會對某些貿易夥伴徵收更高關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798735-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798735-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798735-20250403.htm)
+
+---
+
+# 《環看天下》：習近平5月訪俄  王毅：中俄世代友好　永不為敵
+
+![俄羅斯總統普京在莫斯科會見中共中央政治局委員、外交部長王毅。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798745_1_20250403094130.jpg&q=90)
+  
+
+國家主席習近平據報已經接受邀請，出席下月9日在莫斯科舉行的紀念衛國戰爭勝利80周年活動。日前訪問俄羅斯的中共中央政治局委員、外交部長王毅，與總統普京會面。普京表示，期盼中方出席紀念活動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798745-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798745-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798745-20250403.htm)
+
+---
+
+# 中國政府援助緬甸第二批緊急人道主義地震救災物資啟運
+
+![中國政府首批援助物資上月31日抵達緬甸仰光國際機場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798740_1_20250403091327.jpg&q=90)
+  
+
+國家國際發展合作署表示，中國政府向緬甸提供的第二批緊急人道主義地震救災援助物資，上午從北京首都國際機場啟運。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm)
+
+---
+
+# 標普全球：香港上月採購經理指數跌至48.3
+
+![標普稱，經濟增長放緩、競爭日益加劇、貿易前景更多不明朗因素，都對香港的內需及外銷構成壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798736_1_20250403085936.jpg&q=85)
+  
+
+標普全球3月香港採購經理指數經季節調整後跌至48.3，按月下跌0.7，反映私營經濟在首季尾轉弱，主要由於新接訂單進一步減少，跌幅是去年中之後最大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm)
+
+---
+
+# 港股競價時段跌564點　科指跌逾3%
+
+![港股開市顯著下挫，恒生指數競價時段報22638點，跌564點，跌幅2.43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798743_1_20250403092429.jpg&q=75)
+  
+
+港股開市顯著下挫，恒生指數競價時段報22638點，跌564點，跌幅2.43%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798743-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798743-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798743-20250403.htm)
+
+---
+
+# 西藏火車設供氧系統　旅客感放心同時冀列車能提速
+
+![來往拉薩及林芝的「拉林鐵路」於2021年正式通車。（青藏鐵路集團提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798742_1_20250403092356.jpg&q=65)
+![拉林鐵路主力採用復興號高原動車組。（葉燿坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798742_2_20250403092356.jpg&q=90)
+![截至今年2月，西藏鐵路累計運載超過3875萬旅客人次。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798742_3_20250403092356.jpg&q=90)
+  
+
+青藏鐵路2006年起落成通車後，西藏鐵路系統逐步擴展，改善當地居民出行及商業活動。截至今年2月，累計運營里程超過1180萬公里、運載超過3875萬旅客人次、貨物9256萬噸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm)
+
+---
+
+# 人民幣兌美元中間價下跌
+
+![人民幣兌美元中間價報7.1889，較上日中間價跌96點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798741_1_20250403091729.jpg&q=80)
+  
+
+人民幣兌美元中間價報7.1889，較上日中間價跌96點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798741-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798741-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798741-20250403.htm)
+
+---
+
 # 銅鑼灣永興街有單位發生火警　女戶主不適送院
 
-![銅鑼灣永興街有單位發生火警　女戶主不適送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798739_1_20250403090630.jpg&q=90)
+![火警發生在凌晨近4時，單位內的雪櫃懷疑電線短路起火，消防動用一條喉及一隊煙帽隊灌救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798739_2_20250403095814.jpg&q=90)
   
 
 銅鑼灣永興街9號有單位凌晨發生火警，消防救出女戶主及兩隻狗，女戶主懷疑吸入濃煙不適，送往律敦治醫院。
@@ -24,7 +336,8 @@
 
 # 龍翔道和呈翔道發生多宗交通意外　部份行車線封閉
 
-![龍翔道和呈翔道發生多宗交通意外　部份行車線封閉](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798738_1_20250403090558.jpg&q=90)
+![早上大約7時半，龍翔道往觀塘方向近龍翔道公園有7車相撞，全部涉及私家車。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798738_2_20250403095732.jpg&q=85)
+![現場所見，其中一輛私家車撞至尾部剷起，壓在另一輛車的車頂上。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798738_3_20250403095732.jpg&q=90)
   
 
 龍翔道和呈翔道先後發生多宗交通意外。早上大約7時半，龍翔道往觀塘方向近龍翔道公園有7車相撞，全部涉及私家車，現場所見，其中一輛私家車撞至尾部剷起，壓在另一輛車的車頂上，兩人輕傷，現場部份行車線封閉。
@@ -384,7 +697,7 @@
 
 # 特朗普公布對等關稅　中國稅率34%、歐盟20%、英國10%
 
-![特朗普在白宮宣布對等關稅措施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798713_1_20250403050831.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798713_1_20250403093352.jpg&q=90)
   
 
 美國總統特朗普在白宮簽署關於對等關稅的行政命令，宣布對貿易夥伴設立10%的最低基準關稅，並會對某些貿易夥伴徵收更高關稅。
@@ -1123,317 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm)
-
----
-
-# 發展局估計生態旅遊發展項目成本數十億元以上　花6至7年完成
-
-![發展局希望發展這三個項目，令本地人或遊客都有多一個選擇，令他們願意留港過夜。（土木工程拓展署）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798677_1_20250402210031.jpg&q=90)
-  
-
-發展局今日起邀請市場在3個月內分別就前南丫島石礦場用地、南大嶼生態康樂走廊、與及尖鼻咀及白泥的生態旅遊發展項目提交意向書，目標最快明年下半年就項目招標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm)
-
----
-
-# 29歲女子洗澡後一氧化碳中毒　 機電署指熱水爐排氣管嚴重鏽蝕
-
-![機電署調查發現涉事熱水爐排氣管道出現嚴重鏽蝕，相信是導致意外發生的原因。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798676_1_20250402202946.jpg&q=60)
-  
-
-醫管局通報一宗一氧化碳中毒個案，一名29歲女子，前日在家洗澡後失去知覺，其家人隨即報警。她被送往仁濟醫院，再轉送東區尤德夫人那打素醫院接受治療，已經出院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm)
-
----
-
-# 港澳辦網站再轉載文章促長和盡快回頭改變錯誤決定
-
-![港澳辦網站再度轉發《大公報》文章，指出長和的港口交易涉及國家安全和利益。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798675_1_20250402210101.jpg&q=80)
-  
-
-港澳辦網站再度轉發《大公報》文章，指出長和的港口交易涉及國家安全和利益，國家市場監督管理總局依法審查合情合理合法，身為香港的重要企業，長和必須尊重國家利益，應當承擔最基本的責任義務，必須盡快回頭，改變錯誤決定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm)
-
----
-
-# 鄧炳強感謝國家及特區救援隊救出生還者　稱開心感動又驕傲
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798674_1_20250402202915.jpg&q=85)
-  
-
-保安局局長鄧炳強表示，剛剛收到特區救援隊帶來好消息，於曼德勒65街一間酒店的瓦礫中救出生還者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm)
-
----
-
-# 緬甸地震｜特區與國家救援隊救出一名被困逾120小時男子
-
-![中國救援隊聯同特區救援隊於緬甸救出一名被困逾120小時男子。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798673_1_20250402201044.jpg&q=90)
-  
-
-中國救援隊聯同特區救援隊，在緬甸曼德勒救出一名被困超過120小時的男子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm)
-
----
-
-# 多名議員支持規範籃球博彩　打擊非法賭博
-
-![政府建議參考規管足球博彩的做法，透過修例訂立規管框架，向馬會發出籃球博彩牌照，並制定相關牌照條件。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798672_1_20250402200703.jpg&q=90)
-  
-
-政府就規範籃球博彩活動的建議方案展開一個月諮詢，諮詢期至下月2日。政府建議參考規管足球博彩的做法，透過修例訂立規管框架，向馬會發出牌照，並制定相關牌照條件。政府建議條件包括不得接受本港球隊賽事投注等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798672-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798672-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798672-20250402.htm)
-
----
-
-# 團結香港基金認為以片區發展生態旅遊項目具連貫性
-
-![未來白泥模擬圖。（北部都會區）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798671_1_20250402200619.jpg&q=80)
-  
-
-發展局邀請市場分別就前南丫島石礦場用地、南大嶼生態康樂走廊，以及尖鼻咀及白泥的生態旅遊發展項目，提交意向書，為期3個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm)
-
----
-
-# 解放軍東部戰區宣布圓滿完成一連兩天聯合演訓
-
-![解放軍東部戰區宣布圓滿完成一連兩天聯合演訓，山東艦航母編隊參與第二日演練。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798668_1_20250402192112.jpg&q=90)
-  
-
-解放軍東部戰區晚上宣布圓滿完成一連兩天聯合演訓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798668-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798668-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798668-20250402.htm)
-
----
-
-# 國台辦主任宋濤：「台獨」分子惡行必遭懲處
-
-![中共中央台辦、國務院台辦主任宋濤會見國民黨副主席夏立言，指任何謀「獨」挑釁必定失敗，「台獨」分子惡行必遭懲處。（中國台灣網）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798666_1_20250402191022.jpg&q=90)
-  
-
-中共中央台辦、國務院台辦主任宋濤在江蘇徐州，會見國民黨副主席夏立言，指出兩岸同胞是家人、不是敵人，任何謀「獨」挑釁必定失敗，「台獨」分子惡行必遭懲處。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798666-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798666-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798666-20250402.htm)
-
----
-
-# 石泰峰調任中組部部長　李干杰改任統戰部部長
-
-![石泰峰出任中組部部長（左）、李干杰則轉任統戰部部長。（新華社資圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798667_1_20250402200824.jpg&q=90)
-  
-
-中共中央組織部及中共中央統戰部的部長對調職務，統戰部原部長石泰峰調任中組部部長，中組部原部長李干杰改任中央統戰部部長。兩人都是政治局委員、中央書記處書記，同屬副國級領導人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798667-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798667-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798667-20250402.htm)
-
----
-
-# 陳國基到緬甸駐港總領事館簽弔唁冊　稱盡快安排將物資運抵災區
-
-![陳國基到緬甸駐港總領事館簽弔唁冊，又與緬甸駐港總領事交流，對遇難者表示沉痛哀悼。（陳國基社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798665_1_20250402190642.jpg&q=90)
-  
-
-緬甸上周發生大地震。政務司司長陳國基下午到緬甸駐港總領事館簽弔唁冊，又與緬甸駐港總領事交流，對遇難者表示沉痛哀悼，並向遇難者家屬和受災民眾致以深切慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm)
-
----
-
-# 劉國勳倡設指定吸煙區打擊「火車頭」　吳傑莊冀當局考慮旅客看法
-
-![劉國勳建議當局可考慮設立指定吸煙區，有助打擊「火車頭」情況。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798664_1_20250402191055.jpg&q=80)
-  
-
-消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，包括建議擴大禁煙區、排隊輪候公共交通工具時禁煙等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798664-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798664-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798664-20250402.htm)
-
----
-
-# 中方呼籲緬甸各方確保救援人員安全
-
-![郭嘉昆表示，中方救援隊伍和物資都安全。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798663_1_20250402185129.jpg&q=90)
-  
-
-路透社報道，中國紅十字會救援車隊昨晚在緬甸衝突區域行駛時，懷疑沒有聽從緬甸軍隊指示停車，緬甸軍隊向天開槍3次示警。在北京，外交部發言人郭嘉昆表示，救援隊伍和物資都安全，呼籲緬甸各方確保救援人員安全，以及救災交通路線暢通。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm)
 
 ---

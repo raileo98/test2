@@ -1,3 +1,27 @@
+# Hong Kong stocks fall more than 2pc on Trump tariffs
+
+![The Hang Seng Index dropped 2.43 percent at the open. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798744_1_20250403092553.jpg&q=75)
+  
+
+Hong Kong stocks sank more than two percent at the open on Thursday after US President Donald Trump announced sweeping tariffs against trade partners, including 34 percent on imports from China.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798744-20250403.htm)
+
+---
+
 # Tariffs target packages under US$800 from HK
 
 ![US President Donald Trump holds a signed executive order on tariffs, in the Rose Garden at the White House. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798734_1_20250403084633.jpg&q=90)
@@ -1413,29 +1437,5 @@ CK Hutchison has reported a 27 percent drop in net profit.
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796631-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796631-20250320.htm)
-
----
-
-# Streak ends as Hang Seng bucks rising trend
-
-![The Hang Seng Index ended down 2.23 percent to close at 24,219.95. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796620_1_20250320170712.jpg&q=90)
-  
-
-Stocks mostly rose on Thursday after US Federal Reserve boss Jerome Powell suggested any increase in consumer prices caused by tariffs would likely be short-lived, even as the central bank slashed its growth outlook and hiked inflation expectations.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm](https://news.rthk.hk/rthk/en/component/k2/1796620-20250320.htm)
 
 ---

@@ -1,3 +1,53 @@
+# 中國政府援助緬甸第二批緊急人道主義地震救災物資啟運
+
+![中國政府首批援助物資上月31日抵達緬甸仰光國際機場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798740_1_20250403091327.jpg&q=90)
+  
+
+國家國際發展合作署表示，中國政府向緬甸提供的第二批緊急人道主義地震救災援助物資，上午從北京首都國際機場啟運。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm)
+
+---
+
+# 西藏火車設供氧系統　旅客感放心同時冀列車能提速
+
+![來往拉薩及林芝的「拉林鐵路」於2021年正式通車。（青藏鐵路集團提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798742_1_20250403092356.jpg&q=65)
+![拉林鐵路主力採用復興號高原動車組。（葉燿坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798742_2_20250403092356.jpg&q=90)
+![截至今年2月，西藏鐵路累計運載超過3875萬旅客人次。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798742_3_20250403092356.jpg&q=90)
+  
+
+青藏鐵路2006年起落成通車後，西藏鐵路系統逐步擴展，改善當地居民出行及商業活動。截至今年2月，累計運營里程超過1180萬公里、運載超過3875萬旅客人次、貨物9256萬噸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm)
+
+---
+
 # 中國救援隊伍在緬甸救出第九名倖存者　特區救援隊參與聯合救援
 
 ![中國救援隊伍救出一名被困近125小時的52歲緬甸男性。（消防處FB圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798698_1_20250403002255.jpg&q=90)
@@ -1388,55 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798382-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798382-20250401.htm)
-
----
-
-# 西藏多項措施促就業　企業稱校企合作與補貼有助發展
-
-![企業為學生提供陶瓷藝術繪畫及手工拉坯課程。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_1_20250401082246.jpg&q=85)
-![廚具公司受政府補貼進駐拉薩設廠，創造逾百個就業職位。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_2_20250401082246.jpg&q=85)
-![落戶西藏的廚具公司獲政府補貼，研發符合西藏居民需求的產品，例如全自動酥油茶壺等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798370_3_20250401083605.jpg&q=80)
-  
-
-西藏自治區成立60周年，當地政府近年推出多項措施促進就業，降低貧窮率，包括提供大學生創業補貼、實施就業見習補貼，亦鼓勵企業聘用區内高校畢業生，其中拉薩市去年高校畢業生就業率達95%，連續多年維持於高水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798370-20250401.htm)
-
----
-
-# 新華社：解放軍東部戰區進行演訓　組織艦機多向抵近台島
-
-![解放軍東部戰區製作有關演訓的海報。（東部戰區微博視頻號截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798369_1_20250401084451.jpg&q=90)
-  
-
-新華社報道，解放軍東部戰區組織陸軍、海軍、空軍、火箭軍等兵力，今日開始進行演訓，於台島周邊組織艦機多向抵近台島，東部戰區新聞發言人表示，演習是對「台獨」分裂勢力的嚴重警告和有力遏制，是捍衛國家主權、維護國家統一的正當必要行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798369-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798369-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798369-20250401.htm)
 
 ---

@@ -1,3 +1,196 @@
+# 人行開展2234億元人民幣逆回購操作　本周淨回籠5019億元
+
+![據外電測算，人行本周在公開市場淨回籠5019億元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798746_1_20250403094219.jpg&q=80)
+  
+
+人民銀行公開市場開展2234億元人民幣逆回購操作，為期7日，利率維持於1.5厘不變，單日淨投放49億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798746-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798746-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798746-20250403.htm)
+
+---
+
+# 積金局：各類基金過去1年平均淨回報均錄正數　股票基金表現最好
+
+![積金局數據顯示，強積金各類基金在過去12個月平均年率化淨回報都是正數，並提醒不應以短線投資角度看待。（積金局圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798750_1_20250403095209.jpg&q=90)
+  
+
+積金局公布截至3月底的強積金投資回報臨時數據，各類基金在過去12個月平均年率化淨回報都是正數。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm)
+
+---
+
+# 滬股初段變動不大　深證成指及創業板向下
+
+![上證指數初段變動不大，較早時報3351點，微升1點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798749_1_20250403095013.jpg&q=85)
+  
+
+滬股初段變動不大，深證成指及創業板向下。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798749-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798749-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798749-20250403.htm)
+
+---
+
+# 何永賢：財政預算案放寬印花稅措施帶動細價樓市場趨活躍
+
+  
+
+簡樸房規管方案近日出爐，外界關注簡樸房租金水平。房屋局局長何永賢在一個電台節目表示，租金水平視乎供求情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm)
+
+---
+
+# 標普全球：香港上月採購經理指數跌至48.3
+
+![標普稱，經濟增長放緩、競爭日益加劇、貿易前景更多不明朗因素，都對香港的內需及外銷構成壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798736_1_20250403085936.jpg&q=85)
+  
+
+標普全球3月香港採購經理指數經季節調整後跌至48.3，按月下跌0.7，反映私營經濟在首季尾轉弱，主要由於新接訂單進一步減少，跌幅是去年中之後最大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm)
+
+---
+
+# 港股競價時段跌564點　科指跌逾3%
+
+![港股開市顯著下挫，恒生指數競價時段報22638點，跌564點，跌幅2.43%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798743_1_20250403092429.jpg&q=75)
+  
+
+港股開市顯著下挫，恒生指數競價時段報22638點，跌564點，跌幅2.43%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798743-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798743-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798743-20250403.htm)
+
+---
+
+# 西藏火車設供氧系統　旅客感放心同時冀列車能提速
+
+![來往拉薩及林芝的「拉林鐵路」於2021年正式通車。（青藏鐵路集團提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798742_1_20250403092356.jpg&q=65)
+![拉林鐵路主力採用復興號高原動車組。（葉燿坤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798742_2_20250403092356.jpg&q=90)
+![截至今年2月，西藏鐵路累計運載超過3875萬旅客人次。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798742_3_20250403092356.jpg&q=90)
+  
+
+青藏鐵路2006年起落成通車後，西藏鐵路系統逐步擴展，改善當地居民出行及商業活動。截至今年2月，累計運營里程超過1180萬公里、運載超過3875萬旅客人次、貨物9256萬噸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798742-20250403.htm)
+
+---
+
+# 人民幣兌美元中間價下跌
+
+![人民幣兌美元中間價報7.1889，較上日中間價跌96點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798741_1_20250403091729.jpg&q=80)
+  
+
+人民幣兌美元中間價報7.1889，較上日中間價跌96點子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798741-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798741-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798741-20250403.htm)
+
+---
+
 # 台股假期休市
 
 ![台灣假期，金融市場休市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798737_1_20250403090137.jpg&q=90)
@@ -115,6 +308,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798728-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798728-20250403.htm)
+
+---
+
+# 意總理稱美國關稅錯誤　澳洲總理指非朋友行為　加拿大將反制
+
+![阿爾巴內塞說，美國徵收關稅並不令人意外，但完全沒有道理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798727_1_20250403071846.jpg&q=90)
+  
+
+意大利總理梅洛尼說，美國新公布的關稅是錯誤，可能引發貿易戰，將盡力與美國達成協議。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm)
 
 ---
 
@@ -288,7 +505,7 @@
 
 # 特朗普公布對等關稅　中國稅率34%、歐盟20%、英國10%
 
-![特朗普在白宮宣布對等關稅措施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798713_1_20250403050831.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798713_1_20250403093352.jpg&q=90)
   
 
 美國總統特朗普在白宮簽署關於對等關稅的行政命令，宣布對貿易夥伴設立10%的最低基準關稅，並會對某些貿易夥伴徵收更高關稅。
@@ -1219,221 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798556-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798556-20250402.htm)
-
----
-
-# 台股開市後偏軟
-
-![台灣加權指數較早時報21266點，跌13點。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798554_1_20250402090554.jpg&q=90)
-  
-
-台灣股市偏軟。加權指數較早時報21266點，跌13點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798554-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798554-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798554-20250402.htm)
-
----
-
-# 訪西藏旅客按年升15%　香港拉薩直航開通後增港旅客
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
-  
-
-西藏去年累計接待超過6300萬遊客人次，按年增加15%，創下歷史新高，旅遊相關產業佔當地生產總值約三成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm)
-
----
-
-# 南韓3月通脹率2.1%高於預期
-
-![南韓3月消費物價指數按年上升2.1%，高於市場預期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798545_1_20250402080004.jpg&q=80)
-  
-
-南韓政府數據顯示，3月消費物價指數按年上升2.1%，較2月高0.1個百分點，亦高於市場預期。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798545-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798545-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798545-20250402.htm)
-
----
-
-# 韓股開市後靠穩
-
-![首爾綜合指數較早時報2525點，升3點。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798547_1_20250402080751.jpg&q=90)
-  
-
-南韓股市靠穩。首爾綜合指數較早時報2525點，升3點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798547-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798547-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798547-20250402.htm)
-
----
-
-# 日股開市後靠穩
-
-![日經指數較早時報35687點，升63點。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798546_1_20250402080644.jpg&q=85)
-  
-
-東京股市靠穩。日經指數較早時報35687點，升63點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798546-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798546-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798546-20250402.htm)
-
----
-
-# 白宮稱特朗普與團隊一同完善對等關稅措施細節　指各國尋求談判
-
-![萊維特（圖）說對等關稅將於特朗普宣布後立即生效。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798542_1_20250402065113.jpg&q=90)
-  
-
-美國白宮證實，總統特朗普將於當地星期三宣布一系列對等關稅措施，但未有透露徵收的規模及範圍等細節。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798542-20250402.htm)
-
----
-
-# 港股美國預託證券較本港收市個別發展
-
-![阿里巴巴美國預託證券較本港收市跌約0.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798539_1_20250402061644.jpg&q=90)
-  
-
-阿里巴巴美國預託證券折合129.07港元，較本港收市跌約0.6%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798539-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798539-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798539-20250402.htm)
-
----
-
-# 美元兌主要貨幣個別發展　10年期債息創1個月低位
-
-![美元兌日圓下跌，兌歐元則向上。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798538_1_20250402060801.jpg&q=80)
-  
-
-美元兌日圓下跌，兌歐元則向上。美國製造業萎縮，勞動力市場亦疲弱，勞工部報告顯示，2月職位空缺減少至756.8萬個。有分析認為，美國製造業已經受到特朗普保護主義政策的衝擊，未來幾個月或蔓延到其他經濟領域。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798538-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798538-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798538-20250402.htm)
-
----
-
-# 紐約期油跌約0.4%
-
-![原油期貨價格從5周高位回落。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798537_1_20250402055530.jpg&q=90)
-  
-
-原油期貨價格從5周高位回落。交易商擔心美國總統特朗普即將公布的對等關稅措施將加劇全球貿易戰。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798537-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798537-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798537-20250402.htm)
 
 ---

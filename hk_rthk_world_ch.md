@@ -1,3 +1,98 @@
+# 巴西對美國加徵關稅表示遺憾　正評估所有可能行動
+
+  
+
+巴西政府發表聲明，表示正在評估所有可能的行動，以回應美國的關稅措施，同時巴西國會通過一項法案，允許政府對貿易壁壘作出回應。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798747-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798747-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798747-20250403.htm)
+
+---
+
+# 美財長︰美國對中國進口產品徵收關稅總額將達54%
+
+![貝森特確認，除了早前徵收的20%關稅外，美國還會對中國進口產品徵收34%對等關稅，令新徵稅總額達到54%。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798735_1_20250403094532.jpg&q=90)
+  
+
+美國總統特朗普簽署關於對等關稅的行政命令，宣布對貿易夥伴設立10%的最低基準關稅，並會對某些貿易夥伴徵收更高關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798735-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798735-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798735-20250403.htm)
+
+---
+
+# 《環看天下》：習近平5月訪俄  王毅：中俄世代友好　永不為敵
+
+![俄羅斯總統普京在莫斯科會見中共中央政治局委員、外交部長王毅。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798745_1_20250403094130.jpg&q=90)
+  
+
+國家主席習近平據報已經接受邀請，出席下月9日在莫斯科舉行的紀念衛國戰爭勝利80周年活動。日前訪問俄羅斯的中共中央政治局委員、外交部長王毅，與總統普京會面。普京表示，期盼中方出席紀念活動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798745-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798745-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798745-20250403.htm)
+
+---
+
+# 中國政府援助緬甸第二批緊急人道主義地震救災物資啟運
+
+![中國政府首批援助物資上月31日抵達緬甸仰光國際機場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798740_1_20250403091327.jpg&q=90)
+  
+
+國家國際發展合作署表示，中國政府向緬甸提供的第二批緊急人道主義地震救災援助物資，上午從北京首都國際機場啟運。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm)
+
+---
+
 # 意總理稱美國關稅錯誤　澳洲總理指非朋友行為　加拿大將反制
 
 ![阿爾巴內塞說，美國徵收關稅並不令人意外，但完全沒有道理。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798727_1_20250403071846.jpg&q=90)
@@ -48,7 +143,7 @@
 
 # 特朗普公布對等關稅　中國稅率34%、歐盟20%、英國10%
 
-![特朗普在白宮宣布對等關稅措施。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798713_1_20250403050831.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798713_1_20250403093352.jpg&q=90)
   
 
 美國總統特朗普在白宮簽署關於對等關稅的行政命令，宣布對貿易夥伴設立10%的最低基準關稅，並會對某些貿易夥伴徵收更高關稅。
@@ -1340,101 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798463-20250401.htm)
-
----
-
-# 美國制裁6名中央和特區官員　中方稱堅決反制美方錯誤行徑
-
-![郭嘉昆重申，香港事務純屬中國內政，敦促美方停止以任何方式插手香港事務和中國內政。（外交部網頁圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798451_1_20250401154203.jpg&q=90)
-  
-
-美國以損害香港自治為由，制裁6名中央和特區官員。在北京，外交部發言人郭嘉昆表示強烈不滿，堅決反對，並予以強烈譴責，表明將堅決反制美方錯誤行徑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798451-20250401.htm)
-
----
-
-# 泰國政府預期地震只對經濟造成短期影響
-
-![泰國副財政部長表示，上星期在泰國造成破壞的強烈地震，或只對經濟造成短期影響，預計今年經濟增長仍將達到3%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798446_1_20250401150404.jpg&q=80)
-  
-
-泰國副財政部長Julapun Amornvivat表示，上星期在泰國造成破壞的強烈地震，或只對經濟造成短期影響，預計今年經濟增長仍將達到3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798446-20250401.htm)
-
----
-
-# 緬甸大地震增至逾2700人死亡　全國舉行默哀儀式
-
-![在緬甸曼德勒，大量建築物倒塌或受損。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798439_1_20250401145209.jpg&q=80)
-  
-
-緬甸中部大地震發生至今，增至超過2700人死亡，4500多人受傷，超過440人失蹤。領導人敏昂萊說，遇難人數可能會超過3000人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798439-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798439-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798439-20250401.htm)
-
----
-
-# 馬來西亞有天然氣管道爆炸引發大火　據報30人受傷
-
-![馬來西亞有天然氣管道爆炸引發大火。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798435_1_20250401133105.jpg&q=90)
-  
-
-馬來西亞雪蘭莪州蒲種市上午發生天然氣管道爆炸事故，並引發大火，據報已導致30人受傷送院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798435-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798435-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798435-20250401.htm)
 
 ---

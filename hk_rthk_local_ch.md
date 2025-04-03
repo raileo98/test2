@@ -1,6 +1,101 @@
+# 積金局：各類基金過去1年平均淨回報均錄正數　股票基金表現最好
+
+![積金局數據顯示，強積金各類基金在過去12個月平均年率化淨回報都是正數，並提醒不應以短線投資角度看待。（積金局圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798750_1_20250403095209.jpg&q=90)
+  
+
+積金局公布截至3月底的強積金投資回報臨時數據，各類基金在過去12個月平均年率化淨回報都是正數。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm)
+
+---
+
+# 李家超向緬甸駐港總領事送上慰問信　特區政府捐逾20噸物資救災
+
+![李家超早上與緬甸駐港總領事會面，送上慰問信。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798751_1_20250403095949.jpg&q=90)
+  
+
+行政長官李家超表示，早上與緬甸駐港總領事會面，送上慰問信，並通知他繼特區政府上星期六派遣救援隊前往緬甸後，政務司司長今早在機場主持捐贈儀式，捐贈共超過20噸物資，包括糧食及醫療物資等，並支援當地抗震救災工作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798751-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798751-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798751-20250403.htm)
+
+---
+
+# 何永賢：財政預算案放寬印花稅措施帶動細價樓市場趨活躍
+
+  
+
+簡樸房規管方案近日出爐，外界關注簡樸房租金水平。房屋局局長何永賢在一個電台節目表示，租金水平視乎供求情況。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm)
+
+---
+
+# 標普全球：香港上月採購經理指數跌至48.3
+
+![標普稱，經濟增長放緩、競爭日益加劇、貿易前景更多不明朗因素，都對香港的內需及外銷構成壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798736_1_20250403085936.jpg&q=85)
+  
+
+標普全球3月香港採購經理指數經季節調整後跌至48.3，按月下跌0.7，反映私營經濟在首季尾轉弱，主要由於新接訂單進一步減少，跌幅是去年中之後最大。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm)
+
+---
+
 # 銅鑼灣永興街有單位發生火警　女戶主不適送院
 
-![銅鑼灣永興街有單位發生火警　女戶主不適送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798739_1_20250403090630.jpg&q=90)
+![火警發生在凌晨近4時，單位內的雪櫃懷疑電線短路起火，消防動用一條喉及一隊煙帽隊灌救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798739_2_20250403095814.jpg&q=90)
   
 
 銅鑼灣永興街9號有單位凌晨發生火警，消防救出女戶主及兩隻狗，女戶主懷疑吸入濃煙不適，送往律敦治醫院。
@@ -24,7 +119,8 @@
 
 # 龍翔道和呈翔道發生多宗交通意外　部份行車線封閉
 
-![龍翔道和呈翔道發生多宗交通意外　部份行車線封閉](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798738_1_20250403090558.jpg&q=90)
+![早上大約7時半，龍翔道往觀塘方向近龍翔道公園有7車相撞，全部涉及私家車。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798738_2_20250403095732.jpg&q=85)
+![現場所見，其中一輛私家車撞至尾部剷起，壓在另一輛車的車頂上。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798738_3_20250403095732.jpg&q=90)
   
 
 龍翔道和呈翔道先後發生多宗交通意外。早上大約7時半，龍翔道往觀塘方向近龍翔道公園有7車相撞，全部涉及私家車，現場所見，其中一輛私家車撞至尾部剷起，壓在另一輛車的車頂上，兩人輕傷，現場部份行車線封閉。
@@ -1340,104 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798576-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798576-20250402.htm)
-
----
-
-# 周一鳴升任警務處處長　任內解決2019年理大衝突事件
-
-![2019年初，周一鳴擔任九龍西總區副指揮官，負責指揮安全小組進入理大校園處理危險品及搜證。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798569_1_20250402101102.jpg&q=90)
-![周一鳴（中）擔任警務處副處長期間，曾親自率領「犁庭掃穴」反罪惡行動。（香港警察社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798569_3_20250402101710.jpg&q=85)
-![蕭澤頤於最後一次結業會操致辭，表示加入警隊為他帶來無限滿足感，與同袍並肩作戰、甘苦與共，此生無憾。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798569_2_20250402101102.jpg&q=90)
-  
-
-新任警務處處長周一鳴於1995年加入警隊，由督察做起，大部分時間擔任分區至總部層面的刑事調查及情報蒐集工作，曾外借到法國的國際刑警秘書處。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798569-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798569-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798569-20250402.htm)
-
----
-
-# 國務院任命周一鳴為警務處處長　免去蕭澤頤職務
-
-![國務院任命周一鳴為警務處處長。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798568_2_20250402104843.jpg&q=90)
-  
-
-國務院任命周一鳴為新任警務處處長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm)
-
----
-
-# 文憑試中文科開考　業界的士義載逾百考生
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798563_1_20250402103432.jpg&q=65)
-  
-
-文憑試首個核心科目中文科開考。香港的士小巴商總會今日發起義載活動，為文憑試考生提供免費的士接送服務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798563-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798563-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798563-20250402.htm)
-
----
-
-# 緬甸曼德勒天氣炎熱有餘震　特區救援隊消毒營地防疫病
-
-![4名醫生及護士隨特區救援隊抵達曼德勒後，每日為救援隊成員做健康檢查。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798562_1_20250402095915.jpg&q=90)
-![保安局指出，當地出現嚴重蚊患，醫管局隨團醫生特別留意預防登革熱及瘧疾問題。（保安局社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798562_2_20250402095955.jpg&q=55)
-  
-
-特區救援隊正在緬甸第二大城市曼德勒救援。保安局表示，當地有餘震，救援隊基地亦感到震動。而由於天氣炎熱，早上更高達42度，救援隊需要定時消毒營地及臨時洗手間，以防瘟疫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798562-20250402.htm)
 
 ---
