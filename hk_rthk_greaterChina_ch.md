@@ -1,3 +1,27 @@
+# 商務部稱願與美方通過平等對話磋商　解決各自的關切
+
+![何亞東表示，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
+  
+
+美方宣布對所有貿易夥伴徵收對等關稅。在北京，商務部新聞發言人何亞東表示，中美兩國經貿部門一直保持溝通，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm)
+
+---
+
 # 外交部批評日方言行違背一中原則　已嚴正交涉
 
 ![郭嘉昆說，中方有關聯合演訓是對「台獨」分裂勢力的嚴重警告和有力遏制，日方無權說三道四。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798812_1_20250403164020.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798471-20250401.htm)
-
----
-
-# 中聯辦斥美國亂港遏華用心險惡　注定徒勞無功
-
-![中聯辦表示，國家安全是香港長期繁榮穩定的基石，堅定不移依法維護國家安全，是對香港法治、民主、人權和自由的最根本保障。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798468_1_20250401171248.jpg&q=85)
-  
-
-中聯辦強烈譴責美國國務院對中央駐港機構和香港特區政府有關官員進行所謂「制裁」，及發表惡意抹黑香港民主法治的「2025年香港政策法報告」。中聯辦指出，美國再次以卑劣手段粗暴干涉中國內政和香港事務，粗暴踐踏國際法原則和國際關係基本準則，充分暴露其亂港遏華的險惡用心，但注定徒勞無功。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798468-20250401.htm)
 
 ---

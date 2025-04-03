@@ -1,3 +1,28 @@
+# HK stocks joins market in seeing red from tariffs
+
+![Stocks in Hong Kong ended the day down 1.52 percent at 22,849.81. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_1_20250403170035.jpg&q=80)
+![The Nikkei pared its losses to close 2.8 percent down. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_2_20250403170035.jpg&q=90)
+  
+
+Equity markets tumbled on Thursday after Donald Trump delivered a "haymaker" blow with sweeping tariffs against US partners and rivals, fanning a global trade war that many fear will spark recessions and ramp up inflation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm)
+
+---
+
 # US should correct reciprocal tariffs: Foreign Ministry
 
 ![Guo Jiakun says additional US tariffs on exports from China and other countries seriously violate World Trade Organization regulations. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798814_1_20250403164944.jpg&q=90)
@@ -1415,29 +1440,5 @@ Nottingham Forest beat Manchester United 1-0 to close in on Champions League foo
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798535-20250402.htm)
-
----
-
-# 'Disneyland expansion needs careful planning'
-
-![Rosanna Law says any plans to use public money to expand Hong Kong Disneyland should be carefully considered. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798510_1_20250401213045.jpg&q=85)
-  
-
-Tourism minister Rosanna Law said on Tuesday any plans to expand Hong Kong Disneyland with public funding should be carefully considered, especially in the current economic climate.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798510-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798510-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798510-20250401.htm)
 
 ---

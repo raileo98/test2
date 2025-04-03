@@ -1,3 +1,27 @@
+# 商務部稱願與美方通過平等對話磋商　解決各自的關切
+
+![何亞東表示，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798802_1_20250403165958.jpg&q=75)
+  
+
+美方宣布對所有貿易夥伴徵收對等關稅。在北京，商務部新聞發言人何亞東表示，中美兩國經貿部門一直保持溝通，中方願與美方就兩國經貿領域重要問題進行交流，通過平等對話磋商，解決各自的關切。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798802-20250403.htm)
+
+---
+
 # 緬甸曼德勒國際機場已開放用於救援飛機升降
 
 ![緬甸曼德勒不少建築物在地震中倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798810_1_20250403162910.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798504-20250401.htm)
-
----
-
-# 特區救援隊：災區非常惡劣兩次緊急撤離部署　冀盡早救出被困人士
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798501_1_20250401192854.jpg&q=70)
-  
-
-特區救援隊繼續在緬甸曼特勒災區搜救。正在當地的特區救援隊指揮官趙汝珏接受本台訪問時表示，當地大規模樓宇倒塌、道路裂開，情況非常惡劣。特區救援隊抵達曼特勒災區基地後，與國家救援隊舉行會議，之後出發參與搜救，特區救援隊至今出動27次，到26個地點搜救。他說，抵達曼特勒後，曾面對3次餘震，救援隊在其中兩次餘震發生時要作緊急撤離部署。雖然暫未尋獲生還者，但會繼續根據求助報告搜救，希望盡早救出被困人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm)
 
 ---

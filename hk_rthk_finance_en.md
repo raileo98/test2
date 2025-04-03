@@ -1,3 +1,28 @@
+# HK stocks joins market in seeing red from tariffs
+
+![Stocks in Hong Kong ended the day down 1.52 percent at 22,849.81. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_1_20250403170035.jpg&q=80)
+![The Nikkei pared its losses to close 2.8 percent down. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_2_20250403170035.jpg&q=90)
+  
+
+Equity markets tumbled on Thursday after Donald Trump delivered a "haymaker" blow with sweeping tariffs against US partners and rivals, fanning a global trade war that many fear will spark recessions and ramp up inflation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798815-20250403.htm)
+
+---
+
 # Tariffs will rebound on US: economists
 
 ![The punitive 54 percent tariffs heaped on Chinese exports from such ports as Qingdao in Shandong can be counterbalanced by pro-active promotions of domestic consumption, says an economist. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798796_1_20250403160427.jpg&q=40)
@@ -1413,29 +1438,5 @@ US stocks closed lower on Thursday, as a Fed-related rally lost steam, and trade
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm)
-
----
-
-# White House promises 'big tariffs' on April 2
-
-![White House Press Secretary Karoline Leavitt says America "has been ripped off by every country around the world." Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796689_1_20250321011627.jpg&q=90)
-  
-
-The White House on Thursday vowed to impose "big tariffs" on April 2 when US President Donald Trump is to unveil reciprocal levies in a major escalation of his trade war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796689-20250321.htm)
 
 ---
