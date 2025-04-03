@@ -1,3 +1,51 @@
+# EU 'ready to respond' but urges tariffs dialogue
+
+![Ursula von der Leyen says there seems to be no order in the disorder created by Donald Trump's tariffs. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798777_1_20250403121944.jpg&q=90)
+  
+
+The European Union is ready to respond to sweeping new US tariffs, the bloc's chief Ursula von der Leyen warned on Thursday, but urged US President Donald Trump to address his concerns through dialogue.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798777-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798777-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798777-20250403.htm)
+
+---
+
+# Chinese rescuers fill vacuum US cuts leave in Myanmar
+
+![Chinese rescue workers work at the site of a collapsed building in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798770_1_20250403120430.jpg&q=75)
+  
+
+After a 7.7 magnitude earthquake shook Myanmar on Friday, killing more than 2,800 people, international rescuers rushed into the devastated Southeast Asian country.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798770-20250403.htm)
+
+---
+
 # EU to prepare countermeasures to US reciprocal tariffs
 
 ![European Commission President Ursula von der Leyen says the EU is preparing further countermeasures. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798769_1_20250403114610.jpg&q=90)
@@ -169,7 +217,7 @@ Canadian Prime Minister Mark Carney on Wednesday vowed to "fight" against US Pre
 
 # US trade tariff 'not act of a friend': Albanese
 
-![Australian Prime Minister Anthony Albanese said Australia charged nothing on US imports and should face zero US tariffs. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798732_1_20250403082709.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798732_1_20250403082709.jpg&q=90)
   
 
 Donald Trump's trade tariffs on close ally Australia are "not the act of a friend" and will hurt the two nations' relationship, Prime Minister Anthony Albanese said on Thursday.
@@ -191,7 +239,7 @@ Donald Trump's trade tariffs on close ally Australia are "not the act of a frien
 
 ---
 
-# Barca oust Atlético; set up Clasico Copa del Rey final
+# Barca oust Atlético, set up Clasico Copa del Rey final
 
 ![Ferran Torres celebrates scoring the opening goal during the Spanish Copa del Rey semi-final second leg. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798723_1_20250403061233.jpg&q=90)
   
@@ -265,7 +313,7 @@ Tesla's worldwide sales tumbled in the first quarter, figures showed on Wednesda
 
 # Myanmar junta declares quake ceasefire
 
-![The military government said it would observe a ceasefire from Wednesday until April 22 to make quake relief efforts easier. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798707_1_20250403032440.jpg&q=50)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798707_1_20250403032440.jpg&q=50)
   
 
 Myanmar's junta announced a temporary ceasefire on Wednesday as the death toll from a devastating earthquake rose and desperate survivors pleaded for more help amid frantic scenes of aid distribution.
@@ -1391,53 +1439,5 @@ Police have arrested two people after busting a cannabis production facility in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm)
-
----
-
-# ESF proposes to raise tuition fees by 4.8 percent
-
-![The proposed ESF increase means parents would have to fork out HK$650 to HK$750 more a month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798469_1_20250401170058.jpg&q=90)
-  
-
-The English Schools Foundation (ESF) on Tuesday proposed to raise tuition fees by an average of 4.8 percent in the coming academic year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm)
-
----
-
-# Xiaomi hands over data in fatal SU7 crash in Anhui
-
-![Xiaomi' SU7 has outsold Tesla's Model 3. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798464_1_20250401165627.jpg&q=85)
-  
-
-Xiaomi said on Tuesday that it was actively cooperating with police after a fatal accident involving a SU7 electric vehicle on Saturday and that it had handed over driving and system data.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798464-20250401.htm)
 
 ---

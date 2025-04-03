@@ -1,3 +1,72 @@
+# 康體通本月8日部分時間暫停服務進行系統升級工程
+
+  
+
+康文署宣布，為提升服務質素，SmartPLAY康體通將於本月8日早上10時30分至下午4時30分暫停服務，以便進行系統升級工程。SmartPLAY康體通用戶如需於上述日期使用系統預訂康體設施或報名參加康體活動，請預早安排，在服務暫停時段之前或後使用系統。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798776-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798776-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798776-20250403.htm)
+
+---
+
+# 醫健通用戶現可透過流動應用程式查閱公私營機構存入放射報告
+
+  
+
+醫務衞生局公布，醫健通用戶可以透過流動應用程式，查閱由醫管局、衞生署及私營醫護機構存入戶口的放射報告，方便市民了解自己的健康。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798775-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798775-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798775-20250403.htm)
+
+---
+
+# 涉火炭命案25歲男子被暫控謀殺罪
+
+  
+
+警方暫控一名25歲男子一項謀殺罪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798773-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798773-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798773-20250403.htm)
+
+---
+
 # 強積金顧問：今年以來強積金人均回報逾9100元
 
 ![強積金顧問公司GUM表示，今年至上星期五，強積金人均賺約9126元，相當於去年人均回報的42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798767_1_20250403115106.jpg&q=80)
@@ -237,7 +306,6 @@
 
 # 龍翔道和呈翔道發生多宗交通意外　部份行車線封閉
 
-![早上大約7時半，龍翔道往觀塘方向近龍翔道公園有7車相撞，全部涉及私家車。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798738_2_20250403095732.jpg&q=85)
 ![現場所見，其中一輛私家車撞至尾部剷起，壓在另一輛車的車頂上。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798738_3_20250403095732.jpg&q=90)
   
 
@@ -1362,77 +1430,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798594-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798594-20250402.htm)
-
----
-
-# 文憑試中文科開考　有考生認為閱讀卷不算難、文言文容易理解
-
-![有考生認為試卷不算困難，文言文容易理解。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798592_1_20250402135038.jpg&q=85)
-  
-
-文憑試首個核心科目中文科今日開考。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798592-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798592-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798592-20250402.htm)
-
----
-
-# 機場舉辦海洋生態保育展　謝展寰：本港海洋生物多樣性豐富
-
-![謝展寰表示，香港海洋有豐富的生物多樣性，佔全國海洋面積不足0.1%，但孕育了6千多種海生生物，佔全國四分之一。（梁禎祥攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798593_1_20250402122933.jpg&q=80)
-  
-
-環境及生態局局長謝展寰、運輸及物流局局長陳美寶出席在機場舉行的海洋生態保育及生物多樣性展覽。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798593-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798593-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798593-20250402.htm)
-
----
-
-# 港鐵清明節期間將加密東鐵綫部分時段班次　高鐵香港段加強服務
-
-![港鐵會於星期五至日，分別加密東鐵綫上午及傍晚部分時段的班次，來往上水至金鐘站。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798591_1_20250402122910.jpg&q=80)
-  
-
-為方便市民於清明節掃墓，港鐵於本星期五至星期日，加密東鐵綫部分時段的列車班次，亦會加強港鐵巴士K52A服務，方便往來屯馬綫屯門站和曾咀靈灰安置所的掃墓市民。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798591-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798591-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798591-20250402.htm)
 
 ---

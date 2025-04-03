@@ -1,3 +1,96 @@
+# 康體通本月8日部分時間暫停服務進行系統升級工程
+
+  
+
+康文署宣布，為提升服務質素，SmartPLAY康體通將於本月8日早上10時30分至下午4時30分暫停服務，以便進行系統升級工程。SmartPLAY康體通用戶如需於上述日期使用系統預訂康體設施或報名參加康體活動，請預早安排，在服務暫停時段之前或後使用系統。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798776-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798776-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798776-20250403.htm)
+
+---
+
+# 醫健通用戶現可透過流動應用程式查閱公私營機構存入放射報告
+
+  
+
+醫務衞生局公布，醫健通用戶可以透過流動應用程式，查閱由醫管局、衞生署及私營醫護機構存入戶口的放射報告，方便市民了解自己的健康。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798775-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798775-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798775-20250403.htm)
+
+---
+
+# 港股半日跌366點　航運及科技股受壓
+
+![港股半日跌幅收窄，恒生指數中午報22835點，跌366點，跌幅約1.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798772_1_20250403121056.jpg&q=60)
+  
+
+美國對多個國家實施對等關稅，港股跟隨區內股市向下，失守23000點水平。恒生指數低開逾560點，跌至22638點，是今早低位，亦創約1個月新低。大市其後跌幅收窄，中午報22835點，跌366點，跌幅約1.6%，半日主板成交額約1640億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798772-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798772-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798772-20250403.htm)
+
+---
+
+# 涉火炭命案25歲男子被暫控謀殺罪
+
+  
+
+警方暫控一名25歲男子一項謀殺罪。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798773-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798773-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798773-20250403.htm)
+
+---
+
 # 滬股半日跌0.5%　創業板跌近2%
 
 ![上證指數半日收報3333點，跌17點，跌幅0.51%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798768_2_20250403115136.jpg&q=90)
@@ -122,7 +215,7 @@
 ![澳門國際機場專營股份有限公司物流暨通用航空發展部總監胡漢新表示，航線成功開通具有戰略意義。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798762_2_20250403113350.jpg&q=90)
   
 
-澳門國際機場首次開拓至歐洲的跨境電商物流服務，將貨運服務由目前的東南亞、中東和美洲，延伸至歐洲，進一步完善機場貨運網絡，為粵港澳大灣區跨境電商貨物運輸，提供多一個琴澳物流新模式的選擇方案。
+澳門國際機場首次開拓至歐洲的跨境電商物流服務，將貨運服務由目前的東南亞、中東和美洲，延伸至西班牙馬德里，進一步完善機場貨運網絡，為粵港澳大灣區跨境電商貨物運輸，提供多一個琴澳物流新模式的選擇方案。
 
   
 
@@ -647,7 +740,6 @@
 
 # 龍翔道和呈翔道發生多宗交通意外　部份行車線封閉
 
-![早上大約7時半，龍翔道往觀塘方向近龍翔道公園有7車相撞，全部涉及私家車。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798738_2_20250403095732.jpg&q=85)
 ![現場所見，其中一輛私家車撞至尾部剷起，壓在另一輛車的車頂上。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798738_3_20250403095732.jpg&q=90)
   
 
@@ -1387,53 +1479,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798696-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798696-20250403.htm)
-
----
-
-# 政府完成黃大仙竹園聯合村聯合行動　相關用地日後發展公營房屋
-
-![發展局表示，在照顧受發展影響住戶的同時，亦須確保發展計劃按時完成，無法再延長遷出寬限期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798695_1_20250402230234.jpg&q=90)
-  
-
-發展局表示，地政總署今日聯同相關政府部門，在黃大仙竹園聯合村進行聯合行動，將相關用地交予土木工程拓展署，以配合日後的公營房屋發展，相關行動已完成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm)
-
----
-
-# 道指初段曾跌逾300點　其後倒升
-
-![道瓊斯指數初段一度跌360點，其後轉升，較早時報42070點，升80點，升幅0.19%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798694_1_20250402225614.jpg&q=90)
-  
-
-美股在美國總統特朗普宣布對等關稅措施前，走勢先低後高。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798694-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798694-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798694-20250402.htm)
 
 ---

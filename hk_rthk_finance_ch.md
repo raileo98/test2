@@ -1,3 +1,27 @@
+# 港股半日跌366點　航運及科技股受壓
+
+![港股半日跌幅收窄，恒生指數中午報22835點，跌366點，跌幅約1.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798772_1_20250403121056.jpg&q=60)
+  
+
+美國對多個國家實施對等關稅，港股跟隨區內股市向下，失守23000點水平。恒生指數低開逾560點，跌至22638點，是今早低位，亦創約1個月新低。大市其後跌幅收窄，中午報22835點，跌366點，跌幅約1.6%，半日主板成交額約1640億元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798772-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798772-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798772-20250403.htm)
+
+---
+
 # 滬股半日跌0.5%　創業板跌近2%
 
 ![上證指數半日收報3333點，跌17點，跌幅0.51%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798768_2_20250403115136.jpg&q=90)
@@ -52,7 +76,7 @@
 ![澳門國際機場專營股份有限公司物流暨通用航空發展部總監胡漢新表示，航線成功開通具有戰略意義。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798762_2_20250403113350.jpg&q=90)
   
 
-澳門國際機場首次開拓至歐洲的跨境電商物流服務，將貨運服務由目前的東南亞、中東和美洲，延伸至歐洲，進一步完善機場貨運網絡，為粵港澳大灣區跨境電商貨物運輸，提供多一個琴澳物流新模式的選擇方案。
+澳門國際機場首次開拓至歐洲的跨境電商物流服務，將貨運服務由目前的東南亞、中東和美洲，延伸至西班牙馬德里，進一步完善機場貨運網絡，為粵港澳大灣區跨境電商貨物運輸，提供多一個琴澳物流新模式的選擇方案。
 
   
 
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798577-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798577-20250402.htm)
-
----
-
-# 日股半日升15點
-
-![日經指數反覆微升，半日收報35639點，升15點。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798575_1_20250402103335.jpg&q=85)
-  
-
-日股反覆微升，日經指數最多跌近200點，半日收報35639點，升15點。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798575-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798575-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798575-20250402.htm)
 
 ---

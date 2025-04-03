@@ -23,7 +23,7 @@ The Miami Heat ended Boston's nine-game NBA winning streak with a 124-103 victor
 
 ---
 
-# Barca oust Atlético; set up Clasico Copa del Rey final
+# Barca oust Atlético, set up Clasico Copa del Rey final
 
 ![Ferran Torres celebrates scoring the opening goal during the Spanish Copa del Rey semi-final second leg. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798723_1_20250403061233.jpg&q=90)
   
