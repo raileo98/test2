@@ -1,3 +1,27 @@
+# 國際油價急挫逾6%　OPEC+宣布加速增產
+
+![倫敦布蘭特期油較早時報每桶70.44美元，跌幅6%。紐約期油報67.09美元，跌逾6.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798853_1_20250403204609.jpg&q=90)
+  
+
+石油輸出國組織及其盟友（OPEC+）同意推進增產計劃，5月將石油日產量增加41.1萬桶，增幅遠高過原訂計劃的13.5萬桶。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798853-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798853-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798853-20250403.htm)
+
+---
+
 # 滬深京交易所發布程序化交易管理實施細則　7月7日起實施
 
 ![上海、深圳和北京證券交易所發布程序化交易管理實施細則，對程序化交易實行實時監控，將於7月7日起實施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798843_1_20250403192505.jpg&q=90)
@@ -1412,29 +1436,5 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798687-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798687-20250402.htm)
-
----
-
-# 夏寶龍晤滙豐主席杜嘉祺　冀集團向國際社會講好中國故事
-
-![中央港澳辦、國務院港澳辦主任夏寶龍（右）下午會見滙豐集團主席杜嘉祺（左），希望滙豐集團在中國更好發展。（中央港澳辦）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798684_1_20250402222247.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍下午會見滙豐集團主席杜嘉祺，指希望滙豐集團在中國更好發展，更積極助力香港鞏固提升國際金融中心地位，繼續發揮自身優勢做好中英關係的重要橋樑紐帶，向國際社會講好「中國故事」「香港故事」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798684-20250402.htm)
 
 ---

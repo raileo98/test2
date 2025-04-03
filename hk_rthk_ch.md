@@ -1,3 +1,27 @@
+# 國際油價急挫逾6%　OPEC+宣布加速增產
+
+![倫敦布蘭特期油較早時報每桶70.44美元，跌幅6%。紐約期油報67.09美元，跌逾6.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798853_1_20250403204609.jpg&q=90)
+  
+
+石油輸出國組織及其盟友（OPEC+）同意推進增產計劃，5月將石油日產量增加41.1萬桶，增幅遠高過原訂計劃的13.5萬桶。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798853-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798853-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798853-20250403.htm)
+
+---
+
 # 中國海軍指美軍艦機偵察活動極易造成誤解誤判　危害中國安全
 
 ![中國海軍指美軍艦機偵察活動極易造成誤解誤判　危害中國安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798852_2_20250403203305.jpg&q=90)
