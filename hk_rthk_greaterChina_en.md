@@ -1,3 +1,27 @@
+# US should correct reciprocal tariffs: Foreign Ministry
+
+![Guo Jiakun says additional US tariffs on exports from China and other countries seriously violate World Trade Organization regulations. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798814_1_20250403164944.jpg&q=90)
+  
+
+China urged the United States to correct its wrongful imposition of reciprocal tariffs and address economic and trade differences with China and other countries through negotiations, Foreign Ministry spokesman Guo Jiakun said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm)
+
+---
+
 # 'Not the season' as MH370 search suspended
 
 ![Relatives of the missing MH370 passengers gather in Beijing last month on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798795_1_20250403145825.jpg&q=90)
@@ -1415,29 +1439,5 @@ Foreign Minister Wang Yi said on Saturday that China, Japan and the South Korea 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm)
-
----
-
-# China, Japan should boost trust, cooperation: FM
-
-![The FM noted that since Ishiba took office, China-Japan ties had improved. Photo: MOFA](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796871_1_20250322034618.jpg&q=90)
-  
-
-China and Japan should enhance mutual trust and cooperation to provide global stability amid complex international challenges, Foreign Minister Wang Yi said on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796871-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796871-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796871-20250322.htm)
 
 ---

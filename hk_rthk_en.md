@@ -1,3 +1,27 @@
+# US should correct reciprocal tariffs: Foreign Ministry
+
+![Guo Jiakun says additional US tariffs on exports from China and other countries seriously violate World Trade Organization regulations. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798814_1_20250403164944.jpg&q=90)
+  
+
+China urged the United States to correct its wrongful imposition of reciprocal tariffs and address economic and trade differences with China and other countries through negotiations, Foreign Ministry spokesman Guo Jiakun said.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798814-20250403.htm)
+
+---
+
 # Tariffs will rebound on US: economists
 
 ![The punitive 54 percent tariffs heaped on Chinese exports from such ports as Qingdao in Shandong can be counterbalanced by pro-active promotions of domestic consumption, says an economist. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798796_1_20250403160427.jpg&q=40)
@@ -1415,29 +1439,5 @@ Tourism minister Rosanna Law said on Tuesday any plans to expand Hong Kong Disne
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798510-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798510-20250401.htm)
-
----
-
-# US sanctions just 'a piece of waste paper': Beijing
-
-![The Office for Safeguarding National Security says Washington should stop its bullying tactics as soon as possible. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798470_1_20250401170116.jpg&q=80)
-  
-
-Beijing's Office for Safeguarding National Security in Hong Kong has issued a stern warning against the United States for sanctioning six officials, saying such punitive actions are simply "a piece of waste paper."
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm)
 
 ---
