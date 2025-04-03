@@ -1,3 +1,27 @@
+# 緬甸大地震逾3100死　敏昂萊抵曼谷出席地區峰會
+
+![敏昂萊抵達曼谷出席峰會，在大會晚宴與泰國總理佩通坦合照。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798872_1_20250404011017.jpg&q=90)
+  
+
+緬甸中部大地震發生一星期，死亡人數上升至超過3100人，4500多人受傷，仍有約220人失蹤。中國駐緬甸大使館確認，中國公民4死13傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798872-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798872-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798872-20250404.htm)
+
+---
+
 # 加拿大反制　向不符合北美自貿協定的美國進口汽車徵收25%關稅
 
 ![卡尼指出，加拿大對美國貿易的嚴重依賴已經結束。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798871_1_20250404003303.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798528-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798528-20250402.htm)
-
----
-
-# 中方轉交中國紅十字會向緬甸所提供150萬元人民幣現匯援助
-
-![中國向緬甸提供1億元人民幣緊急人道主義地震救災援助。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798527_1_20250402031421.jpg&q=80)
-  
-
-中國駐緬甸使館公使銜參贊曹靜，昨日在仰光會見緬甸紅十字會主席苗紐，轉交中國紅十字會向緬方提供的150萬元人民幣現匯援助。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 緬甸大地震逾3100死　敏昂萊抵曼谷出席地區峰會
+
+![敏昂萊抵達曼谷出席峰會，在大會晚宴與泰國總理佩通坦合照。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798872_1_20250404011017.jpg&q=90)
+  
+
+緬甸中部大地震發生一星期，死亡人數上升至超過3100人，4500多人受傷，仍有約220人失蹤。中國駐緬甸大使館確認，中國公民4死13傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798872-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798872-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798872-20250404.htm)
+
+---
+
 # 加拿大反制　向不符合北美自貿協定的美國進口汽車徵收25%關稅
 
 ![卡尼指出，加拿大對美國貿易的嚴重依賴已經結束。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798871_1_20250404003303.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm)
-
----
-
-# 馮德萊恩稱準備好與美國談判關稅　倘談判失敗將進一步反制
-
-![歐盟委員會主席馮德萊恩重申歐盟準備與美國談判關稅，如果談判失敗，會進一步反制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798798_1_20250403152206.jpg&q=90)
-  
-
-美方宣布對所有貿易夥伴徵收對等關稅，歐盟產品關稅是20%。歐盟委員會主席馮德萊恩表示遺憾，重申歐盟一直準備與美國談判，消除跨大西洋貿易壁壘，同時也準備回應。她說歐盟正敲定對美國鋼鋁關稅的反制措施的最後細節。如果談判失敗，會進一步反制，保護歐盟的利益和商業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm)
 
 ---
