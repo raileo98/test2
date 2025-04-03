@@ -1,5 +1,29 @@
+# 86歲老婦旺角失蹤　警方籲市民提供消息
+
+  
+
+警方呼籲市民提供一名在旺角失蹤婦人的消息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm)
+
+---
+
 # 鄭雁雄指要加強教育對科技和人才的支撐作用
 
+![鄭雁雄表示，特區要全面把握中共總書記習近平重要講話精神，進一步強化教育對科技和人才的支撐作用。（中聯辦相片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798848_1_20250403195407.jpg&q=90)
   
 
 特區政府舉辦學習全國兩會精神座談會，行政長官李家超主持。中聯辦主任鄭雁雄應邀出席並作交流分享。
@@ -166,7 +190,7 @@
 
 ---
 
-# 交行香港分行協助財政部在倫敦發行60億人民幣綠色主權債
+# 交行香港和渣打協助財政部在倫敦發行60億人民幣綠色主權債
 
 ![交行香港及渣打表示，協助中國財政部在英國倫敦成功定價發行60億人民幣綠色主權債，超額認購6.8倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798833_1_20250403183328.jpg&q=75)
   

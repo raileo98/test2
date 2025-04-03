@@ -1,5 +1,29 @@
+# 86歲老婦旺角失蹤　警方籲市民提供消息
+
+  
+
+警方呼籲市民提供一名在旺角失蹤婦人的消息。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm)
+
+---
+
 # 鄭雁雄指要加強教育對科技和人才的支撐作用
 
+![鄭雁雄表示，特區要全面把握中共總書記習近平重要講話精神，進一步強化教育對科技和人才的支撐作用。（中聯辦相片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798848_1_20250403195407.jpg&q=90)
   
 
 特區政府舉辦學習全國兩會精神座談會，行政長官李家超主持。中聯辦主任鄭雁雄應邀出席並作交流分享。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798659-20250402.htm)
-
----
-
-# 消息稱控煙「十招」將全數推出　部分排隊輪候地方禁煙
-
-![消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，全數「十招」都會推出並陸續執行。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798658_1_20250402184118.jpg&q=90)
-  
-
-消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，全數「十招」都會推出並陸續執行，包括提出進一步擴大禁煙範圍、部分排隊輪候地方禁煙。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798658-20250402.htm)
 
 ---

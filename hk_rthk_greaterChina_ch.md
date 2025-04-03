@@ -1,3 +1,27 @@
+# 鄭雁雄指要加強教育對科技和人才的支撐作用
+
+![鄭雁雄表示，特區要全面把握中共總書記習近平重要講話精神，進一步強化教育對科技和人才的支撐作用。（中聯辦相片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798848_1_20250403195407.jpg&q=90)
+  
+
+特區政府舉辦學習全國兩會精神座談會，行政長官李家超主持。中聯辦主任鄭雁雄應邀出席並作交流分享。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm)
+
+---
+
 # 滬深京交易所發布程序化交易管理實施細則　7月7日起實施
 
 ![上海、深圳和北京證券交易所發布程序化交易管理實施細則，對程序化交易實行實時監控，將於7月7日起實施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798843_1_20250403192505.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798508-20250401.htm)
-
----
-
-# 特區救援隊：災區非常惡劣兩次緊急撤離部署　冀盡早救出被困人士
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798501_1_20250401192854.jpg&q=70)
-  
-
-特區救援隊繼續在緬甸曼特勒災區搜救。正在當地的特區救援隊指揮官趙汝珏接受本台訪問時表示，當地大規模樓宇倒塌、道路裂開，情況非常惡劣。特區救援隊抵達曼特勒災區基地後，與國家救援隊舉行會議，之後出發參與搜救，特區救援隊至今出動27次，到26個地點搜救。他說，抵達曼特勒後，曾面對3次餘震，救援隊在其中兩次餘震發生時要作緊急撤離部署。雖然暫未尋獲生還者，但會繼續根據求助報告搜救，希望盡早救出被困人士。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798501-20250401.htm)
 
 ---
