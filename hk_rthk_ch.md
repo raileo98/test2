@@ -1,3 +1,74 @@
+# 緬甸曼德勒國際機場已開放用於救援飛機升降
+
+![緬甸曼德勒不少建築物在地震中倒塌。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798810_1_20250403162910.jpg&q=85)
+  
+
+央視新聞報道，緬甸曼德勒國際機場昨天已經開放用於救援飛機升降，預計明天開放本地航空客運升降。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798810-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798810-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798810-20250403.htm)
+
+---
+
+# 涉攜武士刀進入法院男子缺席提堂　法庭發出拘捕令
+
+![案件原定今日提堂，但被告缺席，裁判官何慧嫻發出拘捕令。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798809_1_20250403162651.jpg&q=90)
+  
+
+一名男子涉嫌攜帶兩把武士刀進入西九龍裁判法院，被控一項管有攻擊武器罪，案件原定今日在西九龍裁判法院提堂，但被告缺席，裁判官何慧嫻發出拘捕令。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798809-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798809-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798809-20250403.htm)
+
+---
+
+# 海關檢市值約2900萬元懷疑可卡因　搗破紅磡酒店房間儲存倉
+
+  
+
+海關在紅磡搗破一個懷疑毒品儲存倉，檢獲約34公斤懷疑可卡因，估計市值約2900萬元，拘捕一名23歲男子。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798808-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798808-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798808-20250403.htm)
+
+---
+
 # 消防處：明日清明節天氣較乾燥　發生山火或處高水平
 
   

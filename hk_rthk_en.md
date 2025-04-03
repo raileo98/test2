@@ -1,3 +1,27 @@
+# Tariffs will rebound on US: economists
+
+![The punitive 54 percent tariffs heaped on Chinese exports from such ports as Qingdao in Shandong can be counterbalanced by pro-active promotions of domestic consumption, says an economist. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798796_1_20250403160427.jpg&q=40)
+  
+
+The latest tariffs imposed by the United States will add to the country's own economic pains, complicate already heightened global trade and geopolitical tensions, and result in a backlash from many nations, according to economists.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798796-20250403.htm)
+
+---
+
 # 'Not the season' as MH370 search suspended
 
 ![Relatives of the missing MH370 passengers gather in Beijing last month on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798795_1_20250403145825.jpg&q=90)
@@ -1415,29 +1439,5 @@ Beijing's Office for Safeguarding National Security in Hong Kong has issued a st
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798470-20250401.htm)
-
----
-
-# Far-right party chief calls for rally over Le Pen ban
-
-![Marine Le Pen with Jordan Bardella at the Elysee presidential palace in Paris in August. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798485_1_20250401174939.jpg&q=85)
-  
-
-Far-right party chief Jordan Bardella called on the French to rally this weekend to protest against a ruling that banned Marine Le Pen from running for public office for five years after being found guilty of embezzling European Union funds.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798485-20250401.htm)
 
 ---
