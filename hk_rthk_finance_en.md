@@ -1,3 +1,27 @@
+# Stocks, US dollar and oil sink, as gold hits high
+
+![Wall Street's main indices opened sharply lower, with the Nasdaq falling more than four percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798865_1_20250403221424.jpg&q=85)
+  
+
+Stock markets and the dollar tumbled on Thursday after President Donald Trump's latest tariffs salvo against countries worldwide, fanning a trade war that many fear will spark recession and ramp up inflation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798865-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798865-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798865-20250403.htm)
+
+---
+
 # HK stocks joins markets in seeing red from tariffs
 
 ![Stocks in Hong Kong ended the day down 1.52 percent at 22,849.81. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798815_1_20250403170035.jpg&q=80)
@@ -1414,29 +1438,5 @@ Hong Kong's Hang Seng Index fell 110.88 points, or 0.46 percent, to open at 24,1
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796728-20250321.htm)
-
----
-
-# US stocks edge lower as Fed rally falters
-
-![The Dow Jones Industrial Average closed down less than 0.1 percent at 41,953. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796704_1_20250321061012.jpg&q=75)
-  
-
-US stocks closed lower on Thursday, as a Fed-related rally lost steam, and traders looked ahead to the prospect of additional tariffs next month.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796704-20250321.htm)
 
 ---

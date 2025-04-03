@@ -1,3 +1,27 @@
+# Stocks, US dollar and oil sink, as gold hits high
+
+![Wall Street's main indices opened sharply lower, with the Nasdaq falling more than four percent. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798865_1_20250403221424.jpg&q=85)
+  
+
+Stock markets and the dollar tumbled on Thursday after President Donald Trump's latest tariffs salvo against countries worldwide, fanning a trade war that many fear will spark recession and ramp up inflation.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798865-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798865-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798865-20250403.htm)
+
+---
+
 # Hong Kong calls on US to withdraw 'bullying' tariffs
 
 ![The SAR government says it'll take actions to defend the city's legitimate rights. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798851_1_20250403202459.jpg&q=85)
@@ -1415,29 +1439,5 @@ A Democratic US lawmaker shattered a record for the longest speech in Senate his
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798571-20250402.htm)
-
----
-
-# Hong Kong stocks open marginally down
-
-![The Hang Seng Index opened down 0.17 percent at 23,167. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798565_1_20250402094929.jpg&q=90)
-  
-
-The Hang Seng Index lost 39.53 points, or 0.17 percent, to open at 23,167 points on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798565-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798565-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798565-20250402.htm)
 
 ---
