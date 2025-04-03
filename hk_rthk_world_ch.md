@@ -1,3 +1,27 @@
+# 外交部：反對美國打著「對等」幌子加關稅　促美方糾正錯誤做法
+
+![外交部發言人郭嘉昆表示，中方堅決反對美方打著「對等」的幌子，對中國在內的多國輸美產品加徵關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798804_1_20250403154448.jpg&q=90)
+  
+
+在北京，外交部回應美國加徵關稅，發言人郭嘉昆表示，美方打著「對等」的幌子，對包括中國在內的多國輸美產品加徵關稅，嚴重違反世貿組織規則，嚴重損害以規則為基礎的多邊貿易體制。中方對此堅決反對，將採取必要措施堅定維護自身正當利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm)
+
+---
+
 # 馮德萊恩稱準備好與美國談判關稅　倘談判失敗將進一步反制
 
 ![歐盟委員會主席馮德萊恩重申歐盟準備與美國談判關稅，如果談判失敗，會進一步反制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798798_1_20250403152206.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798500-20250401.htm)
-
----
-
-# 習近平與印度總統就兩國建交75周年互致賀電
-
-![習近平表示，中印雙方應加強各領域交流合作，推動中印關係沿著健康穩定軌道向前發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798499_1_20250401191702.jpg&q=90)
-  
-
-國家主席習近平與印度總統穆爾穆互致賀電，慶祝兩國建交75周年。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798499-20250401.htm)
 
 ---

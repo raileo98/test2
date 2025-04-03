@@ -1,3 +1,27 @@
+# 外交部：反對美國打著「對等」幌子加關稅　促美方糾正錯誤做法
+
+![外交部發言人郭嘉昆表示，中方堅決反對美方打著「對等」的幌子，對中國在內的多國輸美產品加徵關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798804_1_20250403154448.jpg&q=90)
+  
+
+在北京，外交部回應美國加徵關稅，發言人郭嘉昆表示，美方打著「對等」的幌子，對包括中國在內的多國輸美產品加徵關稅，嚴重違反世貿組織規則，嚴重損害以規則為基礎的多邊貿易體制。中方對此堅決反對，將採取必要措施堅定維護自身正當利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm)
+
+---
+
 # 商務部：日本半導體出口管制損害兩國企業利益
 
 ![商務部發言人表示，希望日方從維護國際經貿規則及中日經貿合作大局出發，保持理性決策，及時糾正錯誤做法。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798805_1_20250403154527.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798456-20250401.htm)
-
----
-
-# 梁振英籲企業多作慈善公益工作　做到兼濟天下
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798454_1_20250401161213.jpg&q=80)
-  
-
-全國政協副主席梁振英出席一個有關企業社會責任頒獎禮致辭時說，國務院總理李強上月初宣讀政府工作報告時，就香港部分首次提出，支援港澳地區深化國際合作交往，但其後不少港人將有關講話較狹窄地演繹為香港如何作為「超級聯繫人」、怎樣做好金融及商貿等經濟活動。他認為，當中不僅包含經貿活動，亦涵蓋文化、體育等國際交往合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798454-20250401.htm)
 
 ---
