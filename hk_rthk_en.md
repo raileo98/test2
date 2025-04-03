@@ -1,3 +1,51 @@
+# Hong Kong calls on US to withdraw 'bullying' tariffs
+
+![The SAR government says it'll take actions to defend the city's legitimate rights. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798851_1_20250403202459.jpg&q=85)
+  
+
+The SAR government has expressed strong disapproval and discontent over the United States for imposing a fresh round of tariffs and cancelling a duty-free exemption on small parcels.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm)
+
+---
+
+# Australia records hottest 12 months ever
+
+![The rolling 12-month period between April 2024 and March 2025 was 1.61 degrees Celsius above average. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798840_1_20250403190520.jpg&q=90)
+  
+
+Australia has just sweltered through its hottest 12 months on record, a weather official said on Thursday, a period of drenching floods, tropical cyclones and mass coral bleaching.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798840-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798840-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798840-20250403.htm)
+
+---
+
 # Hungary to withdraw from ICC as Israeli leader visits
 
 ![Israeli Prime Minister Benjamin Netanyahu (right) has enjoyed strong support over the years from Hungary's Viktor Orban (left). Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798838_1_20250403185544.jpg&q=90)
@@ -1391,53 +1439,5 @@ The Hang Seng Index lost 39.53 points, or 0.17 percent, to open at 23,167 points
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798565-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798565-20250402.htm)
-
----
-
-# Mass layoffs at major US health agencies
-
-![US Health Secretary Robert F Kennedy Jr said "Americans are getting sicker every year". File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798553_1_20250402090430.jpg&q=90)
-  
-
-Mass layoffs began at the major US health agencies on Tuesday as the Trump administration embarks on a sweeping and scientifically-contested restructuring that will cut 10,000 jobs.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798553-20250402.htm)
-
----
-
-# Volcano erupts in southwestern Iceland
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798551_1_20250402085600.jpg&q=85)
-  
-
-A volcano in southwestern Iceland - that has erupted repeatedly for more than a year - again belched lava and smoke into the air on Tuesday, just hours after authorities evacuated the few remaining residents of a nearby fishing village.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm)
 
 ---

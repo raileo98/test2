@@ -1,3 +1,27 @@
+# Hong Kong calls on US to withdraw 'bullying' tariffs
+
+![The SAR government says it'll take actions to defend the city's legitimate rights. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798851_1_20250403202459.jpg&q=85)
+  
+
+The SAR government has expressed strong disapproval and discontent over the United States for imposing a fresh round of tariffs and cancelling a duty-free exemption on small parcels.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm)
+
+---
+
 # Sanctions on officials are 'insults to rule of law'
 
 ![Law Society president Roden Tong takes issue with US targeting of public officials, lawyers or even businessmen for carrying out their duties. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798828_1_20250403175853.jpg&q=80)
@@ -1418,29 +1442,5 @@ Secretary for Constitutional and Mainland Affairs Erick Tsang said on Saturday t
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm)
-
----
-
-# Hong Kong sends rescue team to quake-stricken Myanmar
-
-![Members of the Fire Services Department, along with the Security Bureau and the Hospital Authority are part of the SAR's 51-strong rescue team. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798001_3_20250329162817.jpg&q=80)
-  
-
-Chief Executive John Lee on Saturday said Hong Kong will send a search and rescue team to Myanmar, after a magnitude 7.7 earthquake struck the country.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798001-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798001-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798001-20250329.htm)
 
 ---

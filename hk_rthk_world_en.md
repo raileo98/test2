@@ -1,3 +1,27 @@
+# Hong Kong calls on US to withdraw 'bullying' tariffs
+
+![The SAR government says it'll take actions to defend the city's legitimate rights. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798851_1_20250403202459.jpg&q=85)
+  
+
+The SAR government has expressed strong disapproval and discontent over the United States for imposing a fresh round of tariffs and cancelling a duty-free exemption on small parcels.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798851-20250403.htm)
+
+---
+
 # Australia records hottest 12 months ever
 
 ![The rolling 12-month period between April 2024 and March 2025 was 1.61 degrees Celsius above average. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798840_1_20250403190520.jpg&q=90)
@@ -1411,29 +1435,5 @@ The toll from Myanmar's earthquake continued to rise on Sunday, as foreign rescu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798150-20250330.htm)
-
----
-
-# Protesters target Tesla in anti-Musk campaign
-
-![Protesters hold up signs outside a Tesla dealership in Michigan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798089_1_20250330101458.jpg&q=80)
-  
-
-Demonstrators descended on Tesla dealerships across the United States and in Europe and Canada on Saturday to protest company chief Elon Musk, who has amassed extraordinary power as a top advisor to US President Donald Trump.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798089-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798089-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798089-20250330.htm)
 
 ---
