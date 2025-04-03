@@ -1,3 +1,27 @@
+# 港股美國預託證券較本港收市個別發展
+
+![滙控美國預託證券較本港收市跌逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798886_1_20250404053616.jpg&q=90)
+  
+
+滙控美國預託證券折合83.22港元，較本港收市跌逾3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798886-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798886-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798886-20250404.htm)
+
+---
+
 # 美元兌歐元、日圓及瑞士法郎跌至6個月低位
 
 ![美元兌主要貨幣下跌，兌歐元、日圓及瑞士法郎都跌至6個月低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798884_1_20250404052802.jpg&q=75)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm)
-
----
-
-# 美元指數失守103　兌日圓跌穿147　人民幣兌美元失守7.3
-
-![美元指數失守103水平，一度跌1%，較早時報102.17，跌幅0.96%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798816_1_20250403170058.jpg&q=85)
-  
-
-美國對多個國家及地區徵收對等關稅，美元指數失守103水平，一度跌1%，較早時報102.17，跌幅0.96%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798816-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798816-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798816-20250403.htm)
 
 ---

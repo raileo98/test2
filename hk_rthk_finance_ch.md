@@ -1,3 +1,27 @@
+# 港股美國預託證券較本港收市個別發展
+
+![滙控美國預託證券較本港收市跌逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798886_1_20250404053616.jpg&q=90)
+  
+
+滙控美國預託證券折合83.22港元，較本港收市跌逾3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798886-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798886-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798886-20250404.htm)
+
+---
+
 # 美元兌歐元、日圓及瑞士法郎跌至6個月低位
 
 ![美元兌主要貨幣下跌，兌歐元、日圓及瑞士法郎都跌至6個月低位。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798884_1_20250404052802.jpg&q=75)
@@ -1412,29 +1436,5 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798715-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798715-20250403.htm)
-
----
-
-# 港股美國預託證券較本港收市普遍下跌
-
-![阿里巴巴美國預託證券較本港收市跌近3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798724_1_20250403061712.jpg&q=90)
-  
-
-阿里巴巴美國預託證券折合126.27港元，較本港收市跌近3%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798724-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798724-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798724-20250403.htm)
 
 ---
