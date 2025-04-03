@@ -1,3 +1,27 @@
+# Hungary to withdraw from ICC as Israeli leader visits
+
+![Israeli Prime Minister Benjamin Netanyahu (right) has enjoyed strong support over the years from Hungary's Viktor Orban (left). Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798838_1_20250403185544.jpg&q=90)
+  
+
+Hungary's government has decided to withdraw from the International Criminal Court, it said on Thursday, shortly after Israeli leader Benjamin Netanyahu, sought under an ICC arrest warrant, arrived in the country for a state visit.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798838-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798838-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798838-20250403.htm)
+
+---
+
 # USA to host 2031 Women's World Cup, UK in 2035
 
 ![Spain are the current Fifa Women's World Cup champions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798854_1_20250403205634.jpg&q=80)
@@ -1415,29 +1439,5 @@ A volcano in southwestern Iceland - that has erupted repeatedly for more than a 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798551-20250402.htm)
-
----
-
-# Bielefeld shock holders Leverkusen in German Cup
-
-![Bielefeld players celebrate winning their German Cup semi-final match against Bayern Leverkusen. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798544_1_20250402073801.jpg&q=90)
-  
-
-German Cup holders Bayer Leverkusen suffered a shock 2-1 elimination at Arminia Bielefeld in the semi-finals of the competition.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798544-20250402.htm)
 
 ---

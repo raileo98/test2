@@ -1,3 +1,27 @@
+# 抵港男旅客攜近5萬支未完稅香煙　判監7個月
+
+![涉案男子在西九龍裁判法院被判處監禁7個月5天。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798855_1_20250403211404.jpg&q=90)
+  
+
+一名入境男旅客因進口未完稅香煙以及未有向海關人員作出申報，以及進口另類吸煙產品，在西九龍裁判法院被判處監禁7個月5天。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798855-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798855-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798855-20250403.htm)
+
+---
+
 # 國際油價急挫逾6%　OPEC+宣布加速增產
 
 ![倫敦布蘭特期油較早時報每桶70.44美元，跌幅6%。紐約期油報67.09美元，跌逾6.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798853_1_20250403204609.jpg&q=90)

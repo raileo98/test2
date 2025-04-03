@@ -1,3 +1,51 @@
+# Australia records hottest 12 months ever
+
+![The rolling 12-month period between April 2024 and March 2025 was 1.61 degrees Celsius above average. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798840_1_20250403190520.jpg&q=90)
+  
+
+Australia has just sweltered through its hottest 12 months on record, a weather official said on Thursday, a period of drenching floods, tropical cyclones and mass coral bleaching.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798840-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798840-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798840-20250403.htm)
+
+---
+
+# Hungary to withdraw from ICC as Israeli leader visits
+
+![Israeli Prime Minister Benjamin Netanyahu (right) has enjoyed strong support over the years from Hungary's Viktor Orban (left). Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798838_1_20250403185544.jpg&q=90)
+  
+
+Hungary's government has decided to withdraw from the International Criminal Court, it said on Thursday, shortly after Israeli leader Benjamin Netanyahu, sought under an ICC arrest warrant, arrived in the country for a state visit.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798838-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798838-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798838-20250403.htm)
+
+---
+
 # 'Not the season' as MH370 search suspended
 
 ![Relatives of the missing MH370 passengers gather in Beijing last month on the 11th anniversary of the flight’s disappearance. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798795_1_20250403145825.jpg&q=90)
@@ -1387,53 +1435,5 @@ Demonstrators descended on Tesla dealerships across the United States and in Eur
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798089-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798089-20250330.htm)
-
----
-
-# Mexico brings in junk food ban
-
-![A man walks past a sign that refers to the labelling of products, in the subway of Mexico City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798081_1_20250330075336.jpg&q=90)
-  
-
-A government-sponsored junk food ban in schools across Mexico took effect on Saturday, officials said, as the country tries to tackle one of the world’s worst obesity and diabetes epidemics.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798081-20250330.htm)
-
----
-
-# Japan beef bowl chain to shut stores over rat and bug
-
-![Fast-food company Sukiya has about 1,970 stores across Japan. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798050_1_20250329221759.jpg&q=90)
-  
-
-Japanese restaurant chain Sukiya will temporarily shut nearly all of its roughly 2,000 branches after a rat was found in a miso soup and a bug was found in another meal, the company said on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798050-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798050-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798050-20250329.htm)
 
 ---
