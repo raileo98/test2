@@ -1,3 +1,27 @@
+# 內塔尼亞胡讚揚匈牙利退出國際刑事法院是大膽和有原則
+
+![歐爾班與內塔尼亞胡見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798878_1_20250404034254.jpg&q=90)
+  
+
+到訪布達佩斯的以色列總理內塔尼亞胡，讚揚匈牙利退出國際刑事法院是大膽及有原則的決定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798878-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798878-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798878-20250404.htm)
+
+---
+
 # 馬克龍呼籲暫停對美投資　歐盟成員國下周表決鋼鋁關稅反制措施
 
 ![馬克龍會見工業界代表時形容，新關稅是野蠻而且毫無根據。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798877_1_20250404032220.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798555-20250402.htm)
-
----
-
-# 北韓譴責美日加速推動武器裝備聯合生產
-
-![北韓強烈譴責美日推動武器裝備聯合生產，指是加劇地區不穩定的新因素。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798550_1_20250402084915.jpg&q=90)
-  
-
-北韓強烈譴責美國和日本加速推動武器裝備聯合生產，指這是加劇地區不穩定的新因素，並強調北韓將繼續儲備強大的威懾力量。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798550-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798550-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798550-20250402.htm)
 
 ---

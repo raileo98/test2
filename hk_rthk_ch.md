@@ -1,3 +1,27 @@
+# 內塔尼亞胡讚揚匈牙利退出國際刑事法院是大膽和有原則
+
+![歐爾班與內塔尼亞胡見記者。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798878_1_20250404034254.jpg&q=90)
+  
+
+到訪布達佩斯的以色列總理內塔尼亞胡，讚揚匈牙利退出國際刑事法院是大膽及有原則的決定。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798878-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798878-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798878-20250404.htm)
+
+---
+
 # 馬克龍呼籲暫停對美投資　歐盟成員國下周表決鋼鋁關稅反制措施
 
 ![馬克龍會見工業界代表時形容，新關稅是野蠻而且毫無根據。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798877_1_20250404032220.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798808-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798808-20250403.htm)
-
----
-
-# 消防處：明日清明節天氣較乾燥　發生山火或處高水平
-
-![消防處表示，明日天氣預計會較乾燥，發生山火的機會或處於高水平。（崔蔚恩攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798807_2_20250403171519.jpg&q=80)
-  
-
-明日是清明節。消防處表示，明日天氣預計會較乾燥，發生山火的機會或處於高水平。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798807-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798807-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798807-20250403.htm)
 
 ---
