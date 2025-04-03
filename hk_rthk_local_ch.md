@@ -1,3 +1,27 @@
+# 清明節長假期開始　深圳口岸料日均95萬人次出入境
+
+![當局預計，羅湖、福田和深圳灣口岸是承擔假期出入境客流的主力口岸。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798876_1_20250404025651.jpg&q=90)
+  
+
+清明節長假期今日開始，深圳口岸辦預計，假期期間日均出入境人數95萬人次，其中今日是出入境高峰，預計單日客流量達103萬人次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm)
+
+---
+
 # 醫衞局指星島日報有關控煙政策報道失實　措施不影響旅客訪港意欲
 
 ![醫務衞生局表示，對有關報道內容失實和誤導公眾表示遺憾。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798863_1_20250403215824.jpg&q=80)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm)
-
----
-
-# 劉國勳倡設指定吸煙區打擊「火車頭」　吳傑莊冀當局考慮旅客看法
-
-![劉國勳建議當局可考慮設立指定吸煙區，有助打擊「火車頭」情況。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798664_1_20250402191055.jpg&q=80)
-  
-
-消息指，政府最快本月底向立法會提交有關控煙的修訂條例草案，包括建議擴大禁煙區、排隊輪候公共交通工具時禁煙等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798664-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798664-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798664-20250402.htm)
 
 ---

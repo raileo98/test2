@@ -1,3 +1,27 @@
+# 清明節長假期開始　深圳口岸料日均95萬人次出入境
+
+![當局預計，羅湖、福田和深圳灣口岸是承擔假期出入境客流的主力口岸。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798876_1_20250404025651.jpg&q=90)
+  
+
+清明節長假期今日開始，深圳口岸辦預計，假期期間日均出入境人數95萬人次，其中今日是出入境高峰，預計單日客流量達103萬人次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm)
+
+---
+
 # 澳門入境旅客突破1千萬人次　恢復至疫情前同期九成半水平
 
 ![澳門今年入境旅各量，比去年提前了11天突破1千萬人次。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798867_1_20250403223907.jpg&q=80)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798548-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798548-20250402.htm)
-
----
-
-# 中方轉交中國紅十字會向緬甸所提供150萬元人民幣現匯援助
-
-![中國向緬甸提供1億元人民幣緊急人道主義地震救災援助。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798527_1_20250402031421.jpg&q=80)
-  
-
-中國駐緬甸使館公使銜參贊曹靜，昨日在仰光會見緬甸紅十字會主席苗紐，轉交中國紅十字會向緬方提供的150萬元人民幣現匯援助。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798527-20250402.htm)
 
 ---

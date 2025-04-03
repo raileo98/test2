@@ -1,3 +1,27 @@
+# 清明節長假期開始　深圳口岸料日均95萬人次出入境
+
+![當局預計，羅湖、福田和深圳灣口岸是承擔假期出入境客流的主力口岸。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798876_1_20250404025651.jpg&q=90)
+  
+
+清明節長假期今日開始，深圳口岸辦預計，假期期間日均出入境人數95萬人次，其中今日是出入境高峰，預計單日客流量達103萬人次。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798876-20250404.htm)
+
+---
+
 # 以軍周四轟炸加沙致過百死　哈馬斯籲國際社會向以色列施壓
 
 ![加沙城有巴勒斯坦人響應以軍呼籲撤走。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798875_1_20250404021651.jpg&q=85)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798806-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798806-20250403.htm)
-
----
-
-# 外交部：反對美國打著「對等」幌子加關稅　促美方糾正錯誤做法
-
-![外交部發言人郭嘉昆表示，中方堅決反對美方打著「對等」的幌子，對中國在內的多國輸美產品加徵關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798804_1_20250403154448.jpg&q=90)
-  
-
-在北京，外交部回應美國加徵關稅，發言人郭嘉昆表示，美方打著「對等」的幌子，對包括中國在內的多國輸美產品加徵關稅，嚴重違反世貿組織規則，嚴重損害以規則為基礎的多邊貿易體制。中方對此堅決反對，將採取必要措施堅定維護自身正當利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm)
 
 ---
