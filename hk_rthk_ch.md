@@ -1,3 +1,27 @@
+# 美元指數跌幅擴大至近2%　兌日圓跌穿146　離岸人民幣反彈
+
+![美元指數失守102水平，較早時報101.36，跌幅逾1.7%；美元兌日圓較早時跌逾2.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798869_1_20250403230641.jpg&q=85)
+  
+
+美國總統特朗普公布的對等關稅政策，較市場預期激進，金融市場顯著波動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798869-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798869-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798869-20250403.htm)
+
+---
+
 # 道指曾跌近1600點　納指跌逾5%
 
 ![道瓊斯指數一度跌近1600點，較早時報40723點，跌1501點，跌幅3.56%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798868_1_20250403224545.jpg&q=90)
@@ -24,6 +48,7 @@
 
 # 標普全球美國3月服務業PMI終值為54.4　略好過預期
 
+![標普全球公布，美國3月服務業PMI終值為54.4，略好過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798866_1_20250403231739.jpg&q=90)
   
 
 標普全球公布，美國3月服務業採購經理指數（PMI）終值為54.4，好過市場預期及初值的54.3。
@@ -70,7 +95,7 @@
 
 ---
 
-# ISM：美國3月非製造業指數跌至50.8　低過預期
+# ISM：美國3月非製造業指數跌至50.8　創9個月最低
 
 ![美國供應管理協會（ISM）3月非製造業指數為50.8，跌至9月個月以來最低，低過市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798864_1_20250403231006.jpg&q=85)
   
