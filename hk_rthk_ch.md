@@ -1,5 +1,53 @@
+# 海關關長晤荷蘭官員冀加強雙方海關事務協作
+
+  
+
+海關關長陳子達與訪港的荷蘭海關關長及荷蘭駐香港總領事於海關總部大樓會面，藉此增進雙方友好關係以及加強在海關事務上的協作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm)
+
+---
+
+# 美國2月貿易逆差約1227億美元　對華逆差收窄
+
+![美國2月貿易逆差1226.6億美元，按月收窄6%，少過市場預期的1235億美元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798859_1_20250403213336.jpg&q=80)
+  
+
+美國商務部公布，美國2月貿易逆差1226.6億美元，按月收窄6%，少過市場預期的1235億美元。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798859-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798859-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798859-20250403.htm)
+
+---
+
 # 羅淑佩拜會國家文化和旅遊部及國家電影局
 
+![文化體育及旅遊局局長羅淑佩（左）繼續北京拜訪行程，拜會國家文化和旅遊部副部長高政（右）。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798858_1_20250403213512.jpg&q=85)
   
 
 文化體育及旅遊局局長羅淑佩與代表團部分成員繼續北京行程，拜會國家文化和旅遊部及國家電影局。

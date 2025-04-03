@@ -1,3 +1,50 @@
+# 海關關長晤荷蘭官員冀加強雙方海關事務協作
+
+  
+
+海關關長陳子達與訪港的荷蘭海關關長及荷蘭駐香港總領事於海關總部大樓會面，藉此增進雙方友好關係以及加強在海關事務上的協作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm)
+
+---
+
+# 羅淑佩拜會國家文化和旅遊部及國家電影局
+
+![文化體育及旅遊局局長羅淑佩（左）繼續北京拜訪行程，拜會國家文化和旅遊部副部長高政（右）。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798858_1_20250403213512.jpg&q=85)
+  
+
+文化體育及旅遊局局長羅淑佩與代表團部分成員繼續北京行程，拜會國家文化和旅遊部及國家電影局。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm)
+
+---
+
 # 抵港男旅客攜近5萬支未完稅香煙　判監7個月
 
 ![涉案男子在西九龍裁判法院被判處監禁7個月5天。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798855_1_20250403211404.jpg&q=90)
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798662-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798662-20250402.htm)
-
----
-
-# 周一鳴：重點工作包括維護國家安全　很多人以不同方式「軟對抗」
-
-![周一鳴表示，會繼續以忠誠勇毅、心繫社會的精神，帶領警隊確保香港安全穩定。（潘子穎攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798661_1_20250402190619.jpg&q=80)
-  
-
-國務院任命周一鳴為新任警務處處長，接替退休的蕭澤頤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798661-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798661-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798661-20250402.htm)
-
----
-
-# 周一鳴接任警務處處長　維護國家安全屬重點工作方向
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798646_1_20250402183815.jpg&q=90)
-  
-
-國務院根據行政長官李家超的提名及建議，任命原本擔任警務處副處長的周一鳴，出任警務處處長，接替退休的蕭澤頤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798646-20250402.htm)
 
 ---
