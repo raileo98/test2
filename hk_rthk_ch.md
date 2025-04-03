@@ -1,3 +1,27 @@
+# 滬股半日跌0.5%　創業板跌近2%
+
+![上證指數半日收報3333點，跌17點，跌幅0.51%。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798768_2_20250403115136.jpg&q=90)
+  
+
+內地股市反覆向下，汽車產業鏈、家電股下跌；養殖、貴金屬、旅遊酒店股造好。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798768-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798768-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798768-20250403.htm)
+
+---
+
 # 國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜
 
 ![國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798764_1_20250403114245.jpg&q=90)
@@ -24,6 +48,7 @@
 
 # 強積金顧問：今年以來強積金人均回報逾9100元
 
+![強積金顧問公司GUM表示，今年至上星期五，強積金人均賺約9126元，相當於去年人均回報的42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798767_1_20250403115106.jpg&q=80)
   
 
 強積金顧問公司GUM表示，今年至上星期五，旗下強積金綜合指數升3.3%，報253.5。期內，強積金人均賺約9126元，相當於去年人均回報的42%。
@@ -1410,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798694-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798694-20250402.htm)
-
----
-
-# 緬甸地震增至逾三千人死　軍方宣布暫時停火以便救災
-
-![緬甸大地震增至超過3000人死亡，軍方宣布暫時停火以便救災。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798693_1_20250402225256.jpg&q=50)
-  
-
-緬甸大地震增至超過3000人死亡，4500多人受傷，仍然有350多人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798693-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798693-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798693-20250402.htm)
 
 ---
