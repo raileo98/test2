@@ -1,6 +1,53 @@
-# 美元指數一度失守102關口
+# 中證監召開民營科企座談會　將加快推動新一輪資本市場改革開放
 
-![美元指數一度失守102關口，低見101.95，較早時報102.1，跌幅逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798825_1_20250403173046.jpg&q=90)
+![吳清表示，民營經濟是國民經濟的重要組成部分，是推動科技創新的重要力量，將加快推動新一輪資本市場改革開放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798831_1_20250403181034.jpg&q=90)
+  
+
+中國證監會近日召開深化資本市場投融資綜合改革民營科技企業座談會。中證監主席吳清表示，民營經濟是國民經濟的重要組成部分，是推動科技創新的重要力量，將加快推動新一輪資本市場改革開放。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm)
+
+---
+
+# 特區政府強烈不滿美國向香港產品加徵關稅　香港郵政不會代收關稅
+
+  
+
+特區政府表示，強烈反對及不滿美國向香港產品加徵所謂對等關稅，並由5月2日起取消香港產品的小額免稅待遇及徵收關稅，再次嚴正要求美方撤回。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm)
+
+---
+
+# 美元指數一度失守102關口　創約半年新低
+
+![美元指數失守102關口，創去年10月初以來最低，低見101.95，較早時報102.1，跌幅逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798825_1_20250403173046.jpg&q=90)
   
 
 美國對多個國家及地區徵收對等關稅，美元兌多個貨幣沽壓顯著。
@@ -94,7 +141,7 @@
 
 ---
 
-# 港股低收352點　本周累跌近2.5%
+# 港股低收352點　本周累計跌近2.5%
 
 ![恒生指數收市報22849點，跌352點，跌幅約1.52%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798811_1_20250403163254.jpg&q=15)
   
@@ -1387,53 +1434,5 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798651-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798651-20250402.htm)
-
----
-
-# 郵儲銀行：配股定價兼顧新舊股東利益　料短期造成一定攤薄
-
-![郵儲銀行副行長杜春野說，考慮到A股股價明顯高於H股，透過A股溢價發行，是對兩地投資者的充分呵護，強調定價兼顧了新舊股東利益。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798649_1_20250402185517.jpg&q=90)
-  
-
-郵儲銀行計劃向財政部、中國移動集團及中國船舶集團，發行A股集資1300億元人民幣，是銀行歷來最大的融資項目；每股發行價6.32元，較公告前收市價溢價近22%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798649-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798649-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798649-20250402.htm)
-
----
-
-# 3月送交註冊住宅樓宇買賣合約按月升近70%
-
-![土地註冊處公布，3月住宅樓宇買賣合約佔5367份，按月升67.7%，按年升35.2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798632_1_20250402155550.jpg&q=85)
-  
-
-土地註冊處公布，3月送交註冊的所有種類樓宇買賣合約共6661份，按月升54.7%，按年升32.9%，買賣合約總值456億元，按月升61.4%，按年升22.1%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798632-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798632-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798632-20250402.htm)
 
 ---

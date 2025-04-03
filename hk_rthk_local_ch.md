@@ -1,6 +1,56 @@
+# 特區救援隊指揮官趙汝珏：天氣炎熱惟救出傷者後士氣高昂
+
+![趙汝珏說，特區救援隊已經抵步第六日，當地天氣非常熱，日間超過40度，夜間超過30度，對體能消耗有一定壓力。(香港消防處社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798829_1_20250403181259.jpg&q=90)
+  
+
+緬甸大地震發生超過5日，中國救援隊伍經過3個多小時的救援工作，當地昨日下午5時許在曼德勒金色鄉村酒店救援點，成功救出一名被困近125小時的52歲緬甸男性。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm)
+
+---
+
+# 特區政府強烈不滿美國向香港產品加徵關稅　香港郵政不會代收關稅
+
+  
+
+特區政府表示，強烈反對及不滿美國向香港產品加徵所謂對等關稅，並由5月2日起取消香港產品的小額免稅待遇及徵收關稅，再次嚴正要求美方撤回。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm)
+
+---
+
 # 香港律師會訪京　湯文龍稱任何對公職人員制裁都是對法治侮辱
 
   
+
+美國國務院早前宣布，對6名中央和香港特區官員實施制裁。香港律師會會長湯文龍表示，不以政治角度評論事件，就法律角度而言，任何對於公職人員的制裁都是對法治的侮辱。他説，任何人包括律政司司長，根據《基本法》下行使應有的權利，不應該受到干預和制裁。如果制裁是透過政治手段，作爲法律從業員，他們對此予以譴責。
+
   
 
 
@@ -1382,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798643-20250402.htm)
-
----
-
-# 衞生署報告：學童以電子屏幕產品娛樂有上升趨勢
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798642_1_20250402170200.jpg&q=90)
-  
-
-衞生署公布《學生健康服務2023至24學年周年健康報告》。今次是新冠疫情後，首次全面恢復為所有中小學生提供周年健康檢查，共有約25萬7000名小學生，以及17萬3000名中學生接受服務，出席率佔原本報名人數大約七成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798642-20250402.htm)
-
----
-
-# 規範籃球博彩諮詢展開　不得接受香港球隊參與及香港賽事投注
-
-![政府建議參考規管足球博彩的做法，透過修訂《博彩稅條例》，訂立籃球博彩活動的規管框架。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798637_1_20250402170130.jpg&q=85)
-  
-
-政府就規範籃球博彩活動的建議方案展開諮詢，諮詢期至下月2日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798637-20250402.htm)
 
 ---

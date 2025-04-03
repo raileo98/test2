@@ -1,3 +1,51 @@
+# Sanctions on officials are 'insults to rule of law'
+
+![Law Society president Roden Tong takes issue with US targeting of public officials, lawyers or even businessmen for carrying out their duties. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798828_1_20250403175853.jpg&q=80)
+  
+
+Any sanctions imposed on public officers are "insults" to the rule of law, the head of Hong Kong's Law Society said on Thursday, days after the United States took action against six officials.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798828-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798828-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798828-20250403.htm)
+
+---
+
+# Boxing coach charged over Fo Tan murder
+
+![A Shatin Court magistrate adjourned the case until May 29. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798826_1_20250403175151.jpg&q=90)
+  
+
+A boxing coach charged with murdering a man in Fo Tan last month appeared in Shatin Court on Thursday, after he was arrested in Thailand and sent back to Hong Kong this week.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798826-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798826-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798826-20250403.htm)
+
+---
+
 # SAR women's cycling team wins Tour of Thailand
 
 ![The Hong Kong, China, team finished in an overall time of 19 hours, 43 minutes and 37 seconds. Photo courtesy of The Princess Maha Chakri Sirindhorn's Cup Tour of Thailand](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798818_1_20250403171524.jpg&q=80)
@@ -1391,53 +1439,5 @@ Real Madrid edged into the Copa del Rey final with a thrilling 4-4 draw against 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798540-20250402.htm)
-
----
-
-# Trump 'perfecting' tariffs with hours to go
-
-![White House Press Secretary Karoline Leavitt told a briefing that the tariffs would take effect "immediately" after the announcement. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798530_1_20250402033307.jpg&q=90)
-  
-
-US President Donald Trump kept the world's leading economies on edge on Tuesday as he made final preparations for a "Liberation Day" announcement of sweeping new tariffs that could trigger a global trade war.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798530-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798530-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798530-20250402.htm)
-
----
-
-# French court to hear far-right leader's appeal
-
-![Marine Le Pen on Monday was given a prison term and fine after being convicted of a fake jobs scheme at the EU parliament. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798529_1_20250402032757.jpg&q=90)
-  
-
-A French appeals court said on Tuesday it would examine Marine Le Pen's case within a timeframe that could potentially allow the far-right leader to contest the 2027 presidential election if her conviction is overturned.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798529-20250402.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 中證監召開民營科企座談會　將加快推動新一輪資本市場改革開放
+
+![吳清表示，民營經濟是國民經濟的重要組成部分，是推動科技創新的重要力量，將加快推動新一輪資本市場改革開放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798831_1_20250403181034.jpg&q=90)
+  
+
+中國證監會近日召開深化資本市場投融資綜合改革民營科技企業座談會。中證監主席吳清表示，民營經濟是國民經濟的重要組成部分，是推動科技創新的重要力量，將加快推動新一輪資本市場改革開放。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm)
+
+---
+
+# 美國對華徵收34%對等關稅　特朗普任內稅率增至54%
+
+  
+
+美國總統特朗普簽署他形容為歷史性的行政命令，向多個與美國有貿易往來的國家及地區實施對等關稅，下星期三生效。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm)
+
+---
+
 # 商務部：中歐同意盡快重啟電動汽車反補貼案價格承諾談判
 
 ![何亞東說，中歐雙方同意盡快重啟電動汽車反補貼案價格承諾談判，為推動中歐企業開展投資和產業合作營造良好的環境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798822_1_20250403172239.jpg&q=75)
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798480-20250401.htm)
-
----
-
-# 緬甸地震增至逾2700人死亡　中國救援隊伍已救出8名倖存者
-
-![中國救援隊在曼德勒協助救援。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798479_1_20250401173446.jpg&q=90)
-  
-
-緬甸中部大地震發生至今，增至超過2700人死亡，4500多人受傷，超過440人失蹤。新華社報道，截至當地今早8時，中國救援隊伍共搜救出8名倖存者。至於在當地的特區救援隊，早上首次聯同中國救援隊搜救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798479-20250401.htm)
-
----
-
-# 外交部：伊朗核問題再走到十字路口　美方應早日回歸復談
-
-![郭嘉昆說，美方應展現政治誠意，早日回歸復談，制裁施壓、武力威脅沒有出路。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798478_1_20250401172222.jpg&q=90)
-  
-
-美國總統特朗普早前警告，如果伊朗不與美國就核問題達成協議，美國將轟炸伊朗，並對伊朗產品徵收關稅。在北京，外交部發言人郭嘉昆表示，伊朗核問題全面協議的執行因美方執意退出而受到干擾，美方應展現政治誠意，早日回歸復談，制裁施壓、武力威脅沒有出路。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798478-20250401.htm)
 
 ---

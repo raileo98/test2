@@ -1,3 +1,51 @@
+# Sanctions on officials are 'insults to rule of law'
+
+![Law Society president Roden Tong takes issue with US targeting of public officials, lawyers or even businessmen for carrying out their duties. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798828_1_20250403175853.jpg&q=80)
+  
+
+Any sanctions imposed on public officers are "insults" to the rule of law, the head of Hong Kong's Law Society said on Thursday, days after the United States took action against six officials.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798828-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798828-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798828-20250403.htm)
+
+---
+
+# Boxing coach charged over Fo Tan murder
+
+![A Shatin Court magistrate adjourned the case until May 29. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798826_1_20250403175151.jpg&q=90)
+  
+
+A boxing coach charged with murdering a man in Fo Tan last month appeared in Shatin Court on Thursday, after he was arrested in Thailand and sent back to Hong Kong this week.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798826-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798826-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798826-20250403.htm)
+
+---
+
 # Man convicted of Yuen Long rioting after retrial
 
 ![A District Court judge says the defendant took part in "an indiscriminate attack" inside Yuen Long MTR station. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798783_1_20250403125539.jpg&q=90)
@@ -1394,56 +1442,5 @@ Chief Executive John Lee on Saturday said Hong Kong will send a search and rescu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798001-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798001-20250329.htm)
-
----
-
-# Some people need to seek alternatives to A&E, Lo says
-
-![Health chief Lo Chung-mau hopes the public can turn to other choices than A&E when the new fees take effect next year. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797998_1_20250329122451.jpg&q=85)
-  
-
-The Secretary for Health Lo Chung-mau says he hopes some people can find alternatives to accident and emergency wards at public hospitals at all times when new fees take effect.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797998-20250329.htm)
-
----
-
-# 'Amazing, crazy' action on day two of Rugby Sevens
-
-![Team France celebrate after downing New Zealand 21-14. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_4_20250329210652.jpg&q=90)
-![The Hong Kong China men’s squad beat Japan 43-21 in the Melrose Claymores competition. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_3_20250329161738.jpg&q=90)
-![Fiji and Britain's women's teams face off at Kai Tak Stadium. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_1_20250329121802.jpg&q=85)
-![Argentina beats Fiji in the men's Rugby Sevens match. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797997_2_20250329131539.jpg&q=90)
-  
-
-Both the men’s and women’s squads for the SAR on Saturday kept their winning streak alive on day two of the Hong Kong Sevens, which also saw an end to New Zealand's campaign to win a third-straight title.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1797997-20250329.htm)
 
 ---
