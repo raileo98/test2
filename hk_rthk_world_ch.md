@@ -1,3 +1,27 @@
+# 特朗普暗示關稅帶來衝擊但美國經濟將變得強勁　白宮籲相信總統
+
+![美國總統特朗普公布的對等關稅措施引發市場動盪。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798874_1_20250404014823.jpg&q=90)
+  
+
+美國總統特朗普公布的對等關稅措施引發市場動盪後，特朗普在社交平台貼文，指手術已結束，病人存活過來並正在康復，預計會比以前更強大。外電解讀為特朗普承認關稅帶來衝擊，但美國經濟仍將會變得更強勁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm)
+
+---
+
 # 世貿組織稱美國關稅措施或致全球商品貿易量今年萎縮約1%
 
 ![伊維拉呼籲世貿成員防止貿易緊張局勢加劇。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798873_1_20250404012242.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798533-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798533-20250402.htm)
-
----
-
-# 伊朗外長稱任何情況下不尋求及生產或獲取核武
-
-![阿拉格奇向國際原子能機構介紹伊朗和平核計劃的進展及相關外交磋商。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798531_1_20250402035611.jpg&q=90)
-  
-
-伊朗外交部長阿拉格奇表示，伊朗重申在任何情況下，都不會尋求、生產或獲取核武器。他說伊朗核協議簽署已過去10年，自美國單方面退出協議已7年，至今沒有任何證據表明伊朗違反協議承諾，又指過去的外交互動已證明協議有效性，如今仍然可行，但所有人都必須清楚，沒有所謂的「軍事選項」，更不用說「軍事解決方案」。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798531-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798531-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798531-20250402.htm)
 
 ---

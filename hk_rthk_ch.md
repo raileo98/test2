@@ -1,3 +1,27 @@
+# 特朗普暗示關稅帶來衝擊但美國經濟將變得強勁　白宮籲相信總統
+
+![美國總統特朗普公布的對等關稅措施引發市場動盪。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798874_1_20250404014823.jpg&q=90)
+  
+
+美國總統特朗普公布的對等關稅措施引發市場動盪後，特朗普在社交平台貼文，指手術已結束，病人存活過來並正在康復，預計會比以前更強大。外電解讀為特朗普承認關稅帶來衝擊，但美國經濟仍將會變得更強勁。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798874-20250404.htm)
+
+---
+
 # 世貿組織稱美國關稅措施或致全球商品貿易量今年萎縮約1%
 
 ![伊維拉呼籲世貿成員防止貿易緊張局勢加劇。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798873_1_20250404012242.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798805-20250403.htm)
-
----
-
-# 英法德股市初段跌逾1%至逾2%
-
-![英國、法國和德國股市在開市初段跌逾1%至逾2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798803_1_20250403153700.jpg&q=90)
-  
-
-歐洲主要股市初段下跌，美國對多個國家及地區徵收對等關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm)
 
 ---
