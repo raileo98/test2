@@ -1,5 +1,29 @@
+# 西藏鐵路擴展改善居民出行及商業活動發展
+
+  
+
+西藏的鐵路系統自2006年通車後逐步擴展，改善當地居民出行及商業活動發展，截至今年2月，累計運載超過3875萬旅客人次、貨物約9200萬噸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798779-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798779-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798779-20250403.htm)
+
+---
+
 # 有立會議員稱美方關稅措施影響全球貿易導致利率高企
 
+![美國取消中國內地和香港的小額包裹豁免關稅政策 。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798771_1_20250403124051.jpg&q=90)
   
 
 因應美國對中國進口產品徵收新關稅安排，並取消中國內地和香港的小額包裹豁免關稅政策 。有立法會議員批評美方的做法，影響全球貿易，將導致利率高企，影響經商。
@@ -46,6 +70,7 @@
 
 # 康體通本月8日部分時間暫停服務進行系統升級工程
 
+![SmartPLAY康體通將於本月8日早上10時30分至下午4時30分暫停服務，以便進行系統升級工程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798776_1_20250403123344.jpg&q=80)
   
 
 康文署宣布，為提升服務質素，SmartPLAY康體通將於本月8日早上10時30分至下午4時30分暫停服務，以便進行系統升級工程。SmartPLAY康體通用戶如需於上述日期使用系統預訂康體設施或報名參加康體活動，請預早安排，在服務暫停時段之前或後使用系統。

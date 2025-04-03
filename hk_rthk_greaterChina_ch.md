@@ -1,3 +1,26 @@
+# 西藏鐵路擴展改善居民出行及商業活動發展
+
+  
+
+西藏的鐵路系統自2006年通車後逐步擴展，改善當地居民出行及商業活動發展，截至今年2月，累計運載超過3875萬旅客人次、貨物約9200萬噸。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798779-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798779-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798779-20250403.htm)
+
+---
+
 # 國家消防救援局：今年首季逾1800宗電動自行車火災
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798437-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798437-20250401.htm)
-
----
-
-# 王毅：美方倘一味施壓　中方必將堅決反制
-
-![王毅說，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798425_1_20250401124309.jpg&q=90)
-  
-
-中共中央政治局委員、外長王毅說，中國從來不接受強權霸權，美方如果一味施壓，甚至繼續搞各種訛詐，中方必將堅決反制。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm](https://news.rthk.hk/rthk/ch/component/k2/1798425-20250401.htm)
 
 ---

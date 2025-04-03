@@ -1,3 +1,27 @@
+# Japan says tariffs may break WTO rules, deal with US
+
+![Yoji Muto says he spoke to US Commerce Secretary Howard Lutnick but Donald Trump's announcement showed it was to no avail. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798781_1_20250403123758.jpg&q=90)
+  
+
+Japan slammed as "extremely regrettable" US President Donald Trump's sweeping new tariffs, saying they may break WTO rules and the two countries' trade agreement.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm)
+
+---
+
 # Chinese rescuers fill vacuum US cuts leave in Myanmar
 
 ![Chinese rescue workers work at the site of a collapsed building in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798770_1_20250403120430.jpg&q=75)
@@ -1411,29 +1435,5 @@ A Chinese rescue team arrived at Yangon International Airport in Myanmar on Satu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798044-20250329.htm)
-
----
-
-# S Korea firefighters use helicopters as fires reignite
-
-![Charred houses stand in ruins in Namhu, a village ravaged by the wildfires in Andong. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798033_1_20250329183107.jpg&q=80)
-  
-
-South Korean firefighters deployed helicopters on Saturday as the country's biggest wildfires on record that ravaged wide areas of its southeast reignited in one of the region's cities, an official said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798033-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798033-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798033-20250329.htm)
 
 ---

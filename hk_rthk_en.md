@@ -1,3 +1,27 @@
+# Japan says tariffs may break WTO rules, deal with US
+
+![Yoji Muto says he spoke to US Commerce Secretary Howard Lutnick but Donald Trump's announcement showed it was to no avail. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798781_1_20250403123758.jpg&q=90)
+  
+
+Japan slammed as "extremely regrettable" US President Donald Trump's sweeping new tariffs, saying they may break WTO rules and the two countries' trade agreement.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm](https://news.rthk.hk/rthk/en/component/k2/1798781-20250403.htm)
+
+---
+
 # Chinese rescuers fill vacuum US cuts leave in Myanmar
 
 ![Chinese rescue workers work at the site of a collapsed building in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798770_1_20250403120430.jpg&q=75)
@@ -1415,29 +1439,5 @@ Police have arrested two people after busting a cannabis production facility in 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798475-20250401.htm)
-
----
-
-# ESF proposes to raise tuition fees by 4.8 percent
-
-![The proposed ESF increase means parents would have to fork out HK$650 to HK$750 more a month. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798469_1_20250401170058.jpg&q=90)
-  
-
-The English Schools Foundation (ESF) on Tuesday proposed to raise tuition fees by an average of 4.8 percent in the coming academic year.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm](https://news.rthk.hk/rthk/en/component/k2/1798469-20250401.htm)
 
 ---
