@@ -1,3 +1,26 @@
+# ISM：美國3月非製造業指數跌至50.8　低過預期
+
+  
+
+美國供應管理協會（ISM）3月非製造業指數為50.8，低過市場預期的53，及2月的53.5。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798864-20250403.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798864-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798864-20250403.htm)
+
+---
+
 # 醫衞局指星島日報有關控煙政策報道失實　措施不影響旅客訪港意欲
 
 ![醫務衞生局表示，對有關報道內容失實和誤導公眾表示遺憾。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798863_1_20250403215824.jpg&q=80)
