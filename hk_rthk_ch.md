@@ -1,3 +1,27 @@
+# 英超車路士1:0小勝熱刺
+
+![車路士憑安素費南迪斯攻入全場唯一入球，以1:0小勝熱刺。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798889_1_20250404071803.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，車路士憑安素費南迪斯攻入全場唯一入球，以1:0小勝熱刺。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798889-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798889-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798889-20250404.htm)
+
+---
+
 # 港股美國預託證券較本港收市個別發展
 
 ![滙控美國預託證券較本港收市跌逾3%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798886_1_20250404053616.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798817-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798817-20250403.htm)
-
----
-
-# 習近平向老撾國家主席致唁電　就坎代逝世表示沉痛哀悼
-
-![習近平說，中方願與老方一起努力，推動中老命運共同體建設以及各自社會主義事業不斷取得更大發展。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798819_1_20250403171724.jpg&q=90)
-  
-
-中共中央總書記、國家主席習近平向老撾人民革命黨中央總書記、國家主席通倫致唁電，對老撾黨和國家前主席坎代逝世表示沉痛哀悼，並向坎代的家屬致以誠摯慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798819-20250403.htm)
 
 ---

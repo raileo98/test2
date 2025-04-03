@@ -1,3 +1,27 @@
+# 英超車路士1:0小勝熱刺
+
+![車路士憑安素費南迪斯攻入全場唯一入球，以1:0小勝熱刺。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798889_1_20250404071803.jpg&q=90)
+  
+
+英格蘭超級足球聯賽，車路士憑安素費南迪斯攻入全場唯一入球，以1:0小勝熱刺。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798889-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798889-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798889-20250404.htm)
+
+---
+
 # 配合三項鐵人賽事　中環及灣仔本周五至周日有封路及特別交通安排
 
 ![亞洲三鐵半奧運距離錦標賽明日起，一連三日在中環海濱舉行，中環及灣仔將有封路及特別交通安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798801_1_20250403161530.jpg&q=80)
@@ -1432,29 +1456,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm)
-
----
-
-# 世界盃歐洲區外圍賽　威爾士3:1擊敗哈薩克
-
-![威爾士在J組首輪賽事，3:1擊敗哈薩克。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796988_1_20250323070655.jpg&q=85)
-  
-
-世界盃歐洲區外圍賽，威爾士在J組首輪賽事，3:1擊敗哈薩克。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796988-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796988-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796988-20250323.htm)
 
 ---
