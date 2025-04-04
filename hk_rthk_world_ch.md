@@ -1,6 +1,9 @@
-# 商務部將斯凱迪奧公司等11間美國企業列入不可靠實體清單
+# 中方將斯凱迪奧公司等11間美國企業列入不可靠實體清單
 
   
+
+在北京，商務部表示，為維護國家主權、安全和發展利益，根據《對外貿易法》、《國家安全法》及《反外國制裁法》等有關法律，依據《不可靠實體清單規定》，決定將斯凱迪奧公司等11間實體，列入不可靠實體清單，禁止有關企業從事與中國有關的進出口活動，並禁止他們在中國境內新增投資。公告自公布日起實施。
+
   
 
 
@@ -15,6 +18,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm)
+
+---
+
+# 中國對美國所有進口商品加徵34%關稅
+
+  
+
+國務院關稅稅則委員會宣布，本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm)
 
 ---
 
@@ -1407,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798702-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798702-20250403.htm)
-
----
-
-# 特朗普稍後公布關稅措施　德國意大利強調要避免貿易戰
-
-![梅洛尼強調，有必要避免貿易戰，但不排除在必要時採取措施保護產業。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798701_1_20250403013021.jpg&q=90)
-  
-
-美國總統特朗普稍後在白宮公布對等關稅措施，他在社交平台形容這一日是美國解放日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798701-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798701-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798701-20250403.htm)
 
 ---
