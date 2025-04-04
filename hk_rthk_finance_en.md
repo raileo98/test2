@@ -1,3 +1,27 @@
+# US stocks tumble again, extending rout on trade war
+
+![All three major indices on Wall Street are still heading south. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798973_1_20250404221313.jpg&q=90)
+  
+
+Wall Street stocks opened sharply lower on Friday, shrugging off solid US hiring data and extending a rout after China retaliated in kind to President Donald Trump's global trade tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798973-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798973-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798973-20250404.htm)
+
+---
+
 # US stocks close down sharply on tariff fallout
 
 ![The S&P 500 dropped 4.8 percent in its biggest loss since 2020. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798887_1_20250404054252.jpg&q=90)
@@ -1414,29 +1438,5 @@ Wall Street stocks closed higher Friday after fluctuations, shaking off ongoing 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796882-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796882-20250322.htm)
-
----
-
-# Winding-up orders reach 15-year high
-
-![According to the Official Receiver's Office, 66 winding-up orders were made by the court in February. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796744_1_20250321111259.jpg&q=90)
-  
-
-Hong Kong has seen its winding-up orders hitting the highest level in more than 15 years.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm](https://news.rthk.hk/rthk/en/component/k2/1796744-20250321.htm)
 
 ---

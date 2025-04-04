@@ -1,3 +1,27 @@
+# US stocks tumble again, extending rout on trade war
+
+![All three major indices on Wall Street are still heading south. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798973_1_20250404221313.jpg&q=90)
+  
+
+Wall Street stocks opened sharply lower on Friday, shrugging off solid US hiring data and extending a rout after China retaliated in kind to President Donald Trump's global trade tariffs.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798973-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798973-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798973-20250404.htm)
+
+---
+
 # Trump wants 'direct talks' with Iran on nukes deal
 
 ![President Trump says that last month he wrote to Iran's supreme leader, Ayatollah Ali Khamenei, to call for nuclear negotiations. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798967_1_20250404204544.jpg&q=90)
@@ -1414,29 +1438,5 @@ The psychological well-being of Hong Kong's secondary school pupils improved sli
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798639-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798639-20250402.htm)
-
----
-
-# Hong Kong stocks close lower
-
-![The Hang Seng Index finished down 0.02 percent at 23,202. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798640_1_20250402164851.jpg&q=60)
-  
-
-Hong Kong stocks ended lower on Wednesday, with the benchmark Hang Seng Index down 0.02 percent at 23,202.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798640-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798640-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798640-20250402.htm)
 
 ---
