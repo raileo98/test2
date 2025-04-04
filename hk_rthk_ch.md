@@ -1,3 +1,27 @@
+# 緬甸大地震增至逾3300人死
+
+![緬甸中部大地震，增至超過3300人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798964_1_20250404200934.jpg&q=35)
+  
+
+緬甸中部大地震，增至超過3300人死亡、近4800人受傷，仍有200多人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm)
+
+---
+
 # 商務部對原產於美國、印度進口CT球管展開反傾銷調查
 
 ![商務部對原產於美國、印度進口CT球管展開反傾銷調查。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798961_1_20250404190018.jpg&q=75)
@@ -1519,7 +1543,7 @@
 
 # 美國中西部和南部遭龍捲風吹襲至少7死
 
-![田納西州遭受龍捲風吹襲，有建築物被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798888_1_20250404054316.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798888_1_20250404054316.jpg&q=80)
   
 
 美國中西部和南部遭受龍捲風吹襲，至少7人死亡，13人失蹤。

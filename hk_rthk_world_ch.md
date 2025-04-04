@@ -1,3 +1,27 @@
+# 緬甸大地震增至逾3300人死
+
+![緬甸中部大地震，增至超過3300人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798964_1_20250404200934.jpg&q=35)
+  
+
+緬甸中部大地震，增至超過3300人死亡、近4800人受傷，仍有200多人失蹤。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798964-20250404.htm)
+
+---
+
 # 中方在世貿組織起訴美國對等關稅措施
 
 ![商務部發言人表示，美方徵收所謂「對等關稅」，嚴重違反世貿組織規則，嚴重損害世貿組織成員正當合法權益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798956_1_20250404183848.jpg&q=75)
@@ -505,7 +529,7 @@
 
 # 美國中西部和南部遭龍捲風吹襲至少7死
 
-![田納西州遭受龍捲風吹襲，有建築物被摧毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798888_1_20250404054316.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798888_1_20250404054316.jpg&q=80)
   
 
 美國中西部和南部遭受龍捲風吹襲，至少7人死亡，13人失蹤。
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798705-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798705-20250403.htm)
-
----
-
-# 俄軍一架圖-22M3轟炸機墜毀　一名飛行員喪生
-
-![俄軍一架圖-22M3轟炸機墜毀　一名飛行員喪生](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798704_1_20250403022236.jpg&q=90)
-  
-
-俄羅斯軍方一架圖-22M3轟炸機在中部墜毀，一名飛行員喪生。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798704-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798704-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798704-20250403.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 杜邦中國涉違《反壟斷法》遭立案調查
+
+  
+
+國家市場監督管理總局宣布，杜邦中國集團有限公司涉嫌違反《反壟斷法》，市監局依法開展立案調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm)
+
+---
+
 # 商務部對原產於美國、印度進口CT球管展開反傾銷調查
 
 ![商務部對原產於美國、印度進口CT球管展開反傾銷調查。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798961_1_20250404190018.jpg&q=75)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798666-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798666-20250402.htm)
-
----
-
-# 石泰峰調任中組部部長　李干杰改任統戰部部長
-
-![石泰峰出任中組部部長（左）、李干杰則轉任統戰部部長。（新華社資圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798667_1_20250402200824.jpg&q=90)
-  
-
-中共中央組織部及中共中央統戰部的部長對調職務，統戰部原部長石泰峰調任中組部部長，中組部原部長李干杰改任中央統戰部部長。兩人都是政治局委員、中央書記處書記，同屬副國級領導人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798667-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798667-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798667-20250402.htm)
 
 ---
