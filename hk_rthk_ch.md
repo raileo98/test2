@@ -1,3 +1,27 @@
+# 美日韓外長會談　對俄朝推進軍事合作表示嚴重關切
+
+![美日韓外長在比利時布魯塞爾舉行三國外長會談。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798943_1_20250404163844.jpg&q=90)
+  
+
+美國國務卿魯比奧、日本外相岩屋毅與南韓外長趙兌烈在比利時布魯塞爾出席北約外長會期間，舉行三國外長會談，對北韓核與導彈開發及俄朝推進軍事合作表示嚴重關切，商定合作以實現北韓完全無核化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm)
+
+---
+
 # 本港截至早上10時17萬人次出境　逾8萬人次入境
 
 ![出境方面，以羅湖口岸最多，有超過3萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798941_1_20250404162745.jpg&q=90)

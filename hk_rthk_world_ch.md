@@ -1,3 +1,27 @@
+# 美日韓外長會談　對俄朝推進軍事合作表示嚴重關切
+
+![美日韓外長在比利時布魯塞爾舉行三國外長會談。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798943_1_20250404163844.jpg&q=90)
+  
+
+美國國務卿魯比奧、日本外相岩屋毅與南韓外長趙兌烈在比利時布魯塞爾出席北約外長會期間，舉行三國外長會談，對北韓核與導彈開發及俄朝推進軍事合作表示嚴重關切，商定合作以實現北韓完全無核化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798943-20250404.htm)
+
+---
+
 # 特區救援隊與國家隊義診緬甸地震災民
 
 ![救援隊帶災民到醫療帳篷接受診治。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798938_2_20250404155558.jpg&q=65)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798696-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798696-20250403.htm)
-
----
-
-# 緬甸地震增至逾三千人死　軍方宣布暫時停火以便救災
-
-![緬甸大地震增至超過3000人死亡，軍方宣布暫時停火以便救災。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798693_1_20250402225256.jpg&q=50)
-  
-
-緬甸大地震增至超過3000人死亡，4500多人受傷，仍然有350多人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798693-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798693-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798693-20250402.htm)
 
 ---
