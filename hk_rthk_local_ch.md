@@ -1,3 +1,26 @@
+# 運輸署：往萬宜水庫東壩　交通非常繁忙
+
+  
+
+西貢北潭涌小巴總站往萬宜水庫東壩的小巴站，早上有大批市民及旅客排隊等候，營辦商安排多部專線小巴疏導乘客，排隊人龍有待消化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798923-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798923-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798923-20250404.htm)
+
+---
+
 # 青馬大橋五車相撞三人送院
 
 ![青馬大橋五車相撞三人送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798922_1_20250404123116.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798685-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798685-20250402.htm)
-
----
-
-# 羅淑佩拜會國務院港澳辦和國家體育總局
-
-![羅淑佩拜會國務院港澳辦和國家體育總局](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798682_1_20250402212217.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩展開北京行程，拜會國務院港澳辦和國家體育總局。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm)
 
 ---

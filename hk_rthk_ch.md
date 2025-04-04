@@ -1,3 +1,26 @@
+# 運輸署：往萬宜水庫東壩　交通非常繁忙
+
+  
+
+西貢北潭涌小巴總站往萬宜水庫東壩的小巴站，早上有大批市民及旅客排隊等候，營辦商安排多部專線小巴疏導乘客，排隊人龍有待消化。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798923-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798923-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798923-20250404.htm)
+
+---
+
 # 格奧爾基耶娃稱美國關稅對全球經濟前景構成重大風險
 
 ![格奧爾基耶娃呼籲美國與貿易夥伴以建設性方式，努力紓緩緊張局勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798917_1_20250404123303.jpg&q=90)
@@ -46,30 +69,6 @@
 
 ---
 
-# 西藏有藏族學生指學習漢語對未來發展重要　校方稱寄宿與否屬自願
-
-![校方表示，學習多種語言對學生的溝通能力有幫助。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798921_1_20250404123258.jpg&q=85)
-  
-
-西藏近年不少藏族學童入讀公立寄宿學校，每星期都要學習藏語、漢語及英語。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm)
-
----
-
 # 青馬大橋五車相撞三人送院
 
 ![青馬大橋五車相撞三人送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798922_1_20250404123116.jpg&q=90)
@@ -91,6 +90,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm)
+
+---
+
+# 西藏有藏族學生指學習漢語對未來發展重要　校方稱寄宿與否屬自願
+
+![校方表示，學習多種語言對學生的溝通能力有幫助。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798921_1_20250404123258.jpg&q=85)
+  
+
+西藏近年不少藏族學童入讀公立寄宿學校，每星期都要學習藏語、漢語及英語。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm)
 
 ---
 
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798858-20250403.htm)
-
----
-
-# 財政部指惠譽下調中國主權信用評級偏頗深表遺憾
-
-![惠譽將中國主權信用評級由「A+」下調至「A」，財政部回應指，有失偏頗，對此深表遺憾、不予認可。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798856_1_20250403211045.jpg&q=85)
-  
-
-財政部回應評級機構惠譽下調中國主權信用評級，指有關分析有失偏頗，不能充分客觀反映中國實際情況，以及國際國內市場對中國經濟回升向好的一致認知，對此深表遺憾、不予認可。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm)
 
 ---
