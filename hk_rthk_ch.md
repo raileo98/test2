@@ -1,4 +1,4 @@
-# 學者：郵輪以香港為母港正逐漸增加
+# 學者稱郵輪以香港為母港正逐漸增加
 
 ![黃家榮稱郵輪旅遊從疫後復蘇，以香港為母港的郵輪佔香港停泊郵輪數目一半。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798930_1_20250404131309.jpg&q=85)
   
