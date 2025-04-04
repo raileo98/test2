@@ -1,6 +1,30 @@
+# Trump wants 'direct talks' with Iran on nukes deal
+
+![President Trump says that last month he wrote to Iran's supreme leader, Ayatollah Ali Khamenei, to call for nuclear negotiations. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798967_1_20250404204544.jpg&q=90)
+  
+
+US President Donald Trump said on Thursday he wanted "direct talks" with Tehran on a nuclear deal, after he threatened to bomb Iran if it develops nuclear weapons.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798967-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798967-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798967-20250404.htm)
+
+---
+
 # De Bruyne to leave City at the end of the season
 
-![Kevin De Bruyne has won 14 major trophies since joining Man City in 2015. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798963_1_20250404194329.jpg&q=90)
+![Kevin De Bruyne has won 14 major trophies since joining Man City in 2015. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798963_2_20250404213306.jpg&q=90)
   
 
 Manchester City midfielder Kevin De Bruyne confirmed on Friday that he will leave the club at the end of the season.
@@ -1414,29 +1438,5 @@ Hong Kong stocks ended lower on Wednesday, with the benchmark Hang Seng Index do
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798640-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798640-20250402.htm)
-
----
-
-# Roles of RTHK, information unit don't overlap: govt
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798626_1_20250402152610.jpg&q=90)
-  
-
-Commerce chief Algernon Yau on Wednesday stressed that merging the city's public broadcaster and the government's public relations office might not be the most effective way to cut expenditure, saying the two bodies do not overlap in their functions.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm)
 
 ---

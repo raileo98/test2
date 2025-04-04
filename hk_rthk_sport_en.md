@@ -1,6 +1,6 @@
 # De Bruyne to leave City at the end of the season
 
-![Kevin De Bruyne has won 14 major trophies since joining Man City in 2015. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798963_1_20250404194329.jpg&q=90)
+![Kevin De Bruyne has won 14 major trophies since joining Man City in 2015. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798963_2_20250404213306.jpg&q=90)
   
 
 Manchester City midfielder Kevin De Bruyne confirmed on Friday that he will leave the club at the end of the season.

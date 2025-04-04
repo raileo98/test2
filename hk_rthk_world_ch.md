@@ -1,3 +1,26 @@
+# 特朗普：中國對貿易戰驚慌失措　自己政策不會變
+
+  
+
+中國反制美國對等關稅措施後，美國總統特朗普在社交平台指，中國對貿易戰驚慌失措，他的政策不會變，又鼓勵外國增加在美國投資，指現時是投資致富的好時機。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798969-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798969-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798969-20250404.htm)
+
+---
+
 # 莊太量指中國反制或令美國及歐洲股市下跌　料美國難應付多國反制
 
 ![莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798968_1_20250404205933.jpg&q=85)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798710-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798710-20250403.htm)
-
----
-
-# 歐洲理事會主席稱須堅定但明智地應對特朗普關稅政策
-
-![科斯塔警告，歐盟和美國之間的貿易戰將影響每個人。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798706_1_20250403025134.jpg&q=90)
-  
-
-歐洲理事會主席科斯塔表示，歐盟必須堅定但明智地應對美國總統特朗普在關稅問題上犯下的重大錯誤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798706-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798706-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798706-20250403.htm)
 
 ---
