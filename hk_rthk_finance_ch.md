@@ -432,7 +432,7 @@
 
 # 特朗普：市場反應屬意料中　若中國批准TikTok交易或獲減免
 
-![特朗普在總統專機空軍一號上回應記者提問。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798883_1_20250404052715.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798883_1_20250404052715.jpg&q=90)
   
 
 美國總統特朗普表示，市場對關稅措施的反應屬意料之中，如果其他國家提出非常有吸引力的條件，他對於關稅談判持開放態度。

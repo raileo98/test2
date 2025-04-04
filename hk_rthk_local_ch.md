@@ -1,5 +1,6 @@
 # 6地警方聯手打擊兒童色情物品拘捕435人　本港7名男子被捕
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798958_1_20250404185026.jpg&q=85)
   
 
 本港警方聯同日本、南韓、新加坡等合共6個地方的執法機關，聯手打擊兒童色情物品，拘捕435人。
