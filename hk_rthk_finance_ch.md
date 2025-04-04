@@ -1,5 +1,6 @@
 # 莊太量指中國反制或令股市下跌
 
+![莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798968_1_20250404205933.jpg&q=85)
   
 
 國務院關稅稅則委員會宣布，本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。他相信，美股有機會繼續跌，近日有機會引發全球小股災。
@@ -18,6 +19,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm)
+
+---
+
+# 劉兆佳指中方以組合拳反擊美國　認為不是姿態要令對方感到痛苦
+
+![劉兆佳分析，在眾多國家之中，中國最有實力對美國強硬反制，中國對美國有大量順差，美國買中國貨多於中國買美國貨。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798966_1_20250404205624.jpg&q=80)
+  
+
+國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施，包括對原產美國的進口商品加徵34%關稅，對7類中重稀土相關物項實施出口管制等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm)
 
 ---
 
@@ -1410,29 +1435,5 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798771-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798771-20250403.htm)
-
----
-
-# 港股半日跌366點　航運及科技股受壓
-
-![港股半日跌幅收窄，恒生指數中午報22835點，跌366點，跌幅約1.6%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798772_1_20250403121056.jpg&q=60)
-  
-
-美國對多個國家及地區實施對等關稅，港股跟隨區內股市向下，失守23000點水平。恒生指數低開逾560點，跌至22638點，是今早低位，亦創約1個月新低。大市其後跌幅收窄，中午報22835點，跌366點，跌幅約1.6%，半日主板成交額約1640億元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798772-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798772-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798772-20250403.htm)
 
 ---
