@@ -1,3 +1,27 @@
+# 中亞與歐盟宣布建立戰略夥伴　在關鍵原材料領域加強合作
+
+![中亞五國及歐盟領導人在烏茲別克撒馬爾罕舉行首屆中亞-歐盟峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798985_1_20250405024157.jpg&q=90)
+  
+
+中亞五國及歐盟領導人在烏茲別克撒馬爾罕舉行首屆中亞-歐盟峰會，雙方宣布建立戰略夥伴關係，中亞五國與歐盟簽署關鍵原材料合作意向聲明，宣布在關鍵原材料領域加強合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798985-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798985-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798985-20250405.htm)
+
+---
+
 # 烏克蘭克里沃伊羅格市住宅區遭俄軍襲擊至少26死
 
 ![烏克蘭克里沃伊羅格市住宅區遭俄軍襲擊至少26死](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798984_1_20250405021830.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm)
-
----
-
-# 尹錫悅明日不出席憲法法院彈劾案宣判
-
-![尹錫悅明日將在總統官邸觀看宣判直播。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798788_1_20250403142129.jpg&q=90)
-  
-
-南韓總統尹錫悅彈劾案明日上午宣判，尹錫悅的法律代表團表示，考慮社會秩序和總統警衛問題等因素後，尹錫悅決定不出席宣判，他將在總統官邸觀看直播，由代表團出庭。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798788-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798788-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798788-20250403.htm)
 
 ---
