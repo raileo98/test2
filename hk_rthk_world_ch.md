@@ -1,3 +1,24 @@
+# 被彈劾下台後　尹錫悅發表談話向國民道歉
+
+![尹錫悅成為繼朴謹惠後第二位被彈劾下台的總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798929_1_20250404131635.jpg&q=90)
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm)
+
+---
+
 # 中方指美方打著對等幌子嚴重損害以規則為基礎多邊貿易體制
 
 ![發言人指美方做法是典型的單邊霸凌主義。（中國駐美國使館官網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798925_1_20250404130945.jpg&q=90)
@@ -1410,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm)
-
----
-
-# 緬甸地震｜特區與國家救援隊救出一名被困逾120小時男子
-
-![中國救援隊聯同特區救援隊於緬甸救出一名被困逾120小時男子。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798673_1_20250402201044.jpg&q=90)
-  
-
-中國救援隊聯同特區救援隊，在緬甸曼德勒救出一名被困超過120小時的男子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm)
 
 ---

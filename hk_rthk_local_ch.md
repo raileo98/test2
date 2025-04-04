@@ -22,26 +22,6 @@
 
 ---
 
-# 被彈劾下台後　尹錫悅發表談話向國民道歉
-
-  
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm)
-
----
-
 # 陳美寶：積極推進本港海空貨物聯運發展
 
   
@@ -1431,5 +1411,29 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm)
+
+---
+
+# 政府完成黃大仙竹園聯合村聯合行動　相關用地日後發展公營房屋
+
+![發展局表示，在照顧受發展影響住戶的同時，亦須確保發展計劃按時完成，無法再延長遷出寬限期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798695_1_20250402230234.jpg&q=90)
+  
+
+發展局表示，地政總署今日聯同相關政府部門，在黃大仙竹園聯合村進行聯合行動，將相關用地交予土木工程拓展署，以配合日後的公營房屋發展，相關行動已完成。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm)
 
 ---
