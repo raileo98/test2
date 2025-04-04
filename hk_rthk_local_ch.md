@@ -24,7 +24,7 @@
 
 # 流行文化節本月起展開　未來兩日有免費戶外音樂嘉年華
 
-![劉震在開幕式致辭說，活動在過去兩年共吸引超過110萬人。（陳裕行攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798940_1_20250404162714.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798940_1_20250404162714.jpg&q=80)
   
 
 康文署本月起將開展第三屆香港流行文化節，提供超過20項活動，涵蓋音樂、影像和文字等不同內容。

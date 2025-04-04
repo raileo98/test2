@@ -1,3 +1,27 @@
+# Israel kills Hamas 'commander' in Lebanon strike
+
+![The strike in a residential area of Sidon killed the official and his adult son and daughter. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798944_1_20250404164812.jpg&q=85)
+  
+
+Israel said it killed a commander of the Palestinian militant group Hamas on Friday in a strike in the Lebanese port city of Sidon that also killed his adult son and daughter.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm)
+
+---
+
 # HK International Track Cup to attract 150 cyclists
 
 ![The Hong Kong International Track Cup will involve 50 cyclists from local affiliated clubs, participating in elite and junior races. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798942_1_20250404160739.jpg&q=85)
@@ -1414,29 +1438,5 @@ China's embassy in Bangkok called on the country's companies operating abroad to
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm)
-
----
-
-# National security among new police chief's priorities
-
-![Joe Chow says one of his priorities is to enhance public awareness of national security. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798611_1_20250402141242.jpg&q=80)
-  
-
-Newly appointed Commissioner of Police Joe Chow has vowed to prioritise safeguarding national security, modernising law enforcement and consolidating team culture in the force.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm)
 
 ---
