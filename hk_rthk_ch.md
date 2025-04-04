@@ -1,3 +1,47 @@
+# 特朗普延長TikTok禁令寬限期　字節跳動稱關鍵問題仍須解決
+
+![特朗普再度延長中國字節跳動出售旗下短片分享平台TikTok在美業務的限期75日。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798990_1_20250405042549.jpg&q=90)
+  
+
+美國總統特朗普再度延長中國字節跳動出售旗下短片分享平台TikTok在美業務的限期75日，直至6月中旬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798990-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798990-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798990-20250405.htm)
+
+---
+
+# 巴布亞新幾內亞新不列顛島區強烈地震　美國發出海嘯警告
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798989-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798989-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798989-20250405.htm)
+
+---
+
 # 英德意同意貿易戰不符合任何人利益　歐盟稱美國關稅具破壞性
 
 ![施紀賢重申，英國不會急於對美國的關稅政策採取報復措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798988_1_20250405032426.jpg&q=90)
@@ -1391,54 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm)
-
----
-
-# 尹錫悅所屬執政國民力量黨稱接受裁決　尹錫悅代表律師稱令人費解
-
-![反對尹錫悅的示威者聽到裁決結果後歡呼。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798916_1_20250404114517.jpg&q=90)
-  
-
-南韓憲法法院通過對尹錫悅的彈劾案，尹錫悅被罷免總統職務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798916-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798916-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798916-20250404.htm)
-
----
-
-# 清明節不少市民掃墓　紙紮祭品略為加價
-
-![鑽石山墳場有不少市民到場拜祭先人，附近有道路實施人潮管制措施。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798914_1_20250404113030.jpg&q=70)
-![有市民表示，今年紙紮等祭品較去年貴數元，主要加價的祭品是金銀衣紙，覺得可以接受。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798914_2_20250404122036.jpg&q=65)
-  
-
-今日是清明節，在鑽石山墳場，不少市民到場拜祭先人，附近有道路實施人潮管制措施，警員在場維持秩序。有市民表示，人流較預期中少，與過往相比亦較少人，認為今日天氣好，有微風而且不會太曬。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm)
 
 ---

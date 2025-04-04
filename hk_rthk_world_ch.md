@@ -1,3 +1,47 @@
+# 特朗普延長TikTok禁令寬限期　字節跳動稱關鍵問題仍須解決
+
+![特朗普再度延長中國字節跳動出售旗下短片分享平台TikTok在美業務的限期75日。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798990_1_20250405042549.jpg&q=90)
+  
+
+美國總統特朗普再度延長中國字節跳動出售旗下短片分享平台TikTok在美業務的限期75日，直至6月中旬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798990-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798990-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798990-20250405.htm)
+
+---
+
+# 巴布亞新幾內亞新不列顛島區強烈地震　美國發出海嘯警告
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798989-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798989-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798989-20250405.htm)
+
+---
+
 # 英德意同意貿易戰不符合任何人利益　歐盟稱美國關稅具破壞性
 
 ![施紀賢重申，英國不會急於對美國的關稅政策採取報復措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798988_1_20250405032426.jpg&q=90)
@@ -1388,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798804-20250403.htm)
-
----
-
-# 馮德萊恩稱準備好與美國談判關稅　倘談判失敗將進一步反制
-
-![歐盟委員會主席馮德萊恩重申歐盟準備與美國談判關稅，如果談判失敗，會進一步反制。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798798_1_20250403152206.jpg&q=90)
-  
-
-美方宣布對所有貿易夥伴徵收對等關稅，歐盟產品關稅是20%。歐盟委員會主席馮德萊恩表示遺憾，重申歐盟一直準備與美國談判，消除跨大西洋貿易壁壘，同時也準備回應。她說歐盟正敲定對美國鋼鋁關稅的反制措施的最後細節。如果談判失敗，會進一步反制，保護歐盟的利益和商業。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798798-20250403.htm)
-
----
-
-# 本港向緬甸捐贈逾20公噸救援物資　陳國基：全力支援救災賑災
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798799_1_20250403153645.jpg&q=85)
-  
-
-緬甸大地震造成大量人員傷亡和基礎設施受損，特區政府表示，針對災區需求，徵集了一批緊急救援物資。這批救援物資超過20公噸，由不同政府部門合作和協調，當中包括食物、飲用水、醫療包和臨時居所物料等關鍵物資，部分物資由社會熱心人士捐助。這批物資已移交緬甸駐港總領事，並安排付運當地。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm)
 
 ---
