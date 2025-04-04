@@ -1,3 +1,27 @@
+# 英德意同意貿易戰不符合任何人利益　歐盟稱美國關稅具破壞性
+
+![施紀賢重申，英國不會急於對美國的關稅政策採取報復措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798988_1_20250405032426.jpg&q=90)
+  
+
+英國首相施紀賢分別與澳洲總理阿爾巴內塞及意大利總理梅洛尼通電話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm)
+
+---
+
 # 美股持續急挫　道指曾跌逾2100點
 
 ![三大指數星期五開市後急挫3%，之後跌幅擴大至超過5%。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798986_1_20250405024936.jpg&q=80)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm)
-
----
-
-# 運輸署發送「#」號開頭短訊提示繳費
-
-![運輸署提醒市民保持警覺，收到聲稱屬運輸署短訊時，要看清楚發送人名稱。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798913_1_20250404112228.jpg&q=80)
-  
-
-運輸署表示，為便利不同用家精準識別各類服務，署方會按服務類別，經通訊辦短訊發送人登記制下「#」號開頭的發送人名稱，聯絡市民與用戶，提示大家繳交隧道費、泊車費，續牌、約期等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm)
 
 ---

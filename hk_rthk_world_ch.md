@@ -1,3 +1,27 @@
+# 英德意同意貿易戰不符合任何人利益　歐盟稱美國關稅具破壞性
+
+![施紀賢重申，英國不會急於對美國的關稅政策採取報復措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798988_1_20250405032426.jpg&q=90)
+  
+
+英國首相施紀賢分別與澳洲總理阿爾巴內塞及意大利總理梅洛尼通電話。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm)
+
+---
+
 # 中亞與歐盟宣布建立戰略夥伴　在關鍵原材料領域加強合作
 
 ![中亞五國及歐盟領導人在烏茲別克撒馬爾罕舉行首屆中亞-歐盟峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798985_1_20250405024157.jpg&q=90)
@@ -1412,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798799-20250403.htm)
-
----
-
-# 中國政府第二批援助緬甸物資運抵仰光機場
-
-![中國政府向緬甸提供的第二批緊急人道救災援助物資抵達仰光國際機場。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798791_1_20250403144239.jpg&q=90)
-  
-
-緬甸大地震搜救工作持續，國家管理委員會說，截至當地時間今天上午8時，強震已導致3085人死亡，4715人受傷，另有341人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798791-20250403.htm)
 
 ---
