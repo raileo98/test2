@@ -1,3 +1,27 @@
+# 日本去年查獲約1.2噸走私金條　加強海路走私警戒
+
+![日本去年查獲約1.2噸走私金條，數量是前一年約4倍。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798950_1_20250404174339.jpg&q=85)
+  
+
+日本去年查獲約1.2噸走私金條，數量是前一年約4倍。海上走私呈增加趨勢，海上保安廳和海關已加強警戒。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm)
+
+---
+
 # 8位在韓志願軍烈士遺骸身份確認
 
 ![8位在韓志願軍烈士遺骸身份確認](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798949_1_20250404174147.jpg&q=90)

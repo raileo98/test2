@@ -1,3 +1,27 @@
+# 日本去年查獲約1.2噸走私金條　加強海路走私警戒
+
+![日本去年查獲約1.2噸走私金條，數量是前一年約4倍。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798950_1_20250404174339.jpg&q=85)
+  
+
+日本去年查獲約1.2噸走私金條，數量是前一年約4倍。海上走私呈增加趨勢，海上保安廳和海關已加強警戒。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm)
+
+---
+
 # 敏昂萊在曼谷晤佩通坦討論打擊跨境詐騙
 
 ![到泰國曼谷出席地區峰會的緬甸軍政府領袖敏昂萊，與泰國總理佩通坦會談，重點討論共同打擊電訊和網絡詐騙集團。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798948_1_20250404171008.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798700-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798700-20250403.htm)
-
----
-
-# 緬甸軍政府宣布暫時停火　敏昂萊將往曼谷與南亞國家討論災情
-
-![無國界醫生表示，重災區曼德勒有大約500幢建築物徹底倒塌，800幢部分受損。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798699_1_20250403004113.jpg&q=80)
-  
-
-緬甸中部大地震增至超過3000人死亡，4500多人受傷，仍有351人失蹤，軍政府宣布暫時停火。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798699-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798699-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798699-20250403.htm)
 
 ---
