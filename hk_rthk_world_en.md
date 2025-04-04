@@ -1,3 +1,27 @@
+# Trump extend TikTok deadline to find buyer
+
+![The new 75-day delay pushes the deadline to June 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798987_1_20250405031437.jpg&q=90)
+  
+
+US President Donald Trump on Friday extended the deadline for TikTok to find a non-Chinese buyer or face a ban in the United States, allowing 75 more days to find a solution.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm)
+
+---
+
 # Trump wants 'direct talks' with Iran on nukes deal
 
 ![President Trump says that last month he wrote to Iran's supreme leader, Ayatollah Ali Khamenei, to call for nuclear negotiations. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798967_1_20250404204544.jpg&q=90)
@@ -1411,29 +1435,5 @@ South Korean police plan to question a 56-year-old man on suspicion of starting 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798256-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798256-20250331.htm)
-
----
-
-# Chinese rescuers find six quake survivors in Myanmar
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798255_1_20250331151517.jpg&q=90)
-  
-
-Rescuers from China have found six survivors so far in earthquake-rattled Myanmar.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798255-20250331.htm)
 
 ---

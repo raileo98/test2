@@ -1,3 +1,27 @@
+# Trump extend TikTok deadline to find buyer
+
+![The new 75-day delay pushes the deadline to June 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798987_1_20250405031437.jpg&q=90)
+  
+
+US President Donald Trump on Friday extended the deadline for TikTok to find a non-Chinese buyer or face a ban in the United States, allowing 75 more days to find a solution.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm)
+
+---
+
 # US stocks tumble again, extending rout on trade war
 
 ![All three major indices on Wall Street are still heading south. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798973_1_20250404221313.jpg&q=90)
@@ -1414,29 +1438,5 @@ China on Wednesday warned the Philippines against threatening "regional peace" a
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm)
-
----
-
-# Mental health of HK children worse than before Covid
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798639_1_20250402164845.jpg&q=90)
-  
-
-The psychological well-being of Hong Kong's secondary school pupils improved slightly in the last academic year but was still worse than before the pandemic, the Department of Health said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798639-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798639-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798639-20250402.htm)
 
 ---

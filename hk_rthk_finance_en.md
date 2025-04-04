@@ -1,3 +1,27 @@
+# Trump extend TikTok deadline to find buyer
+
+![The new 75-day delay pushes the deadline to June 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798987_1_20250405031437.jpg&q=90)
+  
+
+US President Donald Trump on Friday extended the deadline for TikTok to find a non-Chinese buyer or face a ban in the United States, allowing 75 more days to find a solution.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798987-20250405.htm)
+
+---
+
 # US stocks tumble again, extending rout on trade war
 
 ![All three major indices on Wall Street are still heading south. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798973_1_20250404221313.jpg&q=90)
@@ -1414,29 +1438,5 @@ British finance minister Rachel Reeves is eyeing spending cuts for government of
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm)
-
----
-
-# US stocks close higher ahead of April tariffs
-
-![All the major indices made minor gains. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796882_1_20250322065918.jpg&q=90)
-  
-
-Wall Street stocks closed higher Friday after fluctuations, shaking off ongoing economic uncertainty including those triggered by US President Donald Trump's tariff plans -- following his comments that these will contain some flexibility.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796882-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796882-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796882-20250322.htm)
 
 ---
