@@ -1,3 +1,26 @@
+# 中國反制美國 道指早段瀉逾1700點
+
+  
+
+中國推出關稅措施反制美國，美股3大指數連續第二日下挫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm)
+
+---
+
 # 劉兆佳指中方反制肯定不只是姿態　莊太量料或引發小股災
 
 ![國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798972_1_20250404220059.jpg&q=80)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798780-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798780-20250403.htm)
-
----
-
-# AEON信貸去年度盈利升逾2%　減值虧損及準備升逾19%
-
-![AEON信貸截至2月底，上個財政年度盈利約4億元，按年增長逾2%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798782_1_20250403125451.jpg&q=90)
-  
-
-AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年增長逾2%。派末期息每股0.25元，全年派息0.49元，派息比率51.2%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798782-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798782-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798782-20250403.htm)
 
 ---

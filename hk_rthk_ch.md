@@ -1,3 +1,26 @@
+# 中國反制美國 道指早段瀉逾1700點
+
+  
+
+中國推出關稅措施反制美國，美股3大指數連續第二日下挫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm)
+
+---
+
 # 英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕
 
 ![英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798974_1_20250404224512.jpg&q=90)
