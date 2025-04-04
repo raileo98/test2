@@ -1,3 +1,26 @@
+# 運輸署料下午東壩回程路段交通非常繁忙
+
+  
+
+運輸署表示，現時在萬宜水庫東壩的遊人眾多，預計下午離開該處通往北潭涌的西貢萬宜路交通會非常繁忙。署方說，由萬宜水庫東壩開出，往北潭涌的專線小巴第9A號線已進一步加強服務和班次，應對乘客需求。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798933-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798933-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798933-20250404.htm)
+
+---
+
 # 學者稱郵輪以香港為母港正逐漸增加
 
 ![黃家榮稱郵輪旅遊從疫後復蘇，以香港為母港的郵輪佔香港停泊郵輪數目一半。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798930_1_20250404131309.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798864-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798864-20250403.htm)
-
----
-
-# 醫衞局指星島日報有關控煙政策報道失實　措施不影響旅客訪港意欲
-
-![醫務衞生局表示，對有關報道內容失實和誤導公眾表示遺憾。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798863_1_20250403215824.jpg&q=80)
-  
-
-醫務衞生局表示，《星島日報》今日引述個別人士有關另類煙和水煙的言論，指控煙政策會破壞遊客觀感，發言人對有關報道內容失實和誤導公眾表示遺憾，醫衞局提出10項短期控煙措施已充分考慮旅遊業的情況，措施並不會影響旅客訪港意欲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798863-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798863-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798863-20250403.htm)
 
 ---
