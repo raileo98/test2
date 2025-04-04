@@ -1,5 +1,30 @@
+# 流行文化節本月起展開　未來兩日有免費戶外音樂嘉年華
+
+  
+
+康文署本月起將開展第三屆香港流行文化節，提供超過20項活動，涵蓋音樂、影像和文字等不同內容。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm)
+
+---
+
 # 特區救援隊與國家隊義診緬甸地震災民
 
+![特區救援隊聯同國家隊在災區設置帳篷義診。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798938_1_20250404155558.jpg&q=85)
+![救援隊帶災民到醫療帳篷接受診治。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798938_2_20250404155558.jpg&q=65)
   
 
 正在緬甸協助救援的特區救援隊，聯同國家隊在災區設置帳篷義診，帶同醫療裝備，例如量度維生指數的儀器、處理傷口的消毒用品等，協助災民處理傷患及提供藥物。
@@ -47,6 +72,7 @@
 
 # 警方薄扶林檢市值逾800萬元私煙
 
+![警方在薄扶林進行反走私行動，檢獲183箱懷疑私煙，估計總市值共約832萬元。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798936_1_20250404155440.jpg&q=75)
   
 
 警方在薄扶林進行反走私行動，檢獲183箱懷疑私煙，估計總市值共約832萬元，暫時未有人被捕。
@@ -70,6 +96,10 @@
 
 # 全運會場地單車測試賽本月舉行　逾150名選手參與
 
+![聶偉文說，有來自澳門、廣東、雲南和吉林車手來港比賽。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_1_20250404155354.jpg&q=80)
+![貝鈞奇表示，市民可以欣賞高水平賽事。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_2_20250404155354.jpg&q=80)
+![李思穎說，未來兩個星期會進入場地訓練好好備戰。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_3_20250404155354.jpg&q=90)
+![繆正賢說，剛從河南回港，狀態不俗。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_4_20250404155354.jpg&q=90)
   
 
 2025香港國際場地盃暨第15屆全運會場地自行車測試賽，將於本月19至21日在將軍澳香港單車館舉行。
@@ -1411,29 +1441,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798870-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798870-20250404.htm)
-
----
-
-# 美元指數跌幅擴大至近2%　兌日圓跌穿146　離岸人民幣反彈
-
-![美元指數失守102水平，較早時報101.36，跌幅逾1.7%；美元兌日圓較早時跌逾2.5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798869_1_20250403230641.jpg&q=85)
-  
-
-美國總統特朗普公布的對等關稅政策，較市場預期激進，金融市場顯著波動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798869-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798869-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798869-20250403.htm)
 
 ---

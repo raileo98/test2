@@ -1,5 +1,9 @@
 # 全運會場地單車測試賽本月舉行　逾150名選手參與
 
+![聶偉文說，有來自澳門、廣東、雲南和吉林車手來港比賽。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_1_20250404155354.jpg&q=80)
+![貝鈞奇表示，市民可以欣賞高水平賽事。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_2_20250404155354.jpg&q=80)
+![李思穎說，未來兩個星期會進入場地訓練好好備戰。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_3_20250404155354.jpg&q=90)
+![繆正賢說，剛從河南回港，狀態不俗。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_4_20250404155354.jpg&q=90)
   
 
 2025香港國際場地盃暨第15屆全運會場地自行車測試賽，將於本月19至21日在將軍澳香港單車館舉行。

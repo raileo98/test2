@@ -1,5 +1,30 @@
+# 流行文化節本月起展開　未來兩日有免費戶外音樂嘉年華
+
+  
+
+康文署本月起將開展第三屆香港流行文化節，提供超過20項活動，涵蓋音樂、影像和文字等不同內容。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798940-20250404.htm)
+
+---
+
 # 特區救援隊與國家隊義診緬甸地震災民
 
+![特區救援隊聯同國家隊在災區設置帳篷義診。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798938_1_20250404155558.jpg&q=85)
+![救援隊帶災民到醫療帳篷接受診治。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798938_2_20250404155558.jpg&q=65)
   
 
 正在緬甸協助救援的特區救援隊，聯同國家隊在災區設置帳篷義診，帶同醫療裝備，例如量度維生指數的儀器、處理傷口的消毒用品等，協助災民處理傷患及提供藥物。
@@ -23,6 +48,7 @@
 
 # 警方薄扶林檢市值逾800萬元私煙
 
+![警方在薄扶林進行反走私行動，檢獲183箱懷疑私煙，估計總市值共約832萬元。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798936_1_20250404155440.jpg&q=75)
   
 
 警方在薄扶林進行反走私行動，檢獲183箱懷疑私煙，估計總市值共約832萬元，暫時未有人被捕。
@@ -46,6 +72,10 @@
 
 # 全運會場地單車測試賽本月舉行　逾150名選手參與
 
+![聶偉文說，有來自澳門、廣東、雲南和吉林車手來港比賽。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_1_20250404155354.jpg&q=80)
+![貝鈞奇表示，市民可以欣賞高水平賽事。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_2_20250404155354.jpg&q=80)
+![李思穎說，未來兩個星期會進入場地訓練好好備戰。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_3_20250404155354.jpg&q=90)
+![繆正賢說，剛從河南回港，狀態不俗。（張正慧攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798935_4_20250404155354.jpg&q=90)
   
 
 2025香港國際場地盃暨第15屆全運會場地自行車測試賽，將於本月19至21日在將軍澳香港單車館舉行。
@@ -1409,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm)
-
----
-
-# 銅鑼灣永興街有單位發生火警　女戶主不適送院
-
-![火警發生在凌晨近4時，單位內的雪櫃懷疑電線短路起火，消防動用一條喉及一隊煙帽隊灌救。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798739_2_20250403095814.jpg&q=90)
-  
-
-銅鑼灣永興街9號有單位凌晨發生火警，消防救出女戶主及兩隻狗，女戶主懷疑吸入濃煙不適，送往律敦治醫院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798739-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798739-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798739-20250403.htm)
 
 ---
