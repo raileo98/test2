@@ -1,4 +1,4 @@
-# 莊太量指中國反制或令股市下跌
+# 莊太量指中國反制或令美國及歐洲股市下跌　料美國難應付多國反制
 
 ![莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798968_1_20250404205933.jpg&q=85)
   
