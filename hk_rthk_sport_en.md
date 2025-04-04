@@ -1,3 +1,27 @@
+# Fernandez header powers Chelsea into fourth
+
+![Spurs boss Ange Postecoglu had to endure chants of "you don't know what you're doing" from his own side's fans. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798934_1_20250404151409.jpg&q=90)
+  
+
+Chelsea climbed to fourth place in the Premier League as Enzo Fernandez sealed a 1-0 win that piled pressure on beleaguered Tottenham boss Ange Postecoglou on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798934-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798934-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798934-20250404.htm)
+
+---
+
 # USA to host 2031 Women's World Cup, UK in 2035
 
 ![Spain are the current Fifa Women's World Cup champions. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798854_1_20250403205634.jpg&q=80)
@@ -1428,29 +1452,5 @@ Sepp Blatter and Michel Platini won again in court on Tuesday and now lead 2-0 i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm)
-
----
-
-# Relief as billiards keep Tier A status
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797283_1_20250325120446.jpg&q=90)
-  
-
-The chairman of the Billiard Sports Council of Hong Kong China welcomes the government's decision to retain the sport's Tier A status, saying the impact would have been devastating had the sport been downgraded.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797283-20250325.htm)
 
 ---

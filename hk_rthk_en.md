@@ -1,3 +1,27 @@
+# Fernandez header powers Chelsea into fourth
+
+![Spurs boss Ange Postecoglu had to endure chants of "you don't know what you're doing" from his own side's fans. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798934_1_20250404151409.jpg&q=90)
+  
+
+Chelsea climbed to fourth place in the Premier League as Enzo Fernandez sealed a 1-0 win that piled pressure on beleaguered Tottenham boss Ange Postecoglou on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798934-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798934-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798934-20250404.htm)
+
+---
+
 # Tourism chief vows to remain principled in her work
 
 ![Rosanna Law has been on her first visit to Beijing since becoming the Secretary for Culture, Sports and Tourism. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798932_1_20250404134405.jpg&q=90)
@@ -1414,29 +1438,5 @@ Rescuers on Wednesday pulled a man alive from the rubble five days after Myanmar
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm)
-
----
-
-# Actor Val Kilmer loses bout with pnemonia
-
-![Val Kilmer played the part of Jim Morrison in the 1991 film 'The Doors.' Photo: Carolco Pictures/Collection ChristopheL via AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798601_1_20250402125919.jpg&q=90)
-  
-
-American actor Val Kilmer, who was first propelled to fame with "Top Gun" and went on to starring roles as Batman and Jim Morrison, has died at age 65, the New York Times reported.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm)
 
 ---
