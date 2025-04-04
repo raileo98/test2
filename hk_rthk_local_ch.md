@@ -22,6 +22,30 @@
 
 ---
 
+# 中國出多招反制美國　包括向原產美國的進口商品加34%關稅
+
+![中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798971_1_20250404220458.jpg&q=75)
+  
+
+中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm)
+
+---
+
 # 美國網紅遊港多處有支持者等候　天后站有閘機被破壞港鐵已報警
 
 ![這名美國網紅今日到港九多個地點，多處有支持者等候。（直播截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798970_1_20250404215538.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798771-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798771-20250403.htm)
-
----
-
-# 康體通本月8日部分時間暫停服務進行系統升級工程
-
-![SmartPLAY康體通將於本月8日早上10時30分至下午4時30分暫停服務，以便進行系統升級工程。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798776_1_20250403123344.jpg&q=80)
-  
-
-康文署宣布，為提升服務質素，SmartPLAY康體通將於本月8日早上10時30分至下午4時30分暫停服務，以便進行系統升級工程。SmartPLAY康體通用戶如需於上述日期使用系統預訂康體設施或報名參加康體活動，請預早安排，在服務暫停時段之前或後使用系統。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798776-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798776-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798776-20250403.htm)
 
 ---

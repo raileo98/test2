@@ -1,5 +1,30 @@
+# 劉兆佳指中方反制肯定不只是姿態　莊太量料或引發小股災
+
+![國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798972_1_20250404220059.jpg&q=80)
+  
+
+全國港澳研究會顧問劉兆佳分析，中方以組合拳方式反制美國，肯定不會只是姿態，形容一定要令對方感到痛苦。而香港亦要研究是否對美國進口貨品施加關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm)
+
+---
+
 # 中國出多招反制美國　包括向原產美國的進口商品加34%關稅
 
+![中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798971_1_20250404220458.jpg&q=75)
   
 
 中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。
@@ -1415,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm)
-
----
-
-# 港澳辦網站再轉載文章促長和盡快回頭改變錯誤決定
-
-![港澳辦網站再度轉發《大公報》文章，指出長和的港口交易涉及國家安全和利益。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798675_1_20250402210101.jpg&q=80)
-  
-
-港澳辦網站再度轉發《大公報》文章，指出長和的港口交易涉及國家安全和利益，國家市場監督管理總局依法審查合情合理合法，身為香港的重要企業，長和必須尊重國家利益，應當承擔最基本的責任義務，必須盡快回頭，改變錯誤決定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm)
 
 ---
