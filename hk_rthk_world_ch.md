@@ -1,3 +1,51 @@
+# 柬埔寨籲美國推遲關稅　即時下調部分美國商品關稅至5%以表誠意
+
+![洪瑪奈說，柬埔寨政府決定立即將19類美國產品的進口關稅，從原來最高35%下調至5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798981_1_20250405011725.jpg&q=90)
+  
+
+柬埔寨首相洪瑪奈星期五致函美國總統特朗普，就美方計劃從4月9日起對柬埔寨產品徵收49%關稅，正式提出協商請求，呼籲美方推遲實施關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798981-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798981-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798981-20250405.htm)
+
+---
+
+# 美越領導人通話　越南願對美國商品實施零關稅　雙方將商討協議
+
+![美國總統特朗普與越共中央總書記蘇林通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798980_1_20250405011113.jpg&q=90)
+  
+
+美國總統特朗普與越共中央總書記蘇林通電話，討論兩國關係和雙邊貿易議題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798980-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798980-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798980-20250405.htm)
+
+---
+
 # 呂特：烏克蘭加入北約不屬俄烏衝突解決方案一部分
 
 ![呂特說，北約從未向烏方承諾北約成員國身份是俄烏衝突解決方案一部分。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798979_1_20250405003927.jpg&q=90)
@@ -1388,52 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798761-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798761-20250403.htm)
-
----
-
-# 商務部：中方堅決反對美國對等關稅　將採取反制措施維護自身權益
-
-![商務部表明，中方堅決反對美國的對等關稅，並將堅決採取反制措施維護自身權益。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798755_1_20250403101545.jpg&q=75)
-  
-
-在北京，商務部堅決反對美方宣布對所有貿易夥伴徵收對等關稅，並將堅決採取反制措施維護自身權益，強調貿易戰沒有贏家，保護主義沒有出路，中方敦促美方立即取消單邊關稅措施，與貿易夥伴通過平等對話妥善解決分歧。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798755-20250403.htm)
-
----
-
-# 巴西對美國加徵關稅表示遺憾　正評估所有可能行動
-
-  
-
-巴西政府發表聲明，表示正在評估所有可能的行動，以回應美國的關稅措施，同時巴西國會通過一項法案，允許政府對貿易壁壘作出回應。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798747-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798747-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798747-20250403.htm)
 
 ---

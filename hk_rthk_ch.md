@@ -1,3 +1,51 @@
+# 柬埔寨籲美國推遲關稅　即時下調部分美國商品關稅至5%以表誠意
+
+![洪瑪奈說，柬埔寨政府決定立即將19類美國產品的進口關稅，從原來最高35%下調至5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798981_1_20250405011725.jpg&q=90)
+  
+
+柬埔寨首相洪瑪奈星期五致函美國總統特朗普，就美方計劃從4月9日起對柬埔寨產品徵收49%關稅，正式提出協商請求，呼籲美方推遲實施關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798981-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798981-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798981-20250405.htm)
+
+---
+
+# 美越領導人通話　越南願對美國商品實施零關稅　雙方將商討協議
+
+![美國總統特朗普與越共中央總書記蘇林通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798980_1_20250405011113.jpg&q=90)
+  
+
+美國總統特朗普與越共中央總書記蘇林通電話，討論兩國關係和雙邊貿易議題。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798980-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798980-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798980-20250405.htm)
+
+---
+
 # 呂特：烏克蘭加入北約不屬俄烏衝突解決方案一部分
 
 ![呂特說，北約從未向烏方承諾北約成員國身份是俄烏衝突解決方案一部分。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798979_1_20250405003927.jpg&q=90)
@@ -1392,53 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm)
-
----
-
-# 將軍澳海水化淡廠疑氯氣洩漏　消防到場戒備
-
-![將軍澳海水化淡廠上午一度懷疑有氯氣洩漏，消防員到場戒備。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798906_1_20250404102005.jpg&q=80)
-  
-
-將軍澳海水化淡廠上午一度懷疑有氯氣洩漏，消防員到場戒備，初步知道無人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm)
-
----
-
-# 中國常駐聯合國代表敦促以色列立即停止對加沙軍事行動
-
-![傅聰說，實現持久停火才是拯救生命、讓人質回家的最好辦法。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798905_1_20250404101144.jpg&q=90)
-  
-
-中國常駐聯合國代表傅聰表示，近日以色列宣布將擴大地面進攻、佔領加沙領土，中方對此表示嚴重關切，敦促以色列立即停止對加沙的軍事行動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm)
 
 ---
