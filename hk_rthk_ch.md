@@ -1,3 +1,27 @@
+# 格奧爾基耶娃稱美國關稅對全球經濟前景構成重大風險
+
+![格奧爾基耶娃呼籲美國與貿易夥伴以建設性方式，努力紓緩緊張局勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798917_1_20250404123303.jpg&q=90)
+  
+
+國際貨幣基金組織總裁格奧爾基耶娃表示，現時全球經濟增長低迷，美國總統特朗普周三宣布的全面關稅措施，對全球經濟構成重大風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm)
+
+---
+
 # 中國駐緬甸使館確認緬甸地震中累計5名中國公民遇難
 
 ![緬甸大地震的救援工作持續。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798920_1_20250404123006.jpg&q=90)
@@ -19,6 +43,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798920-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798920-20250404.htm)
+
+---
+
+# 西藏有藏族學生指學習漢語對未來發展重要　校方稱寄宿與否屬自願
+
+![校方表示，學習多種語言對學生的溝通能力有幫助。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798921_1_20250404123258.jpg&q=85)
+  
+
+西藏近年不少藏族學童入讀公立寄宿學校，每星期都要學習藏語、漢語及英語。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm)
 
 ---
 
@@ -46,31 +94,9 @@
 
 ---
 
-# 西藏有藏族學生指學習漢語對未來發展重要　校方稱寄宿與否屬自願
-
-  
-
-西藏近年不少藏族學童入讀公立寄宿學校，每星期都要學習藏語、漢語及英語。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm)
-
----
-
 # 當局就生態旅遊發展片區邀發展商交意向書　有議員倡改善交通配套
 
+![發展局就三個生態旅遊發展片區項目，邀請發展商提交意向書。（立法會文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798919_1_20250404123341.jpg&q=90)
   
 
 發展局就三個生態旅遊發展片區項目，邀請發展商提交意向書。
@@ -94,6 +120,7 @@
 
 # 羅淑佩稱夏寶龍特別關注香港要善用海島及海岸旅遊資源推陳出新
 
+![羅淑佩總結訪京行程，指港澳辦主任夏寶龍特別關注香港要在旅遊方面善用海島及海岸資源，推陳出新。（黃維波攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798918_1_20250404123228.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩總結訪京行程，指港澳辦主任夏寶龍特別關注香港要在旅遊方面善用海島及海岸資源，推陳出新。
@@ -1412,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798856-20250403.htm)
-
----
-
-# 美國上周首次申領失業救濟人數減至21.9萬人　少過預期
-
-![美國上星期首次申領失業救濟人數21.9萬人，按星期減少6000人，少過市場預期的22.5萬人。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798857_1_20250403212430.jpg&q=80)
-  
-
-美國勞工部公布，美國上星期首次申領失業救濟人數21.9萬人，按星期減少6000人，少過市場預期的22.5萬人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798857-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798857-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798857-20250403.htm)
 
 ---

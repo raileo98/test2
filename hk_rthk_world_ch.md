@@ -1,3 +1,27 @@
+# 格奧爾基耶娃稱美國關稅對全球經濟前景構成重大風險
+
+![格奧爾基耶娃呼籲美國與貿易夥伴以建設性方式，努力紓緩緊張局勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798917_1_20250404123303.jpg&q=90)
+  
+
+國際貨幣基金組織總裁格奧爾基耶娃表示，現時全球經濟增長低迷，美國總統特朗普周三宣布的全面關稅措施，對全球經濟構成重大風險。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm)
+
+---
+
 # 尹錫悅所屬執政國民力量黨稱接受裁決　尹錫悅代表律師稱令人費解
 
 ![反對尹錫悅的示威者聽到裁決結果後歡呼。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798916_1_20250404114517.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm)
-
----
-
-# 中方呼籲緬甸各方確保救援人員安全
-
-![郭嘉昆表示，中方救援隊伍和物資都安全。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798663_1_20250402185129.jpg&q=90)
-  
-
-路透社報道，中國紅十字會救援車隊昨晚在緬甸衝突區域行駛時，懷疑沒有聽從緬甸軍隊指示停車，緬甸軍隊向天開槍3次示警。在北京，外交部發言人郭嘉昆表示，救援隊伍和物資都安全，呼籲緬甸各方確保救援人員安全，以及救災交通路線暢通。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798663-20250402.htm)
 
 ---
