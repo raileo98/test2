@@ -1,6 +1,6 @@
 # South Korea court upholds President Yoon's impeachment
 
-![Moon Hyung-bae (Centre), acting chief justice of South Korea's Constitutional Court, speaks during the final ruling of South Korean president Yoon Suk Yeol's impeachment. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798910_1_20250404103033.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798910_1_20250404103033.jpg&q=90)
   
 
 South Korea's Constitutional Court on Friday decided to oust President Yoon Suk Yeol, upholding parliament's impeachment motion over his short-lived imposition of martial law last year that sparked the country's worst political crisis in decades.
