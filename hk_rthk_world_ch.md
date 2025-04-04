@@ -22,7 +22,7 @@
 
 ---
 
-# 路透：中國因美國關稅問題拒絕批准分拆TikTok交易
+# 路透：中國因美國關稅拒絕批准分拆TikTok交易
 
 ![其中一名知情人士說，有關交易的結構在星期三基本敲定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798994_1_20250405052506.jpg&q=90)
   
