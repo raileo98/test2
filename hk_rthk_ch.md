@@ -1,3 +1,72 @@
+# 中方在世貿組織起訴美國對等關稅措施
+
+  
+
+在北京，商務部表示，中方已在世貿組織爭端解決機制起訴美國「對等關稅」措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm)
+
+---
+
+# 中方將16間美國實體列入出口管制管控名單
+
+  
+
+在北京，商務部表示，為維護國家安全和利益，履行防擴散等國際義務，根據《出口管制法》及《兩用物項出口管制條例》等規定，決定將高點航空技術公司等16間美國實體列入出口管制管控名單，即日起禁止向有關美國實體出口兩用物項，正在開展的相關出口活動應立即停止；特殊情況下確需出口的，出口經營者應當向商務部提出申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm)
+
+---
+
+# 中方對中重稀土相關物項實施出口管制
+
+  
+
+商務部、海關總署發布公告，對中重稀土相關物項實施出口管制。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798955-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798955-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798955-20250404.htm)
+
+---
+
 # 中方將斯凱迪奧公司等11間美國企業列入不可靠實體清單
 
   
@@ -576,30 +645,6 @@
 
 ---
 
-# 青馬大橋五車相撞三人送院
-
-![青馬大橋五車相撞三人送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798922_1_20250404123116.jpg&q=90)
-  
-
-青馬大橋發生5車相撞意外，其中3人分別輕傷及不適送院，現場交通受阻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm)
-
----
-
 # 西藏有藏族學生指學習漢語對未來發展重要　校方稱寄宿與否屬自願
 
 ![校方表示，學習多種語言對學生的溝通能力有幫助。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798921_1_20250404123258.jpg&q=85)
@@ -621,6 +666,30 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm)
+
+---
+
+# 青馬大橋五車相撞三人送院
+
+![青馬大橋五車相撞三人送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798922_1_20250404123116.jpg&q=90)
+  
+
+青馬大橋發生5車相撞意外，其中3人分別輕傷及不適送院，現場交通受阻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm)
 
 ---
 

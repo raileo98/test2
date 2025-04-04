@@ -1,3 +1,49 @@
+# 中方在世貿組織起訴美國對等關稅措施
+
+  
+
+在北京，商務部表示，中方已在世貿組織爭端解決機制起訴美國「對等關稅」措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm)
+
+---
+
+# 中方將16間美國實體列入出口管制管控名單
+
+  
+
+在北京，商務部表示，為維護國家安全和利益，履行防擴散等國際義務，根據《出口管制法》及《兩用物項出口管制條例》等規定，決定將高點航空技術公司等16間美國實體列入出口管制管控名單，即日起禁止向有關美國實體出口兩用物項，正在開展的相關出口活動應立即停止；特殊情況下確需出口的，出口經營者應當向商務部提出申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm)
+
+---
+
 # 中方將斯凱迪奧公司等11間美國企業列入不可靠實體清單
 
   
@@ -1386,53 +1432,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798704-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798704-20250403.htm)
-
----
-
-# 以色列宣布擴大加沙軍事行動　迫使哈馬斯釋放人質
-
-![以軍在加沙南部巡邏。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798703_1_20250403021527.jpg&q=75)
-  
-
-以色列宣布擴大在加沙的軍事行動，迫使巴勒斯坦武裝組織哈馬斯釋放人質。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798703-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798703-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798703-20250403.htm)
-
----
-
-# 白宮：馬斯克完成政府效率部工作後將離開公職
-
-![馬斯克與特朗普關係密切。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798702_1_20250403014233.jpg&q=90)
-  
-
-美國白宮表示，富商馬斯克在完成政府效率部的工作後，將會離開公職。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798702-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798702-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798702-20250403.htm)
 
 ---

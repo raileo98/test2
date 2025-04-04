@@ -1,6 +1,55 @@
-# 中方公告對中重稀土相關物項實施出口管制
+# 中方在世貿組織起訴美國對等關稅措施
 
   
+
+在北京，商務部表示，中方已在世貿組織爭端解決機制起訴美國「對等關稅」措施。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798956-20250404.htm)
+
+---
+
+# 中方將16間美國實體列入出口管制管控名單
+
+  
+
+在北京，商務部表示，為維護國家安全和利益，履行防擴散等國際義務，根據《出口管制法》及《兩用物項出口管制條例》等規定，決定將高點航空技術公司等16間美國實體列入出口管制管控名單，即日起禁止向有關美國實體出口兩用物項，正在開展的相關出口活動應立即停止；特殊情況下確需出口的，出口經營者應當向商務部提出申請。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798954-20250404.htm)
+
+---
+
+# 中方對中重稀土相關物項實施出口管制
+
+  
+
+商務部、海關總署發布公告，對中重稀土相關物項實施出口管制。
+
   
 
 
@@ -1387,53 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm)
-
----
-
-# 中方：菲律賓與其他國家開展防務安全合作不應損害第三方利益
-
-![郭嘉昆說，關於菲律賓與美國的軍事安全合作，中方已經多次闡明立場。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798647_1_20250402172643.jpg&q=90)
-  
-
-在北京，外交部發言人郭嘉昆回應美國國務院宣布，已批准向菲律賓出售F-16戰機時表示，關於菲律賓與美國的軍事安全合作，中方已經多次闡明立場，菲律賓同其他國家開展的任何防務安全合作都不應該針對第三方或損害第三方的利益，更不能威脅地區的和平與安全，加劇地區緊張。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798647-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798647-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798647-20250402.htm)
-
----
-
-# 內地提出17項政策措施完善價格調控機制
-
-![國務院辦公廳印發的意見，提出17項政策舉措，涉及完善促進物價保持合理水平的價格調控機制、優化透明可預期的市場價格監管機制等。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798645_1_20250402170921.jpg&q=90)
-  
-
-國務院辦公廳印發《關於完善價格治理機制的意見》，提出17項政策舉措，涉及完善促進物價保持合理水平的價格調控機制、優化透明可預期的市場價格監管機制等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798645-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798645-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798645-20250402.htm)
 
 ---
