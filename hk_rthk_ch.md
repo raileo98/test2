@@ -1,3 +1,26 @@
+# 警拘7人涉兒童色情物品案　少年疑拍攝11歲胞妹不雅照
+
+  
+
+本港警方拘捕7人，懷疑他們與兒童色情物品案件有關。被捕人介乎16至49歲，警方共檢獲7部手提電話及11部電腦或外置儲存裝置，內有162段兒童色情影片及230張相片。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm)
+
+---
+
 # 中方指美方打著對等幌子嚴重損害以規則為基礎多邊貿易體制
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm)
-
----
-
-# 美國2月貿易逆差約1227億美元　對華逆差收窄
-
-![美國2月貿易逆差1226.6億美元，按月收窄6%，少過市場預期的1235億美元。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798859_1_20250403213336.jpg&q=80)
-  
-
-美國商務部公布，美國2月貿易逆差1226.6億美元，按月收窄6%，少過市場預期的1235億美元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798859-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798859-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798859-20250403.htm)
 
 ---
