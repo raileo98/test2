@@ -1,3 +1,27 @@
+# Israel kills Hamas 'commander' in Lebanon strike
+
+![The strike in a residential area of Sidon killed the official and his adult son and daughter. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798944_1_20250404164812.jpg&q=85)
+  
+
+Israel said it killed a commander of the Palestinian militant group Hamas on Friday in a strike in the Lebanese port city of Sidon that also killed his adult son and daughter.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798944-20250404.htm)
+
+---
+
 # S Korea seizes two tons of cocaine in record bust
 
 ![The drugs were packed in 56 sacks and hidden in a secret compartment behind the engine room. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798939_1_20250404153820.jpg&q=90)
@@ -1411,29 +1435,5 @@ Venezuelan authorities reported the arrival on Sunday of a new flight of 175 mig
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm)
-
----
-
-# Starmer, Trump discuss possible US-UK trade deal
-
-![British Prime Minister Keir Starmer had "productive" talks with US President Donald Trump about a potential UK-US trade deal. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798188_1_20250331085352.jpg&q=85)
-  
-
-Keir Starmer and Donald Trump spoke on Sunday and had "productive" talks towards a UK-US trade deal, the British Prime Minister's Downing Street office said on Sunday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm)
 
 ---
