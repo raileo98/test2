@@ -1,3 +1,26 @@
+# 美國網紅遊港多處有支持者等候　天后站有閘機被破壞港鐵已報警
+
+  
+
+一名美國網紅近日來港，今日到港九多個地點，多處有大批他的支持者等候。期間在港鐵天后站，有設施被毀壞，港鐵已經報警，並譴責作出相關行為的人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm)
+
+---
+
 # 莊太量指中國反制或令美國及歐洲股市下跌　料美國難應付多國反制
 
 ![莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798968_1_20250404205933.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798775-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798775-20250403.htm)
-
----
-
-# 涉火炭命案25歲男子被暫控謀殺罪
-
-![被捕男子昨日被警方帶到沙田及旺角的不同地方重組案情。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798773_1_20250403122602.jpg&q=80)
-  
-
-警方暫控一名25歲男子一項謀殺罪。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798773-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798773-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798773-20250403.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 美國網紅遊港多處有支持者等候　天后站有閘機被破壞港鐵已報警
+
+  
+
+一名美國網紅近日來港，今日到港九多個地點，多處有大批他的支持者等候。期間在港鐵天后站，有設施被毀壞，港鐵已經報警，並譴責作出相關行為的人士。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798970-20250404.htm)
+
+---
+
 # 特朗普：中國對貿易戰驚慌失措　自己政策不會變
 
 ![美國總統特朗普在社交平台指，自己政策不會變。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798969_1_20250404213821.jpg&q=90)
