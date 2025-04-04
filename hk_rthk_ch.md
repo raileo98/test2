@@ -1,3 +1,51 @@
+# 美股3大指數再挫近6%　道指低收2231點
+
+![美股連續兩日急挫，3大指數尾市跌幅擴大，跌近6%收市，齊創2020年3月以來最大兩日跌幅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798993_1_20250405052418.jpg&q=90)
+  
+
+美國對貿易夥伴徵收對等關稅，中國採取反制措施，貿易衝突升級令市場憂慮加劇，美股連續兩日急挫，3大指數尾市跌幅擴大，跌近6%收市，跌至逾10個月至逾11個月收市新低，並且齊創2020年3月以來最大兩日跌幅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798993-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798993-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798993-20250405.htm)
+
+---
+
+# 路透：中國因美國關稅問題拒絕批准分拆TikTok交易
+
+![其中一名知情人士說，有關交易的結構在星期三基本敲定。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798994_1_20250405052506.jpg&q=90)
+  
+
+路透社引述知情人士報道，美國總統特朗普宣布徵收對等關稅後，中國表示不會批准分拆字節跳動旗下短片分享平台TikTok在美資產的交易，有關交易被擱置。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798994-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798994-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798994-20250405.htm)
+
+---
+
 # 特朗普延長TikTok禁令寬限期　字節跳動稱關鍵問題仍須解決
 
 ![特朗普再度延長中國字節跳動出售旗下短片分享平台TikTok在美業務的限期75日。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798990_1_20250405042549.jpg&q=90)
@@ -1391,53 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm)
-
----
-
-# 當局就生態旅遊發展片區邀發展商交意向書　有議員倡改善交通配套
-
-![發展局就三個生態旅遊發展片區項目，邀請發展商提交意向書。（立法會文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798919_1_20250404123341.jpg&q=90)
-  
-
-發展局就三個生態旅遊發展片區項目，邀請發展商提交意向書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm)
-
----
-
-# 羅淑佩稱夏寶龍特別關注香港要善用海島及海岸旅遊資源推陳出新
-
-![羅淑佩總結訪京行程，指港澳辦主任夏寶龍特別關注香港要在旅遊方面善用海島及海岸資源，推陳出新。（黃維波攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798918_1_20250404123228.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩總結訪京行程，指港澳辦主任夏寶龍特別關注香港要在旅遊方面善用海島及海岸資源，推陳出新。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm)
 
 ---
