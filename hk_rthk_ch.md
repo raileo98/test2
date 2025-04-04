@@ -1,3 +1,97 @@
+# 中國駐緬甸使館確認緬甸地震中累計5名中國公民遇難
+
+![緬甸大地震的救援工作持續。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798920_1_20250404123006.jpg&q=90)
+  
+
+新華社報道，中國駐緬甸使館確認，截至今早11時，在緬甸地震中，累計有中國公民5人遇難，13名中國公民受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798920-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798920-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798920-20250404.htm)
+
+---
+
+# 青馬大橋五車相撞三人送院
+
+![青馬大橋五車相撞三人送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798922_1_20250404123116.jpg&q=90)
+  
+
+青馬大橋發生5車相撞意外，其中3人分別輕傷及不適送院，現場交通受阻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm)
+
+---
+
+# 西藏有藏族學生指學習漢語對未來發展重要　校方稱寄宿與否屬自願
+
+  
+
+西藏近年不少藏族學童入讀公立寄宿學校，每星期都要學習藏語、漢語及英語。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm)
+
+---
+
+# 當局就生態旅遊發展片區邀發展商交意向書　有議員倡改善交通配套
+
+  
+
+發展局就三個生態旅遊發展片區項目，邀請發展商提交意向書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm)
+
+---
+
 # 羅淑佩稱夏寶龍特別關注香港要善用海島及海岸旅遊資源推陳出新
 
   
@@ -48,6 +142,7 @@
 # 清明節不少市民掃墓　紙紮祭品略為加價
 
 ![鑽石山墳場有不少市民到場拜祭先人，附近有道路實施人潮管制措施。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798914_1_20250404113030.jpg&q=70)
+![有市民表示，今年紙紮等祭品較去年貴數元，主要加價的祭品是金銀衣紙，覺得可以接受。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798914_2_20250404122036.jpg&q=65)
   
 
 今日是清明節，在鑽石山墳場，不少市民到場拜祭先人，附近有道路實施人潮管制措施，警員在場維持秩序。有市民表示，人流較預期中少，與過往相比亦較少人，認為今日天氣好，有微風而且不會太曬。
@@ -1341,101 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798857-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798857-20250403.htm)
-
----
-
-# 抵港男旅客攜近5萬支未完稅香煙　判監7個月
-
-![涉案男子在西九龍裁判法院被判處監禁7個月5天。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798855_1_20250403211404.jpg&q=90)
-  
-
-一名入境男旅客因進口未完稅香煙以及未有向海關人員作出申報，以及進口另類吸煙產品，在西九龍裁判法院被判處監禁7個月5天。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798855-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798855-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798855-20250403.htm)
-
----
-
-# 國際油價急挫逾6%　OPEC+宣布加速增產
-
-![倫敦布蘭特期油較早時報每桶70.44美元，跌幅6%。紐約期油報67.09美元，跌逾6.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798853_1_20250403204609.jpg&q=90)
-  
-
-石油輸出國組織及其盟友（OPEC+）同意推進增產計劃，5月將石油日產量增加41.1萬桶，增幅遠高過原訂計劃的13.5萬桶。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798853-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798853-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798853-20250403.htm)
-
----
-
-# 中國海軍指美軍艦機偵察活動極易造成誤解誤判　危害中國安全
-
-![中國海軍指美軍艦機偵察活動極易造成誤解誤判　危害中國安全](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798852_2_20250403203305.jpg&q=90)
-  
-
-中美兩軍一連兩日在上海，舉行中美海上軍事安全磋商機制工作小組會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798852-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798852-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798852-20250403.htm)
-
----
-
-# 陳虹秀暴動罪成法庭聽取求情　案件押後至下周三判刑
-
-![案件押後至下星期三判刑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798850_1_20250403195702.jpg&q=80)
-  
-
-2019年灣仔的示威衝突，社工陳虹秀被捕，經審訊後被裁定罪脫，其後律政司上訴得直，案件發還重審。陳虹秀否認暴動罪受審後，暫委法官鍾明新早前裁定陳虹秀暴動罪成，辯方今日在區域法院求情，案件押後至下星期三與其他被告一同判刑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798850-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798850-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798850-20250403.htm)
 
 ---

@@ -1,3 +1,50 @@
+# 青馬大橋五車相撞三人送院
+
+![青馬大橋五車相撞三人送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798922_1_20250404123116.jpg&q=90)
+  
+
+青馬大橋發生5車相撞意外，其中3人分別輕傷及不適送院，現場交通受阻。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm)
+
+---
+
+# 當局就生態旅遊發展片區邀發展商交意向書　有議員倡改善交通配套
+
+  
+
+發展局就三個生態旅遊發展片區項目，邀請發展商提交意向書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798919-20250404.htm)
+
+---
+
 # 羅淑佩稱夏寶龍特別關注香港要善用海島及海岸旅遊資源推陳出新
 
   
@@ -24,6 +71,7 @@
 # 清明節不少市民掃墓　紙紮祭品略為加價
 
 ![鑽石山墳場有不少市民到場拜祭先人，附近有道路實施人潮管制措施。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798914_1_20250404113030.jpg&q=70)
+![有市民表示，今年紙紮等祭品較去年貴數元，主要加價的祭品是金銀衣紙，覺得可以接受。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798914_2_20250404122036.jpg&q=65)
   
 
 今日是清明節，在鑽石山墳場，不少市民到場拜祭先人，附近有道路實施人潮管制措施，警員在場維持秩序。有市民表示，人流較預期中少，與過往相比亦較少人，認為今日天氣好，有微風而且不會太曬。
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798682-20250402.htm)
-
----
-
-# 約4.8萬人應考文憑試中文科　考評局指各試場運作暢順
-
-![考評局表示，各試場學校整體運作暢順，考試順利按時完成。（張連登攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798681_1_20250402212515.jpg&q=85)
-  
-
-文憑試首個核心科目中文科今日開考，大約4萬8千名考生在超過430個一般試場和超過540個特別試場應考，考評局表示，各試場學校整體運作暢順，考試順利按時完成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798681-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798681-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798681-20250402.htm)
-
----
-
-# 特區救援隊救出一名生還者　指揮官：只要有一個機會也不會放棄
-
-![救援隊指揮官表示，能夠在地震發生6日後找到生還者，救援隊感到非常鼓舞和振奮。（香港消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798678_1_20250402210137.jpg&q=85)
-  
-
-正在緬甸地震災區協助搜救工作的特區救援隊，今日成功救出一名生還者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm)
 
 ---
