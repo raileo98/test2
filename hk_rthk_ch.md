@@ -1,3 +1,27 @@
+# 歐洲三大指數挫逾4%至近5%　倫敦指數錄約5年來最大單日跌幅
+
+![美國公布對等關稅，觸發市場動盪。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798982_1_20250405013609.jpg&q=90)
+  
+
+市場對貿易戰的預期升溫，歐洲三大指數全線下挫，跌幅超過4%至近5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798982-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798982-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798982-20250405.htm)
+
+---
+
 # 柬埔寨籲美國推遲關稅　即時下調部分美國商品關稅至5%以表誠意
 
 ![洪瑪奈說，柬埔寨政府決定立即將19類美國產品的進口關稅，從原來最高35%下調至5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798981_1_20250405011725.jpg&q=90)
@@ -27,7 +51,7 @@
 ![美國總統特朗普與越共中央總書記蘇林通電話。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798980_1_20250405011113.jpg&q=90)
   
 
-美國總統特朗普與越共中央總書記蘇林通電話，討論兩國關係和雙邊貿易議題。
+美國總統特朗普與越共中央總書記蘇林通電話，討論雙邊貿易議題。
 
   
 
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm)
-
----
-
-# 南韓憲法法院開庭　就尹錫悅彈劾案宣判
-
-![南韓憲法法院外有警察把守。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798907_1_20250404101728.jpg&q=90)
-  
-
-南韓憲法法院本港時間早上10時就停職總統尹錫悅彈劾案開庭宣判，全程電視直播。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm)
 
 ---
