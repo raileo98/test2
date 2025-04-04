@@ -1,3 +1,26 @@
+# 中國出多招反制美國　包括向原產美國的進口商品加34%關稅
+
+  
+
+中國就美國對華徵收對等關稅作出反制，由下周四中午起，對原產美國的進口商品加徵34%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798971-20250404.htm)
+
+---
+
 # 特朗普：中國對貿易戰驚慌失措　自己政策不會變
 
 ![美國總統特朗普在社交平台指，自己政策不會變。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798969_1_20250404213821.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798711-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798711-20250403.htm)
-
----
-
-# 美媒：國安團隊透過Signal群組協調對外政策　涉敏感資訊
-
-![報道說，華爾茲的團隊定期透過Signal建立群組，協調烏克蘭、中國、加沙、中東政策、非洲及歐洲等議題的官方工作。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798710_1_20250403034408.jpg&q=90)
-  
-
-美國政治新聞網站Politico引述消息人士報道，白宮國家安全顧問華爾茲的團隊定期透過聊天軟件Signal建立群組，協調涉及烏克蘭、中國、加沙、中東政策、非洲及歐洲等議題的官方工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798710-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798710-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798710-20250403.htm)
 
 ---

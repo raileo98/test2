@@ -1,5 +1,29 @@
+# 劉兆佳指中方反制肯定不只是姿態　莊太量料或引發小股災
+
+  
+
+全國港澳研究會顧問劉兆佳分析，中方以組合拳方式反制美國，肯定不會只是姿態，形容一定要令對方感到痛苦。而香港亦要研究是否對美國進口貨品施加關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798972-20250404.htm)
+
+---
+
 # 美國網紅遊港多處有支持者等候　天后站有閘機被破壞港鐵已報警
 
+![這名美國網紅今日到港九多個地點，多處有支持者等候。（直播截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798970_1_20250404215538.jpg&q=90)
   
 
 一名美國網紅近日來港，今日到港九多個地點，多處有大批他的支持者等候。期間在港鐵天后站，有設施被毀壞，港鐵已經報警，並譴責作出相關行為的人士。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798776-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798776-20250403.htm)
-
----
-
-# 醫健通用戶現可透過流動應用程式查閱公私營機構存入放射報告
-
-![醫健通用戶可以透過流動應用程式，查閱由醫管局、衞生署及私營醫護機構存入戶口的放射報告，方便市民了解自己的健康。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798775_1_20250403122709.jpg&q=90)
-  
-
-醫務衞生局公布，醫健通用戶可以透過流動應用程式，查閱由醫管局、衞生署及私營醫護機構存入戶口的放射報告，方便市民了解自己的健康。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798775-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798775-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798775-20250403.htm)
 
 ---
