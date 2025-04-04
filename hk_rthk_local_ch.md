@@ -1,5 +1,29 @@
+# 清明節不少市民掃墓　紙紮祭品略為加價
+
+  
+
+今日是清明節，在鑽石山墳場，不少市民到場祭拜先人，附近有道路實施人潮管制措施，警員在場維持秩序。有市民表示，人流較預期中少，與過往相比亦較少人，認為今日天氣好，有微風而且不會太曬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm)
+
+---
+
 # 運輸署發送「#」號開頭短訊提示繳費
 
+![運輸署提醒市民保持警覺，收到聲稱屬運輸署短訊時，要看清楚發送人名稱。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798913_1_20250404112228.jpg&q=80)
   
 
 運輸署表示，為便利不同用家精準識別各類服務，署方會按服務類別，經通訊辦短訊發送人登記制下「#」號開頭的發送人名稱，聯絡市民與用戶，提示大家繳交隧道費、泊車費，續牌、約期等。
@@ -23,6 +47,7 @@
 
 # 上水疑有狗隻被毒死　警方到場調查
 
+![上水古洞南路有狗隻懷疑進食有毒食物後死亡，警方在場調查。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798911_1_20250404112151.jpg&q=75)
   
 
 上水古洞南路有狗隻懷疑進食有毒食物後死亡，警方在場調查。
@@ -1409,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm)
-
----
-
-# 29歲女子洗澡後一氧化碳中毒　 機電署指熱水爐排氣管嚴重鏽蝕
-
-![機電署調查發現涉事熱水爐排氣管道出現嚴重鏽蝕，相信是導致意外發生的原因。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798676_1_20250402202946.jpg&q=60)
-  
-
-醫管局通報一宗一氧化碳中毒個案，一名29歲女子，前日在家洗澡後失去知覺，其家人隨即報警。她被送往仁濟醫院，再轉送東區尤德夫人那打素醫院接受治療，已經出院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm)
 
 ---

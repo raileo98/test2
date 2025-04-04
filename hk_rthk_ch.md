@@ -1,5 +1,29 @@
+# 清明節不少市民掃墓　紙紮祭品略為加價
+
+  
+
+今日是清明節，在鑽石山墳場，不少市民到場祭拜先人，附近有道路實施人潮管制措施，警員在場維持秩序。有市民表示，人流較預期中少，與過往相比亦較少人，認為今日天氣好，有微風而且不會太曬。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798914-20250404.htm)
+
+---
+
 # 運輸署發送「#」號開頭短訊提示繳費
 
+![運輸署提醒市民保持警覺，收到聲稱屬運輸署短訊時，要看清楚發送人名稱。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798913_1_20250404112228.jpg&q=80)
   
 
 運輸署表示，為便利不同用家精準識別各類服務，署方會按服務類別，經通訊辦短訊發送人登記制下「#」號開頭的發送人名稱，聯絡市民與用戶，提示大家繳交隧道費、泊車費，續牌、約期等。
@@ -47,6 +71,7 @@
 
 # 上水疑有狗隻被毒死　警方到場調查
 
+![上水古洞南路有狗隻懷疑進食有毒食物後死亡，警方在場調查。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798911_1_20250404112151.jpg&q=75)
   
 
 上水古洞南路有狗隻懷疑進食有毒食物後死亡，警方在場調查。
@@ -1412,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm)
-
----
-
-# 匈牙利宣布退出國際刑事法院
-
-![匈牙利拒執行國際刑事法院針對以色列總理內塔尼亞胡的拘捕令，並宣布退出國際刑事法院。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798846_1_20250403193828.jpg&q=90)
-  
-
-匈牙利拒執行國際刑事法院針對以色列總理內塔尼亞胡的拘捕令，並宣布退出國際刑事法院。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm)
 
 ---
