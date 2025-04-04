@@ -1,3 +1,52 @@
+# 敏昂萊在曼谷晤佩通坦討論打擊跨境詐騙
+
+![到泰國曼谷出席地區峰會的緬甸軍政府領袖敏昂萊，與泰國總理佩通坦會談，重點討論共同打擊電訊和網絡詐騙集團。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798948_1_20250404171008.jpg&q=90)
+![緬甸軍政府領袖敏昂萊與印度總理莫迪會面，討論雙邊聯繫和基建合作。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798948_2_20250404171008.jpg&q=90)
+  
+
+到泰國曼谷出席地區峰會的緬甸軍政府領袖敏昂萊，與泰國總理佩通坦會談。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798948-20250404.htm)
+
+---
+
+# 投資500萬美元可獲美居留權　特朗普展示金卡設計
+
+![特朗普在總統專機上展示金卡計劃。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798946_1_20250404170421.jpg&q=90)
+  
+
+美國政府推出價值500萬美元的「金卡移民簽證計劃」，吸引富有的外國投資者。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798946-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798946-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798946-20250404.htm)
+
+---
+
 # 美日韓外長會談　對俄朝推進軍事合作表示嚴重關切
 
 ![美日韓外長在比利時布魯塞爾舉行三國外長會談。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798943_1_20250404163844.jpg&q=90)
@@ -1386,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798699-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798699-20250403.htm)
-
----
-
-# 瑪麗娜勒龐上訴案明夏裁決　馬克龍籲尊重法院獨立作出的判決
-
-![被定罪後，瑪麗娜勒龐批評判決出於政治動機。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798697_1_20250402235011.jpg&q=90)
-  
-
-被裁定挪用公款罪成、處以監禁和罰款、5年內不得參選公職的法國極右國民聯盟領袖瑪麗娜勒龐，向法院提出上訴。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798697-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798697-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798697-20250403.htm)
-
----
-
-# 日本大隅半島東部近海發生6級地震
-
-![日本大隅半島東部近海發生6級地震](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798696_1_20250402234732.jpg&q=90)
-  
-
-日本九州宮崎縣大隅半島東部近海發生6級地震，氣象廳說，沒有海嘯風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798696-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798696-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798696-20250403.htm)
 
 ---

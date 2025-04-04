@@ -1,3 +1,27 @@
+# 全運會保齡球香港甄選賽明日起舉行
+
+![香港代表隊的甄選賽將會在明天、後天及下星期六，在啟德體育園啟德一號零售館的保齡球中心舉行。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798947_1_20250404172623.jpg&q=90)
+  
+
+第十五屆全運會年底舉行，首次將保齡球列為群眾賽事項目，並將在香港舉行。香港代表隊的甄選賽將會在明天、後天及下星期六，在啟德體育園啟德一號零售館的保齡球中心舉行，選出5男5女代表香港出賽。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798947-20250404.htm)
+
+---
+
 # 本港截至早上10時17萬人次出境　逾8萬人次入境
 
 ![出境方面，以羅湖口岸最多，有超過3萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798941_1_20250404162745.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798751-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798751-20250403.htm)
-
----
-
-# 何永賢：財政預算案放寬印花稅措施帶動細價樓市場趨活躍
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798748_1_20250403183535.jpg&q=90)
-  
-
-簡樸房規管方案近日出爐，外界關注簡樸房租金水平。房屋局局長何永賢在一個電台節目表示，租金水平視乎供求情況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm)
 
 ---

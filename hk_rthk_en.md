@@ -190,7 +190,7 @@ Youtube mega-star I-Show-Speed arrived in Hong Kong on Friday, after a live stre
 
 ---
 
-# HK manufacturers to wait-and-see amid Trump tariff
+# HK manufacturers to wait-and-see amid Trump tariffs
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798915_1_20250404113116.jpg&q=90)
   
