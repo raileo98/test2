@@ -1,3 +1,26 @@
+# 清明長假首日截至下午4時逾45萬人次出境
+
+  
+
+清明節3天長假期首日，截至下午4時，有近74萬人次進出本港，當中包括逾45萬人次出境，及28萬人入境。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798959-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798959-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798959-20250404.htm)
+
+---
+
 # 6地警方聯手打擊兒童色情物品拘捕435人　本港7名男子被捕
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798958_1_20250404185026.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798765-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798765-20250403.htm)
-
----
-
-# 元朗721事件　區院重審裁定王志榮暴動及蓄意傷人兩罪成立
-
-![區域法院裁定王志榮為犯案男子，暴動及蓄意傷人兩項罪名成立。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798763_1_20250403122322.jpg&q=90)
-  
-
-元朗站「721」事件，58歲被告王志榮暴動及蓄意傷人脫罪，律政司不服，提案件呈述上訴。去年上訴庭裁定律政司上訴得直，下令案件發還原審法官葉佐文重新考慮裁決，他今早於區域法院為重審裁決，裁定被告暴動及蓄意傷人兩項罪成，被告還押至下周二上午判刑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798763-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798763-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798763-20250403.htm)
 
 ---
