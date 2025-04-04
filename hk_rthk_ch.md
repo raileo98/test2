@@ -24,10 +24,10 @@
 
 # 8位在韓志願軍烈士遺骸身份確認
 
-![8位在韓志願軍烈士遺骸身份確認](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798949_1_20250404174147.jpg&q=90)
+![去年11月28日， 第十一批在韓中國人民志願軍烈士遺骸回國。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798949_2_20250404175355.jpg&q=90)
   
 
-央視新聞報道，從退役軍人事務部獲悉，8位在韓志願軍烈士遺骸的身份得以確認。
+央視新聞報道，從退役軍人事務部獲悉，8位在韓中國人民志願軍烈士遺骸的身份得以確認。
 
   
 
