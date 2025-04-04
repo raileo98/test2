@@ -1,3 +1,27 @@
+# 中方反制美國對等關稅　特朗普稱中國做法錯誤
+
+![特朗普日前公布對等關稅措施，其中對中國產品徵收34%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798976_1_20250405001323.jpg&q=90)
+  
+
+中國反制美國對華徵收對等關稅，宣布從下星期四中午起，對原產於美國的所有進口商品加徵34%關稅、將16間美國實體列入出口管制管控名單、將11間美國企業列入不可靠實體清單、對進口醫用CT球管發起產業競爭力調查、對7類中重稀土相關物項實施出口管制、暫停美國6間企業產品輸華。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798976-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798976-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798976-20250405.htm)
+
+---
+
 # 中國反制美國　道指早段曾瀉逾1700點
 
 ![中國推出關稅措施反制美國，美股3大指數連續第二日下挫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798975_1_20250404230200.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm)
-
----
-
-# 意總理稱美國關稅錯誤　澳洲總理指非朋友行為　加拿大將反制
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798727_1_20250403071846.jpg&q=90)
-  
-
-意大利總理梅洛尼說，美國新公布的關稅是錯誤，可能引發貿易戰，將盡力與美國達成協議。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm)
 
 ---

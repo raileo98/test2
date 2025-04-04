@@ -1,3 +1,27 @@
+# 中方反制美國對等關稅　特朗普稱中國做法錯誤
+
+![特朗普日前公布對等關稅措施，其中對中國產品徵收34%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798976_1_20250405001323.jpg&q=90)
+  
+
+中國反制美國對華徵收對等關稅，宣布從下星期四中午起，對原產於美國的所有進口商品加徵34%關稅、將16間美國實體列入出口管制管控名單、將11間美國企業列入不可靠實體清單、對進口醫用CT球管發起產業競爭力調查、對7類中重稀土相關物項實施出口管制、暫停美國6間企業產品輸華。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798976-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798976-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798976-20250405.htm)
+
+---
+
 # 中國反制美國　道指早段曾瀉逾1700點
 
 ![中國推出關稅措施反制美國，美股3大指數連續第二日下挫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798975_1_20250404230200.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm)
-
----
-
-# 日本2月家庭開支3個月來首次下跌
-
-![日本2月家庭開支按年下跌0.5%，跌幅小過市場預期，但就是3個月來首次下跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798902_1_20250404094446.jpg&q=85)
-  
-
-日本2月家庭開支按年下跌0.5%，跌幅小過市場預期，但就是3個月來首次下跌，反映物價高企打擊日本家庭消費意欲。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798902-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798902-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798902-20250404.htm)
 
 ---
