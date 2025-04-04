@@ -1,3 +1,27 @@
+# 中亞與歐盟宣布建立戰略夥伴　在關鍵原材料領域加強合作
+
+![中亞五國及歐盟領導人在烏茲別克撒馬爾罕舉行首屆中亞-歐盟峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798985_1_20250405024157.jpg&q=90)
+  
+
+中亞五國及歐盟領導人在烏茲別克撒馬爾罕舉行首屆中亞-歐盟峰會，雙方宣布建立戰略夥伴關係，中亞五國與歐盟簽署關鍵原材料合作意向聲明，宣布在關鍵原材料領域加強合作。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798985-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798985-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798985-20250405.htm)
+
+---
+
 # 烏克蘭克里沃伊羅格市住宅區遭俄軍襲擊至少26死
 
 ![烏克蘭克里沃伊羅格市住宅區遭俄軍襲擊至少26死](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798984_1_20250405021830.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm)
-
----
-
-# 上水疑有狗隻被毒死　警方到場調查
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798911_1_20250404112151.jpg&q=75)
-  
-
-上水古洞南路有狗隻懷疑進食有毒食物後死亡，警方在場調查。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798911-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798911-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798911-20250404.htm)
 
 ---
