@@ -1,3 +1,27 @@
+# S Korea seizes two tons of cocaine in record bust
+
+![The drugs were packed in 56 sacks and hidden in a secret compartment behind the engine room. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798939_1_20250404153820.jpg&q=90)
+  
+
+South Korea discovered and seized two tons of cocaine hidden aboard a Norwegian-flagged vessel, authorities said on Friday, marking the country's largest drug bust to date.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm)
+
+---
+
 # South Korea court upholds President Yoon's impeachment
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798910_1_20250404103033.jpg&q=90)
@@ -1411,29 +1435,5 @@ Keir Starmer and Donald Trump spoke on Sunday and had "productive" talks towards
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798188-20250331.htm)
-
----
-
-# Myanmar quake a top-level emergency, says WHO
-
-![Rescuers work at the site of a damaged building in Mandalay. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798187_1_20250331084335.jpg&q=45)
-  
-
-The World Health Organisation (WHO) said on Sunday that the Myanmar earthquake was a top-level emergency as it urgently sought US$8 million to save lives and prevent disease outbreaks over the next 30 days.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm)
 
 ---

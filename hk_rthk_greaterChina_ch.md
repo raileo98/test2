@@ -1,3 +1,26 @@
+# 特區救援隊與國家隊義診緬甸地震災民
+
+  
+
+正在緬甸協助救援的特區救援隊，聯同國家隊在災區設置帳篷義診，帶同醫療裝備，例如量度維生指數的儀器、處理傷口的消毒用品等，協助災民處理傷患及提供藥物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm)
+
+---
+
 # 中方指美方打著對等幌子嚴重損害以規則為基礎多邊貿易體制
 
 ![發言人指美方做法是典型的單邊霸凌主義。（中國駐美國使館官網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798925_1_20250404130945.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798615-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798615-20250402.htm)
-
----
-
-# 往來航班增加　疫情後港人到西藏旅遊有上升趨勢
-
-![上月28日，人們在拉薩市宗角祿康公園內載歌載舞，慶祝西藏百萬農奴解放66周年。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798605_1_20250402134731.jpg&q=90)
-  
-
-西藏去年遊客數字錄得超過6300萬人次，按年增長15%，創歷史新高，帶動當地的經濟收入。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798605-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798605-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798605-20250402.htm)
 
 ---

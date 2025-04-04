@@ -1,3 +1,26 @@
+# 特區救援隊與國家隊義診緬甸地震災民
+
+  
+
+正在緬甸協助救援的特區救援隊，聯同國家隊在災區設置帳篷義診，帶同醫療裝備，例如量度維生指數的儀器、處理傷口的消毒用品等，協助災民處理傷患及提供藥物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm)
+
+---
+
 # 警方薄扶林檢市值逾800萬元私煙
 
   
@@ -1410,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798739-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798739-20250403.htm)
-
----
-
-# 龍翔道和呈翔道發生多宗交通意外　部份行車線封閉
-
-![現場所見，其中一輛私家車撞至尾部剷起，壓在另一輛車的車頂上。（網上圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798738_3_20250403095732.jpg&q=90)
-  
-
-龍翔道和呈翔道先後發生多宗交通意外。早上大約7時半，龍翔道往觀塘方向近龍翔道公園有7車相撞，全部涉及私家車，現場所見，其中一輛私家車撞至尾部剷起，壓在另一輛車的車頂上，兩人輕傷，現場部份行車線封閉。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798738-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798738-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798738-20250403.htm)
 
 ---

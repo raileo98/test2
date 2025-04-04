@@ -1,3 +1,27 @@
+# S Korea seizes two tons of cocaine in record bust
+
+![The drugs were packed in 56 sacks and hidden in a secret compartment behind the engine room. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798939_1_20250404153820.jpg&q=90)
+  
+
+South Korea discovered and seized two tons of cocaine hidden aboard a Norwegian-flagged vessel, authorities said on Friday, marking the country's largest drug bust to date.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798939-20250404.htm)
+
+---
+
 # Fernandez header powers Chelsea into fourth
 
 ![Spurs boss Ange Postecoglu had to endure chants of "you don't know what you're doing" from his own side's fans. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798934_1_20250404151409.jpg&q=90)
@@ -1414,29 +1438,5 @@ South Korean police will mobilise "all available resources" to prevent violence 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798612-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798612-20250402.htm)
-
----
-
-# Myanmar man pulled from ruins five days after quake
-
-![Buildings in Sagaing, near the epicentre of the 7.7-magnitude earthquake, are left in various states of peril. Photo: Yomiuri Shimbun/AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798607_1_20250402134730.jpg&q=85)
-  
-
-Rescuers on Wednesday pulled a man alive from the rubble five days after Myanmar's devastating earthquake, as calls grew for the junta to allow more aid in and halt attacks on rebels.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798607-20250402.htm)
 
 ---

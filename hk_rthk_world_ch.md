@@ -1,3 +1,50 @@
+# 特區救援隊與國家隊義診緬甸地震災民
+
+  
+
+正在緬甸協助救援的特區救援隊，聯同國家隊在災區設置帳篷義診，帶同醫療裝備，例如量度維生指數的儀器、處理傷口的消毒用品等，協助災民處理傷患及提供藥物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm)
+
+---
+
+# 尹錫悅被罷免總統職務　代總統指示保持戒備防北韓挑釁
+
+![尹錫悅成為南韓憲政史上第二位被罷免的總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798937_1_20250404153208.jpg&q=90)
+  
+
+南韓憲法法院通過對尹錫悅的彈劾案，尹錫悅即時被罷免總統職務。尹錫悅通過律師說，未能滿足國民期望，感到非常遺憾和抱歉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm)
+
+---
+
 # 被彈劾下台後　尹錫悅向國民稱未能達到預期感遺憾抱歉
 
 ![尹錫悅成為繼朴謹惠後第二位被彈劾下台的總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798929_1_20250404131635.jpg&q=90)
@@ -1386,53 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798693-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798693-20250402.htm)
-
----
-
-# 特區救援隊救出一名生還者　指揮官：只要有一個機會也不會放棄
-
-![救援隊指揮官表示，能夠在地震發生6日後找到生還者，救援隊感到非常鼓舞和振奮。（香港消防處社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798678_1_20250402210137.jpg&q=85)
-  
-
-正在緬甸地震災區協助搜救工作的特區救援隊，今日成功救出一名生還者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm)
-
----
-
-# 鄧炳強感謝國家及特區救援隊救出生還者　稱開心感動又驕傲
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798674_1_20250402202915.jpg&q=85)
-  
-
-保安局局長鄧炳強表示，剛剛收到特區救援隊帶來好消息，於曼德勒65街一間酒店的瓦礫中救出生還者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm)
 
 ---

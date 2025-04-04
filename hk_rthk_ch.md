@@ -1,3 +1,50 @@
+# 特區救援隊與國家隊義診緬甸地震災民
+
+  
+
+正在緬甸協助救援的特區救援隊，聯同國家隊在災區設置帳篷義診，帶同醫療裝備，例如量度維生指數的儀器、處理傷口的消毒用品等，協助災民處理傷患及提供藥物。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798938-20250404.htm)
+
+---
+
+# 尹錫悅被罷免總統職務　代總統指示保持戒備防北韓挑釁
+
+![尹錫悅成為南韓憲政史上第二位被罷免的總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798937_1_20250404153208.jpg&q=90)
+  
+
+南韓憲法法院通過對尹錫悅的彈劾案，尹錫悅即時被罷免總統職務。尹錫悅通過律師說，未能滿足國民期望，感到非常遺憾和抱歉。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798937-20250404.htm)
+
+---
+
 # 警方薄扶林檢市值逾800萬元私煙
 
   
@@ -1388,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798869-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798869-20250403.htm)
-
----
-
-# 道指曾跌近1600點　納指跌逾5%
-
-![道瓊斯指數一度跌近1600點，較早時報40723點，跌1501點，跌幅3.56%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798868_1_20250403224545.jpg&q=90)
-  
-
-美股3大指數跌幅擴大，大型科技股急挫。美國宣布對多個國家及地區徵收對等關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798868-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798868-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798868-20250403.htm)
-
----
-
-# 標普全球美國3月服務業PMI終值為54.4　略好過預期
-
-![標普全球公布，美國3月服務業PMI終值為54.4，略好過市場預期。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798866_1_20250403231739.jpg&q=90)
-  
-
-標普全球公布，美國3月服務業採購經理指數（PMI）終值為54.4，好過市場預期及初值的54.3。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798866-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798866-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798866-20250403.htm)
 
 ---
