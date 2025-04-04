@@ -1,3 +1,26 @@
+# 西甲愛斯賓奴4:0華歷簡奴　紓緩降班壓力
+
+  
+
+西班牙甲組足球聯賽方面，愛斯賓奴4:0大勝華歷簡奴，紓緩降班壓力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799000-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799000-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799000-20250405.htm)
+
+---
+
 # 美國3月非農業新增職位勝預期　分析料關稅影響最早4月數據反映
 
 ![分析估計，對等關稅帶來的影響，最快在4月美國非農業就業報告顯現。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798998_1_20250405072254.jpg&q=90)
@@ -24,6 +47,7 @@
 
 # 德甲拜仁3:1反勝奧格斯堡　鞏固榜首位置
 
+![哈利簡尼（右）為球隊頂入反先一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798999_1_20250405073638.jpg&q=90)
   
 
 德國甲組足球聯賽，拜仁慕尼黑作客3:1反勝奧格斯堡，鞏固榜首位置。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm)
-
----
-
-# 中方指美方打著對等幌子嚴重損害以規則為基礎多邊貿易體制
-
-![發言人指美方做法是典型的單邊霸凌主義。（中國駐美國使館官網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798925_1_20250404130945.jpg&q=90)
-  
-
-中國駐美國使館發言人表示，中方堅決反對美方宣布的所謂對等關稅，將採取必要措施，堅定維護自身正當利益。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm)
 
 ---

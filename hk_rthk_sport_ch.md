@@ -1,5 +1,29 @@
+# 西甲愛斯賓奴4:0華歷簡奴　紓緩降班壓力
+
+  
+
+西班牙甲組足球聯賽方面，愛斯賓奴4:0大勝華歷簡奴，紓緩降班壓力。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799000-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799000-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799000-20250405.htm)
+
+---
+
 # 德甲拜仁3:1反勝奧格斯堡　鞏固榜首位置
 
+![哈利簡尼（右）為球隊頂入反先一球。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798999_1_20250405073638.jpg&q=90)
   
 
 德國甲組足球聯賽，拜仁慕尼黑作客3:1反勝奧格斯堡，鞏固榜首位置。
@@ -1434,29 +1458,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797055-20250323.htm)
-
----
-
-# 七欖賽事套票已售近43000張　大會料13萬8千名觀眾入場
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797028_1_20250323160849.jpg&q=80)
-  
-
-香港國際七人欖球賽本月28至30日、一連3天在啟德體育園主場館舉行，大會表示，過去一周再售出8000張門票，三日的套票累計已售出近43000張，預計一連三日的比賽將有13萬8千名觀眾入場。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm)
 
 ---
