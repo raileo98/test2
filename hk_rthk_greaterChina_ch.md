@@ -1,3 +1,23 @@
+# 中方公告對中重稀土相關物項實施出口管制
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798955-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798955-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798955-20250404.htm)
+
+---
+
 # 中方將斯凱迪奧公司等11間美國企業列入不可靠實體清單
 
   
@@ -23,6 +43,7 @@
 
 # 中國對美國所有進口商品加徵34%關稅
 
+![國務院關稅稅則委員會宣布本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798952_1_20250404182448.jpg&q=90)
   
 
 國務院關稅稅則委員會宣布，本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。
@@ -1414,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798645-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798645-20250402.htm)
-
----
-
-# 中國政府援助緬甸第二批物資明天啟運
-
-![中國政府首批援助物資日前運抵緬甸仰光國際機場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798641_1_20250402170035.jpg&q=90)
-  
-
-央視新聞報道，從國家國際發展合作署了解，中國政府對緬甸援助的第二批抗震救災物資計劃明天上午啟運。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm)
 
 ---
