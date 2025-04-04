@@ -1,3 +1,75 @@
+# Tourism chief vows to remain principled in her work
+
+![Rosanna Law has been on her first visit to Beijing since becoming the Secretary for Culture, Sports and Tourism. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798932_1_20250404134405.jpg&q=90)
+  
+
+The Secretary for Sports, Culture and Tourism emphasised that she will stay principled and innovative in her work, as she wrapped up her three-day trip to Beijing on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm)
+
+---
+
+# People flock to cemeteries on Ching Ming Festival
+
+![People say the crowd at a cemetery in Diamond Hill was smaller than expected. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798931_1_20250404133333.jpg&q=60)
+  
+
+People on Friday flocked to cemeteries to pay their respects to their ancestors as part of tradition for the Ching Ming Festival.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm)
+
+---
+
+# Five men arrested in relation to child pornography
+
+![Police say hundreds of videos and photos related to child pornography were found in the suspects' electronic devices. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798927_1_20250404125856.jpg&q=90)
+  
+
+Police on Friday said five local men were arrested in relation to child pornography, as officers warned about AI-generated pornographic images.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798927-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798927-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798927-20250404.htm)
+
+---
+
 # Youtube megastar IShowSpeed arrives in Hong Kong
 
 ![Popular streamer IShowSpeed took part in "villain-hitting" in Causeway Bay. Photo: YouTube/IShowSpeed](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798924_1_20250404125426.jpg&q=90)
@@ -1366,77 +1438,5 @@ American actor Val Kilmer, who was first propelled to fame with "Top Gun" and we
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798601-20250402.htm)
-
----
-
-# Sydney beachfront homes take battering from waves
-
-![Bondi beach in Sydney was hit by a 5.5-metre wave. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798598_1_20250402124618.jpg&q=90)
-  
-
-Sydney beachfront properties were flooded and coastal infrastructure damaged after a large swell combined with a king tide to batter the Australian shore, officials said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798598-20250402.htm)
-
----
-
-# Beijing puts store in EVs for shoring up power grids
-
-![Electric vehicles in Shenzhen will be among those used for storage to meet peak demand on power grids. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798596_1_20250402123635.jpg&q=85)
-  
-
-China plans to launch pilot projects in nine cities that would use the country's growing fleet of electric vehicles as batteries to shore up power supply on the grid during spikes in demand, according to a government announcement on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798596-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798596-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798596-20250402.htm)
-
----
-
-# Trump-backed candidate loses Wisconsin court election
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798589_1_20250402120941.jpg&q=90)
-  
-
-The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenger endorsed by US President Donald Trump and billionaire Elon Musk, touting her victory as a win against powerful interests and cementing a liberal majority for at least three more years.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm)
 
 ---

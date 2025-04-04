@@ -22,7 +22,7 @@
 
 ---
 
-# 被彈劾下台後　尹錫悅向國民稱未能達到預期感遺憾
+# 被彈劾下台後　尹錫悅向國民稱未能達到預期感遺憾抱歉
 
 ![尹錫悅成為繼朴謹惠後第二位被彈劾下台的總統。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798929_1_20250404131635.jpg&q=90)
   

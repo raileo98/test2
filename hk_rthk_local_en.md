@@ -1,3 +1,75 @@
+# Tourism chief vows to remain principled in her work
+
+![Rosanna Law has been on her first visit to Beijing since becoming the Secretary for Culture, Sports and Tourism. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798932_1_20250404134405.jpg&q=90)
+  
+
+The Secretary for Sports, Culture and Tourism emphasised that she will stay principled and innovative in her work, as she wrapped up her three-day trip to Beijing on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798932-20250404.htm)
+
+---
+
+# People flock to cemeteries on Ching Ming Festival
+
+![People say the crowd at a cemetery in Diamond Hill was smaller than expected. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798931_1_20250404133333.jpg&q=60)
+  
+
+People on Friday flocked to cemeteries to pay their respects to their ancestors as part of tradition for the Ching Ming Festival.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798931-20250404.htm)
+
+---
+
+# Five men arrested in relation to child pornography
+
+![Police say hundreds of videos and photos related to child pornography were found in the suspects' electronic devices. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798927_1_20250404125856.jpg&q=90)
+  
+
+Police on Friday said five local men were arrested in relation to child pornography, as officers warned about AI-generated pornographic images.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798927-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798927-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798927-20250404.htm)
+
+---
+
 # Youtube megastar IShowSpeed arrives in Hong Kong
 
 ![Popular streamer IShowSpeed took part in "villain-hitting" in Causeway Bay. Photo: YouTube/IShowSpeed](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798924_1_20250404125426.jpg&q=90)
@@ -1367,80 +1439,5 @@ Police Commissioner Raymond Siu on Sunday said the force's efforts to raise its 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm)
-
----
-
-# HK sets aside HK$30 million for Myanmar quake victims
-
-![A 51-member SAR rescue team has arrived in Yangon. Photo: Security Bureau's Facebook](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798095_1_20250330110807.jpg&q=90)
-  
-
-Chief Executive John Lee says the SAR government has earmarked HK$30 million from the Disaster Relief Fund to help victims of the severe earthquake that struck central Myanmar on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798095-20250330.htm)
-
----
-
-# Police arrest woman in Tseung Kwan O drugs bust
-
-![During a raid on a flat, police found suspected drugs and suspected drug-making equipment. Photo: Courtesy of Hong Kong Police](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798087_2_20250330095027.jpg&q=80)
-  
-
-A 43-year-old Indonesian woman remains in police custody on Sunday following her arrest in a Tseung Kwan O drugs operation late on Friday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798087-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798087-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798087-20250330.htm)
-
----
-
-# Fans revel in electric second day of HK Sevens
-
-![Rugby fans fill up the Kai Tak Stadium. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_2_20250329184242.jpg&q=20)
-![Fans watch the New Zealand men's squad battle it out against South Africa. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_1_20250329183213.jpg&q=85)
-![Costumes were on full display at the South Stand. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_3_20250329183213.jpg&q=85)
-![Fiji fans cheer during day two of Rugby Sevens action. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798035_4_20250329183213.jpg&q=65)
-  
-
-Fans soaked up the raucous atmosphere at the new Kai Tak Stadium where the Hong Kong Sevens are being held for the first time.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm)
 
 ---
