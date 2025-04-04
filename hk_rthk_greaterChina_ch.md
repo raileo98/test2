@@ -1,3 +1,27 @@
+# 8位在韓志願軍烈士遺骸身份確認
+
+![8位在韓志願軍烈士遺骸身份確認](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798949_1_20250404174147.jpg&q=90)
+  
+
+央視新聞報道，從退役軍人事務部獲悉，8位在韓志願軍烈士遺骸的身份得以確認。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm)
+
+---
+
 # 全運會保齡球香港甄選賽明日起舉行
 
 ![香港代表隊的甄選賽將會在明天、後天及下星期六，在啟德體育園啟德一號零售館的保齡球中心舉行。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798947_1_20250404172623.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798627-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798627-20250402.htm)
-
----
-
-# 夏寶龍會見羅淑佩等訪京特區官員
-
-![在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見正進行訪京行程的文化體育及旅遊局局長羅淑佩。（國務院港澳事務辦公室）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798625_1_20250402152615.jpg&q=90)
-  
-
-在北京，中央港澳辦、國務院港澳辦主任夏寶龍會見正進行訪京行程的文化體育及旅遊局局長羅淑佩。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798625-20250402.htm)
 
 ---

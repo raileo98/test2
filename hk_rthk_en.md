@@ -1,3 +1,27 @@
+# Trump unveils first US$5 million 'gold card' visa
+
+![Donald Trump claims that sales of the new visa will bring in job creators and could be used to reduce the US national deficit. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798945_1_20250404165741.jpg&q=90)
+  
+
+US President Donald Trump unveiled the first "gold card," a residency permit to be sold for US$5 million each, aboard Air Force One on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm)
+
+---
+
 # Israel kills Hamas 'commander' in Lebanon strike
 
 ![The strike in a residential area of Sidon killed the official and his adult son and daughter. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798944_1_20250404164812.jpg&q=85)
@@ -1414,29 +1438,5 @@ Executive Council convenor Regina Ip on Wednesday said she believes new police c
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798621-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798621-20250402.htm)
-
----
-
-# Chinese companies abroad told to abide by local laws
-
-![The skyscraper that collapsed was a joint project involving an offshoot of China Railway Group. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798620_1_20250402151025.jpg&q=90)
-  
-
-China's embassy in Bangkok called on the country's companies operating abroad to comply with local laws after a Chinese construction firm came under scrutiny over a deadly building collapse in Friday's earthquake.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798620-20250402.htm)
 
 ---

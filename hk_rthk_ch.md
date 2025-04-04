@@ -1,3 +1,27 @@
+# 8位在韓志願軍烈士遺骸身份確認
+
+![8位在韓志願軍烈士遺骸身份確認](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798949_1_20250404174147.jpg&q=90)
+  
+
+央視新聞報道，從退役軍人事務部獲悉，8位在韓志願軍烈士遺骸的身份得以確認。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798949-20250404.htm)
+
+---
+
 # 敏昂萊在曼谷晤佩通坦討論打擊跨境詐騙
 
 ![到泰國曼谷出席地區峰會的緬甸軍政府領袖敏昂萊，與泰國總理佩通坦會談，重點討論共同打擊電訊和網絡詐騙集團。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798948_1_20250404171008.jpg&q=90)
