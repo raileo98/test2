@@ -1,3 +1,26 @@
+# 特朗普：將簽行政命令讓TikTok運行多75日以便達成協議
+
+  
+
+美國總統特朗普在社交平台表示，將會簽署行政命令，讓中國字節跳動旗下短片分享平台TikTok運行多75日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798983-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798983-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798983-20250405.htm)
+
+---
+
 # 柬埔寨籲美國推遲關稅　即時下調部分美國商品關稅至5%以表誠意
 
 ![洪瑪奈說，柬埔寨政府決定立即將19類美國產品的進口關稅，從原來最高35%下調至5%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798981_1_20250405011725.jpg&q=90)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm)
-
----
-
-# 烏克蘭克里沃伊羅格市遭俄軍導彈襲擊至少4死十多傷
-
-![克里沃伊羅格市曾多次遭俄軍大規模空襲。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798761_1_20250403110039.jpg&q=35)
-  
-
-烏克蘭克里沃伊羅格市遭俄羅斯導彈襲擊，至少4人死亡，另有14人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798761-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798761-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798761-20250403.htm)
 
 ---

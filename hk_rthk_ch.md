@@ -1,3 +1,26 @@
+# 特朗普：將簽行政命令讓TikTok運行多75日以便達成協議
+
+  
+
+美國總統特朗普在社交平台表示，將會簽署行政命令，讓中國字節跳動旗下短片分享平台TikTok運行多75日。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798983-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798983-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798983-20250405.htm)
+
+---
+
 # 歐洲三大指數挫逾4%至近5%　倫敦指數錄約5年來最大單日跌幅
 
 ![美國公布對等關稅，觸發市場動盪。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798982_1_20250405013609.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798909-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798909-20250404.htm)
-
----
-
-# 區議員憂南大嶼生態景點交通難負荷　促增設停車位
-
-![劉展鵬擔心交通難以負荷，建議將改善陸路交通及增設停車位放入發展計劃。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798908_1_20250404103107.jpg&q=90)
-  
-
-發展局就前南丫島石礦場用地、南大嶼生態康樂走廊，以及尖鼻咀及白泥三個生態旅遊發展項目，邀請發展商在三個月內提交意向書。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm)
 
 ---
