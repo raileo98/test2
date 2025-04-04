@@ -1,3 +1,75 @@
+# 港股美國預託證券急挫　恒指ADR指數跌507點
+
+![港股美國預託證券急挫，恒指ADR指數報22343點，比星期四恒指收市跌507點，跌幅2.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798997_1_20250405060331.jpg&q=90)
+  
+
+港股美國預託證券(ADR)急挫，恒指ADR指數報22343點，比星期四恒指收市跌507點，跌幅2.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm)
+
+---
+
+# 金價曾挫逾3%　下試3000美元關口
+
+![現貨金一度跌逾3%，跌至每盎司3016美元水平，較早時徘徊3037美元，跌2.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798996_1_20250405055651.jpg&q=85)
+  
+
+金價下跌，貿易戰加劇引發投資者對全球經濟衰退的擔憂，投資者拋售黃金，以填補股市大跌帶來的損失。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm)
+
+---
+
+# 英美期油低收約7%或以上　OPEC+增產加劇油價跌勢
+
+![油價急挫，英美期油曾創4年新低，收市分別跌6.5%及7.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798995_1_20250405055022.jpg&q=90)
+  
+
+油價急挫，英美期油曾創4年新低，中國採取反制措施，對美國商品加徵關稅，市場憂慮全球貿易戰急劇升溫，引發經濟衰退。投資銀行摩根大通預料，今年底前，全球經濟衰退可能性由40%上升至60%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm)
+
+---
+
 # 憂貿易戰升級　美股3大指數再挫近6%　道指低收2231點
 
 ![美股連續兩日急挫，3大指數尾市跌幅擴大，跌近6%收市，齊創2020年3月以來最大兩日跌幅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798993_1_20250405052418.jpg&q=90)
@@ -1367,77 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm)
-
----
-
-# 中國駐緬甸使館確認緬甸地震中累計5名中國公民遇難
-
-![緬甸大地震的救援工作持續。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798920_1_20250404123006.jpg&q=90)
-  
-
-新華社報道，中國駐緬甸使館確認，截至今早11時，在緬甸地震中，累計有中國公民5人遇難，13名中國公民受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798920-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798920-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798920-20250404.htm)
-
----
-
-# 青馬大橋五車相撞三人送院
-
-![青馬大橋五車相撞三人送院](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798922_1_20250404123116.jpg&q=90)
-  
-
-青馬大橋發生5車相撞意外，其中3人分別輕傷及不適送院，現場交通受阻。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798922-20250404.htm)
-
----
-
-# 西藏有藏族學生指學習漢語對未來發展重要　校方稱寄宿與否屬自願
-
-![校方表示，學習多種語言對學生的溝通能力有幫助。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798921_1_20250404123258.jpg&q=85)
-  
-
-西藏近年不少藏族學童入讀公立寄宿學校，每星期都要學習藏語、漢語及英語。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798921-20250404.htm)
 
 ---

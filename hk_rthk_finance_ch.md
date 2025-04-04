@@ -1,3 +1,75 @@
+# 港股美國預託證券急挫　恒指ADR指數跌507點
+
+![港股美國預託證券急挫，恒指ADR指數報22343點，比星期四恒指收市跌507點，跌幅2.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798997_1_20250405060331.jpg&q=90)
+  
+
+港股美國預託證券(ADR)急挫，恒指ADR指數報22343點，比星期四恒指收市跌507點，跌幅2.2%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798997-20250405.htm)
+
+---
+
+# 金價曾挫逾3%　下試3000美元關口
+
+![現貨金一度跌逾3%，跌至每盎司3016美元水平，較早時徘徊3037美元，跌2.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798996_1_20250405055651.jpg&q=85)
+  
+
+金價下跌，貿易戰加劇引發投資者對全球經濟衰退的擔憂，投資者拋售黃金，以填補股市大跌帶來的損失。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798996-20250405.htm)
+
+---
+
+# 英美期油低收約7%或以上　OPEC+增產加劇油價跌勢
+
+![油價急挫，英美期油曾創4年新低，收市分別跌6.5%及7.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798995_1_20250405055022.jpg&q=90)
+  
+
+油價急挫，英美期油曾創4年新低，中國採取反制措施，對美國商品加徵關稅，市場憂慮全球貿易戰急劇升溫，引發經濟衰退。投資銀行摩根大通預料，今年底前，全球經濟衰退可能性由40%上升至60%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798995-20250405.htm)
+
+---
+
 # 憂貿易戰升級　美股3大指數再挫近6%　道指低收2231點
 
 ![美股連續兩日急挫，3大指數尾市跌幅擴大，跌近6%收市，齊創2020年3月以來最大兩日跌幅。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798993_1_20250405052418.jpg&q=90)
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm)
-
----
-
-# 現貨金創新高後回軟
-
-![現貨金高見每盎司3167.57美元創新高，較早時報3127.12美元，跌幅0.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798790_1_20250403144000.jpg&q=80)
-  
-
-金價再創新高，美國總統特朗普發布較預期更為激進的對等關稅政策，資金流入金市避險，其後稍為回軟。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798790-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798790-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798790-20250403.htm)
-
----
-
-# 日股急挫近3%收市　曾跌至近8個月即市新低
-
-![日經指數初段一度急跌逾1620點，收市報34735點，跌989點，跌幅2.77%。（日本交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798793_1_20250403144705.jpg&q=90)
-  
-
-日股急挫近3%收市，美國對多個國家及地區徵收對等關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798793-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798793-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798793-20250403.htm)
-
----
-
-# 韓股失守2500點關口　低收約0.8%
-
-![首爾綜合指數一度跌2.7%，收市報2486點，跌19點，跌幅0.76%，連跌兩日。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798792_1_20250403144619.jpg&q=90)
-  
-
-南韓股市失守2500點關口，美國對多個國家及地區徵收對等關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798792-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798792-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798792-20250403.htm)
 
 ---
