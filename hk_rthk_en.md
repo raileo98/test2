@@ -1,3 +1,27 @@
+# HK manufacturers to wait-and-see amid Trump tariff
+
+![Wingco Lo said SAR manufacturers will wait and see when its comes to planning, after the US imposed a raft of reciprocal tariffs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798915_1_20250404113116.jpg&q=90)
+  
+
+The president of the Chinese Manufacturers' Association of Hong Kong has voiced its strong opposition towards US President Donald Trump's latest round of levies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm)
+
+---
+
 # South Korea court upholds President Yoon's impeachment
 
 ![Moon Hyung-bae (Centre), acting chief justice of South Korea's Constitutional Court, speaks during the final ruling of South Korean president Yoon Suk Yeol's impeachment. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798910_1_20250404103033.jpg&q=90)
@@ -1414,30 +1438,5 @@ The operator of a licensed taxi fleet said drivers’ income had significantly i
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798583-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798583-20250402.htm)
-
----
-
-# Curry drops 52 points in Warriors win over Grizzlies
-
-![Steph Curry drained 12 three-pointers in the Warriors' victory over Memphis. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798584_1_20250402114710.jpg&q=90)
-![Giannis Antetokounmpo's 37 points helped end a four-game losing skid for the Bucks. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798584_2_20250402114710.jpg&q=90)
-  
-
-Stephen Curry scored 52 points and Draymond Green added a triple-double as the Golden State Warriors clinched a crucial 134-125 victory over the Memphis Grizzlies.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm)
 
 ---

@@ -1,3 +1,26 @@
+# 羅淑佩稱夏寶龍特別關注香港要善用海島及海岸旅遊資源推陳出新
+
+  
+
+文化體育及旅遊局局長羅淑佩總結訪京行程，指港澳辦主任夏寶龍特別關注香港要在旅遊方面善用海島及海岸資源，推陳出新。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm)
+
+---
+
 # 尹錫悅所屬執政國民力量黨稱接受裁決　尹錫悅代表律師稱令人費解
 
 ![反對尹錫悅的示威者聽到裁決結果後歡呼。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798916_1_20250404114517.jpg&q=90)
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798850-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798850-20250403.htm)
-
----
-
-# 86歲老婦旺角失蹤　警方籲市民提供消息
-
-![警方呼籲市民提供在旺角失蹤婦人的消息。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798849_1_20250403201935.jpg&q=90)
-  
-
-警方呼籲市民提供一名在旺角失蹤婦人的消息。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm)
 
 ---

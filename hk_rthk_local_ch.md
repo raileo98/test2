@@ -1,3 +1,26 @@
+# 羅淑佩稱夏寶龍特別關注香港要善用海島及海岸旅遊資源推陳出新
+
+  
+
+文化體育及旅遊局局長羅淑佩總結訪京行程，指港澳辦主任夏寶龍特別關注香港要在旅遊方面善用海島及海岸資源，推陳出新。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798918-20250404.htm)
+
+---
+
 # 清明節不少市民掃墓　紙紮祭品略為加價
 
 ![鑽石山墳場有不少市民到場拜祭先人，附近有道路實施人潮管制措施。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798914_1_20250404113030.jpg&q=70)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798678-20250402.htm)
-
----
-
-# 發展局估計生態旅遊發展項目成本數十億元以上　花6至7年完成
-
-![發展局希望發展這三個項目，令本地人或遊客都有多一個選擇，令他們願意留港過夜。（土木工程拓展署）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798677_1_20250402210031.jpg&q=90)
-  
-
-發展局今日起邀請市場在3個月內分別就前南丫島石礦場用地、南大嶼生態康樂走廊、與及尖鼻咀及白泥的生態旅遊發展項目提交意向書，目標最快明年下半年就項目招標。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798677-20250402.htm)
 
 ---

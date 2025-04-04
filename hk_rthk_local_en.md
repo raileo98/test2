@@ -1,3 +1,27 @@
+# HK manufacturers to wait-and-see amid Trump tariff
+
+![Wingco Lo said SAR manufacturers will wait and see when its comes to planning, after the US imposed a raft of reciprocal tariffs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798915_1_20250404113116.jpg&q=90)
+  
+
+The president of the Chinese Manufacturers' Association of Hong Kong has voiced its strong opposition towards US President Donald Trump's latest round of levies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798915-20250404.htm)
+
+---
+
 # Hong Kong calls on US to withdraw 'bullying' tariffs
 
 ![The SAR government says it'll take actions to defend the city's legitimate rights. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798851_1_20250403202459.jpg&q=85)
@@ -1418,29 +1442,5 @@ Police Commissioner Raymond Siu revealed on Saturday that the force has arrested
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798023-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798023-20250329.htm)
-
----
-
-# Govt to step up national security education
-
-![Erick Tsang says the bureau aims to achieve patriotism everywhere. File photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798009_1_20250329133702.jpg&q=90)
-  
-
-Secretary for Constitutional and Mainland Affairs Erick Tsang said on Saturday the government will step up its promotion on national security education next month, to achieve patriotism everywhere.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798009-20250329.htm)
 
 ---
