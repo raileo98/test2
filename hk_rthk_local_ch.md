@@ -1,3 +1,26 @@
+# 消防暫收31宗山火報告　無人受傷
+
+  
+
+清明節多區出現山火，截至下午5時，消防處共收到31宗山火報告，無人受傷或被困。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798951-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798951-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798951-20250404.htm)
+
+---
+
 # 全運會保齡球香港甄選賽明日起舉行
 
 ![香港代表隊的甄選賽將會在明天、後天及下星期六，在啟德體育園啟德一號零售館的保齡球中心舉行。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798947_1_20250404172623.jpg&q=90)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm)
-
----
-
-# 李家超向緬甸駐港總領事送上慰問信　特區政府捐逾20噸物資救災
-
-![李家超早上與緬甸駐港總領事會面，送上慰問信。（李家超社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798751_1_20250403095949.jpg&q=90)
-  
-
-行政長官李家超表示，早上與緬甸駐港總領事會面，送上慰問信，並通知他繼特區政府上星期六派遣救援隊前往緬甸後，政務司司長今早在機場主持捐贈儀式，捐贈共超過20噸物資，包括糧食及醫療物資等，並支援當地抗震救災工作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798751-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798751-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798751-20250403.htm)
 
 ---

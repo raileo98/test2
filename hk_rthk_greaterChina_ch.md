@@ -1,3 +1,46 @@
+# 商務部將斯凱迪奧公司等11間美國企業列入不可靠實體清單
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm)
+
+---
+
+# 中國對美國所有進口商品加徵34%關稅
+
+  
+
+國務院關稅稅則委員會宣布，本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm)
+
+---
+
 # 8位在韓志願軍烈士遺骸身份確認
 
 ![去年11月28日， 第十一批在韓中國人民志願軍烈士遺骸回國。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798949_2_20250404175355.jpg&q=90)
@@ -1392,53 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm)
-
----
-
-# 外交部：中方開展聯合演訓　任何外部勢力無權說三道四
-
-![郭嘉昆說，中方開展聯合演訓，是對賴清德當局倡狂謀「獨」挑釁的堅決懲戒，是對「台獨」分裂勢力蓄意破壞台海和平的嚴重警告。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798631_1_20250402155112.jpg&q=90)
-  
-
-在北京，外交部重申，台灣問題純屬中國內政，不容外來干涉，批評少數國家和組織對中方的指責罔顧事實，顛倒黑白，干涉中國內政，中方表示強烈不滿，堅決反對。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798631-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798631-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798631-20250402.htm)
-
----
-
-# 商務部：原產於歐盟進口白蘭地反傾銷調查延長至7月5日
-
-![商務部公布，將原產於歐盟的進口白蘭地反傾銷案的調查期限，進一步延長至今年7月5日。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798627_1_20250402153253.jpg&q=75)
-  
-
-在北京，商務部公布，將原產於歐盟的進口白蘭地反傾銷案的調查期限，進一步延長至今年7月5日。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798627-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798627-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798627-20250402.htm)
 
 ---

@@ -48,7 +48,7 @@ Israel said it killed a commander of the Palestinian militant group Hamas on Fri
 
 # HK International Track Cup to attract 150 cyclists
 
-![The Hong Kong International Track Cup will involve 50 cyclists from local affiliated clubs, participating in elite and junior races. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798942_1_20250404160739.jpg&q=85)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798942_1_20250404160739.jpg&q=85)
   
 
 One of the National Games test events – the Hong Kong International Track Cup – will be held from April 19 to 21, attracting professional cyclists from around the world.

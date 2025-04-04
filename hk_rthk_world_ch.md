@@ -1,3 +1,23 @@
+# 商務部將斯凱迪奧公司等11間美國企業列入不可靠實體清單
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798953-20250404.htm)
+
+---
+
 # 日本去年查獲約1.2噸走私金條　加強海路走私警戒
 
 ![日本去年查獲約1.2噸走私金條，數量是前一年約4倍。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798950_1_20250404174339.jpg&q=85)
@@ -1411,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798701-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798701-20250403.htm)
-
----
-
-# 克宮：俄國總統特別代表或本周訪問華盛頓
-
-![佩斯科夫說，關於俄美元首可能會面的日期和地點，目前未有具體細節。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798700_1_20250403011501.jpg&q=90)
-  
-
-俄羅斯克里姆林宮發言人佩斯科夫表示，俄羅斯總統普京的特別代表、俄羅斯直接投資基金總裁德米特里耶夫可能在本周訪問華盛頓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798700-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798700-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798700-20250403.htm)
 
 ---
