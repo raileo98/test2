@@ -1,3 +1,27 @@
+# 美股持續急挫　道指曾跌逾2100點
+
+![三大指數星期五開市後急挫3%，之後跌幅擴大至超過5%。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798986_1_20250405024936.jpg&q=80)
+  
+
+市場擔憂美國對貿易夥伴徵收對等關稅引發貿易衝突升級，紐約股市繼前一日暴跌之後，三大指數星期五開市後再次急挫3%，之後跌幅擴大至超過5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798986-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798986-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798986-20250405.htm)
+
+---
+
 # 中亞與歐盟宣布建立戰略夥伴　在關鍵原材料領域加強合作
 
 ![中亞五國及歐盟領導人在烏茲別克撒馬爾罕舉行首屆中亞-歐盟峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798985_1_20250405024157.jpg&q=90)
@@ -1416,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm)
-
----
-
-# 日股半日跌近3%
-
-![日經指數半日跌917點，報33818點，跌幅2.64%。 （交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798912_1_20250404104640.jpg&q=85)
-  
-
-東京股市下跌。日經指數半日跌917點，報33818點，跌幅2.64%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm)
 
 ---

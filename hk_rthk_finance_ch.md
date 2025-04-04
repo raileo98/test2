@@ -1,3 +1,27 @@
+# 美股持續急挫　道指曾跌逾2100點
+
+![三大指數星期五開市後急挫3%，之後跌幅擴大至超過5%。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798986_1_20250405024936.jpg&q=80)
+  
+
+市場擔憂美國對貿易夥伴徵收對等關稅引發貿易衝突升級，紐約股市繼前一日暴跌之後，三大指數星期五開市後再次急挫3%，之後跌幅擴大至超過5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798986-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798986-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798986-20250405.htm)
+
+---
+
 # 歐洲三大指數挫逾4%至近5%　倫敦指數錄約5年來最大單日跌幅
 
 ![美國公布對等關稅，觸發市場動盪。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798982_1_20250405013609.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798789-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798789-20250403.htm)
-
----
-
-# GUM料關稅政策對港股影響有限　恒指今季末上望24000點
-
-![陳銳隆預計，恒生指數於第2季末可望升至24000點，強積金港股基金回報或再升1至2個百分點。（趙嘉駿攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798785_1_20250403131816.jpg&q=90)
-  
-
-美國總統特朗普宣布對貿易夥伴實施對等關稅。強積金顧問公司GUM常務董事陳銳隆認為，關稅政策對港股表現影響有限，又說自特朗普首屆任期以來，亞洲地區外貿早已轉型，對美國的依賴程度逐漸降低。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798785-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798785-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798785-20250403.htm)
 
 ---
