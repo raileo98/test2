@@ -1,3 +1,26 @@
+# 楊何蓓茵到浩園向殉職公務員致意
+
+  
+
+今日是清明節，公務員事務局局長楊何蓓茵近日代表特區政府到和合石墳場內的浩園，悼念因公殉職的公職人員，並獻上鮮花致意。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798901-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798901-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798901-20250404.htm)
+
+---
+
 # 清明節長假期開始　深圳口岸料日均95萬人次出入境
 
 ![當局預計，羅湖、福田和深圳灣口岸是承擔假期出入境客流的主力口岸。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798876_1_20250404025651.jpg&q=90)
@@ -1411,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm)
-
----
-
-# 陳國基到緬甸駐港總領事館簽弔唁冊　稱盡快安排將物資運抵災區
-
-![陳國基到緬甸駐港總領事館簽弔唁冊，又與緬甸駐港總領事交流，對遇難者表示沉痛哀悼。（陳國基社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798665_1_20250402190642.jpg&q=90)
-  
-
-緬甸上周發生大地震。政務司司長陳國基下午到緬甸駐港總領事館簽弔唁冊，又與緬甸駐港總領事交流，對遇難者表示沉痛哀悼，並向遇難者家屬和受災民眾致以深切慰問。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798665-20250402.htm)
 
 ---

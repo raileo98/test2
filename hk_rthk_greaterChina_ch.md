@@ -1,3 +1,29 @@
+# 讀寄宿學校學漢語　藏族學生認為助未來發展
+
+![這所中學的學生大部分來自農村，9成以上學生選擇寄宿。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798898_1_20250404091024.jpg&q=80)
+![學生每星期要上藏語、漢語及英語課各五節。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798898_2_20250404091024.jpg&q=90)
+![學校宿舍有約1200個宿位，每間房可住6至10人。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798898_3_20250404091024.jpg&q=90)
+  
+
+近年不少藏族學童入讀公立寄宿學校，他們同時學習漢語。在西藏林芝市巴宜區中學，不少學生都是來自農村，以藏語作為母語。他們現時每星期要上藏語、漢語及英語堂各五節。有學生表示，初學漢語時不適應，考試不合格，但學校會提供支援，又認為學習漢語對未來發展重要。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798898-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798898-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798898-20250404.htm)
+
+---
+
 # 《環看天下》：特朗普宣布對等關稅　分析料通脹加劇無可避免
 
 ![特朗普宣布向全球多國及地區實施「對等關稅」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798894_1_20250404082028.jpg&q=90)
@@ -1414,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm)
-
----
-
-# 訪西藏旅客按年升15%　香港拉薩直航開通後增港旅客
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798549_1_20250402084022.jpg&q=85)
-  
-
-西藏去年累計接待超過6300萬遊客人次，按年增加15%，創下歷史新高，旅遊相關產業佔當地生產總值約三成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm)
 
 ---

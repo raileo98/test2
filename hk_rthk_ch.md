@@ -1,3 +1,172 @@
+# 懷疑精神錯亂男子美國首都華盛頓刺傷6人被捕
+
+![懷疑精神錯亂男子美國首都華盛頓刺傷6人被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798899_1_20250404094813.jpg&q=90)
+  
+
+美國首都華盛頓發生持刀傷人事件，造成6人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm)
+
+---
+
+# 日本2月家庭開支3個月來首次下跌
+
+![日本2月家庭開支按年下跌0.5%，跌幅小過市場預期，但就是3個月來首次下跌。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798902_1_20250404094446.jpg&q=85)
+  
+
+日本2月家庭開支按年下跌0.5%，跌幅小過市場預期，但就是3個月來首次下跌，反映物價高企打擊日本家庭消費意欲。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798902-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798902-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798902-20250404.htm)
+
+---
+
+# 楊何蓓茵到浩園向殉職公務員致意
+
+  
+
+今日是清明節，公務員事務局局長楊何蓓茵近日代表特區政府到和合石墳場內的浩園，悼念因公殉職的公職人員，並獻上鮮花致意。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798901-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798901-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798901-20250404.htm)
+
+---
+
+# 烏克蘭稱俄羅斯無人機襲擊哈爾科夫至少3人死亡
+
+![哈爾科夫有住宅在襲擊中損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798900_1_20250404094202.jpg&q=85)
+  
+
+烏克蘭當局說，俄羅斯以無人機空襲東部城巿哈爾科夫，造成最少3人死亡，數十人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798900-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798900-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798900-20250404.htm)
+
+---
+
+# 讀寄宿學校學漢語　藏族學生認為助未來發展
+
+![這所中學的學生大部分來自農村，9成以上學生選擇寄宿。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798898_1_20250404091024.jpg&q=80)
+![學生每星期要上藏語、漢語及英語課各五節。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798898_2_20250404091024.jpg&q=90)
+![學校宿舍有約1200個宿位，每間房可住6至10人。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798898_3_20250404091024.jpg&q=90)
+  
+
+近年不少藏族學童入讀公立寄宿學校，他們同時學習漢語。在西藏林芝市巴宜區中學，不少學生都是來自農村，以藏語作為母語。他們現時每星期要上藏語、漢語及英語堂各五節。有學生表示，初學漢語時不適應，考試不合格，但學校會提供支援，又認為學習漢語對未來發展重要。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798898-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798898-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798898-20250404.htm)
+
+---
+
+# 台股假期休市
+
+![台灣今日假期，金融市場休市。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798897_1_20250404090614.jpg&q=90)
+  
+
+台灣今日假期，金融市場休市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798897-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798897-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798897-20250404.htm)
+
+---
+
+# 分析料資產市場波動持續一段時間　人行或多做貨幣政策應對貿易戰
+
+![郭家耀認為若美國減息及美元下跌，內地或多做貨幣政策減輕貿易戰對內地的衝擊。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798896_1_20250404084836.jpg&q=90)
+  
+
+投資者憂慮美國全面關稅政策引發大規模貿易戰及經濟衰退。紐約股市急跌，3個主要指數創約5年來最大單日跌幅，跌幅近4%至6%。歐洲股市亦下挫。倫敦、法蘭克福及巴黎股市分別跌約1.6%至3.3%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798896-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798896-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798896-20250404.htm)
+
+---
+
 # 《環看天下》：特朗普宣布對等關稅　分析料通脹加劇無可避免
 
 ![特朗普宣布向全球多國及地區實施「對等關稅」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798894_1_20250404082028.jpg&q=90)
@@ -96,6 +265,7 @@
 
 # 古特雷斯呼籲國際社會向緬甸加大資金支持
 
+![古特雷斯呼籲國際社會，向發生7.9級地震的緬甸加大資金支持。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798890_1_20250404094220.jpg&q=90)
   
 
 新華社報道，聯合國秘書長古特雷斯呼籲國際社會，向發生7.9級地震的緬甸加大資金支持，並確保人道主義援助不受阻礙。
@@ -1267,172 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm)
-
----
-
-# 澳門開通至歐洲貨運直航包機服務
-
-  
-
-澳門國際機場藉近年跨境電商速迅發展，成功開通至歐洲貨運直航包機服務。由埃塞俄比亞航空執飛、來往澳門至西班牙馬德里的首個貨運包機，朝早在澳門運出第一批電商產品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798832-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798832-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798832-20250403.htm)
-
----
-
-# 中證監召開民營科企座談會　將加快推動新一輪資本市場改革開放
-
-![吳清表示，民營經濟是國民經濟的重要組成部分，是推動科技創新的重要力量，將加快推動新一輪資本市場改革開放。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798831_1_20250403181034.jpg&q=90)
-  
-
-中國證監會近日召開深化資本市場投融資綜合改革民營科技企業座談會。中證監主席吳清表示，民營經濟是國民經濟的重要組成部分，是推動科技創新的重要力量，將加快推動新一輪資本市場改革開放。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798831-20250403.htm)
-
----
-
-# 美國對華徵收34%對等關稅　特朗普任內稅率增至54%
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798830_1_20250403183937.jpg&q=90)
-  
-
-美國總統特朗普簽署他形容為歷史性的行政命令，向多個與美國有貿易往來的國家及地區實施對等關稅，下星期三生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798830-20250403.htm)
-
----
-
-# 特區救援隊指揮官趙汝珏：天氣炎熱惟救出傷者後士氣高昂
-
-![趙汝珏說，特區救援隊已經抵步第六日，當地天氣非常熱，日間超過40度，夜間超過30度，對體能消耗有一定壓力。(香港消防處社交平台)](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798829_1_20250403181259.jpg&q=90)
-  
-
-緬甸大地震發生超過5日，中國救援隊伍經過3個多小時的救援工作，當地昨日下午5時許在曼德勒金色鄉村酒店救援點，成功救出一名被困近125小時的52歲緬甸男性。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798829-20250403.htm)
-
----
-
-# 特區政府強烈不滿美國向香港產品加徵關稅　香港郵政不會代收關稅
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798827_2_20250403183942.jpg&q=80)
-  
-
-特區政府表示，強烈反對及不滿美國向香港產品加徵所謂對等關稅，並由5月2日起取消香港產品的小額免稅待遇及徵收關稅，再次嚴正要求美方撤回。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798827-20250403.htm)
-
----
-
-# 美元指數一度失守102關口　創約半年新低
-
-![美元指數失守102關口，創去年10月初以來最低，低見101.95，較早時報102.1，跌幅逾1%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798825_1_20250403173046.jpg&q=90)
-  
-
-美國對多個國家及地區徵收對等關稅，美元兌多個貨幣沽壓顯著。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798825-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798825-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798825-20250403.htm)
-
----
-
-# 香港律師會訪京　湯文龍稱任何對公職人員制裁都是對法治侮辱
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798824_1_20250403183643.jpg&q=80)
-  
-
-美國國務院早前宣布，對6名中央和香港特區官員實施制裁。香港律師會會長湯文龍表示，不以政治角度評論事件，就法律角度而言，任何對於公職人員的制裁都是對法治的侮辱。他説，任何人包括律政司司長，根據《基本法》下行使應有的權利，不應該受到干預和制裁。如果制裁是透過政治手段，作爲法律從業員，他們對此予以譴責。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm)
 
 ---

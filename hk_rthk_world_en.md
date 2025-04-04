@@ -1,3 +1,27 @@
+# Canada imposing 25% tariff on some US auto imports
+
+![Canada's Prime Minister Mark Carney speaks about tariffs at a press conference on Parliament Hill in Ottawa, Canada. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798895_1_20250404084801.jpg&q=90)
+  
+
+Canada said it would impose a 25 percent tariff on tens of thousands of vehicles imported from the United States, retaliating against US President Donald Trump's levies that came into effect on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798895-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798895-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798895-20250404.htm)
+
+---
+
 # Attack on Gaza medics likely Israeli 'war crimes': UN
 
 ![People and Palestinian rescuers run for cover as Israeli strike hits a school in the al-Tuffah neighbourhood in Gaza City. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798885_1_20250404052856.jpg&q=85)
@@ -1411,29 +1435,5 @@ Richard Chamberlain, the Emmy-nominated actor and 1960s heartthrob who rocketed 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm)
-
----
-
-# Trump threatens Iran with bombings and tariffs
-
-![In a telephone interview with NBC News, Trump said US and Iranian officials were talking but did not elaborate. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798156_2_20250331075407.jpg&q=90)
-  
-
-US President Donald Trump on Sunday threatened Iran with bombings and secondary tariffs if Tehran did not come to an agreement with Washington over its nuclear programme.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798156-20250331.htm)
 
 ---

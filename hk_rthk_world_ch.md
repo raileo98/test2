@@ -1,3 +1,51 @@
+# 懷疑精神錯亂男子美國首都華盛頓刺傷6人被捕
+
+![懷疑精神錯亂男子美國首都華盛頓刺傷6人被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798899_1_20250404094813.jpg&q=90)
+  
+
+美國首都華盛頓發生持刀傷人事件，造成6人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm)
+
+---
+
+# 烏克蘭稱俄羅斯無人機襲擊哈爾科夫至少3人死亡
+
+![哈爾科夫有住宅在襲擊中損毀。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798900_1_20250404094202.jpg&q=85)
+  
+
+烏克蘭當局說，俄羅斯以無人機空襲東部城巿哈爾科夫，造成最少3人死亡，數十人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798900-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798900-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798900-20250404.htm)
+
+---
+
 # 《環看天下》：特朗普宣布對等關稅　分析料通脹加劇無可避免
 
 ![特朗普宣布向全球多國及地區實施「對等關稅」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798894_1_20250404082028.jpg&q=90)
@@ -24,6 +72,7 @@
 
 # 古特雷斯呼籲國際社會向緬甸加大資金支持
 
+![古特雷斯呼籲國際社會，向發生7.9級地震的緬甸加大資金支持。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798890_1_20250404094220.jpg&q=90)
   
 
 新華社報道，聯合國秘書長古特雷斯呼籲國際社會，向發生7.9級地震的緬甸加大資金支持，並確保人道主義援助不受阻礙。
@@ -1385,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798622-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798622-20250402.htm)
-
----
-
-# 緬甸地震增至2800多人死亡4000多人受傷
-
-![地震災民排隊領取救災物資。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798617_1_20250402144435.jpg&q=90)
-  
-
-緬甸國家管理委員會公布，緬甸大地震已致2886人死亡、4639人受傷，另有373人失蹤。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798617-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798617-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798617-20250402.htm)
-
----
-
-# 尹錫悅彈劾案周五宣判　南韓代總統籲政界人士勿刺激民眾暴力示威
-
-![韓悳洙呼籲政界人士避免刺激民眾進行非法暴力示威。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798564_1_20250402094935.jpg&q=90)
-  
-
-南韓總統尹錫悅彈劾案星期五上午宣判，代行總統職權的總理韓悳洙呼籲，政界人士要謹言慎行，避免刺激民眾進行非法暴力示威。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798564-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798564-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798564-20250402.htm)
 
 ---
