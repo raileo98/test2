@@ -1,3 +1,27 @@
+# 歐洲三大指數挫逾4%至近5%　倫敦指數錄約5年來最大單日跌幅
+
+![美國公布對等關稅，觸發市場動盪。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798982_1_20250405013609.jpg&q=90)
+  
+
+市場對貿易戰的預期升溫，歐洲三大指數全線下挫，跌幅超過4%至近5%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798982-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798982-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798982-20250405.htm)
+
+---
+
 # 特朗普再促減息　鮑威爾稱關稅上調幅度大於預期調整政策為時尚早
 
 ![鮑威爾說，調整貨幣政策為時尚早。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798977_1_20250405003501.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798785-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798785-20250403.htm)
-
----
-
-# 港股下午初段跌360點
-
-![恒生指數較早時報22841點，跌360點，跌幅1.55%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798784_1_20250403130628.jpg&q=80)
-  
-
-港股下午初段繼續向下，恒生指數較早時報22841點，跌360點，跌幅1.55%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm)
 
 ---
