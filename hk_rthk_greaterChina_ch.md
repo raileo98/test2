@@ -24,6 +24,7 @@
 
 # 中方暫停6家美國企業產品輸華資質
 
+![中方暫停6家美國企業產品輸華資質](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798962_1_20250404191436.jpg&q=90)
   
 
 國家海關總署公布，暫停6家美國企業產品輸華資質。
