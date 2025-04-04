@@ -1,3 +1,27 @@
+# 特朗普再促減息　鮑威爾稱關稅上調幅度大於預期調整政策為時尚早
+
+![鮑威爾說，調整貨幣政策為時尚早。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798977_1_20250405003501.jpg&q=90)
+  
+
+美國總統特朗普在社交平台貼文，指現在是聯儲局主席鮑威爾減息的絕佳時機。鮑威爾回應說，準備好等待更明確信息，然後再考慮調整政策立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm)
+
+---
+
 # 中國反制美國　道指早段曾瀉逾1700點
 
 ![中國推出關稅措施反制美國，美股3大指數連續第二日下挫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798975_1_20250404230200.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798784-20250403.htm)
-
----
-
-# 渣打料中國或加大政策力度應對美國關稅措施
-
-![渣打認為，美國仍有手段避過特朗普關稅政策帶來經濟衰退，例如聯儲局繼續減息。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798780_1_20250403123622.jpg&q=90)
-  
-
-美國對多個國家同地區徵收對等關稅。渣打中國宏觀策略部主管劉潔預期，中國將會加大政策支持力度，以應對關稅對出口的影響。她估計，中方亦將採取反制措施，或對美國商品徵收關稅，甚至涉及服務貿易、減持美債等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798780-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798780-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798780-20250403.htm)
 
 ---

@@ -1,3 +1,75 @@
+# 呂特：烏克蘭加入北約不屬俄烏衝突解決方案一部分
+
+![呂特說，北約從未向烏方承諾北約成員國身份是俄烏衝突解決方案一部分。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798979_1_20250405003927.jpg&q=90)
+  
+
+北約秘書長呂特表示，烏克蘭加入北約不屬於俄烏衝突解決方案的一部分。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798979-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798979-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798979-20250405.htm)
+
+---
+
+# 克宮：普京未來幾日沒有與特朗普通話安排
+
+![佩斯科夫說，德米特里耶夫的訪問令人謹慎樂觀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798978_1_20250405003734.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，總統普京未來幾日沒有與美國總統特朗普通電話的安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798978-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798978-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798978-20250405.htm)
+
+---
+
+# 特朗普再促減息　鮑威爾稱關稅上調幅度大於預期調整政策為時尚早
+
+![鮑威爾說，調整貨幣政策為時尚早。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798977_1_20250405003501.jpg&q=90)
+  
+
+美國總統特朗普在社交平台貼文，指現在是聯儲局主席鮑威爾減息的絕佳時機。鮑威爾回應說，準備好等待更明確信息，然後再考慮調整政策立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm)
+
+---
+
 # 中方反制美國對等關稅　特朗普稱中國做法錯誤
 
 ![特朗普日前公布對等關稅措施，其中對中國產品徵收34%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798976_1_20250405001323.jpg&q=90)
@@ -1368,77 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm)
-
----
-
-# 羅淑佩稱訪京匯報工作獲夏寶龍勉勵　將秉持守正繼續做好工作
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798904_1_20250404101841.jpg&q=90)
-  
-
-文化體育及旅遊局局長羅淑佩總結三日訪京行程時表示，此行收穫非常豐富，拜會了中央港澳辦主任、國務院港澳辦主任夏寶龍，匯報重點工作及未來工作計劃，夏龍寶對她及政策局勉勵有嘉，特別關注旅遊方面如何推陳出新。羅淑佩強調，今後會秉持守正創新的精神，不斷做好短中長期工作，發展局已因應旅遊片區邀請發展商提交意向書，這些都是中央對他們作出的特別指示而一步步做出來。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm)
-
----
-
-# 內地股市休市
-
-![內地今日假期，金融市場休市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798903_1_20250404095431.jpg&q=90)
-  
-
-內地今日假期，金融市場休市。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798903-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798903-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798903-20250404.htm)
-
----
-
-# 懷疑精神錯亂男子美國首都華盛頓刺傷6人被捕
-
-![懷疑精神錯亂男子美國首都華盛頓刺傷6人被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798899_1_20250404094813.jpg&q=90)
-  
-
-美國首都華盛頓發生持刀傷人事件，造成6人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798899-20250404.htm)
 
 ---

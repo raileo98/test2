@@ -1,3 +1,75 @@
+# 呂特：烏克蘭加入北約不屬俄烏衝突解決方案一部分
+
+![呂特說，北約從未向烏方承諾北約成員國身份是俄烏衝突解決方案一部分。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798979_1_20250405003927.jpg&q=90)
+  
+
+北約秘書長呂特表示，烏克蘭加入北約不屬於俄烏衝突解決方案的一部分。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798979-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798979-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798979-20250405.htm)
+
+---
+
+# 克宮：普京未來幾日沒有與特朗普通話安排
+
+![佩斯科夫說，德米特里耶夫的訪問令人謹慎樂觀。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798978_1_20250405003734.jpg&q=90)
+  
+
+俄羅斯克里姆林宮發言人佩斯科夫表示，總統普京未來幾日沒有與美國總統特朗普通電話的安排。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798978-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798978-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798978-20250405.htm)
+
+---
+
+# 特朗普再促減息　鮑威爾稱關稅上調幅度大於預期調整政策為時尚早
+
+![鮑威爾說，調整貨幣政策為時尚早。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798977_1_20250405003501.jpg&q=90)
+  
+
+美國總統特朗普在社交平台貼文，指現在是聯儲局主席鮑威爾減息的絕佳時機。鮑威爾回應說，準備好等待更明確信息，然後再考慮調整政策立場。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798977-20250405.htm)
+
+---
+
 # 中方反制美國對等關稅　特朗普稱中國做法錯誤
 
 ![特朗普日前公布對等關稅措施，其中對中國產品徵收34%關稅。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798976_1_20250405001323.jpg&q=90)
@@ -1363,77 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798747-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798747-20250403.htm)
-
----
-
-# 美財長︰美國對中國進口產品徵收關稅總額將達54%
-
-![貝森特確認，除了早前徵收的20%關稅外，美國還會對中國進口產品徵收34%對等關稅，令新徵稅總額達到54%。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798735_1_20250403094532.jpg&q=90)
-  
-
-美國總統特朗普簽署關於對等關稅的行政命令，宣布對貿易夥伴設立10%的最低基準關稅，並會對某些貿易夥伴徵收更高關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798735-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798735-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798735-20250403.htm)
-
----
-
-# 《環看天下》：習近平5月訪俄  王毅：中俄世代友好　永不為敵
-
-![俄羅斯總統普京在莫斯科會見中共中央政治局委員、外交部長王毅。（外交部網站）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798745_1_20250403094130.jpg&q=90)
-  
-
-國家主席習近平據報已經接受邀請，出席下月9日在莫斯科舉行的紀念衛國戰爭勝利80周年活動。日前訪問俄羅斯的中共中央政治局委員、外交部長王毅，與總統普京會面。普京表示，期盼中方出席紀念活動。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798745-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798745-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798745-20250403.htm)
-
----
-
-# 中國政府援助緬甸第二批緊急人道主義地震救災物資啟運
-
-![中國政府首批援助物資上月31日抵達緬甸仰光國際機場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798740_1_20250403091327.jpg&q=90)
-  
-
-國家國際發展合作署表示，中國政府向緬甸提供的第二批緊急人道主義地震救災援助物資，上午從北京首都國際機場啟運。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798740-20250403.htm)
 
 ---
