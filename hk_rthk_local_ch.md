@@ -1,3 +1,49 @@
+# 警方薄扶林檢市值逾800萬元私煙
+
+  
+
+警方在薄扶林進行反走私行動，檢獲183箱懷疑私煙，估計總市值共約832萬元，暫時未有人被捕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm)
+
+---
+
+# 全運會場地單車測試賽本月舉行　逾150名選手參與
+
+  
+
+2025香港國際場地盃暨第15屆全運會場地自行車測試賽，將於本月19至21日在將軍澳香港單車館舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm)
+
+---
+
 # 運輸署料下午東壩回程路段交通非常繁忙
 
 ![運輸署預計下午離開東壩通往北潭涌的西貢萬宜路交通會非常繁忙。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798933_1_20250404150207.jpg&q=90)
@@ -1388,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798738-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798738-20250403.htm)
-
----
-
-# 警方搗破毒窟、武器庫及偵破懷疑非法集結案　拘多名三合會人士
-
-![警方將被捕人士帶上警車。（警方圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798708_1_20250403032644.jpg&q=75)
-  
-
-警方昨日在旺角及深水埗搗破一個毒窟、一個武器庫及偵破一宗懷疑非法集結案，拘捕多名三合會人士，懷疑屬同一幫派，檢獲市值約55000元毒品。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798708-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798708-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798708-20250403.htm)
-
----
-
-# 中國救援隊伍在緬甸救出第九名倖存者　特區救援隊參與聯合救援
-
-![中國救援隊伍救出一名被困近125小時的52歲緬甸男性。（消防處FB圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798698_1_20250403002255.jpg&q=90)
-  
-
-中國救援隊伍在緬甸地震災區救出第九名倖存者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm)
 
 ---

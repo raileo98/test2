@@ -1,3 +1,49 @@
+# 警方薄扶林檢市值逾800萬元私煙
+
+  
+
+警方在薄扶林進行反走私行動，檢獲183箱懷疑私煙，估計總市值共約832萬元，暫時未有人被捕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798936-20250404.htm)
+
+---
+
+# 全運會場地單車測試賽本月舉行　逾150名選手參與
+
+  
+
+2025香港國際場地盃暨第15屆全運會場地自行車測試賽，將於本月19至21日在將軍澳香港單車館舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm)
+
+---
+
 # 運輸署料下午東壩回程路段交通非常繁忙
 
 ![運輸署預計下午離開東壩通往北潭涌的西貢萬宜路交通會非常繁忙。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798933_1_20250404150207.jpg&q=90)
@@ -1390,54 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798866-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798866-20250403.htm)
-
----
-
-# 澳門入境旅客突破1千萬人次　恢復至疫情前同期九成半水平
-
-![澳門今年入境旅各量，比去年提前了11天突破1千萬人次。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798867_1_20250403223907.jpg&q=80)
-![隨著當局推動橫琴與澳門的往來，橫琴口岸已成為澳門第三個旅客常用通道。（鄭月明攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798867_2_20250403223907.jpg&q=75)
-  
-
-澳門今年比去年提前11天錄得入境旅客突破1千萬人次，恢復到2019年疫情前同期的九成半。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798867-20250403.htm)
-
----
-
-# ISM：美國3月非製造業指數跌至50.8　創9個月最低
-
-![美國供應管理協會（ISM）3月非製造業指數為50.8，跌至9月個月以來最低，低過市場預期。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798864_1_20250403231006.jpg&q=85)
-  
-
-美國供應管理協會（ISM）3月非製造業指數為50.8，跌至9月個月以來最低，低過市場預期的53，及2月的53.5。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798864-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798864-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798864-20250403.htm)
 
 ---

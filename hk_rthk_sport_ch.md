@@ -1,3 +1,26 @@
+# 全運會場地單車測試賽本月舉行　逾150名選手參與
+
+  
+
+2025香港國際場地盃暨第15屆全運會場地自行車測試賽，將於本月19至21日在將軍澳香港單車館舉行。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798935-20250404.htm)
+
+---
+
 # 英超車路士1:0小勝熱刺
 
 ![車路士憑安素費南迪斯攻入全場唯一入球，以1:0小勝熱刺。（法新社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798889_1_20250404071803.jpg&q=90)
@@ -1432,29 +1455,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797007-20250323.htm)
-
----
-
-# 美國邁阿密網球公開賽　香港球手黃澤林淘汰13號種子晉級第三圈
-
-![黃澤林淘汰13號種子、美國的舒爾頓，晉級邁阿密網球公開賽第三圈。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796989_2_20250323081935.jpg&q=90)
-  
-
-美國邁阿密網球公開賽男單次圈，20歲、持「外卡」參賽的本港球手黃澤林，爆冷淘汰13號種子、美國的舒爾頓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1796989-20250323.htm)
 
 ---
