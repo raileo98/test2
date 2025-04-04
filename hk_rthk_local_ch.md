@@ -1,3 +1,26 @@
+# 劉兆佳指中方以組合拳反擊美國　早已做好應對貿易戰準備
+
+  
+
+國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施，包括對原產美國的進口商品加徵34%關稅，對7類中重稀土相關物項實施出口管制等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm)
+
+---
+
 # 清明長假首日截至下午4時逾45萬人次出境
 
 ![出境方面，以羅湖口岸最多，有近9萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798959_1_20250404191225.jpg&q=85)
@@ -1415,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm)
-
----
-
-# 港車北上安排優化　指定遞交申請時段劃一延長至13個曆日
-
-![「港車北上」計劃的申請資格、程序和抽籤等安排均維持不變。（網站截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798765_1_20250403122402.jpg&q=90)
-  
-
-運輸署公布，將於本月14日起進一步優化「港車北上」申請安排，中籤的新申請及續期申請人士的指定遞交申請時段，將由現時分別為3個曆日及6個曆日，劃一延長至13個曆日，讓申請人有更充足時間準備所需申請文件。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798765-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798765-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798765-20250403.htm)
 
 ---

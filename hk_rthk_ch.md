@@ -1,3 +1,50 @@
+# 劉兆佳指中方以組合拳反擊美國　早已做好應對貿易戰準備
+
+  
+
+國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施，包括對原產美國的進口商品加徵34%關稅，對7類中重稀土相關物項實施出口管制等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm)
+
+---
+
+# 杜邦中國涉違《反壟斷法》遭立案調查
+
+![國家市場監督管理總局指杜邦中國集團有限公司涉嫌違反《反壟斷法》，依法開展立案調查。（國家市場監督管理總局網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798965_1_20250404202632.jpg&q=90)
+  
+
+國家市場監督管理總局宣布，杜邦中國集團有限公司涉嫌違反《反壟斷法》，市監局依法開展立案調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798965-20250404.htm)
+
+---
+
 # 緬甸大地震增至逾3300人死
 
 ![緬甸中部大地震，增至超過3300人死亡。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798964_1_20250404200934.jpg&q=35)

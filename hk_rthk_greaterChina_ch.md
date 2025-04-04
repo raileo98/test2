@@ -1,5 +1,29 @@
+# 劉兆佳指中方以組合拳反擊美國　早已做好應對貿易戰準備
+
+  
+
+國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施，包括對原產美國的進口商品加徵34%關稅，對7類中重稀土相關物項實施出口管制等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798966-20250404.htm)
+
+---
+
 # 杜邦中國涉違《反壟斷法》遭立案調查
 
+![國家市場監督管理總局指杜邦中國集團有限公司涉嫌違反《反壟斷法》，依法開展立案調查。（國家市場監督管理總局網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798965_1_20250404202632.jpg&q=90)
   
 
 國家市場監督管理總局宣布，杜邦中國集團有限公司涉嫌違反《反壟斷法》，市監局依法開展立案調查。
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798668-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798668-20250402.htm)
-
----
-
-# 國台辦主任宋濤：「台獨」分子惡行必遭懲處
-
-![中共中央台辦、國務院台辦主任宋濤會見國民黨副主席夏立言，指任何謀「獨」挑釁必定失敗，「台獨」分子惡行必遭懲處。（中國台灣網）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798666_1_20250402191022.jpg&q=90)
-  
-
-中共中央台辦、國務院台辦主任宋濤在江蘇徐州，會見國民黨副主席夏立言，指出兩岸同胞是家人、不是敵人，任何謀「獨」挑釁必定失敗，「台獨」分子惡行必遭懲處。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798666-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798666-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798666-20250402.htm)
 
 ---
