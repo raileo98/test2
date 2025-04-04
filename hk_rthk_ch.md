@@ -1,3 +1,27 @@
+# 尹錫悅所屬執政國民力量黨稱接受裁決　尹錫悅代表律師稱令人費解
+
+![反對尹錫悅的示威者聽到裁決結果後歡呼。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798916_1_20250404114517.jpg&q=90)
+  
+
+南韓憲法法院通過對尹錫悅的彈劾案，尹錫悅被罷免總統職務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798916-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798916-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798916-20250404.htm)
+
+---
+
 # 清明節不少市民掃墓　紙紮祭品略為加價
 
 ![鑽石山墳場有不少市民到場拜祭先人，附近有道路實施人潮管制措施。（鄧鈞尤攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798914_1_20250404113030.jpg&q=70)
@@ -216,7 +240,7 @@
 
 # 羅淑佩稱訪京匯報工作獲夏寶龍勉勵　將秉持守正繼續做好工作
 
-![羅淑佩說，訪京匯報工作獲夏寶龍勉勵，將秉持守正繼續做好工作。（黃維波攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798904_1_20250404101841.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798904_1_20250404101841.jpg&q=90)
   
 
 文化體育及旅遊局局長羅淑佩總結三日訪京行程時表示，此行收穫非常豐富，拜會了中央港澳辦主任、國務院港澳辦主任夏寶龍，匯報重點工作及未來工作計劃，夏龍寶對她及政策局勉勵有嘉，特別關注旅遊方面如何推陳出新。羅淑佩強調，今後會秉持守正創新的精神，不斷做好短中長期工作，發展局已因應旅遊片區邀請發展商提交意向書，這些都是中央對他們作出的特別指示而一步步做出來。
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798849-20250403.htm)
-
----
-
-# 鄭雁雄指要加強教育對科技和人才的支撐作用
-
-![鄭雁雄表示，特區要全面把握中共總書記習近平重要講話精神，進一步強化教育對科技和人才的支撐作用。（中聯辦相片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798848_1_20250403195407.jpg&q=90)
-  
-
-特區政府舉辦學習全國兩會精神座談會，行政長官李家超主持。中聯辦主任鄭雁雄應邀出席並作交流分享。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798848-20250403.htm)
 
 ---
