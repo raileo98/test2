@@ -1,3 +1,27 @@
+# Trump unveils first US$5 million 'gold card' visa
+
+![Donald Trump claims that sales of the new visa will bring in job creators and could be used to reduce the US national deficit. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798945_1_20250404165741.jpg&q=90)
+  
+
+US President Donald Trump unveiled the first "gold card," a residency permit to be sold for US$5 million each, aboard Air Force One on Thursday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798945-20250404.htm)
+
+---
+
 # Israel kills Hamas 'commander' in Lebanon strike
 
 ![The strike in a residential area of Sidon killed the official and his adult son and daughter. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798944_1_20250404164812.jpg&q=85)
@@ -1411,29 +1435,5 @@ Rodrigo Duterte's lead lawyer said there was a "compelling" argument to throw ou
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm)
-
----
-
-# Venezuela says high-level criminal among US deportees
-
-![Repatriation flight with migrants deported from the US lands in at Simon Bolivar International Airport in Maiquetia, Venezuela. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798190_1_20250331090008.jpg&q=90)
-  
-
-Venezuelan authorities reported the arrival on Sunday of a new flight of 175 migrants expelled by the United States, including a gang leader - the first time Caracas has confirmed a criminal was among the deportees.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798190-20250331.htm)
 
 ---
