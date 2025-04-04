@@ -1,3 +1,27 @@
+# 英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕
+
+![英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798974_1_20250404224512.jpg&q=90)
+  
+
+英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798974-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798974-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798974-20250404.htm)
+
+---
+
 # 劉兆佳指中方反制肯定不只是姿態　莊太量料或引發小股災
 
 ![國務院關稅稅則委員會、商務部、海關總署公布多項針對美國的反制措施。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798972_1_20250404220059.jpg&q=80)
