@@ -1,3 +1,26 @@
+# 德甲拜仁3:1反勝奧格斯堡　鞏固榜首位置
+
+  
+
+德國甲組足球聯賽，拜仁慕尼黑作客3:1反勝奧格斯堡，鞏固榜首位置。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798999-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798999-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798999-20250405.htm)
+
+---
+
 # 全運會保齡球香港甄選賽明日起舉行
 
 ![香港代表隊的甄選賽將會在明天、後天及下星期六，在啟德體育園啟德一號零售館的保齡球中心舉行。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798947_1_20250404172623.jpg&q=90)
@@ -1435,29 +1458,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797028-20250323.htm)
-
----
-
-# 黃澤林在邁阿密網球精英賽挫世界排名14舒爾頓　形容勝利屬香港
-
-![黃澤林淘汰世界排名14的美國球手舒爾頓，晉級邁阿密網球公開賽第三圈。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797027_1_20250323160316.jpg&q=90)
-  
-
-美國邁阿密網球公開賽，香港網球「一哥」黃澤林，在男單次圈以盤數2:1，淘汰世界排名14的美國球手舒爾頓。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm](https://news.rthk.hk/rthk/ch/component/k2/1797027-20250323.htm)
 
 ---

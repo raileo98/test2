@@ -1,3 +1,27 @@
+# 美國3月非農業新增職位勝預期　分析料關稅影響最早4月數據反映
+
+![分析估計，對等關稅帶來的影響，最快在4月美國非農業就業報告顯現。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798998_1_20250405072254.jpg&q=90)
+  
+
+美國3月非農業新增職位22.8萬個，遠高於市場預期的13.5萬個，亦高於2月向下修訂的11.7萬個。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm)
+
+---
+
 # 港股美國預託證券急挫　恒指ADR指數跌507點
 
 ![港股美國預託證券急挫，恒指ADR指數報22343點，比星期四恒指收市跌507點，跌幅2.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798997_1_20250405060331.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798803-20250403.htm)
-
----
-
-# 內地股市收市向下　創業板跌近2%
-
-![上證指數低開近1%後曾輕微倒升，收市報3342點，跌8點，跌幅0.24%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798797_1_20250403151620.jpg&q=90)
-  
-
-內地股市收市向下，汽車產業鏈、廚衛電器、蘋果概念股下跌；貴金屬、旅遊酒店股造好。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798797-20250403.htm)
 
 ---

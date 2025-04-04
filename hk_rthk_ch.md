@@ -1,3 +1,50 @@
+# 美國3月非農業新增職位勝預期　分析料關稅影響最早4月數據反映
+
+![分析估計，對等關稅帶來的影響，最快在4月美國非農業就業報告顯現。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798998_1_20250405072254.jpg&q=90)
+  
+
+美國3月非農業新增職位22.8萬個，遠高於市場預期的13.5萬個，亦高於2月向下修訂的11.7萬個。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798998-20250405.htm)
+
+---
+
+# 德甲拜仁3:1反勝奧格斯堡　鞏固榜首位置
+
+  
+
+德國甲組足球聯賽，拜仁慕尼黑作客3:1反勝奧格斯堡，鞏固榜首位置。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798999-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798999-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798999-20250405.htm)
+
+---
+
 # 港股美國預託證券急挫　恒指ADR指數跌507點
 
 ![港股美國預託證券急挫，恒指ADR指數報22343點，比星期四恒指收市跌507點，跌幅2.2%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798997_1_20250405060331.jpg&q=90)
@@ -1391,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm)
-
----
-
-# 運輸署：往萬宜水庫東壩　交通非常繁忙
-
-![運輸署表示，通往萬宜水庫東壩的西貢萬宜路交通非常繁忙。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798923_1_20250404125231.jpg&q=80)
-  
-
-西貢北潭涌小巴總站往萬宜水庫東壩的小巴站，早上有大批市民及旅客排隊等候，營辦商安排多部專線小巴疏導乘客，排隊人龍有待消化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798923-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798923-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798923-20250404.htm)
-
----
-
-# 格奧爾基耶娃稱美國關稅對全球經濟前景構成重大風險
-
-![格奧爾基耶娃呼籲美國與貿易夥伴以建設性方式，努力紓緩緊張局勢。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798917_1_20250404123303.jpg&q=90)
-  
-
-國際貨幣基金組織總裁格奧爾基耶娃表示，現時全球經濟增長低迷，美國總統特朗普周三宣布的全面關稅措施，對全球經濟構成重大風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798917-20250404.htm)
 
 ---
