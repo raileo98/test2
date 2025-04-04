@@ -1,3 +1,50 @@
+# 上水疑有狗隻遭毒殺4死2失蹤
+
+  
+
+上水古洞發生懷疑毒殺狗隻案。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798957-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798957-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798957-20250404.htm)
+
+---
+
+# 中國對原產於美國所有進口商品加徵34%關稅
+
+![國務院關稅稅則委員會宣布本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798952_1_20250404182448.jpg&q=90)
+  
+
+國務院關稅稅則委員會宣布，本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798952-20250404.htm)
+
+---
+
 # 消防暫收31宗山火報告　無人受傷
 
   
@@ -1390,53 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798757-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798757-20250403.htm)
-
----
-
-# 發展局：前南丫島石礦場用地旅遊元素先行　初步顯示財務可行
-
-![何珮玲表示，針對前南丫島石礦場用地建議發展為生態旅遊地點，希望以旅遊元素先行。（立法會文件）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798754_1_20250403103830.jpg&q=90)
-  
-
-發展局推出3個生態旅遊發展片區項目，邀請發展商提交意向書。發展局常任秘書長何珮玲在一個電台節目表示，針對前南丫島石礦場用地建議發展為生態旅遊地點，相對10年前的想法，當局今次希望以旅遊元素先行，降低住宅樓面的成份，由於項目附近有海灣，因此希望有遊艇會，顧問初步分析顯示財務可行，在減少發展規模及減少對基建需求下，整塊地會以單一形式推出。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798754-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798754-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798754-20250403.htm)
-
----
-
-# 積金局：各類基金過去1年平均淨回報均錄正數　股票基金表現最好
-
-![積金局數據顯示，強積金各類基金在過去12個月平均年率化淨回報都是正數，並提醒不應以短線投資角度看待。（積金局圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798750_1_20250403095209.jpg&q=90)
-  
-
-積金局公布截至3月底的強積金投資回報臨時數據，各類基金在過去12個月平均年率化淨回報都是正數。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798750-20250403.htm)
 
 ---
