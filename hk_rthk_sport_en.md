@@ -1,3 +1,27 @@
+# De Bruyne to leave City at the end of the season
+
+![Kevin De Bruyne has won 14 major trophies since joining Man City in 2015. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798963_1_20250404194329.jpg&q=90)
+  
+
+Manchester City midfielder Kevin De Bruyne confirmed on Friday that he will leave the club at the end of the season.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm)
+
+---
+
 # HK International Track Cup to attract 150 cyclists
 
 ![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798942_1_20250404160739.jpg&q=85)
@@ -1428,29 +1452,5 @@ China's hopes of directly qualifying for the 2026 World Cup took a hit after suf
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797366-20250325.htm)
-
----
-
-# 'Coleman Wong's magical run inspires next generation'
-
-![The SAR's tennis chief Michael Cheng says he is impressed with Coleman Wong's achievements at the Miami Open. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797357_2_20250325210437.jpg&q=90)
-  
-
-Coleman Wong’s history-making performance at the Miami Open will serve as a huge morale boost for the SAR’s next generation of tennis players, Hong Kong, China’s tennis chief said on Tuesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm)
 
 ---

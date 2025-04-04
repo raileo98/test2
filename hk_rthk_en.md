@@ -1,3 +1,27 @@
+# De Bruyne to leave City at the end of the season
+
+![Kevin De Bruyne has won 14 major trophies since joining Man City in 2015. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798963_1_20250404194329.jpg&q=90)
+  
+
+Manchester City midfielder Kevin De Bruyne confirmed on Friday that he will leave the club at the end of the season.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798963-20250404.htm)
+
+---
+
 # China to impose tariffs of 34pc on all US goods
 
 ![The authorities in Beijing say the countermeasure will be effective from April 10. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798960_1_20250404190851.jpg&q=90)
@@ -1414,29 +1438,5 @@ Commerce chief Algernon Yau on Wednesday stressed that merging the city's public
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798626-20250402.htm)
-
----
-
-# CATL and Sinopec eye 10,000 battery swap stations
-
-![The deal is aimed at easing range anxiety among electric vehicle drivers. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798636_1_20250402163804.jpg&q=90)
-  
-
-Chinese electric vehicle battery giant CATL said on Wednesday that it will partner with state-owned oil giant Sinopec to build 10,000 battery swap stations.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798636-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798636-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798636-20250402.htm)
 
 ---
