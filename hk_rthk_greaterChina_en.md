@@ -1,3 +1,27 @@
+# China to impose tariffs of 34pc on all US goods
+
+![The authorities in Beijing say the countermeasure will be effective from April 10. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798960_1_20250404190851.jpg&q=90)
+  
+
+China on Friday announced the imposition of tariffs of 34 percent on all goods from the United States, as a countermeasure to the sweeping tariffs imposed by the Trump administration.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm)
+
+---
+
 # US should correct reciprocal tariffs: Foreign Ministry
 
 ![Guo Jiakun says additional US tariffs on exports from China and other countries seriously violate World Trade Organization regulations. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798814_1_20250403164944.jpg&q=90)
@@ -1415,29 +1439,5 @@ Financial Secretary Paul Chan visited two mainland firms in Beijing on Friday, h
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796969-20250322.htm)
-
----
-
-# China, Japan, S Korea agree to deepen cooperation
-
-![Foreign Minister Wang Yi and South Korea's Foreign Minister Cho Tae-yul shake hands as Japan's Foreign Minister Takeshi Iwaya looks on. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796925_1_20250322153847.jpg&q=90)
-  
-
-Foreign Minister Wang Yi said on Saturday that China, Japan and the South Korea have agreed to further strengthen communication, enhance mutual trust, and deepen cooperation.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm](https://news.rthk.hk/rthk/en/component/k2/1796925-20250322.htm)
 
 ---

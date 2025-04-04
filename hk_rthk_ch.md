@@ -1,3 +1,50 @@
+# 商務部對原產於美國、印度進口CT球管展開反傾銷調查
+
+![商務部對原產於美國、印度進口CT球管展開反傾銷調查。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798961_1_20250404190018.jpg&q=75)
+  
+
+在北京，商務部宣布對原產於美國、印度進口相關醫用CT球管發起反傾銷立案調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798961-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798961-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798961-20250404.htm)
+
+---
+
+# 中方暫停6家美國企業產品輸華資質
+
+  
+
+國家海關總署公布，暫停6家美國企業產品輸華資質。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798962-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798962-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798962-20250404.htm)
+
+---
+
 # 清明長假首日截至下午4時逾45萬人次出境
 
   

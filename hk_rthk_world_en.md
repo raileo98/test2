@@ -1,3 +1,27 @@
+# China to impose tariffs of 34pc on all US goods
+
+![The authorities in Beijing say the countermeasure will be effective from April 10. Photo: Xinhua](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798960_1_20250404190851.jpg&q=90)
+  
+
+China on Friday announced the imposition of tariffs of 34 percent on all goods from the United States, as a countermeasure to the sweeping tariffs imposed by the Trump administration.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798960-20250404.htm)
+
+---
+
 # Trump unveils first US$5 million 'gold card' visa
 
 ![Donald Trump claims that sales of the new visa will bring in job creators and could be used to reduce the US national deficit. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798945_1_20250404165741.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump said “I’m not joking” about trying to serve a th
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798236-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798236-20250331.htm)
-
----
-
-# Duterte lawyer insists ICC 'has no jurisdiction'
-
-![Friends and relatives of some of the thousands killed during former Philippine president Rodrigo Duterte's 'war on drugs' call for justice and his conviction by the International Criminal Court in Manila on Friday. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798229_1_20250331121432.jpg&q=90)
-  
-
-Rodrigo Duterte's lead lawyer said there was a "compelling" argument to throw out the International Criminal Court case against the former Philippines president before it even comes to trial.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798229-20250331.htm)
 
 ---
