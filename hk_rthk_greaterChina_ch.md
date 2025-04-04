@@ -1,3 +1,27 @@
+# 《環看天下》：特朗普宣布對等關稅　分析料通脹加劇無可避免
+
+![特朗普宣布向全球多國及地區實施「對等關稅」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798894_1_20250404082028.jpg&q=90)
+  
+
+美國總統特朗普宣布，向全球多國實施「對等關稅」，包括向所有進口貨品，徵收10%「基準關稅」，個別國家的稅率更高，包括向中國貨品繼原有加徵20%關稅後，額外再加徵34%「對等關稅」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm)
+
+---
+
 # 清明節長假期開始　深圳口岸料日均95萬人次出入境
 
 ![當局預計，羅湖、福田和深圳灣口岸是承擔假期出入境客流的主力口岸。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798876_1_20250404025651.jpg&q=90)
@@ -1414,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798549-20250402.htm)
-
----
-
-# 解放軍東部戰區在台灣海峽中部和南部相關海域組織演練
-
-![東部戰區昨日開始，組織陸海空火等兵力，在台島周邊組織艦機多向抵近台島開展聯合演訓。（央視新聞）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798548_1_20250402081312.jpg&q=90)
-  
-
-解放軍東部戰區今日在台灣海峽中部、南部相關海域，組織「海峽雷霆-2025A」演練，重點實施查證識別、警告驅離、攔截扣押等科目，檢驗部隊區域管控、聯合封控、精打擊要能力。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798548-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798548-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798548-20250402.htm)
 
 ---

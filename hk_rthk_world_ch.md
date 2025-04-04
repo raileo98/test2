@@ -1,3 +1,27 @@
+# 《環看天下》：特朗普宣布對等關稅　分析料通脹加劇無可避免
+
+![特朗普宣布向全球多國及地區實施「對等關稅」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798894_1_20250404082028.jpg&q=90)
+  
+
+美國總統特朗普宣布，向全球多國實施「對等關稅」，包括向所有進口貨品，徵收10%「基準關稅」，個別國家的稅率更高，包括向中國貨品繼原有加徵20%關稅後，額外再加徵34%「對等關稅」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm)
+
+---
+
 # 古特雷斯呼籲國際社會向緬甸加大資金支持
 
   
@@ -1409,29 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798564-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798564-20250402.htm)
-
----
-
-# 緬甸紅十字會主席：救援面臨災情評估和物流協調挑戰
-
-![災民排隊領取食物等救災物資。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798566_1_20250402095157.jpg&q=80)
-  
-
-緬甸大地震的搜救工作持續進行，地震已造成2700多人死亡、4500多人受傷，另有400多人失蹤。救援人員昨天上午從首都內比都一座建築救出一名被困約91小時的老人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798566-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798566-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798566-20250402.htm)
 
 ---

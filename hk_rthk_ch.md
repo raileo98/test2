@@ -1,3 +1,99 @@
+# 《環看天下》：特朗普宣布對等關稅　分析料通脹加劇無可避免
+
+![特朗普宣布向全球多國及地區實施「對等關稅」。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798894_1_20250404082028.jpg&q=90)
+  
+
+美國總統特朗普宣布，向全球多國實施「對等關稅」，包括向所有進口貨品，徵收10%「基準關稅」，個別國家的稅率更高，包括向中國貨品繼原有加徵20%關稅後，額外再加徵34%「對等關稅」。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798894-20250404.htm)
+
+---
+
+# 韓股開市後跌逾1%
+
+![首爾綜合指數較早時報2459點，跌27點，跌幅1.11%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798893_1_20250404080935.jpg&q=90)
+  
+
+南韓股市下跌。首爾綜合指數較早時報2459點，跌27點，跌幅1.11%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798893-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798893-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798893-20250404.htm)
+
+---
+
+# 日股開市跌近2%
+
+![日經指數較早時報34117點，跌618點，跌幅1.78%。（交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798892_1_20250404080746.jpg&q=90)
+  
+
+東京股市下挫，日經指數較早時報34117點，跌618點，跌幅1.78%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798892-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798892-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798892-20250404.htm)
+
+---
+
+# 市場料聯儲局今年減息4次　聯儲局官員重申毋須急於減息
+
+![市場普遍預期今年將減息4次，6月將首次減息，減幅25點子。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798891_1_20250404075934.jpg&q=90)
+  
+
+市場對美國聯儲局減息的預期不斷升溫，普遍預期今年將減息4次，6月將首次減息，減幅25點子，到今年底聯邦基金利率將降至3.43厘。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798891-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798891-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798891-20250404.htm)
+
+---
+
 # 古特雷斯呼籲國際社會向緬甸加大資金支持
 
   
@@ -1338,101 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798824-20250403.htm)
-
----
-
-# 美股3大指數期貨跌逾2%至3%　道指期貨挫逾千點
-
-![道瓊斯指數期貨一度跌逾1100點，較早時報41472點，跌1020點，跌幅2.4%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798821_1_20250403172029.jpg&q=90)
-  
-
-美國對多個國家同地區徵收對等關稅，美股指數期貨急挫。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798821-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798821-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798821-20250403.htm)
-
----
-
-# 本港二手樓價按周升逾1%　港島樓價急升近3.5%
-
-![中原城市領先指數（CCL）最新報136.82點，按周升1.12%，反映3月中旬個別新盤熱銷。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798823_1_20250403172334.jpg&q=70)
-  
-
-反映本港二手樓價走勢的中原城市領先指數（CCL）最新報136.82點，按周升1.12%，連升兩周，亦是12周以來最大單周升幅，反映3月中旬天水圍和大埔個別新盤熱銷的當周市況。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798823-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798823-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798823-20250403.htm)
-
----
-
-# 商務部：中歐同意盡快重啟電動汽車反補貼案價格承諾談判
-
-![何亞東說，中歐雙方同意盡快重啟電動汽車反補貼案價格承諾談判，為推動中歐企業開展投資和產業合作營造良好的環境。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798822_1_20250403172239.jpg&q=75)
-  
-
-在北京，商務部新聞發言人何亞東表示，中歐雙方同意盡快重啟電動汽車反補貼案價格承諾談判，為推動中歐企業開展投資和產業合作營造良好的環境。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798822-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798822-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798822-20250403.htm)
-
----
-
-# 約5萬考生應考文憑試英文科卷一及卷二　考評局：各試場運作暢順
-
-![考評局表示，各試場學校整體運作暢順，考試順利按時完成。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798820_1_20250403185812.jpg&q=85)
-  
-
-中學文憑試英國語文科卷一及卷二考試早上舉行。考評局表示，約50000名考生在約430個一般試場及逾540個特別試場應考，各試場學校整體運作暢順，考試順利按時完成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798820-20250403.htm)
 
 ---
