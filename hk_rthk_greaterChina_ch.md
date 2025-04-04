@@ -1,3 +1,23 @@
+# 羅淑佩稱訪京匯報工作獲夏寶龍勉勵　將秉持守正繼續做好工作
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm)
+
+---
+
 # 讀寄宿學校學漢語　藏族學生認為助未來發展
 
 ![這所中學的學生大部分來自農村，9成以上學生選擇寄宿。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798898_1_20250404091024.jpg&q=80)
@@ -1416,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798570-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798570-20250402.htm)
-
----
-
-# 國務院任命周一鳴為警務處處長　免去蕭澤頤職務
-
-![國務院任命周一鳴為警務處處長。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798568_2_20250402104843.jpg&q=90)
-  
-
-國務院任命周一鳴為新任警務處處長。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798568-20250402.htm)
 
 ---

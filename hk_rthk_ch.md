@@ -1,3 +1,71 @@
+# 中國常駐聯合國代表敦促以色列立即停止對加沙軍事行動
+
+![傅聰說，實現持久停火才是拯救生命、讓人質回家的最好辦法。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798905_1_20250404101144.jpg&q=90)
+  
+
+中國常駐聯合國代表傅聰表示，近日以色列宣布將擴大地面進攻、佔領加沙領土，中方對此表示嚴重關切，敦促以色列立即停止對加沙的軍事行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm)
+
+---
+
+# 羅淑佩稱訪京匯報工作獲夏寶龍勉勵　將秉持守正繼續做好工作
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm)
+
+---
+
+# 內地股市休市
+
+![內地今日假期，金融市場休市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798903_1_20250404095431.jpg&q=90)
+  
+
+內地今日假期，金融市場休市。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798903-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798903-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798903-20250404.htm)
+
+---
+
 # 懷疑精神錯亂男子美國首都華盛頓刺傷6人被捕
 
 ![懷疑精神錯亂男子美國首都華盛頓刺傷6人被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798899_1_20250404094813.jpg&q=90)
@@ -48,6 +116,7 @@
 
 # 楊何蓓茵到浩園向殉職公務員致意
 
+![楊何蓓茵近日代表特區政府到和合石墳場內的浩園，悼念因公殉職的公職人員。（楊何蓓茵社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798901_1_20250404101058.jpg&q=85)
   
 
 今日是清明節，公務員事務局局長楊何蓓茵近日代表特區政府到和合石墳場內的浩園，悼念因公殉職的公職人員，並獻上鮮花致意。
@@ -1365,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798839-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798839-20250403.htm)
-
----
-
-# 李家超在政總主持學習全國兩會精神座談會　鄭雁雄出席
-
-![李家超表示，香港在「一國兩制」獨特優勢下，可以更大力度發揮內聯外通的橋樑作用，鞏固和歐美等傳統市場的經貿聯繫。（李家超社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798837_1_20250403185430.jpg&q=90)
-  
-
-行政長官李家超在社交專頁表示，今天在政府總部主持學習全國兩會精神座談會，特別感謝中聯辦主任鄭雁雄出席，與一眾特區政府官員、港區全國人大代表、港區全國政協委員、行政會議成員、立法會議員等300多人分享學習全國兩會精神和重要內容。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798837-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798837-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798837-20250403.htm)
-
----
-
-# 火炭謀殺案押後至5月29日再訊　被告還押
-
-![案件在沙田裁判法院首次提堂，裁判官應控方申請，將案件押後至5月29日再訊。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798836_1_20250403184710.jpg&q=80)
-  
-
-火炭上月發生一宗謀殺案，男被告下午在沙田裁判法院首次提堂。裁判官應控方申請，將案件押後至5月29日再訊，被告須還押候訊。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798836-20250403.htm)
-
----
-
-# 入境處反非法勞工拘捕16人　包括兩名僱主
-
-![懷疑非法勞工在行動中被捕。（入境處提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798834_1_20250403184311.jpg&q=80)
-  
-
-入境處一連三日在多區展開反非法勞工行動，拘捕14名懷疑非法勞工及2名涉嫌聘用非法勞工的僱主。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798834-20250403.htm)
 
 ---

@@ -1,5 +1,26 @@
+# 羅淑佩稱訪京匯報工作獲夏寶龍勉勵　將秉持守正繼續做好工作
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798904-20250404.htm)
+
+---
+
 # 楊何蓓茵到浩園向殉職公務員致意
 
+![楊何蓓茵近日代表特區政府到和合石墳場內的浩園，悼念因公殉職的公職人員。（楊何蓓茵社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798901_1_20250404101058.jpg&q=85)
   
 
 今日是清明節，公務員事務局局長楊何蓓茵近日代表特區政府到和合石墳場內的浩園，悼念因公殉職的公職人員，並獻上鮮花致意。
@@ -1410,29 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798672-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798672-20250402.htm)
-
----
-
-# 團結香港基金認為以片區發展生態旅遊項目具連貫性
-
-![未來白泥模擬圖。（北部都會區）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798671_1_20250402200619.jpg&q=80)
-  
-
-發展局邀請市場分別就前南丫島石礦場用地、南大嶼生態康樂走廊，以及尖鼻咀及白泥的生態旅遊發展項目，提交意向書，為期3個月。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798671-20250402.htm)
 
 ---

@@ -1,3 +1,27 @@
+# 中國常駐聯合國代表敦促以色列立即停止對加沙軍事行動
+
+![傅聰說，實現持久停火才是拯救生命、讓人質回家的最好辦法。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798905_1_20250404101144.jpg&q=90)
+  
+
+中國常駐聯合國代表傅聰表示，近日以色列宣布將擴大地面進攻、佔領加沙領土，中方對此表示嚴重關切，敦促以色列立即停止對加沙的軍事行動。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798905-20250404.htm)
+
+---
+
 # 懷疑精神錯亂男子美國首都華盛頓刺傷6人被捕
 
 ![懷疑精神錯亂男子美國首都華盛頓刺傷6人被捕](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798899_1_20250404094813.jpg&q=90)
@@ -1410,29 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm)
-
----
-
-# 緬甸內比都一名被困5日男子成功獲救
-
-![地震救援工作持續。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798622_1_20250402150225.jpg&q=90)
-  
-
-緬甸地震救援工作持續，國家管理委員會說，內比都一名被困5日的男子成功獲救。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798622-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798622-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798622-20250402.htm)
 
 ---
