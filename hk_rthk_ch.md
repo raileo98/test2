@@ -1,9 +1,9 @@
-# 烏克蘭克里維里赫市住宅區遭俄軍襲擊至少26死
+# 烏克蘭克里沃伊羅格市住宅區遭俄軍襲擊至少26死
 
-![烏克蘭克里維里赫市住宅區遭俄軍襲擊至少26死](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798984_1_20250405021830.jpg&q=90)
+![烏克蘭克里沃伊羅格市住宅區遭俄軍襲擊至少26死](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798984_1_20250405021830.jpg&q=90)
   
 
-烏克蘭第聶伯羅彼得羅夫斯克州克里維里赫市遭襲，至少26人死亡。
+烏克蘭第聶伯羅彼得羅夫斯克州克里沃伊羅格市遭襲，至少26人死亡。
 
   
 
