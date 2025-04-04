@@ -1,3 +1,51 @@
+# 南韓憲法法院通過彈劾案　尹錫悅被罷免總統職務
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798909_1_20250404102830.jpg&q=90)
+  
+
+南韓憲法法院通過對停職總統尹錫悅的彈劾案，尹錫悅被罷免總統職務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798909-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798909-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798909-20250404.htm)
+
+---
+
+# 南韓憲法法院開庭　就尹錫悅彈劾案宣判
+
+![南韓憲法法院外有警察把守。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798907_1_20250404101728.jpg&q=90)
+  
+
+南韓憲法法院本港時間早上10時就停職總統尹錫悅彈劾案開庭宣判，全程電視直播。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm)
+
+---
+
 # 中國常駐聯合國代表敦促以色列立即停止對加沙軍事行動
 
 ![傅聰說，實現持久停火才是拯救生命、讓人質回家的最好辦法。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798905_1_20250404101144.jpg&q=90)
@@ -1386,53 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798660-20250402.htm)
-
----
-
-# 尹錫悅彈劾案宣判在即　中美提醒公民避免參與集會
-
-![尹錫悅彈劾案即將宣判，支持者和反對人士分別在首爾集會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798652_1_20250402175045.jpg&q=90)
-  
-
-南韓總統尹錫悅彈劾案周五宣判，警方提高戒備，表示單在首爾部署約1萬4千名警員，應對可能出現的大規模集會。中國和美國都提醒在當地的公民，避免參與集會。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798652-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798652-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798652-20250402.htm)
-
----
-
-# 中國政府援助緬甸第二批物資明天啟運
-
-![中國政府首批援助物資日前運抵緬甸仰光國際機場。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798641_1_20250402170035.jpg&q=90)
-  
-
-央視新聞報道，從國家國際發展合作署了解，中國政府對緬甸援助的第二批抗震救災物資計劃明天上午啟運。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798641-20250402.htm)
 
 ---

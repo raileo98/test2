@@ -1,3 +1,27 @@
+# South Korea court upholds President Yoon's impeachment
+
+![Moon Hyung-bae (Centre), acting chief justice of South Korea's Constitutional Court, speaks during the final ruling of South Korean president Yoon Suk Yeol's impeachment. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798910_1_20250404103033.jpg&q=90)
+  
+
+South Korea's Constitutional Court on Friday decided to oust President Yoon Suk Yeol, upholding parliament's impeachment motion over his short-lived imposition of martial law last year that sparked the country's worst political crisis in decades.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798910-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798910-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798910-20250404.htm)
+
+---
+
 # Canada imposing 25% tariff on some US auto imports
 
 ![Canada's Prime Minister Mark Carney speaks about tariffs at a press conference on Parliament Hill in Ottawa, Canada. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798895_1_20250404084801.jpg&q=90)
@@ -1415,29 +1439,5 @@ Stephen Curry scored 52 points and Draymond Green added a triple-double as the G
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798584-20250402.htm)
-
----
-
-# 'Subsidised homes give hope to youngsters'
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798574_1_20250402103205.jpg&q=80)
-  
-
-Secretary for Housing Winnie Ho on Wednesday said authorities are rolling out about 50,000 subsidised residential flats in the next five years to make it easier for youngsters to own a home.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798574-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798574-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798574-20250402.htm)
 
 ---

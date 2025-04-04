@@ -1,3 +1,169 @@
+# 運輸署發送「#」號開頭短訊提示繳費
+
+  
+
+運輸署表示，為便利不同用家精準識別各類服務，署方會按服務類別，經通訊辦短訊發送人登記制下「#」號開頭的發送人名稱，聯絡市民與用戶，提示大家繳交隧道費、泊車費，續牌、約期等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm)
+
+---
+
+# 日股半日跌近3%
+
+![日經指數半日跌917點，報33818點，跌幅2.64%。 （交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798912_1_20250404104640.jpg&q=85)
+  
+
+東京股市下跌。日經指數半日跌917點，報33818點，跌幅2.64%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm)
+
+---
+
+# 上水疑有狗隻被毒死　警方到場調查
+
+  
+
+上水古洞南路有狗隻懷疑進食有毒食物後死亡，警方在場調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798911-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798911-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798911-20250404.htm)
+
+---
+
+# 南韓憲法法院通過彈劾案　尹錫悅被罷免總統職務
+
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798909_1_20250404102830.jpg&q=90)
+  
+
+南韓憲法法院通過對停職總統尹錫悅的彈劾案，尹錫悅被罷免總統職務。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798909-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798909-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798909-20250404.htm)
+
+---
+
+# 區議員憂南大嶼生態景點交通難負荷　促增設停車位
+
+![劉展鵬擔心交通難以負荷，建議將改善陸路交通及增設停車位放入發展計劃。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798908_1_20250404103107.jpg&q=90)
+  
+
+發展局就前南丫島石礦場用地、南大嶼生態康樂走廊，以及尖鼻咀及白泥三個生態旅遊發展項目，邀請發展商在三個月內提交意向書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm)
+
+---
+
+# 南韓憲法法院開庭　就尹錫悅彈劾案宣判
+
+![南韓憲法法院外有警察把守。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798907_1_20250404101728.jpg&q=90)
+  
+
+南韓憲法法院本港時間早上10時就停職總統尹錫悅彈劾案開庭宣判，全程電視直播。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798907-20250404.htm)
+
+---
+
+# 將軍澳海水化淡廠疑氯氣洩漏　消防到場戒備
+
+![將軍澳海水化淡廠上午一度懷疑有氯氣洩漏，消防員到場戒備。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798906_1_20250404102005.jpg&q=80)
+  
+
+將軍澳海水化淡廠上午一度懷疑有氯氣洩漏，消防員到場戒備，初步知道無人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm)
+
+---
+
 # 中國常駐聯合國代表敦促以色列立即停止對加沙軍事行動
 
 ![傅聰說，實現持久停火才是拯救生命、讓人質回家的最好辦法。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798905_1_20250404101144.jpg&q=90)
@@ -24,7 +190,11 @@
 
 # 羅淑佩稱訪京匯報工作獲夏寶龍勉勵　將秉持守正繼續做好工作
 
+![羅淑佩說，訪京匯報工作獲夏寶龍勉勵，將秉持守正繼續做好工作。（黃維波攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798904_1_20250404101841.jpg&q=90)
   
+
+文化體育及旅遊局局長羅淑佩總結三日訪京行程時表示，此行收穫非常豐富，拜會了中央港澳辦主任、國務院港澳辦主任夏寶龍，匯報重點工作及未來工作計劃，夏龍寶對她及政策局勉勵有嘉，特別關注旅遊方面如何推陳出新。羅淑佩強調，今後會秉持守正創新的精神，不斷做好短中長期工作，發展局已因應旅遊片區邀請發展商提交意向書，這些都是中央對他們作出的特別指示而一步步做出來。
+
   
 
 
@@ -1266,173 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798846-20250403.htm)
-
----
-
-# 滬深京交易所發布程序化交易管理實施細則　7月7日起實施
-
-![上海、深圳和北京證券交易所發布程序化交易管理實施細則，對程序化交易實行實時監控，將於7月7日起實施。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798843_1_20250403192505.jpg&q=90)
-  
-
-上海、深圳和北京證券交易所發布程序化交易管理實施細則，對程序化交易實行實時監控，重點監控瞬時申報速率異常、頻繁瞬時撤單、頻繁拉抬打壓、短時間大額成交等異常交易行為，細則將於7月7日起實施。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798843-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798843-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798843-20250403.htm)
-
----
-
-# 金管總局：保險機構應全部使用自有資金開展重大股權投資
-
-![國家金融監督管理總局表示，保險機構應當全部使用自有資金開展重大股權投資，防止無序擴張。（新華社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798845_1_20250403193211.jpg&q=80)
-  
-
-國家金融監督管理總局表示，保險機構應當全部使用自有資金開展重大股權投資，要審慎開展，並加強對股權投資的統籌管理，防止無序擴張。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798845-20250403.htm)
-
----
-
-# 中電稱已制定應變方案減少山火對電力系統潛在風險
-
-![中電表示，已制定應變方案，減少山火對電力系統造成的潛在風險。（中電提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798844_1_20250403193210.jpg&q=80)
-  
-
-中電表示，正全方位加強山火防備工作，包括過去幾星期重點巡查山火黑點，加強農林管理，並會在超過400個地點進行電杆清理，移除附近的雜草和樹枝，避免山火影響電力設施。中電亦已制定應變方案，減少山火對電力系統造成的潛在風險。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798844-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798844-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798844-20250403.htm)
-
----
-
-# 天文台錄得相對濕度曾降至22%　平了1984年以來最低紀錄
-
-![天文台呼籲市民上山祭祖小心山火，勿留火種。（天文台社交專頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798842_2_20250403192548.jpg&q=90)
-  
-
-天文台表示，受到乾燥偏東氣流影響，今日香港多區相對濕度下降到30%或以下，天文台總部錄得相對濕度更曾下降到22%，追平天文台自1984年設置自動氣象站以來、4月份最低紀錄。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798842-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798842-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798842-20250403.htm)
-
----
-
-# 習近平參加植樹活動　要求解決林草資源總量不足問題
-
-![習近平與在場的幹部群眾、少先隊員交談。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798841_2_20250403191940.jpg&q=90)
-  
-
-中共中央總書記、國家主席、中央軍委主席習近平，參加植樹活動時強調，植樹造林是生態文明建設重要一環，各地區各部門要進一步行動，積極參與造林綠化，踐行綠色發展理念，弘揚生態文化。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798841-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798841-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798841-20250403.htm)
-
----
-
-# 交行香港和渣打協助財政部在倫敦發行60億人民幣綠色主權債
-
-![交行香港及渣打表示，協助中國財政部在英國倫敦成功定價發行60億人民幣綠色主權債，超額認購6.8倍。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798833_1_20250403183328.jpg&q=75)
-  
-
-交通銀行香港分行和渣打銀行表示，協助中國財政部在英國倫敦成功定價發行60億人民幣綠色主權債。該筆債券超額認購6.8倍，是繼2016年後，財政部再次在倫敦面向國際市場發行人民幣主權債。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798833-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798833-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798833-20250403.htm)
-
----
-
-# 政府委任梁世光出任輔警總監　接替行將退休楊祖賜
-
-![警務處處長周一鳴（右）頒授委任狀予新委任香港輔助警察隊總監梁世光（左）。（警方提供）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798839_1_20250403185915.jpg&q=90)
-  
-
-政府宣布委任梁世光由本月7日起出任香港輔助警察隊總監，以接替行將退休的總監楊祖賜。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798839-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798839-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798839-20250403.htm)
 
 ---

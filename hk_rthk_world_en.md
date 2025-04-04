@@ -1,3 +1,27 @@
+# South Korea court upholds President Yoon's impeachment
+
+![Moon Hyung-bae (Centre), acting chief justice of South Korea's Constitutional Court, speaks during the final ruling of South Korean president Yoon Suk Yeol's impeachment. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798910_1_20250404103033.jpg&q=90)
+  
+
+South Korea's Constitutional Court on Friday decided to oust President Yoon Suk Yeol, upholding parliament's impeachment motion over his short-lived imposition of martial law last year that sparked the country's worst political crisis in decades.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798910-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798910-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798910-20250404.htm)
+
+---
+
 # Canada imposing 25% tariff on some US auto imports
 
 ![Canada's Prime Minister Mark Carney speaks about tariffs at a press conference on Parliament Hill in Ottawa, Canada. Photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798895_1_20250404084801.jpg&q=90)
@@ -1411,29 +1435,5 @@ The World Health Organisation (WHO) said on Sunday that the Myanmar earthquake w
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798187-20250331.htm)
-
----
-
-# Actor Richard Chamberlain dies aged 90
-
-![Chamberlain rocketed to fame in the TV medical drama "Dr Kildare" and starred in the mini-series "Shogun" and "The Thorn Birds". File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798193_1_20250331091507.jpg&q=90)
-  
-
-Richard Chamberlain, the Emmy-nominated actor and 1960s heartthrob who rocketed to fame in the TV medical drama "Dr Kildare" and starred in the mini-series "Shogun" and "The Thorn Birds" has died at the age of 90, publicist Harlan Boll said.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798193-20250331.htm)
 
 ---

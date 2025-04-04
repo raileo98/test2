@@ -1,3 +1,27 @@
+# 日股半日跌近3%
+
+![日經指數半日跌917點，報33818點，跌幅2.64%。 （交易所圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798912_1_20250404104640.jpg&q=85)
+  
+
+東京股市下跌。日經指數半日跌917點，報33818點，跌幅2.64%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798912-20250404.htm)
+
+---
+
 # 內地股市休市
 
 ![內地今日假期，金融市場休市。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798903_1_20250404095431.jpg&q=90)
@@ -1412,29 +1436,5 @@ AEON信貸公布，截至2月底，上個財政年度盈利約4億元，按年�
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798743-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798743-20250403.htm)
-
----
-
-# 人民幣兌美元中間價下跌
-
-![人民幣兌美元中間價報7.1889，較上日中間價跌96點子。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798741_1_20250403091729.jpg&q=80)
-  
-
-人民幣兌美元中間價報7.1889，較上日中間價跌96點子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798741-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798741-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798741-20250403.htm)
 
 ---

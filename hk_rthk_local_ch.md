@@ -1,6 +1,104 @@
-# 羅淑佩稱訪京匯報工作獲夏寶龍勉勵　將秉持守正繼續做好工作
+# 運輸署發送「#」號開頭短訊提示繳費
 
   
+
+運輸署表示，為便利不同用家精準識別各類服務，署方會按服務類別，經通訊辦短訊發送人登記制下「#」號開頭的發送人名稱，聯絡市民與用戶，提示大家繳交隧道費、泊車費，續牌、約期等。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798913-20250404.htm)
+
+---
+
+# 上水疑有狗隻被毒死　警方到場調查
+
+  
+
+上水古洞南路有狗隻懷疑進食有毒食物後死亡，警方在場調查。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798911-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798911-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798911-20250404.htm)
+
+---
+
+# 區議員憂南大嶼生態景點交通難負荷　促增設停車位
+
+![劉展鵬擔心交通難以負荷，建議將改善陸路交通及增設停車位放入發展計劃。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798908_1_20250404103107.jpg&q=90)
+  
+
+發展局就前南丫島石礦場用地、南大嶼生態康樂走廊，以及尖鼻咀及白泥三個生態旅遊發展項目，邀請發展商在三個月內提交意向書。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798908-20250404.htm)
+
+---
+
+# 將軍澳海水化淡廠疑氯氣洩漏　消防到場戒備
+
+![將軍澳海水化淡廠上午一度懷疑有氯氣洩漏，消防員到場戒備。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798906_1_20250404102005.jpg&q=80)
+  
+
+將軍澳海水化淡廠上午一度懷疑有氯氣洩漏，消防員到場戒備，初步知道無人受傷。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798906-20250404.htm)
+
+---
+
+# 羅淑佩稱訪京匯報工作獲夏寶龍勉勵　將秉持守正繼續做好工作
+
+![羅淑佩說，訪京匯報工作獲夏寶龍勉勵，將秉持守正繼續做好工作。（黃維波攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798904_1_20250404101841.jpg&q=90)
+  
+
+文化體育及旅遊局局長羅淑佩總結三日訪京行程時表示，此行收穫非常豐富，拜會了中央港澳辦主任、國務院港澳辦主任夏寶龍，匯報重點工作及未來工作計劃，夏龍寶對她及政策局勉勵有嘉，特別關注旅遊方面如何推陳出新。羅淑佩強調，今後會秉持守正創新的精神，不斷做好短中長期工作，發展局已因應旅遊片區邀請發展商提交意向書，這些都是中央對他們作出的特別指示而一步步做出來。
+
   
 
 
@@ -1335,101 +1433,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798676-20250402.htm)
-
----
-
-# 港澳辦網站再轉載文章促長和盡快回頭改變錯誤決定
-
-![港澳辦網站再度轉發《大公報》文章，指出長和的港口交易涉及國家安全和利益。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798675_1_20250402210101.jpg&q=80)
-  
-
-港澳辦網站再度轉發《大公報》文章，指出長和的港口交易涉及國家安全和利益，國家市場監督管理總局依法審查合情合理合法，身為香港的重要企業，長和必須尊重國家利益，應當承擔最基本的責任義務，必須盡快回頭，改變錯誤決定。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798675-20250402.htm)
-
----
-
-# 鄧炳強感謝國家及特區救援隊救出生還者　稱開心感動又驕傲
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798674_1_20250402202915.jpg&q=85)
-  
-
-保安局局長鄧炳強表示，剛剛收到特區救援隊帶來好消息，於曼德勒65街一間酒店的瓦礫中救出生還者。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798674-20250402.htm)
-
----
-
-# 緬甸地震｜特區與國家救援隊救出一名被困逾120小時男子
-
-![中國救援隊聯同特區救援隊於緬甸救出一名被困逾120小時男子。（央視截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798673_1_20250402201044.jpg&q=90)
-  
-
-中國救援隊聯同特區救援隊，在緬甸曼德勒救出一名被困超過120小時的男子。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798673-20250402.htm)
-
----
-
-# 多名議員支持規範籃球博彩　打擊非法賭博
-
-![政府建議參考規管足球博彩的做法，透過修例訂立規管框架，向馬會發出籃球博彩牌照，並制定相關牌照條件。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798672_1_20250402200703.jpg&q=90)
-  
-
-政府就規範籃球博彩活動的建議方案展開一個月諮詢，諮詢期至下月2日。政府建議參考規管足球博彩的做法，透過修例訂立規管框架，向馬會發出牌照，並制定相關牌照條件。政府建議條件包括不得接受本港球隊賽事投注等。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798672-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798672-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798672-20250402.htm)
 
 ---
