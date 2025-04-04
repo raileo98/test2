@@ -1,3 +1,26 @@
+# 莊太量指中國反制或令股市下跌
+
+  
+
+國務院關稅稅則委員會宣布，本月10日12時01分起，對原產於美國的所有進口商品，在現行適用關稅稅率基礎上加徵34%關稅。中文大學劉佐德全球經濟及金融研究所常務所長莊太量相信，即時影響是令股市下跌，包括歐洲及美國股市。他相信，美股有機會繼續跌，近日有機會引發全球小股災。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798968-20250404.htm)
+
+---
+
 # 劉兆佳指中方以組合拳反擊美國　早已做好應對貿易戰準備
 
   
@@ -1414,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798773-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798773-20250403.htm)
-
----
-
-# 強積金顧問：今年以來強積金人均回報逾9100元
-
-![強積金顧問公司GUM表示，今年至上星期五，強積金人均賺約9126元，相當於去年人均回報的42%。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798767_1_20250403115106.jpg&q=80)
-  
-
-強積金顧問公司GUM表示，今年至上星期五，旗下強積金綜合指數升3.3%，報253.5。期內，強積金人均賺約9126元，相當於去年人均回報的42%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798767-20250403.htm)
 
 ---
