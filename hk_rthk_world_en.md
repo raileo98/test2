@@ -1,3 +1,27 @@
+# Tariffs to raise inflation, cool growth: Fed Chair
+
+![Jerome Powell said on Friday that he expected the current uncertainty to decline in the coming months. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798991_1_20250405044209.jpg&q=90)
+  
+
+US President Donald Trump's tariffs risk higher unemployment and will likely cause inflation to rise and growth to slow, Federal Reserve Chair Jerome Powell said on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm)
+
+---
+
 # Trump extend TikTok deadline to find buyer
 
 ![The new 75-day delay pushes the deadline to June 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798987_1_20250405031437.jpg&q=90)
@@ -1411,29 +1435,5 @@ US President Donald Trump said the tariffs he plans to impose in the coming days
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798259-20250331.htm)
-
----
-
-# S Korean police set to question wildfires suspect
-
-![An Uiseong surveys what else is left after a wildfire devastated his village. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798256_1_20250331151631.jpg&q=45)
-  
-
-South Korean police plan to question a 56-year-old man on suspicion of starting at least one of the wildfires that recently devastated the country’s southern regions, killing 30 people and burning through more than 48,000 hectares.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798256-20250331.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798256-20250331.htm](https://news.rthk.hk/rthk/en/component/k2/1798256-20250331.htm)
 
 ---

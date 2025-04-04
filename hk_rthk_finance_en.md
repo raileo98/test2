@@ -1,3 +1,51 @@
+# Tariffs to raise inflation, cool growth: Fed Chair
+
+![Jerome Powell said on Friday that he expected the current uncertainty to decline in the coming months. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798991_1_20250405044209.jpg&q=90)
+  
+
+US President Donald Trump's tariffs risk higher unemployment and will likely cause inflation to rise and growth to slow, Federal Reserve Chair Jerome Powell said on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm)
+
+---
+
+# Major Wall Street indices fall by over 5 percent
+
+![A trader on the floor of the American Stock Exchange. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798992_1_20250405045214.jpg&q=90)
+  
+
+Wall Street stocks suffered another bruising sell-off on Friday as major indices slumped more than five percent following President Donald Trump's aggressive tariff policies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798992-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798992-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798992-20250405.htm)
+
+---
+
 # Trump extend TikTok deadline to find buyer
 
 ![The new 75-day delay pushes the deadline to June 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798987_1_20250405031437.jpg&q=90)
@@ -1390,53 +1438,5 @@ Laos has signed a US$1.45 billion clean energy deal with a Chinese power plant e
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797153-20250324.htm)
-
----
-
-# Stocks open up amid caution over tariffs
-
-![The Hang Seng Index opened 59.86 points, or 0.25 percent, up at 23,749. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797110_1_20250324110326.jpg&q=80)
-  
-
-The Hang Seng Index climbed 59.86 points, or 0.25 percent, to open at 23,749.58 on Monday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm](https://news.rthk.hk/rthk/en/component/k2/1797110-20250324.htm)
-
----
-
-# UK to announce more cuts in budget update
-
-![Finance minister Rachel Reeves is expected to reduce the administration budgets for the civil service by 10 percent. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1796992_1_20250323073004.jpg&q=90)
-  
-
-British finance minister Rachel Reeves is eyeing spending cuts for government officials who work in departments to the value of around 1.5 billion pounds (US$1.94 billion) a year by 2028-29, The Times newspaper reported on Saturday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm](https://news.rthk.hk/rthk/en/component/k2/1796992-20250323.htm)
 
 ---

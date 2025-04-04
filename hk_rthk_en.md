@@ -1,3 +1,51 @@
+# Tariffs to raise inflation, cool growth: Fed Chair
+
+![Jerome Powell said on Friday that he expected the current uncertainty to decline in the coming months. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798991_1_20250405044209.jpg&q=90)
+  
+
+US President Donald Trump's tariffs risk higher unemployment and will likely cause inflation to rise and growth to slow, Federal Reserve Chair Jerome Powell said on Friday.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798991-20250405.htm)
+
+---
+
+# Major Wall Street indices fall by over 5 percent
+
+![A trader on the floor of the American Stock Exchange. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798992_1_20250405045214.jpg&q=90)
+  
+
+Wall Street stocks suffered another bruising sell-off on Friday as major indices slumped more than five percent following President Donald Trump's aggressive tariff policies.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798992-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798992-20250405.htm](https://news.rthk.hk/rthk/en/component/k2/1798992-20250405.htm)
+
+---
+
 # Trump extend TikTok deadline to find buyer
 
 ![The new 75-day delay pushes the deadline to June 19. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798987_1_20250405031437.jpg&q=90)
@@ -1390,53 +1438,5 @@ A Singaporean teenager allegedly planning to kill dozens of Muslims outside seve
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798653-20250402.htm)
-
----
-
-# Warning shots fired at Chinese Red Cross convoy
-
-![A Chinese Red Cross team looks for survivors among the ruins of a residential building in Mandalay on Sunday. File photo: Reuters](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798650_1_20250402174414.jpg&q=80)
-  
-
-China strongly urges all parties in Myanmar to ensure the safety of earthquake relief workers and supplies from China and other countries, a Foreign Ministry spokesman said on Wednesday.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798650-20250402.htm)
-
----
-
-# Manila warned over peace threat from any F-16 deal
-
-![US Air Force F-16 fighter jets at Basa Air Base in Pampanga, Philippines, last April for a joint exercise. File photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798634_1_20250402161526.jpg&q=85)
-  
-
-China on Wednesday warned the Philippines against threatening "regional peace" after the United States said it had approved the possible sale of US$5.58 billion in F-16 fighter jets to Manila.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798634-20250402.htm)
 
 ---
