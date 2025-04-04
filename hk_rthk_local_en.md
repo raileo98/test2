@@ -1,3 +1,27 @@
+# Youtube megastar IShowSpeed arrives in Hong Kong
+
+![Popular streamer IShowSpeed took part in "villain-hitting" in Causeway Bay. Photo: YouTube/IShowSpeed](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798924_1_20250404125426.jpg&q=90)
+  
+
+Youtube mega-star I-Show-Speed arrived in Hong Kong on Friday, after a live stream tour across the mainland, and has made his way around Causeway Bay before seeing the pandas at Ocean Park.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm)
+
+---
+
 # HK manufacturers to wait-and-see amid Trump tariff
 
 ![Wingco Lo said SAR manufacturers will wait and see when its comes to planning, after the US imposed a raft of reciprocal tariffs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798915_1_20250404113116.jpg&q=90)
@@ -1418,29 +1442,5 @@ Fans soaked up the raucous atmosphere at the new Kai Tak Stadium where the Hong 
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798035-20250329.htm)
-
----
-
-# Police make 157 space oil drug arrests
-
-![Police commissioner Raymond Siu says the force arrested 157 people in relation to the space oil drug between February 14 and March 27. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798023_1_20250329170940.jpg&q=90)
-  
-
-Police Commissioner Raymond Siu revealed on Saturday that the force has arrested 157 people in relation to the space oil drug.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798023-20250329.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798023-20250329.htm](https://news.rthk.hk/rthk/en/component/k2/1798023-20250329.htm)
 
 ---

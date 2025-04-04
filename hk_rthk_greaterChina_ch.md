@@ -1,3 +1,26 @@
+# 中方指美方打著對等幌子嚴重損害以規則為基礎多邊貿易體制
+
+  
+
+中國駐美國使館發言人表示，中方堅決反對美方宣布的所謂對等關稅，將採取必要措施，堅定維護自身正當利益。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798925-20250404.htm)
+
+---
+
 # 中國駐緬甸使館確認緬甸地震中累計5名中國公民遇難
 
 ![緬甸大地震的救援工作持續。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798920_1_20250404123006.jpg&q=90)
@@ -1416,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798605-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798605-20250402.htm)
-
----
-
-# 郵儲行預計今年息差仍面臨下行壓力
-
-![劉建軍稱，郵儲行今年將加大對農業生產經營、生活消費、假日、文旅等產業信貸投放。（網上會議截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798599_1_20250402124629.jpg&q=90)
-  
-
-郵儲銀行行長劉建軍表示，會積極應對低利率環境的挑戰，但考慮到貸款市場報價利率下行，以及按揭貸款存量利率調整，預計今年息差仍面臨下行壓力。他說，會推動信貸業務多元化發展，今年將加大對農業生產經營、生活消費、假日、文旅等產業的信貸投放，又會原則上拒絕高價、高息存款，將通過擴大客群，做大自營存款。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798599-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798599-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798599-20250402.htm)
 
 ---

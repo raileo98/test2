@@ -1,3 +1,26 @@
+# 警拘7人涉兒童色情物品案　少年疑拍攝11歲胞妹不雅照
+
+  
+
+本港警方拘捕7人，懷疑他們與兒童色情物品案件有關。被捕人介乎16至49歲，警方共檢獲7部手提電話及11部電腦或外置儲存裝置，內有162段兒童色情影片及230張相片。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798926-20250404.htm)
+
+---
+
 # 運輸署：往萬宜水庫東壩　交通非常繁忙
 
 ![運輸署表示，通往萬宜水庫東壩的西貢萬宜路交通非常繁忙。（汪溟曦攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798923_1_20250404125231.jpg&q=80)
@@ -1412,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798688-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798688-20250402.htm)
-
----
-
-# 建造業議會推計劃記錄前線人員安全表現　約270個項目承諾參加
-
-![「前線人員安全表現紀錄計劃」經過超過一年諮詢，將推出統一標準，記錄建造業前線人員安全表現。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798685_1_20250402213805.jpg&q=60)
-  
-
-建造業議會推出「前線人員安全表現紀錄計劃」，計劃經過超過一年諮詢，將推出統一標準，記錄建造業前線人員安全表現。建造業議會主席何安誠表示，計劃至今有大約270個項目承諾會參加，會設3.5小時進修課程，每項課程也會針對特定項目，並會於平日晚上或星期日上課，確保課程有足夠學額。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798685-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798685-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798685-20250402.htm)
 
 ---

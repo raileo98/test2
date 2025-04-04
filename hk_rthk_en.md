@@ -1,3 +1,27 @@
+# Youtube megastar IShowSpeed arrives in Hong Kong
+
+![Popular streamer IShowSpeed took part in "villain-hitting" in Causeway Bay. Photo: YouTube/IShowSpeed](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798924_1_20250404125426.jpg&q=90)
+  
+
+Youtube mega-star I-Show-Speed arrived in Hong Kong on Friday, after a live stream tour across the mainland, and has made his way around Causeway Bay before seeing the pandas at Ocean Park.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798924-20250404.htm)
+
+---
+
 # HK manufacturers to wait-and-see amid Trump tariff
 
 ![Wingco Lo said SAR manufacturers will wait and see when its comes to planning, after the US imposed a raft of reciprocal tariffs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798915_1_20250404113116.jpg&q=90)
@@ -1414,29 +1438,5 @@ The Democratic-backed candidate for Wisconsin Supreme Court defeated a challenge
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798589-20250402.htm)
-
----
-
-# Drivers' pay rises once joining taxi fleet: operator
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798583_1_20250402114151.jpg&q=85)
-  
-
-The operator of a licensed taxi fleet said drivers’ income had significantly increased since the launch of a new premium cab scheme.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798583-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798583-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798583-20250402.htm)
 
 ---
