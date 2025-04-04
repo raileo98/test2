@@ -1,3 +1,26 @@
+# 本港截至早上10時17萬人次出境　逾8萬人次入境
+
+  
+
+清明節3天長假期首日，截至早上10時，經各口岸出境的人次超過17萬，入境人次超過8萬，合計超過25萬人次進出本港。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798941-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798941-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798941-20250404.htm)
+
+---
+
 # 流行文化節本月起展開　未來兩日有免費戶外音樂嘉年華
 
   
@@ -23,7 +46,6 @@
 
 # 特區救援隊與國家隊義診緬甸地震災民
 
-![特區救援隊聯同國家隊在災區設置帳篷義診。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798938_1_20250404155558.jpg&q=85)
 ![救援隊帶災民到醫療帳篷接受診治。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798938_2_20250404155558.jpg&q=65)
   
 
@@ -1415,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798748-20250403.htm)
-
----
-
-# 標普全球：香港上月採購經理指數跌至48.3
-
-![標普稱，經濟增長放緩、競爭日益加劇、貿易前景更多不明朗因素，都對香港的內需及外銷構成壓力。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798736_1_20250403085936.jpg&q=85)
-  
-
-標普全球3月香港採購經理指數經季節調整後跌至48.3，按月下跌0.7，反映私營經濟在首季尾轉弱，主要由於新接訂單進一步減少，跌幅是去年中之後最大。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798736-20250403.htm)
 
 ---

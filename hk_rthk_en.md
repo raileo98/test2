@@ -1,3 +1,27 @@
+# HK International Track Cup to attract 150 cyclists
+
+![The Hong Kong International Track Cup will involve 50 cyclists from local affiliated clubs, participating in elite and junior races. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798942_1_20250404160739.jpg&q=85)
+  
+
+One of the National Games test events – the Hong Kong International Track Cup – will be held from April 19 to 21, attracting professional cyclists from around the world.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm)
+
+---
+
 # S Korea seizes two tons of cocaine in record bust
 
 ![The drugs were packed in 56 sacks and hidden in a secret compartment behind the engine room. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798939_1_20250404153820.jpg&q=90)
@@ -48,7 +72,7 @@ Chelsea climbed to fourth place in the Premier League as Enzo Fernandez sealed a
 
 # Tourism chief vows to remain principled in her work
 
-![Rosanna Law has been on her first visit to Beijing since becoming the Secretary for Culture, Sports and Tourism. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798932_1_20250404134405.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798932_1_20250404134405.jpg&q=90)
   
 
 The Secretary for Sports, Culture and Tourism emphasised that she will stay principled and innovative in her work, as she wrapped up her three-day trip to Beijing on Friday.
@@ -96,7 +120,7 @@ People on Friday flocked to cemeteries to pay their respects to their ancestors 
 
 # Five men arrested in relation to child pornography
 
-![Police say hundreds of videos and photos related to child pornography were found in the suspects' electronic devices. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798927_1_20250404125856.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798927_1_20250404125856.jpg&q=90)
   
 
 Police on Friday said five local men were arrested in relation to child pornography, as officers warned about AI-generated pornographic images.
@@ -1414,29 +1438,5 @@ Newly appointed Commissioner of Police Joe Chow has vowed to prioritise safeguar
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798611-20250402.htm)
-
----
-
-# Seoul braces for clashes over Yoon ruling
-
-![Police officers get ready for a potential showdown on Friday between pro and anti-Yoon supporters near the entrance of the Constitutional Court in Seoul. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798612_1_20250402141524.jpg&q=80)
-  
-
-South Korean police will mobilise "all available resources" to prevent violence when a court rules on Friday on the fate of impeached President Yoon Suk Yeol, with top tourist sites to close and embassies warning citizens to stay away.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798612-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798612-20250402.htm](https://news.rthk.hk/rthk/en/component/k2/1798612-20250402.htm)
 
 ---

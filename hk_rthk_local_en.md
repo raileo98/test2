@@ -1,6 +1,30 @@
+# HK International Track Cup to attract 150 cyclists
+
+![The Hong Kong International Track Cup will involve 50 cyclists from local affiliated clubs, participating in elite and junior races. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798942_1_20250404160739.jpg&q=85)
+  
+
+One of the National Games test events – the Hong Kong International Track Cup – will be held from April 19 to 21, attracting professional cyclists from around the world.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm)
+
+---
+
 # Tourism chief vows to remain principled in her work
 
-![Rosanna Law has been on her first visit to Beijing since becoming the Secretary for Culture, Sports and Tourism. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798932_1_20250404134405.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798932_1_20250404134405.jpg&q=90)
   
 
 The Secretary for Sports, Culture and Tourism emphasised that she will stay principled and innovative in her work, as she wrapped up her three-day trip to Beijing on Friday.
@@ -48,7 +72,7 @@ People on Friday flocked to cemeteries to pay their respects to their ancestors 
 
 # Five men arrested in relation to child pornography
 
-![Police say hundreds of videos and photos related to child pornography were found in the suspects' electronic devices. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798927_1_20250404125856.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798927_1_20250404125856.jpg&q=90)
   
 
 Police on Friday said five local men were arrested in relation to child pornography, as officers warned about AI-generated pornographic images.
@@ -1415,29 +1439,5 @@ Financial Secretary Paul Chan said "Super March" has attracted more than 3.4 mil
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798103-20250330.htm)
-
----
-
-# Young people see police in better light: Commissioner
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798097_3_20250330123521.jpg&q=90)
-  
-
-Police Commissioner Raymond Siu on Sunday said the force's efforts to raise its image among young people were bearing fruit.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm](https://news.rthk.hk/rthk/en/component/k2/1798097-20250330.htm)
 
 ---

@@ -1,3 +1,27 @@
+# HK International Track Cup to attract 150 cyclists
+
+![The Hong Kong International Track Cup will involve 50 cyclists from local affiliated clubs, participating in elite and junior races. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798942_1_20250404160739.jpg&q=85)
+  
+
+One of the National Games test events – the Hong Kong International Track Cup – will be held from April 19 to 21, attracting professional cyclists from around the world.
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm](https://news.rthk.hk/rthk/en/component/k2/1798942-20250404.htm)
+
+---
+
 # Fernandez header powers Chelsea into fourth
 
 ![Spurs boss Ange Postecoglu had to endure chants of "you don't know what you're doing" from his own side's fans. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798934_1_20250404151409.jpg&q=90)
@@ -1428,29 +1452,5 @@ Coleman Wong’s history-making performance at the Miami Open will serve as a hu
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797357-20250325.htm)
-
----
-
-# Blatter and Platini cleared of graft charges again
-
-![Michel Platini, left, and Sepp Blatter were cleared of fraud mismanagement by a Swiss court. Photo: AFP](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1797334_1_20250325173315.jpg&q=85)
-  
-
-Sepp Blatter and Michel Platini won again in court on Tuesday and now lead 2-0 in trial verdicts against Swiss federal prosecutors.
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm](https://news.rthk.hk/rthk/en/component/k2/1797334-20250325.htm)
 
 ---

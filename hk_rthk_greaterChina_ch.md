@@ -1,6 +1,5 @@
 # 特區救援隊與國家隊義診緬甸地震災民
 
-![特區救援隊聯同國家隊在災區設置帳篷義診。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798938_1_20250404155558.jpg&q=85)
 ![救援隊帶災民到醫療帳篷接受診治。（保安局社交網頁）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798938_2_20250404155558.jpg&q=65)
   
 
