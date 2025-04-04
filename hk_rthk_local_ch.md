@@ -1,5 +1,29 @@
+# 6地警方聯手打擊兒童色情物品拘捕435人　本港7名男子被捕
+
+  
+
+本港警方聯同日本、南韓、新加坡等合共6個地方的執法機關，聯手打擊兒童色情物品，拘捕435人。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798958-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798958-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798958-20250404.htm)
+
+---
+
 # 上水疑有狗隻遭毒殺4死2失蹤
 
+![上水疑有狗隻遭毒殺，4隻狗口吐白沫死亡。（郭志強攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798957_1_20250404184735.jpg&q=75)
   
 
 上水古洞發生懷疑毒殺狗隻案。
@@ -47,6 +71,7 @@
 
 # 消防暫收31宗山火報告　無人受傷
 
+![截至下午5時，消防處收到31宗山火報告，無人受傷或被困。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798951_1_20250404184451.jpg&q=90)
   
 
 清明節多區出現山火，截至下午5時，消防處共收到31宗山火報告，無人受傷或被困。
@@ -1413,29 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798763-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798763-20250403.htm)
-
----
-
-# 運輸署籲清明節長周末往返內地及澳門　於非繁忙時段出行
-
-![運輸署呼籲於長周末、即本月4至6日經各陸路管制站往返內地及澳門的市民、內地旅客及跨境車輛，及早規劃行程。（運輸署社交網站圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798757_1_20250403104726.jpg&q=75)
-  
-
-運輸署表示，清明節是香港和內地的公眾假期，呼籲於長周末、即本月4至6日經各陸路管制站往返內地及澳門的市民、內地旅客及跨境車輛，及早規劃行程，預留充裕交通時間，於非繁忙時段出行。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798757-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798757-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798757-20250403.htm)
 
 ---
