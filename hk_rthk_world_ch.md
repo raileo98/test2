@@ -1,5 +1,30 @@
+# 烏克蘭克里維里赫市住宅區遭俄軍襲擊至少26死
+
+![烏克蘭克里維里赫市住宅區遭俄軍襲擊至少26死](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798984_1_20250405021830.jpg&q=90)
+  
+
+烏克蘭第聶伯羅彼得羅夫斯克州克里維里赫市遭襲，至少26人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798984-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798984-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798984-20250405.htm)
+
+---
+
 # 特朗普：將簽行政命令讓TikTok運行多75日以便達成協議
 
+![特朗普說，政府一直致力達成拯救TikTok的協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798983_1_20250405021416.jpg&q=90)
   
 
 美國總統特朗普在社交平台表示，將會簽署行政命令，讓中國字節跳動旗下短片分享平台TikTok運行多75日。
@@ -1411,29 +1436,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798788-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798788-20250403.htm)
-
----
-
-# 國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜
-
-![國家安全機關偵破菲律賓間諜案　拘捕3名菲籍間諜](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798764_2_20250403115547.jpg&q=90)
-  
-
-國家安全機關偵破一宗菲律賓間諜案件，拘捕3名涉嫌在中國境內從事間諜活動的菲律賓人。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798764-20250403.htm)
 
 ---

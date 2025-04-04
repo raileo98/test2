@@ -1,5 +1,30 @@
+# 烏克蘭克里維里赫市住宅區遭俄軍襲擊至少26死
+
+![烏克蘭克里維里赫市住宅區遭俄軍襲擊至少26死](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798984_1_20250405021830.jpg&q=90)
+  
+
+烏克蘭第聶伯羅彼得羅夫斯克州克里維里赫市遭襲，至少26人死亡。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798984-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798984-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798984-20250405.htm)
+
+---
+
 # 特朗普：將簽行政命令讓TikTok運行多75日以便達成協議
 
+![特朗普說，政府一直致力達成拯救TikTok的協議。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798983_1_20250405021416.jpg&q=90)
   
 
 美國總統特朗普在社交平台表示，將會簽署行政命令，讓中國字節跳動旗下短片分享平台TikTok運行多75日。
@@ -1415,29 +1440,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798911-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798911-20250404.htm)
-
----
-
-# 南韓憲法法院通過彈劾案　尹錫悅被罷免總統職務
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798909_1_20250404102830.jpg&q=90)
-  
-
-南韓憲法法院通過對停職總統尹錫悅的彈劾案，尹錫悅被罷免總統職務。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798909-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798909-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798909-20250404.htm)
 
 ---
