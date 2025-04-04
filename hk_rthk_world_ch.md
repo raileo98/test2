@@ -1,3 +1,27 @@
+# 中國反制美國　道指早段曾瀉逾1700點
+
+![中國推出關稅措施反制美國，美股3大指數連續第二日下挫。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798975_1_20250404230200.jpg&q=90)
+  
+
+中國推出關稅措施反制美國，美股3大指數連續第二日下挫。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798975-20250404.htm)
+
+---
+
 # 英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕
 
 ![英國喜劇演員羅素布蘭德涉嫌襲擊和強姦被捕。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798974_1_20250404224512.jpg&q=90)
@@ -1411,29 +1435,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798727-20250403.htm)
-
----
-
-# 特朗普簽署行政命令　取消中國內地和香港的小額包裹豁免關稅政策
-
-![特朗普公布新關稅政策，並即場簽署行政命令。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798725_1_20250403062020.jpg&q=90)
-  
-
-美國總統特朗普簽署行政命令，取消對來自中國內地和香港的小額包裹豁免關稅政策，5月2日起生效。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798725-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798725-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798725-20250403.htm)
 
 ---
