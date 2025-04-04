@@ -1,5 +1,73 @@
+# 學者：郵輪以香港為母港正逐漸增加
+
+![黃家榮稱郵輪旅遊從疫後復蘇，以香港為母港的郵輪佔香港停泊郵輪數目一半。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798930_1_20250404131309.jpg&q=85)
+  
+
+旅遊發展局表示，3月總共有17艘國際郵輪訪港，帶來數以千計遊客。去年共有30家郵輪公司派船來港，比前一年增加12家；郵輪旅客總流量35.5萬人次，按年上升63%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm)
+
+---
+
+# 被彈劾下台後　尹錫悅發表談話向國民道歉
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm)
+
+---
+
+# 陳美寶：積極推進本港海空貨物聯運發展
+
+  
+
+運輸及物流局局長陳美寶說，特區政府會繼續與機管局及業界攜手，加強機場的貨物處理能力和效率，積極推進「海空貨物聯運」發展，為大灣區貨物提供更無縫便捷的國際空運網絡，並提升機場的貨運設備，積極配合轉運、跨境電商及高價值溫控空運貨物的發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm)
+
+---
+
 # 警拘7人涉兒童色情物品案　少年疑拍攝11歲胞妹不雅照
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798926_1_20250404131142.jpg&q=90)
   
 
 本港警方拘捕7人，懷疑他們與兒童色情物品案件有關。被捕人介乎16至49歲，警方共檢獲7部手提電話及11部電腦或外置儲存裝置，內有162段兒童色情影片及230張相片。
@@ -23,6 +91,7 @@
 
 # 中方指美方打著對等幌子嚴重損害以規則為基礎多邊貿易體制
 
+![發言人指美方做法是典型的單邊霸凌主義。（中國駐美國使館官網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798925_1_20250404130945.jpg&q=90)
   
 
 中國駐美國使館發言人表示，中方堅決反對美方宣布的所謂對等關稅，將採取必要措施，堅定維護自身正當利益。
@@ -1365,77 +1434,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798863-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798863-20250403.htm)
-
----
-
-# 再多一名中國人死於緬甸大地震
-
-![中國駐緬甸大使館確認，再多一名中國人死於緬甸中部大地震。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798862_1_20250403223629.jpg&q=90)
-  
-
-中國駐緬甸大使館確認，再多一名中國人死於緬甸中部大地震，至今共4名中國公民死亡，13人受傷。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798862-20250403.htm)
-
----
-
-# 道指初段跌逾千點　納指跌逾4%　大型科技股跌幅顯著
-
-![道瓊斯指數較早時報41074點，跌1150點，跌幅2.73%。（法新社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798861_1_20250403214114.jpg&q=90)
-  
-
-美股在開市初段下跌，3大指數跌幅介乎近3%至逾4%。美國宣布對多個國家及地區徵收對等關稅。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798861-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798861-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798861-20250403.htm)
-
----
-
-# 海關關長晤荷蘭官員冀加強雙方海關事務協作
-
-![海關關長陳子達（右）在海關總部大樓與荷蘭海關關長Nanette van Schelven（左）進行雙邊會面。（政府新聞處）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798860_1_20250403215627.jpg&q=90)
-  
-
-海關關長陳子達與訪港的荷蘭海關關長及荷蘭駐香港總領事於海關總部大樓會面，藉此增進雙方友好關係以及加強在海關事務上的協作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798860-20250403.htm)
 
 ---

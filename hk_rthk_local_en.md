@@ -24,7 +24,7 @@ Youtube mega-star I-Show-Speed arrived in Hong Kong on Friday, after a live stre
 
 # HK manufacturers to wait-and-see amid Trump tariff
 
-![Wingco Lo said SAR manufacturers will wait and see when its comes to planning, after the US imposed a raft of reciprocal tariffs. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798915_1_20250404113116.jpg&q=90)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798915_1_20250404113116.jpg&q=90)
   
 
 The president of the Chinese Manufacturers' Association of Hong Kong has voiced its strong opposition towards US President Donald Trump's latest round of levies.

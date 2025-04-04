@@ -1,5 +1,73 @@
+# 學者：郵輪以香港為母港正逐漸增加
+
+![黃家榮稱郵輪旅遊從疫後復蘇，以香港為母港的郵輪佔香港停泊郵輪數目一半。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798930_1_20250404131309.jpg&q=85)
+  
+
+旅遊發展局表示，3月總共有17艘國際郵輪訪港，帶來數以千計遊客。去年共有30家郵輪公司派船來港，比前一年增加12家；郵輪旅客總流量35.5萬人次，按年上升63%。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798930-20250404.htm)
+
+---
+
+# 被彈劾下台後　尹錫悅發表談話向國民道歉
+
+  
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798929-20250404.htm)
+
+---
+
+# 陳美寶：積極推進本港海空貨物聯運發展
+
+  
+
+運輸及物流局局長陳美寶說，特區政府會繼續與機管局及業界攜手，加強機場的貨物處理能力和效率，積極推進「海空貨物聯運」發展，為大灣區貨物提供更無縫便捷的國際空運網絡，並提升機場的貨運設備，積極配合轉運、跨境電商及高價值溫控空運貨物的發展。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798928-20250404.htm)
+
+---
+
 # 警拘7人涉兒童色情物品案　少年疑拍攝11歲胞妹不雅照
 
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798926_1_20250404131142.jpg&q=90)
   
 
 本港警方拘捕7人，懷疑他們與兒童色情物品案件有關。被捕人介乎16至49歲，警方共檢獲7部手提電話及11部電腦或外置儲存裝置，內有162段兒童色情影片及230張相片。
@@ -1363,77 +1431,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm)
-
----
-
-# 政府完成黃大仙竹園聯合村聯合行動　相關用地日後發展公營房屋
-
-![發展局表示，在照顧受發展影響住戶的同時，亦須確保發展計劃按時完成，無法再延長遷出寬限期。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798695_1_20250402230234.jpg&q=90)
-  
-
-發展局表示，地政總署今日聯同相關政府部門，在黃大仙竹園聯合村進行聯合行動，將相關用地交予土木工程拓展署，以配合日後的公營房屋發展，相關行動已完成。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798695-20250402.htm)
-
----
-
-# 特首辦本年度撥款增920萬元　新設3職位薪金約266萬元
-
-![特首辦指，一直秉持審慎理財、善用資源的公共財政原則，並積極透過內部人手和資源調配、精簡程序和應用科技以提升效率。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798692_1_20250402225213.jpg&q=80)
-  
-
-特首辦在2025至26年度撥款，較上一年度修訂預算增長7.8%，涉款920萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798692-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798692-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798692-20250402.htm)
-
----
-
-# 逾4.1萬申請人獲發新生嬰兒獎勵金涉逾8億元　行政費約80萬
-
-![政府接獲42060宗「新生嬰兒獎勵金」的合資格申請，已向41304名申請人發放獎勵金，涉及8億2600萬元。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798688_1_20250402221657.jpg&q=70)
-  
-
-政府表示，截至上月中，共接獲42060宗「新生嬰兒獎勵金」的合資格申請，並已向41304名申請人發放獎勵金，涉及8億2600萬元。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798688-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798688-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798688-20250402.htm)
 
 ---
