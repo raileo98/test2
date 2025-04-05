@@ -1,3 +1,27 @@
+# 人民日報評論指美國所謂「對等關稅」將反噬美國經濟
+
+![人民日報發表評論文章，批評美國不知所云的所謂「對等關稅」，將反噬美國經濟。（人民網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799033_1_20250405151637.jpg&q=90)
+  
+
+美國今日起對所有出口到美國的商品徵收至少10%關稅，當中中國的關稅是34%。人民日報發表評論文章，批評美國不知所云的所謂「對等關稅」，是赤裸裸的單邊貿易保護主義政策，不僅將反噬美國經濟，更將嚴重破壞多邊貿易體制，衝擊全球產業鏈供應鏈，加劇國際貿易緊張和全球經濟分裂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm)
+
+---
+
 # 美國和巴拿馬官員討論長和經營巴拿馬運河港口審計問題
 
   
@@ -1413,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798962-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798962-20250404.htm)
-
----
-
-# 清明長假首日截至下午4時逾45萬人次出境
-
-![出境方面，以羅湖口岸最多，有近9萬人次。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798959_1_20250404191225.jpg&q=85)
-  
-
-清明節3天長假期首日，截至下午4時，有近74萬人次進出本港，當中包括逾45萬人次出境，及28萬人次入境。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798959-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798959-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798959-20250404.htm)
 
 ---

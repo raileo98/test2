@@ -1,3 +1,27 @@
+# 人民日報評論指美國所謂「對等關稅」將反噬美國經濟
+
+![人民日報發表評論文章，批評美國不知所云的所謂「對等關稅」，將反噬美國經濟。（人民網截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799033_1_20250405151637.jpg&q=90)
+  
+
+美國今日起對所有出口到美國的商品徵收至少10%關稅，當中中國的關稅是34%。人民日報發表評論文章，批評美國不知所云的所謂「對等關稅」，是赤裸裸的單邊貿易保護主義政策，不僅將反噬美國經濟，更將嚴重破壞多邊貿易體制，衝擊全球產業鏈供應鏈，加劇國際貿易緊張和全球經濟分裂。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799033-20250405.htm)
+
+---
+
 # 國家統計局：今年1至2月份中國消費市場運行平穩向好
 
 ![國家統計局數據顯示，今年1月至2月份中國消費市場運行平穩向好。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799029_1_20250405134002.jpg&q=85)
@@ -1419,29 +1443,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798698-20250403.htm)
-
----
-
-# 韓正晤滙豐集席杜嘉祺　冀集團為促進中英關係發展作貢獻
-
-![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798690_1_20250402223133.jpg&q=90)
-  
-
-國家副主席韓正在北京會見英國滙豐集團主席杜嘉祺。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm](https://news.rthk.hk/rthk/ch/component/k2/1798690-20250402.htm)
 
 ---
