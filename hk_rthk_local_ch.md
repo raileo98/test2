@@ -1,3 +1,27 @@
+# 水務署署長稱仍在檢討水費調整　用水量大行業冀加水費循序漸進
+
+![黃恩諾表示，仍在檢討水費調整，但他看過水費調整，對於節省用水的彈性言，並非十分顯著。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799022_1_20250405122558.jpg&q=90)
+  
+
+水務署署長黃恩諾表示，仍在檢討水費調整，但他看過水費的調整，對於節省用水的彈性而言，並非十分顯著，當局希望做到收回成本，用者自付，亦要顧及民生和經濟情況。他說，與一些用水量大的行業，例如賓館業界，餐飲業及建造業等商討過，大家都理解本港水費多年未有調整，希望即使加水費，最好循序漸進，不要一下子加太多。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm)
+
+---
+
 # 凌嘉勤：房協兩資助出售房屋項目至今收逾４千申請　反映剛性需求
 
 ![凌嘉勤說，房協已啟動數個租住屋邨的重建計劃，如住戶想揀心儀資助出售單位，鼓勵他們及早提出申請。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799021_1_20250405114734.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798807-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798807-20250403.htm)
-
----
-
-# 配合三項鐵人賽事　中環及灣仔本周五至周日有封路及特別交通安排
-
-![亞洲三鐵半奧運距離錦標賽明日起，一連三日在中環海濱舉行，中環及灣仔將有封路及特別交通安排。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798801_1_20250403161530.jpg&q=80)
-  
-
-亞洲三鐵半奧運距離錦標賽明日起，一連三日在中環海濱舉行，中環及灣仔將有封路及特別交通安排。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798801-20250403.htm)
 
 ---

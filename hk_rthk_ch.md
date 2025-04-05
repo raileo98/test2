@@ -1,3 +1,27 @@
+# 水務署署長稱仍在檢討水費調整　用水量大行業冀加水費循序漸進
+
+![黃恩諾表示，仍在檢討水費調整，但他看過水費調整，對於節省用水的彈性言，並非十分顯著。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799022_1_20250405122558.jpg&q=90)
+  
+
+水務署署長黃恩諾表示，仍在檢討水費調整，但他看過水費的調整，對於節省用水的彈性而言，並非十分顯著，當局希望做到收回成本，用者自付，亦要顧及民生和經濟情況。他說，與一些用水量大的行業，例如賓館業界，餐飲業及建造業等商討過，大家都理解本港水費多年未有調整，希望即使加水費，最好循序漸進，不要一下子加太多。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1799022-20250405.htm)
+
+---
+
 # 凌嘉勤：房協兩資助出售房屋項目至今收逾４千申請　反映剛性需求
 
 ![凌嘉勤說，房協已啟動數個租住屋邨的重建計劃，如住戶想揀心儀資助出售單位，鼓勵他們及早提出申請。](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799021_1_20250405114734.jpg&q=90)
@@ -242,6 +266,7 @@
 ![西藏巴宜區嘎拉村被譽為「桃花第一村」，種植超過1250棵野生桃樹。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_1_20250405092358.jpg&q=15)
 ![不少北京居民及遊客到訪玉淵潭公園打卡留念。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_2_20250405092358.jpg&q=35)
 ![玉淵潭公園是北京著名賞櫻勝地，目前正值櫻花盛開季節。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_3_20250405092358.jpg&q=55)
+![園區商店售賣多款以櫻花為主題的文創產品，包括磁石貼及公仔等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_4_20250405122742.jpg&q=90)
   
 
 踏入春季，全國多個城市正值花期，各地推動賞花經濟。在北京，賞櫻熱點之一的玉淵潭公園，吸引不少民眾及遊客賞花打卡。
@@ -1412,29 +1437,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798951-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798951-20250404.htm)
-
----
-
-# 日本去年查獲約1.2噸走私金條　加強海路走私警戒
-
-![日本去年查獲約1.2噸走私金條，數量是前一年約4倍。（路透社資料圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798950_1_20250404174339.jpg&q=85)
-  
-
-日本去年查獲約1.2噸走私金條，數量是前一年約4倍。海上走私呈增加趨勢，海上保安廳和海關已加強警戒。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm](https://news.rthk.hk/rthk/ch/component/k2/1798950-20250404.htm)
 
 ---

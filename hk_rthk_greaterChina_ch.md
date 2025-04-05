@@ -26,6 +26,7 @@
 ![西藏巴宜區嘎拉村被譽為「桃花第一村」，種植超過1250棵野生桃樹。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_1_20250405092358.jpg&q=15)
 ![不少北京居民及遊客到訪玉淵潭公園打卡留念。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_2_20250405092358.jpg&q=35)
 ![玉淵潭公園是北京著名賞櫻勝地，目前正值櫻花盛開季節。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_3_20250405092358.jpg&q=55)
+![園區商店售賣多款以櫻花為主題的文創產品，包括磁石貼及公仔等。（盧紫菁攝）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799006_4_20250405122742.jpg&q=90)
   
 
 踏入春季，全國多個城市正值花期，各地推動賞花經濟。在北京，賞櫻熱點之一的玉淵潭公園，吸引不少民眾及遊客賞花打卡。
