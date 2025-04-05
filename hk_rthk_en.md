@@ -1,6 +1,6 @@
 # HK won't impose countermeasures against US tariffs: FS
 
-![Financial Secretary Paul Chan says foreign investors have reassessed the potential of the nation's innovation and technological companies. Photo: RTHK](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799045_1_20250405170141.jpg&q=80)
+![](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799045_1_20250405170141.jpg&q=80)
   
 
 Financial Secretary Paul Chan on Saturday said Hong Kong will not impose countermeasures even though the United States announced sweeping tariffs on countries around the world.
