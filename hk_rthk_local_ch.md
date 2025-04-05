@@ -1,3 +1,27 @@
+# 東京旅遊巴意外　入境處接獲一宗求助涉及一港人輕傷
+
+![入境處表示，至今共接獲一宗相關求助，涉及一名港人受輕傷，毋須住院。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799066_1_20250406002004.jpg&q=85)
+  
+
+日本東京以西一條高速公路發生涉及旅遊巴的意外，據報47人受傷，包括香港人。入境處表示，至今共接獲一宗相關求助，涉及一名港人受輕傷，毋須住院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799066-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799066-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799066-20250406.htm)
+
+---
+
 # UTS網球賽首於亞洲舉行　10月啟德體藝館8球手競逐錦標
 
 ![香港站賽事將由8名球手競逐錦標，包括澳洲球手迪文拿奧與中國球手張之臻等。（UTS網頁截圖）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799064_1_20250405223925.jpg&q=90)
@@ -1415,29 +1439,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798855-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798855-20250403.htm)
-
----
-
-# 陳虹秀暴動罪成法庭聽取求情　案件押後至下周三判刑
-
-![案件押後至下星期三判刑。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798850_1_20250403195702.jpg&q=80)
-  
-
-2019年灣仔的示威衝突，社工陳虹秀被捕，經審訊後被裁定罪脫，其後律政司上訴得直，案件發還重審。陳虹秀否認暴動罪受審後，暫委法官鍾明新早前裁定陳虹秀暴動罪成，辯方今日在區域法院求情，案件押後至下星期三與其他被告一同判刑。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798850-20250403.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798850-20250403.htm](https://news.rthk.hk/rthk/ch/component/k2/1798850-20250403.htm)
 
 ---

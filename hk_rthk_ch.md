@@ -1,3 +1,51 @@
+# 英超阿仙奴被愛華頓逼和1:1
+
+![兵工廠和波失分，被愛華頓逼和1:1。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799067_1_20250406002505.jpg&q=85)
+  
+
+英格蘭超級足球聯賽，阿仙奴爭標再受挫折，作客被愛華頓逼和1:1。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799067-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799067-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799067-20250406.htm)
+
+---
+
+# 東京旅遊巴意外　入境處接獲一宗求助涉及一港人輕傷
+
+![入境處表示，至今共接獲一宗相關求助，涉及一名港人受輕傷，毋須住院。（港台圖片）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799066_1_20250406002004.jpg&q=85)
+  
+
+日本東京以西一條高速公路發生涉及旅遊巴的意外，據報47人受傷，包括香港人。入境處表示，至今共接獲一宗相關求助，涉及一名港人受輕傷，毋須住院。
+
+  
+
+
+---
+
+原始網址：
+<https://news.rthk.hk/rthk/ch/component/k2/1799066-20250406.htm>
+
+© rthk.hk
+
+電子郵件:
+[cnews@rthk.hk](mailto:cnews@rthk.hk)
+
+原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1799066-20250406.htm](https://news.rthk.hk/rthk/ch/component/k2/1799066-20250406.htm)
+
+---
+
 # 中柬兩軍啟動聯合演習　提高戰略協作水平
 
 ![柬埔寨首相洪瑪奈（前中）出席中柬雲壤港聯合保障和訓練中心掛牌儀式。（新華社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1799065_1_20250405230812.jpg&q=90)
@@ -1390,53 +1438,5 @@
 [cnews@rthk.hk](mailto:cnews@rthk.hk)
 
 原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798988-20250405.htm)
-
----
-
-# 美股持續急挫　道指曾跌逾2100點
-
-![三大指數星期五開市後急挫3%，之後跌幅擴大至超過5%。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798986_1_20250405024936.jpg&q=80)
-  
-
-市場擔憂美國對貿易夥伴徵收對等關稅引發貿易衝突升級，紐約股市繼前一日暴跌之後，三大指數星期五開市後再次急挫3%，之後跌幅擴大至超過5%。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798986-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798986-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798986-20250405.htm)
-
----
-
-# 中亞與歐盟宣布建立戰略夥伴　在關鍵原材料領域加強合作
-
-![中亞五國及歐盟領導人在烏茲別克撒馬爾罕舉行首屆中亞-歐盟峰會。（路透社）](https://wsrv.nl/?n=-1&we&h=720&output=webp&trim=1&url=https%3A%2F%2Fnewsstatic.rthk.hk%2Fimages%2Fmfile_1798985_1_20250405024157.jpg&q=90)
-  
-
-中亞五國及歐盟領導人在烏茲別克撒馬爾罕舉行首屆中亞-歐盟峰會，雙方宣布建立戰略夥伴關係，中亞五國與歐盟簽署關鍵原材料合作意向聲明，宣布在關鍵原材料領域加強合作。
-
-  
-
-
----
-
-原始網址：
-<https://news.rthk.hk/rthk/ch/component/k2/1798985-20250405.htm>
-
-© rthk.hk
-
-電子郵件:
-[cnews@rthk.hk](mailto:cnews@rthk.hk)
-
-原文連結：[https://news.rthk.hk/rthk/ch/component/k2/1798985-20250405.htm](https://news.rthk.hk/rthk/ch/component/k2/1798985-20250405.htm)
 
 ---
